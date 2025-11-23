@@ -6,7 +6,7 @@ VA - РАДИО БАТЯ - 005 (2024) [MP3|320 Kbps] <Поп, Рок, Шансо
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56083.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9B579589BB51759FEAD296086326C600CB3CA914
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56084.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ StarCraft: Remastered (2017) [Ru/En] (1.23.9.10756) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56085.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:75FCC71AD4BAD1E9957AF36DC9CE7BE0220F7788
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56086.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (14380324/dlc) Scene Rune [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56087.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:21AEC18812DE9BBB797F3936D7B46485C560ED86
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56088.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенн�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56089.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EE39E3FE168B80637DE164B6859B840CBABBC496
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56090.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:EF9D405E6F53461E0038B44D469EADCB069C7F1C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56091.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:A4D8F0DDFC685E84063947C4AE5684AAB5E470E0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56092.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:B78B32AFFCD2BEACCED0F4828AB662C4BB28E840
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56093.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:4682005FC6A897025381D1F099E51C31425EC468
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56094.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:DE8ED98A3144013DE9970590BDC1459E2177AC8A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56095.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56096.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ AEW: Fight Forever (2023) [Multi] (1.10/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56097.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:CFF18845F62A353B2778407DA7BD4C725EB1EC4D
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56098.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:6A7B383E6C4423D46E419A579939A816FA11343D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56099.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:04C57E4907FD0C247F09517E3F841BB01D1B2DEA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56100.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:DC233742B1DEFF906451AA16C1A140507C99E06E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56101.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:C97838AD93EB83AB912D0A01F8F9D03030E5B5F9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56102.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:EF54D5DCC4E44A015620C67B71EAE1CB88D45ECD
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56103.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:3899076255DDA59FD8B9FDD7CF5E52D8DD9B04E7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56104.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.1a) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56105.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:3A22DA67F1409CC65F4F8D453C000BA8F0307FA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56106.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:D6ACE390C4E6A4F833572DDEDBAACD2CC7D076C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56107.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 05.2024 by OVGorskiy
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56108.jpg" />
 </div>
 
 

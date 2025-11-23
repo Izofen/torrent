@@ -1,3 +1,76 @@
+###  Публикация: 485659   (100159) от 22.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3739
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE301FBD00833709BD51DF57095D60469276125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485640   (100171) от 22.04.2012
+
+[Wallpapers] The Best Wallpapers (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2AE6516D9CA3903E0C582A9204022127513910
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486573   (100180) от 22.04.2012
+
+Журнал | Встречи на кухне № 3. Устроим рыбный день! [март 2012] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал для тех кто любит готовить.
+Тема номера: Рыбный день.март 2012Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486285   (100181) от 22.04.2012
 
 Журнал | Автомир [Украина] №17 [апрель 2012] [PDF]
@@ -6,7 +79,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100181.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100193.jpg" />
 </div>
 
 
@@ -63,7 +136,7 @@ magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100199.jpg" />
 </div>
 
 
@@ -87,7 +160,7 @@ magnet:?xt=urn:btih:5B660186F3FA93BDB18E5328A4413E8F69120937
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100204.jpg" />
 </div>
 
 
@@ -111,7 +184,7 @@ Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100206.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100206.jpg" />
 </div>
 
 
@@ -144,7 +217,7 @@ Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100208.jpg" />
 </div>
 
 
@@ -168,7 +241,7 @@ Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100213.jpg" />
 </div>
 
 
@@ -192,7 +265,7 @@ Barren Earth - The Devils Resolve (2012) [FLAC|Lossless]<Progressive Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100216.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100216.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Barren Earth - The Devils Resolve (2012) [FLAC|Lossless]<Progressive Melodic Dea
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100217.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ magnet:?xt=urn:btih:0A4DEB0E6CB2E36BF12A3E92363E5F4715BD047D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100226.jpg" />
 </div>
 
 
@@ -271,7 +344,7 @@ VA - Студенческая Вечеринка Русский (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100227.jpg" />
 </div>
 
 
@@ -304,7 +377,7 @@ magnet:?xt=urn:btih:308E1359008F627B7A3FD5ABD4E9B24EF9B2AAD2
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100233.jpg" />
 </div>
 
 
@@ -328,7 +401,7 @@ Janne Hatula (Fanu, FanuSamurai) - Дискография (4 альбома, 14 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100234.jpg" />
 </div>
 
 
@@ -361,7 +434,7 @@ magnet:?xt=urn:btih:22E0884FD2D894061246549974AD8FFEE39154FE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100238.jpg" />
 </div>
 
 
@@ -385,7 +458,7 @@ magnet:?xt=urn:btih:2E3B1CCC32D024F7056F38BD242A8A28D754F217
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100241.jpg" />
 </div>
 
 
@@ -409,7 +482,7 @@ magnet:?xt=urn:btih:773D6D672901F2A4E35310FA3833EF1809F513BF
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100247.jpg" />
 </div>
 
 
@@ -433,7 +506,7 @@ Liyr - 2 albums (2010-2011) [FLAC|Lossless] <Martial Industrial, Neoclassical, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100248.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ magnet:?xt=urn:btih:5B34034E9563591151CD3D35F5850812521C9D18
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100257.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ magnet:?xt=urn:btih:381786330399C409E987BC7B28995D1CA99AADF2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100259.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ Ildfrost - 5 albums (1994-2003) [mp3|192-320 kbps] <Darkwave, Neoclassical, Ambi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100266.jpg" />
 </div>
 
 
@@ -543,7 +616,7 @@ magnet:?xt=urn:btih:0898E3836A4B3F0C9D13581FE853719A9A9F6095
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100270.jpg" />
 </div>
 
 
@@ -567,7 +640,7 @@ magnet:?xt=urn:btih:D178216E4D60E994BAE6BB81033607AAF8EA0E2C
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100272.jpg" />
 </div>
 
 
@@ -591,7 +664,7 @@ magnet:?xt=urn:btih:25E844E632FD2C2F7E0976875618F851245F1E0E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100275.jpg" />
 </div>
 
 
@@ -602,91 +675,6 @@ magnet:?xt=urn:btih:25E844E632FD2C2F7E0976875618F851245F1E0E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3265AA9DF113CC9DF9E0369CFC231709CAAFAE0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487093   (100276) от 23.04.2012
-
-[Wallpapers] Wallpapers - Miscellaneous topics (24.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD41DD84335588BC521A9E2870D270F7B58154B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486619   (100277) от 23.04.2012
-
-Нильс (REGATO) - Зима (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зима
-02. Простуда (feat. LowKick)
-03. Минус
-04. Солнце
-05. Не про тебя (feat. Никита Стихами)
-06. Периметр чувств (feat. Спрут (REGATO))
-07. За глаза
-08. Она запомнит
-09. Нечто
-10. Эксперимент(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487120   (100280) от 23.04.2012
-
-[Wallpapers] HD Wallpapers №20
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100280.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №20
-Название: HD Wallpapers №20
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
 ```
 
 

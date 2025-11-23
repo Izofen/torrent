@@ -6,7 +6,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-741) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116988.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117077.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:321A83D31A26367B13A9717403F364748B77F3D9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117255.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B61A8BCA96BF055C15EDA1D7DA1399631962E116
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117521.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F4B9DCF948E486BAABA621295E9183E683A2F014
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119042.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:EF8D4ED65F1048AA7020DBF77B57B18545837FD8
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119067.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:EEA682402812A4A1AB8B4D76EA4E95728ACE8B95
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119256.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:724E3F1D1C1D114E410BD9BA42D8A710C2436D74
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119262.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:F10203A7AAD49E51F6165ABF29D61E38819254E3
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119277.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VideoSmile, Дмитрий Кузнецов | Супер Photoshop (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119589.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:C669E711F8F7DDA8E84A1D1F5ECBE210448E904A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119720.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ripple Training, Mark Spencer | Advanced Color Grading in DaVinci Resolve 17/18 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120185.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Solid Factory, Антон Ильин | SolidWorks. Базовый курс (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120204.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Udemy, Daren Perincic | 2024 Blender Beginner Course - Create Cinematic Scenes (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120207.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Ripple Training, Steve Martin | DaVinci Resolve 18/18.5 Core Training (2023) WEB
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120218.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120401.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Artefacto school, Любовь Титова | Цветы и стеклянные
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120497.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Bazanova Art, Ольга Базанова | Как начать писать м�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120514.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Mircourse, Ольга Привалова | Художник-дизайнер и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120533.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7F062FA7981E251CE2C22890E23F34EF464A802E
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120540.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120551.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:259E965755EC07ACD34F6662138C8A0F8C498D6D
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120562.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120588.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120593.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120694.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ MasterClass, Marques Brownlee | Make Compelling Videos That Go Viral (2022) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120714.jpg" />
 </div>
 
 

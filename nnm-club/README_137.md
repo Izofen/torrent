@@ -6,7 +6,7 @@
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3612.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8AF9C4EE63036B2388F8D6348E5369E14CDDB96B
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3613.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIMP 5.40.2694 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3614.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FxSound 1.1.36.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3615.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1DC7B7AC1F829F159BFAEE208990AD6C5B1DAC09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3616.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Glenn Hughes - Voice Of Rock - Compilation (1970-2025) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3617.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C7873335E4BF5590C05F39825702420E63119CBC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3618.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:8505494EF0EA6CB2F44E580F9D29CCBA17922909
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3619.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C906C57AC3D0911FF3DBBD0BDFA8A22DAB75B6AD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3620.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ EZ CD Audio Converter 12.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3621.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:0DFE511511833A942E52E6322DA5E4C2CFABCE91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3622.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:476721FA8072180DE9BC1256C571CA31B853A007
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3623.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:4A46863320EA825451146E5F89212AF0882ED92C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3624.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:48ADB0200A6D21C260463F6288E26A41E3308191
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3625.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:8279CD858077AA626CD95806EA79F57632843606
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3626.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PDF24 Creator 11.28.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3627.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:328C56807A38A668305F33EB2395C9EE9160AAF8
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3628.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:F96DE3D61EACF63EF7470D092D6A81A1EDB60819
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3629.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:FB7945A8C44FEAB871F81B09E4ED67A76BD80A8A
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3630.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:755C95724AF3FE5100D0D63DC7B7F7E0CC174315
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3631.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B1350F8F09F55AA77D90D0B13B12BBAA61C3FBD8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3632.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E8F644D170A613166C40D4651EA0113336500A87
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3633.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Fallen City Brawl (2025) [En] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3634.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:26D5467B92D6B351A1143BD589FB81056902EEDC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3635.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:7A4F411ED2E9633772B51802CEE0AD2F43279F94
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3636.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:4C75E537FA2144838315A3FA6690F650CC5FFBE9
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3637.jpg" />
 </div>
 
 

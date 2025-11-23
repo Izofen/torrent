@@ -6,7 +6,7 @@ BlueStacks App Player 5.21.103.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62270.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 11 Manager 1.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62274.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Acrobat Reader 2024.001.20615.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62275.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 10 Manager 3.9.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62278.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Acrobat Pro 24.001.20615 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62288.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Adobe Photoshop 2024 25.6.0.433 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62292.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Clip Studio Paint EX 3.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62295.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ OpenVPN 2.6.10 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62297.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.6 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62312.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Total Commander 11.03 final VIM 48 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62315.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Free Download Manager 6.21.0.5639 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62322.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Blender 3.6.10 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62324.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wondershare PDFelement 10.3.2.2684 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62326.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Google Chrome 123.0.6312.59 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62327.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ K-Lite Codec Pack Update 18.2.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62328.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Fitify: Фитнес тренировки дома 1.68.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62332.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Windows 11 Manager 1.4.3 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62333.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ YT Downloader 9.6.17 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62337.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0314) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62338.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Google Chrome 123.0.6312.59 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62340.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Java SE Development Kit 22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62341.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ NVIDIA GeForce Desktop Game Ready 551.86 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62344.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ NVIDIA GeForce Desktop Game Ready 474.82 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62350.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ DNS Changer 2.2.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62353.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Android Studio Iguana | 2023.2.1 Patch 1 Build #AI-232.10300.40.2321.11567975 + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62361.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Advanced SystemCare Pro 17.3.0.204 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62370.jpg" />
 </div>
 
 

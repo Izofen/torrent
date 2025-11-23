@@ -6,7 +6,7 @@ Graveyard of Souls - Cenizas (2018) [FLAC|Lossless|image + .cue] <Doom, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173051.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Spiritus Mortis - Spiritism 2008-2017 (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173052.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Beastwars - Tyranny of Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <sludge met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173053.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Anatomy of I - The Los(T) Angered Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173055.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sahg - Born Demon (2022) Deluxe Edition, 2023, Drakkar Entertainment [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173058.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Patriarch - Demonic Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173059.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Poppy - Zig (2023) [MP3|256 Kbps] <Electro-Industrial / Electropop / Female Voca
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173174.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173204.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ U.F.O. - Lights Out In Babenhausen - Live 1993 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173206.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Blessed Curse - Pray For Armageddon (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173215.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Theocracy - Mosaic (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173224.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Terje - Recalibrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173225.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Blade - Joker and Clowns (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173226.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Entrenchment - Silence After Us (2023) [FLAC|Lossless|image + .cue] <Death Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173229.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Eagon - Equilibrium (2023) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173233.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mors Subita - Origin Of Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173236.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Edge Of Forever - Ritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173237.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Powerstorm - Act II (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173253.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E500C00F07A50C6015D4C586C12C0178A9601E3C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173257.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Comaniac - None For All (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173258.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Squealer - Insanity (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173261.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Paid Charons Fare - Mourn (2015) EP, Release 2018, GS Productions [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173263.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:C51BBBED34128E5550B48557D654BA78A2CC64CE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173336.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kiss - Destroyer (1976) 4CD (45th Anniversary Deluxe Ed.) (Remastered-2021) [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173346.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:0EE5B13E9ED47C6803FE957494A1EB1381C5A5B6
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173361.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173362.jpg" />
 </div>
 
 

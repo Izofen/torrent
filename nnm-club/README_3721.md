@@ -1,3 +1,77 @@
+###  Публикация: 1655031   (116428) от 21.02.2024
+
+Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Order | Ву Гэн Цзи | Джи Ву Ген - Непокорный воле богов [2016 - 2023, TV, сезон 1-4, 156 из 156] WEBRip HEVC 1080p HS+rus
+
+>>Аниме разное
+>>Аниме хардсаб
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Император северных земель Ван Чжоу отказывается подчиниться воле богов и жить под их тиранией, тем самым навлекая на свой народ божественный гнев. На помощь Ван Чжоу приходит его старый друг и соперник Юй Цзы, легендарный мастер меча, равному которому нет.
+И если Император сражается за свой народ, стремясь свергнуть богов, то Мечник сражается лишь, чтобы защитить (   Читать дальше...   )Производство: Sparkly Key Animation StudioЖанр: экшен, фэнтези, сверхъестественное, исторический, боевые искусстваРежиссер: Шэнь ЛэпинЯзык озвучки: Русский (Anton Shanteau, Женька Пипец)Субтитры: Русские на надписи (неотключаемые), Китайские(неотключаемые)Продолжительность: 156 x ~ 10 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3589271516B3F6B2661301622FBA5589815340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701517   (116429) от 21.02.2024
+
+Хоккей. НХЛ 2023-2024. Нью-Йорк Айлендерс - Питтсбург Пингвинз (20.02.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116429.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 февраля 2024, среда. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 016 зрителей (96% при вместимости 18 673)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Картер Сандлак (Лондон, Канада); Линейный: Брэд Ковачик (Вудсток, Канада); Линейный: Дэн Келли (США)Телекомпания: SNPITЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425E2A5FC79879EB3348E7E6C527FB0ADAFE4F4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 353034   (116430) от 21.02.2024
+
+Исаак Бабель | Линия и цвет. Рассказы (2008) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116430.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокниге представлены 4 сборника произведений известного писателя начала XX века Исаака Эммануиловича Бабеля: «Рассказы 1920-1937», «Линия и цвет», «Гюи де Мопассан», «Иисусов грех». В них автор со свойственным ему натурализмом изображает кровавые, но подчас и трагикомические картины гражданской войны, организации первых колхозов, продовольственных экспедиций. (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-МПродолжительность: 04:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2E425550DD103D47F1E698338656232D669463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701331   (116431) от 21.02.2024
 
 Тихая Земля / The Quiet Earth (1985) BDRip [H.264] [DVO]
@@ -6,7 +80,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116431.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:EA8E4952878F724FB7B663235CC658DA68153489
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116432.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ magnet:?xt=urn:btih:6FB6B8B09C3338175ED0E60CE2DAF1F48119D205
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116433.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Modern Talking - Album Collection (1985-1987) 1st German Press [APE|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116434.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ magnet:?xt=urn:btih:60012C2BDDABA0E69226CA571ABB5B9E203AF685
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116435.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ magnet:?xt=urn:btih:60012C2BDDABA0E69226CA571ABB5B9E203AF685
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116436.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ magnet:?xt=urn:btih:92930A267A9A4BF41938DACFFF6A230885EE6683
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116437.jpg" />
 </div>
 
 
@@ -180,7 +254,7 @@ magnet:?xt=urn:btih:70DE362564F04D5EBBD64EDCB232ADC00C0ECE29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116438.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ magnet:?xt=urn:btih:DF694C5C35688C57CE20F2408FFEBE381F018D34
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116439.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ XnView Classic 2.51.6 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116440.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ Ultros (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116441.jpg" />
 </div>
 
 
@@ -276,7 +350,7 @@ magnet:?xt=urn:btih:AB20A6EE96E66738D9FD39AAE4C04AF2F84FC200
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116442.jpg" />
 </div>
 
 
@@ -300,7 +374,7 @@ Tor Browser Bundle 13.0.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116443.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ Hiren’s BootCD PE x64 v1.0.4 (6 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116444.jpg" />
 </div>
 
 
@@ -348,7 +422,7 @@ magnet:?xt=urn:btih:0C7F2C90B75CBAF7B39E01CF69E9738C1E064B4E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116445.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ magnet:?xt=urn:btih:F22A38A18E886C8CBBEA386EFBE938B455DA7E7B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116446.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ magnet:?xt=urn:btih:A1B6BDBBD353BF383785E325A518045F5ACC7EA7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116447.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ magnet:?xt=urn:btih:88FE5473E30D39A0B89D6F5195C3FC9659E87D44
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116448.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ magnet:?xt=urn:btih:D3ED9EEBAAF62670D8AAB66B5BE0DF596BD42EE6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116449.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ PARANOID (2023) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116450.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ magnet:?xt=urn:btih:156058EC3092264A66219EB4C43AD0EF82AF40F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116451.jpg" />
 </div>
 
 
@@ -518,7 +592,7 @@ magnet:?xt=urn:btih:13B78FCCE438F7BE30C7C88BC85643BEE3CA4477
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116452.jpg" />
 </div>
 
 
@@ -542,7 +616,7 @@ Adobe Photoshop Lightroom Classic 2024 13.2.0.8 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116453.jpg" />
 </div>
 
 
@@ -553,79 +627,6 @@ Adobe Photoshop Lightroom Classic 2024 13.2.0.8 (x64) Portable by 7997 [Multi/Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76FF8540C7AAB9BB5A6F1700F0AFB607D3145BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 352892   (116454) от 21.02.2024
-
-Исаак Бабель | Одесские рассказы (2006) [MP3, Максим Пинскер]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена.
-«Избранные рассказы» – по сути, Бабель написал два небольших тома рассказов, но по своей художественной ценности они могут заменить целую библиотеку. В этих произведениях описаны лишь короткие фрагменты происходящих событий, сложив которые получаешь монументальную мозаику человеческой жизни.Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 01:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD3A642DCFCF6ED44F92AE43B16D17E3F2C3416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692078   (116455) от 21.02.2024
-
-Месье Спейд / Monsieur Spade (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Novamedia, HDRezka, ColdFilm (обновляемая)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция, 1963 год. В монастыре городка Бозуль кто-то убивает шестерых монахинь. Детектив Сэм Спейд, сменивший привычное ему обращение «мистер» на «месье», берется за это дело. Пока горожане скорбят о погибших, всплывают всё новые и новые секреты, появляются зацепки и вереница подозреваемых. А Сэм узнает, что убийства каким-то образом связаны с ребенком, который, (   Читать дальше...   )Производство: США / Black BearЖанр: Детектив, триллер, криминал, драмаРежиссер: Скотт ФрэнкАктеры: Клайв Оуэн, Ребекка Рут, Кара Боссом, Оскар Лесаж, Инес Мелаб, Клотильд Молле, Каролин СиольПеревод: Многоголосый профессиональный (Novamedia, HDRezka Studio), многоголосый любительский (ColdFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9F0FDB6331D75C4161B4362ABFD47F158F6640
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449673   (116456) от 21.02.2024
-
-Иван Царевич и Серый Волк (2011) [H.264/1080p-LQ] BDRip
-
->>След.
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательная история от создателей богатырской трилогии, в которой героев русских народных сказок ждут новые приключения, опасности и забавные ситуации.Производство: Россия, Анимационная студия «Мельница»Жанр: детский, компьютерная анимация, приключения, ФэнтезиРежиссер: Владимир ТоропчинАктеры: Никита Ефремов, Татьяна Бунина, Артур Смольянинов, Иван Охлобыстин, Виктор Сухоруков, Сергей Гармаш, Михаил Боярский, Сергей Русскин, Александр Боярский, Лия Ахеджакова и др.Субтитры: ОтсутствуютПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05ECC2C30A6B4B99C24B4343D1B92779155BEE2
 ```
 
 

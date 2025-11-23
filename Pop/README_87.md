@@ -1,3 +1,325 @@
+###  Публикация: 1655780   (203662) от 29.08.2023
+
+Лариса Черникова - Лучшие песни (2017) Remastered, 2023, United Music Group [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Влюблённый самолёт (Remastered 2023) [00:04:11]
+02 - Розовые очки (Ты не приходи)Жанр: PopПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576FF046AFCB85E674B42A01E8ECCC4A212D8EB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655965   (203927) от 28.08.2023
+
+Italove - Chasing Ghosts (The Second Album) (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva la Victoria
+02. Chasing Ghosts
+03. At the Disco
+04. Space Crusaders(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2D8AF5358D859AFC0AB3A683A454611B93C000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605370   (203936) от 17.01.2023
+
+VA - Лучшие песни 1969-1980 В.И.А. 70-х Vol.3 (1995) [MP3|320 Kbps] <Ретро> [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_203936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Веселые ребята - Отчего
+02. Лейся, песня - Песенка про сапожника
+03. Синяя птица - Ты мне не снишься
+04. Весёлые ребята - Алешкина любовь(   Читать дальше...   )Жанр: РетроПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3F158E713FCC8D40375003A5871481612F5E70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655609   (204186) от 27.08.2023
+
+Лариса Черникова - Лучшие песни (2017) Remastered, 2023, United Music Group [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Влюблённый самолёт (Remastered 2023) [00:04:11]
+02. Розовые очки (Ты не приходи) (Remastered 2023) [00:03:54]
+03. Вспоминать и не надо (Remastered 2023) [00:03:45]
+04. Да ты не смейся (Remastered 2023) [00:04:35](   Читать дальше...   )Жанр: PopПродолжительность: 02:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53C0E9919E60C79EC2EFE566510B45ABDBFED29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655297   (204485) от 25.08.2023
+
+Supermax - Meets The Almighty (1981) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Long As There Is You
+02. Tonight
+03. Hammer
+04. Today I Fall In Love Again(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4D050E6FDE30DD6ECC6FAFD1605DBE62029CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655171   (204533) от 25.08.2023
+
+Goombay Dance Band - Sun Of Jamaica (1980) 3CD, Deluxe Edition, 2023, Aviator-Entertainment [FLAC|Lossless|WEB-DL|tracks] <Electronic, Latin, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - Sun Of Jamaica (Deluxe Edition)
+CD-02 - Sun Of Jamaica (Deluxe Edition)
+CD-03 - Sun Of Jamaica (Deluxe Edition)Жанр: Electronic, Latin, DiscoПродолжительность: 3 CD, 02:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B589CB2BB84B5350B536F9E6577DE14D67D4F58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655330   (204574) от 25.08.2023
+
+Руки Вверх! - Здравствуй, это я... (2000) Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Euro House, Electronic>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ай-яй-яй (3:48)
+02. Он не любит тебя (4:11)
+03. Киска-Любовь (3:48)
+04. Прости (4:07)(   Читать дальше...   )Жанр: Euro House, ElectronicПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C321CD26AB1D4208112A1294DA3423065AD7187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654776   (204655) от 24.08.2023
+
+Requiem - POPulist Agendas (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tired, Hot and Bothered [00:04:11]
+02. Suddenly I Have A Dreadful Urge To Be Happy [00:03:17]
+03. Things That Mark Twin Didn't Say [00:03:33]
+04. I Can't Help But Feel I'm Starting To Lose The War [00:03:59](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87B952E82CC23669A7158E5CD3AAAD1DF816CCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247403   (204969) от 21.10.2022
+
+Dresden China - Dresden China (1986) 2010 Reissue, Remastered, DWS Records [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_204969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steam Roller Introduction
+02. Fire And Rain
+03. Tonight You've Got No Friend
+04. So Young And Wild(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD697BADCECE202F87FD0CD571F581B8BA8699F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654803   (205060) от 22.08.2023
+
+Toto Cutugno - Лучшие песни (2011) Серия Новая коллекция [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Litaliano
+02. Solo Noi
+03. Davvero
+04. Innamorati(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BDC60E5F7BC5D3477E4214700D3B069A1B9359
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654621   (205169) от 21.08.2023
+
+SuperShy - Happy Music (2023) [FLAC|24/44.1|tracks|WEB-DL] <Pop, Electropop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Music [00:03:52]
+02. Take My Time [00:04:52]
+03. Keep It Rising [00:03:14]
+04. Don't Let Go [00:04:29](   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A74C5CC906BDE96E3EC966268751A0E669EC661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653447   (205475) от 16.08.2023
+
+VA - Zumbadance Workout (2023) [MP3|320 Kbps] <Pop, Latin, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Omar - Zumba (4:24)
+02. Feid - Niña Bonita (3:07)
+03. Daddy Yankee - Con Calma (3:13)
+04. J Balvin - In Da Getto (2:10)(   Читать дальше...   )Жанр: Pop, Latin, DanceПродолжительность: 02:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE5B615F5A259695930AF37D26CF6792CDE2E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654400   (205844) от 20.08.2023
 
 Silent Circle - Best Of Silent Circle Volume II (1993) [FLAC|Lossless|tracks + .cue] <Eurodance, Italo-Disco>
@@ -6,7 +328,7 @@ Silent Circle - Best Of Silent Circle Volume II (1993) [FLAC|Lossless|tracks + .
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205844.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205844.jpg" />
 </div>
 
 
@@ -33,7 +355,7 @@ VA - Romantic Collection. Golden Woman Voices (2000) [OGG Vorbis|480 Kbps] <Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205967.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205967.jpg" />
 </div>
 
 
@@ -60,7 +382,7 @@ VA - 80s Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206084.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206084.jpg" />
 </div>
 
 
@@ -87,7 +409,7 @@ VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206094.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206094.jpg" />
 </div>
 
 
@@ -114,7 +436,7 @@ VA - Romantic Collection Vol.7 (2001) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206124.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206124.jpg" />
 </div>
 
 
@@ -141,7 +463,7 @@ VA - Romantic Collection. Golden 70s (2000) [OGG Vorbis|480 Kbps] <Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206171.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206171.jpg" />
 </div>
 
 
@@ -168,7 +490,7 @@ VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206192.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206192.jpg" />
 </div>
 
 
@@ -195,7 +517,7 @@ VA - Romantic Collection. Ретро (1999) [OGG Vorbis|480 Kbps] <Pop, Stage & 
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206338.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206338.jpg" />
 </div>
 
 
@@ -222,7 +544,7 @@ VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206441.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206441.jpg" />
 </div>
 
 
@@ -249,7 +571,7 @@ VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206636.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206636.jpg" />
 </div>
 
 
@@ -276,7 +598,7 @@ VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206645.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206645.jpg" />
 </div>
 
 
@@ -303,7 +625,7 @@ Silicon Dream - Time Machine (2022) 2 CD 35th Anniversary Delux Expanded Editon,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206685.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206685.jpg" />
 </div>
 
 
@@ -330,7 +652,7 @@ magnet:?xt=urn:btih:D90330EAE952A6E0B2EE087E85F418511043C45E
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206715.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206715.jpg" />
 </div>
 
 
@@ -357,7 +679,7 @@ E-Type - Loud Pipes Save Lives (2004) [OGG Vorbis|480 Kbps] <Electronic, Hi NRG,
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206732.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206732.jpg" />
 </div>
 
 
@@ -371,328 +693,6 @@ E-Type - Loud Pipes Save Lives (2004) [OGG Vorbis|480 Kbps] <Electronic, Hi NRG,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AEFA46910AB6412CB995AE685D8A87675FD9B31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614141   (206816) от 21.02.2023
-
-Bad Boys Blue - 25 (The Long Mixes - Extended Versions) (2022) 2xCD [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You’re A Woman (New Long Version) 6:56
-02. Gimme Gimme Your Lovin’ (New Long Version With Trevor Vocals) 6:02
-03. Lady In Black (New Long Version) 5:09(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80950ECD4549EACFD976676673512CDDA0EB742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614033   (206878) от 20.02.2023
-
-VA - Romantic Collection. Instrumental 2000 (2000) [OGG Vorbis|480 Kbps] <Instrumental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fausto Papetti - Emmanuelle
-02. Era - Flowers of the Sea
-03. Giorgio Moroder - Love Theme from 'Flashdance'
-04. Jan Morks - You Don't Know How Much You Can Suffer(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB9C88824BA72517511880989BB785D9948749E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613920   (206884) от 20.02.2023
-
-VA - Romantic Collection. Golden Oldies (2000) [OGG Vorbis|480 Kbps] <Pop, Oldies, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Williams - (Where Do I Begin) Love Story
-02. The Platters - Only You (And You Alone)
-03. Roy Orbison - Only The Lonely
-04. Charles Aznavour - Les deux Guitares(   Читать дальше...   )Жанр: Pop, Oldies, FolkПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677D6BB832E70834415082323F07AB4EF3BDC9DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613708   (206962) от 19.02.2023
-
-VA - Romantic Collection. Golden 80s (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Lionel Richie–	Hello
-02.	Dire Straits–	Brother In Arms
-03.	Sting–	Fragile
-04.	Elton John–	Candle In The Wind(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC998DA8BF1F7AF03C8248910CCFBF36ECC1288
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432853   (207080) от 28.09.2022
-
-Борис Моисеев - 15 альбомов (1996-2009) [MP3|128-320 kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207080.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 – Этa Боль
-2 – Небо на Двоих (дуэт с гр.Ассорти)
-3 – Песенка Золушка
-4 – Лебеди (дуэт с К.Кирьяновым)(   Читать дальше...   )Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A647A195110C481B27C5C34FC553CB3FBBBB5C88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651196   (207088) от 05.08.2023
-
-Fancy - Viva la Vida (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viva la Vida (Radio Edit)
-02. Viva la Vida (Extended)Жанр: Euro-DiscoПродолжительность: 00:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B742E8A7EB733AA38373770A870BA3BB7BB7A2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612919   (207098) от 17.02.2023
-
-P!nk (Pink) - TRUSTFALL (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Get There
-02. TRUSTFALL
-03. Turbulence
-04. Long Way to Go (feat. The Lumineers)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56BD638F0F8006807C001A42ED7437EF27C483C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651258   (207157) от 05.08.2023
-
-VA - Discotek 90's (2023) CD, Compilation [MP3|320 Kbps] <Eurodance, Club, Euro House, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DISCO BLU - Disco Blu (Radio Edit)
-02. Amon - Donna Rouge (New Radio Italian Remix)
-03. Puma - Gonna Love You (Extended Mix)
-04. DJ Scana - Relax Your Body (Radio Edit)(   Читать дальше...   )Жанр: Eurodance, Club, Euro-House, TechnopopПродолжительность: 00:42:38 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EDAD9F2E2904F56622A8AA064BF8CDF8DEE6EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612634   (207212) от 16.02.2023
-
-Radiorama - The Best Of (1989) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chance to Desire
-02. Desire
-03. Hey, Hey (Remix '89)
-04. Flight of Fantasy (Remix '89)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DC0DE168B8785C603D55E7AABD536C21D2BF8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612330   (207289) от 15.02.2023
-
-VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Mauriat-Symphony No. 40 Movement (Mozart)
-02. N. De Angelius-Menuet (Boccherini)
-03. R. Clayderman-Moonlight Sonate (Beethoven)
-04. Ricky King-Aria (Bach)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBB6915352970F025F990E074D25D6E786DECB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611995   (207417) от 14.02.2023
-
-VA - Romantic Collection. Reggae (2000) [OGG Vorbis|480 Kbps] <Reggae, Reggae-Pop, Dancehall>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Aswad–	Shine
-02.	Sasha–	I Feel Lonely
-03.	Laid Back–	Sunshine Reggae
-04.	Saint & Campbell–	Stop That Train(   Читать дальше...   )Жанр: Reggae, Reggae-Pop, DancehallПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDE77E8CC3D4D7FFDB19B32ECD30DC2E4C72687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611641   (207435) от 13.02.2023
-
-Ласковый Май - Белые розы (Оренбург) (1988) [FLAC|Lossless|image + .cue] <Pop, Dance, Disco>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207435.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:22] 01. Белые розы
-[3:32] 02. Лето
-[4:55] 03. Ну что же ты
-[5:24] 04. Зимняя ночь(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE205FCCAC88E41B100B20134A904412DAE9D7CE
 ```
 
 

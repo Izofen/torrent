@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135425.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E40E244D70E151ED235D1C51961AD65D5A32FC30
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135433.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alpha Tiger - Man Or Machine (2011) [WavPack|Lossless]<Power / Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135436.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Alpha Tiger - Man Or Machine (2011) [WavPack|Lossless]<Power / Heavy Metal>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135439.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ deeB - Daydream (EP) (2012) [MP3|320 кб/с]<trip-hop, acid jazz, insrumental h
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135440.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ New year wallpapers 2013 (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135443.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Ananda Shankar - Ananda Shankar (1970) [MP3|320 кб/с]<World Fusion, Psychedel
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135446.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Magic Island Recordings - Best Of 2012 (2012) [MP3|320 кб/с]<Trance, Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135450.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:32D67D8AD9E84E1FA46A2CB186E5282DB72D2667
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135469.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:F83EBDCB86BC583C45FFEFA757CDCD9A0C34DAE7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135484.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135484.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F83EBDCB86BC583C45FFEFA757CDCD9A0C34DAE7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135486.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135486.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:F83EBDCB86BC583C45FFEFA757CDCD9A0C34DAE7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135500.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:A0AA65C12E797A3F3F1C681BF1181ED076955561
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135502.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135502.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Theme Windows 7 Vendetta 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135507.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135507.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Theme Windows 7 Vendetta 2012 [Rus/Eng]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135510.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Driver Fusion 1.4.0 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135512.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135512.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Driver Fusion — Приложение предназначено для пол�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135523.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135523.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Driver Fusion — Приложение предназначено для пол�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135525.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:95281FFA24A5D42371AAE2D064973AB56F0602B0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135527.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135527.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:95281FFA24A5D42371AAE2D064973AB56F0602B0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135558.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ iStat Menus 4.03 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135561.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ iStat menus является одним из наиболее популярны
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135564.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Pixelmator 2.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135567.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135567.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Pixelmator представляет собой мощный инструмент
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135578.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:091837747F0DBA34F2F54D6B60531B9EE6D77278
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135580.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Tiny Core Linux 4.7.2 [x32] (3xminiCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135582.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135582.jpg" />
 </div>
 
 

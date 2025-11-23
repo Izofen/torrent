@@ -6,7 +6,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7782.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tiny Witch (2023) [Ru/Multi] (1.1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7783.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7784.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D63818089ADAE38FF722DBF665F4187251E76F5B
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7785.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C72B0A78A1E8540B9CDEFC140E17E16F3C4DBBC2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7786.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1E78EED918813819F505B7530CB48D225ABB7B5A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7787.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ FastStone Capture 11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7788.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tennis Manager 25 (2025) [Multi] (5.0.1007) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7789.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ CraftCraft: Fantasy Merchant Simulator (2025) [Multi] (1.1.23) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7790.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0D85DBF328D5D1AE18015DE3AE6788BBF95D3996
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7791.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:A54C3B2B694CEC4B839787DD830AD65A05868F7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7793.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:A54C3B2B694CEC4B839787DD830AD65A05868F7C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7794.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NASA сообщило о завершении подготовки космич�
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7795.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:39A76C8C28C94198085D195D88DDB3E8A782151A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7796.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7797.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Windows 7 SP1 7601.27872 x64 3in1 by OneSmiLe [15.08.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7798.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Impaler Gold (2022) [Ru/Multi] (1.1.653) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7799.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D605355E5FBA1591748321E7648B07A435D3D559
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7800.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7801.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Alexander Semenko | Вся необходимая база по Assembler (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7802.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7803.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:6029DB928F80A9ABDC90F41DB364DFDCDB69C927
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7804.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:C9127A130EC9B56415A8DA890DD17F3DCD053BEB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7805.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Adobe Photoshop Lightroom Classic 2024 14.5.0.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7806.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E568BF26246EA9FF5B20A247090051CCD5E14D60
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7807.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:0CF678C24DC1BC6EA11BB8172D3DC623EF0E112A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7808.jpg" />
 </div>
 
 

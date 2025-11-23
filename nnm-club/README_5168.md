@@ -1,3 +1,180 @@
+###  Публикация: 1675789   (159788) от 10.11.2023
+
+Симона Сент-Джеймс | Книга нераскрытых дел (2023) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159788.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 год. Маленький городок потрясен серией убийств, совершенных загадочной «Леди Киллер». Бет Грир – молодая, богатая, эксцентричная – становится идеальной подозреваемой: ее видели убегающей с места одного из преступлений. Однако суд оправдывает ее, и с тех пор она почти не покидает свой особняк.
+2017 год. Все свободное время Шей Коллинз посвящает сайту с интригующим (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПеревод: Юрий ГольдбергИздательство: СиндбадФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065B1B1F330D812C5A47BDC749C14A6E188898AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599381   (159789) от 23.12.2022
+
+Dracondaz (Anacondaz) - Песни Фрайвура (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop, Folk Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прохладный эль [00:03:47]
+02. Жизнь или кошелёк [00:04:18]
+03. Ною на Луну [00:03:50]
+04. Недуг короля [00:03:32](   Читать дальше...   )Жанр: Alternative Hip-Hop, Folk RockПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8617A2A4A1D215BD19BEF188964A7E412F62324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675256   (159790) от 10.11.2023
+
+Capture One 23 Pro 16.3.1.23 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конвертеров цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Phase OneПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2B17847C3B384DD7144D7595F4BC1B8D516958
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599335   (159791) от 23.12.2022
+
+Евгений Водолазкин | Чагин (2022) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Водолазкин — автор романов «Лавр», «Авиатор», «Соловьёв и Ларионов», «Брисбен», «Оправдание Острова», сборников короткой прозы «Идти бестрепетно» и «Инструмент языка», лауреат премий «Большая книга», «Ясная Поляна» и «Книга года». Его книги переведены на многие языки.
+Исидор Чагин может запомнить текст любой сложности и хранить его в памяти как угодно долго. (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 10:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF49BAB3D9E6259ABEA44EE45281ED78C1C2717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675667   (159792) от 10.11.2023
+
+XY VPN - Security Proxy VPN 4.7.305 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159792.jpg" />
+</div>
+
+
+###  Подробнее
+
+XY VPN — это абсолютно бесплатный VPN! Быстрое и глобальное VPN-приложение для обеспечения конфиденциальности и безопасности в Интернете для всех пользователей Android.Тип издания: VIPРазработчик: MATRIX MOBILE PTE. LTD.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259BE51E8E2A0777FF0DB389FFDCCA0F1DF819BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599481   (159793) от 23.12.2022
+
+Macrorit Partition Expert 7.3.0 Unlimited Edition RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F9A94332EFEF92831F8D29D21B93663C8A23EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599544   (159794) от 23.12.2022
+
+VA - Mega Hits Des Jahres (2022) [MP3|320 Kbps] <Synth-pop, Disco, Neo Soul, British Hip Hop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Animals - Heat Waves
+02. Taylor Swift - Anti-Hero
+03. Imagine Dragons, JID, Arcane, League Of Legends - Enemy (from the series Arcane League of Legends)
+04. James Hype, Miggy Dela Rosa - Ferrari(   Читать дальше...   )Жанр: Synth-pop, Disco, Neo Soul, British Hip HopПродолжительность: 04:22:23 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8643C7CB5D1C8817F79545F765D68B428B22C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599286   (159795) от 23.12.2022
 
 В.Б. Кудрявцев и др. | Крым: Хозяйство. Экономико-географический анализ. Часть 2 (1993) [PDF]
@@ -6,7 +183,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159795.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ VA - Music News vol.233 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159796.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:81E35C1811A34D11C32D0B653FC9202238F1726E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159797.jpg" />
 </div>
 
 
@@ -82,7 +259,7 @@ Opera One 104.0.4944.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159798.jpg" />
 </div>
 
 
@@ -106,7 +283,7 @@ magnet:?xt=urn:btih:B95407247B231242C5CFF32C754B422D213E13FC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159799.jpg" />
 </div>
 
 
@@ -133,7 +310,7 @@ Mokosmed, Мария Моргунова | МАКРО-, МИКРО- И УЛЬТР
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159800.jpg" />
 </div>
 
 
@@ -157,7 +334,7 @@ magnet:?xt=urn:btih:4EF6C86F112A72837D140F11283A83123D61CA76
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159801.jpg" />
 </div>
 
 
@@ -181,7 +358,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159802.jpg" />
 </div>
 
 
@@ -205,7 +382,7 @@ VueScan Pro 9.7.96 (22.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159803.jpg" />
 </div>
 
 
@@ -229,7 +406,7 @@ magnet:?xt=urn:btih:67E0D3063E5CA53EA787BC008C5A09FF49A632B6
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159804.jpg" />
 </div>
 
 
@@ -253,7 +430,7 @@ RSS Guard 4.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159805.jpg" />
 </div>
 
 
@@ -278,7 +455,7 @@ magnet:?xt=urn:btih:3BAB4F906D9AEB15BC46A3C8F7105BC0FA2386D8
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159806.jpg" />
 </div>
 
 
@@ -302,7 +479,7 @@ magnet:?xt=urn:btih:C7686F248C54BF49EB6E1FF15B6407F6E904999C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159807.jpg" />
 </div>
 
 
@@ -326,7 +503,7 @@ JetBrains DataGrip for Mac 2023.2.3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159808.jpg" />
 </div>
 
 
@@ -350,7 +527,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159809.jpg" />
 </div>
 
 
@@ -374,7 +551,7 @@ Status Quo - It's Christmas Time (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159810.jpg" />
 </div>
 
 
@@ -401,7 +578,7 @@ magnet:?xt=urn:btih:9E52FC29543D2C3FA77FA8B7600707CD55C7AB41
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159811.jpg" />
 </div>
 
 
@@ -425,7 +602,7 @@ PotPlayer 231110 (1.7.22037) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159812.jpg" />
 </div>
 
 
@@ -449,7 +626,7 @@ magnet:?xt=urn:btih:DFDBAF3C9ACBF8495506A329AE106276F8CE38A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159813.jpg" />
 </div>
 
 
@@ -461,177 +638,6 @@ magnet:?xt=urn:btih:DFDBAF3C9ACBF8495506A329AE106276F8CE38A3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:139D29F782757FE0176FED739B566701899A918F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599302   (159814) от 23.12.2022
-
-MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159814.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D045886A7C918F1EC30D9F3EBDACF69F30891D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675718   (159815) от 10.11.2023
-
-Донато Карризи | Пьетро Джербер (Книга 2) Дом без воспоминаний (2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старая женщина каждое утро неизвестно почему просыпается в одно и то же время и едет в глухой лес, где однажды находит двенадцатилетнего мальчика. Мальчик жив и здоров, однако не в состоянии объяснить, что с ним произошло: он вообще не говорит. Единственный, кто может помочь, – Пьетро Джербер, флорентийский гипнотизер, специалист по работе с травмированными детьми. (   Читать дальше...   )Жанр: Современные детективы, ТриллерыПеревод: Анастасия МиролюбоваИздательство: Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F82DB0A86B70D3AE3852D8F6A37F625540AFBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599531   (159816) от 23.12.2022
-
-База Эхо Прием (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антон — эксцентричный и искренний московский подросток, пытающийся наладить контакт с паранормальным и помогать старшему брату Косте в его авантюрных попытках заработать деньги. Среди всей это неразберихи ему по-настоящему не хватает мамы, которая умерла при случайных обстоятельствах, и, как умеет, он поддерживает с ней связь.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Ростислав СмирнягинАктеры: Степан Середа, Мария Лукьянова, Дмитрий Северин, Владимир Сарапульцев, Владислав АбашинСубтитры: отсутствуютПродолжительность: 00:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480F514A0CFEBDB2BC28E7845FBC22DF847CB180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675715   (159817) от 10.11.2023
-
-PotPlayer 231109 (1.7.22036) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - бесплатный мультимедийный проигрыватель, от автора KMPlayer со всеми его функциями и схожим интерфейсом, но заметно усовершенствованный. Отличительными чертами плеера является высокое качество воспроизведения, поддержка всех современных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Плеер оснащен современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70775BD69B6FB4997336A46D27F89FA4B51EB27B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675778   (159818) от 10.11.2023
-
-Хосе Карлос Сомоза | Мистер Икс (Книга 2) Знак Десяти (2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Викторианская Англия, Портсмут. В Кларендон-Хаус, «пансион для отдыха джентльменов с расшатанными нервами», прибывает новый постоялец – Чарльз Доджсон, уже прославившийся как Льюис Кэрролл, автор «Алисы в Стране чудес», – и нервы у него очень расшатаны. Чарльзу Доджсону снятся зловещие сны – его собственные персонажи пророчат ему и его знакомым кровь, смерть и катастрофы (   Читать дальше...   )Жанр: Зарубежные детективы, Исторические детективыПеревод: Кирилл КорконосенкоИздательство: Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA453E50C6D924BC49732628F7334FB8031B09BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599552   (159819) от 23.12.2022
-
-VA - Ultimate Party Classics Dance (2022) [MP3|320 Kbps] <Electropop, Future House, Nu Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Levels (Radio Edit)
-02. Felix Jaehn, Jasmine Thompson - Ain't Nobody (Loves Me Better)
-03. Taio Cruz - Dynamite
-04. Naughty Boy, Sam Smith - La La La(   Читать дальше...   )Жанр: Electropop, Future House, Nu Disco, EurodanceПродолжительность: 03:09:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F706884577D96BF74DB1E3AAB67CCD8F447B7C3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675799   (159820) от 10.11.2023
-
-Stand Up (2023.11.10) SATRip (сезон 11, выпуск 8)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комик объявляет своих коллег и общается с публикой в зале и зрителями у экранов. Конечно, с присущей ему наивной иронией, кучей историй из жизни и фирменными импровизациями. В новом сезоне шоу любимые комики вернутся с новыми неожиданными наблюдениями и философскими рассуждениями.Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE12E71CF71D948253AF73C70C6BC4A9F214880C
 ```
 
 

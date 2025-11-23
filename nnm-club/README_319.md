@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8388.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E1F5412E3D2FBA5E12A15E8B52665FA58CA20D24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8389.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C8C0A7332C2499921907F4363BFB57FFC7B3D454
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8390.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:70E9912ADB5D4124D684A0D81ECC247B72151C51
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8391.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4B0DC441E4F778B07E4168AE10A7ED0A705F2428
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8392.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Funky House Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8393.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:06B18E11455B160A13E5F1E72BC6D29C8D8AF4BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8394.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:133206BDA03A8BD18EA71BC5825253FCD4BE1C2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8395.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8A01A4B0406BB37C820DC67F04DE6D70FACFF89A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8396.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:049A5D7B4A6376A471030385128F299FF5401202
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8397.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F02C0732A3779E3288587620374A879C395F641C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8398.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:DD20594B8CFFF6989FBF38AB62032A1D41FDEA76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8399.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:719F08CF1F4F1E4D5BD0559E9717EBFEF98627D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8400.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8401.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:E507B1B0EC4660E3CD396DB267BE1D553CF004DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8402.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:78670890A64CBAAD82B8A8E74F8DCEDE39EEC9F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8403.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:6B96FD038C1797F93D79C79BB1DADC859B95D09F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8404.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:47367D678ECCF513A627D5BCBAC687BD40DEB522
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8405.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C46FDBBC0AFE4805A83713EF6DBF02135E531613
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8406.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:872BA36DC21B36BE8FC6D62045C98BFE0A17A7B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8407.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Блатной Шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8408.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C59718200913FD41B925286141EDB58132F4F197
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8409.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Funky Summer Grooves (SUMMER 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8410.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8411.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Sonible smart:gate 1.0.1 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8412.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:54CC824775A147542981DF09D073BE65241C453D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8413.jpg" />
 </div>
 
 

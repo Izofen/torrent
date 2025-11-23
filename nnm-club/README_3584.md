@@ -1,3 +1,81 @@
+###  Публикация: 1709127   (112866) от 23.03.2024
+
+Menhir - Ziuwari (2001) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wotans Runenlied
+02. Die Letzte Schlacht
+03. Herminafrieds Klage
+04. Das Verborgene Reich(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C3D9CE6EA202C54BBA2926342E90CB33681463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709124   (112867) от 23.03.2024
+
+Menhir - Thuringia (1999) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Die Kelten
+03. Schwertes Bruder
+04. Thuringia(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1A686D15A5E2B41E430FF06FB089DA9133D644
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709104   (112868) от 23.03.2024
+
+Журнал | SALON-interior №04 (302) (2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51093ED1BA78517C38D2B63ADA10C4036B53579C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709167   (112869) от 23.03.2024
 
 Лето сокола / Der Sommer des Falken / The Summer of the Hawk (1988) DVDRip [АVO]
@@ -6,7 +84,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112869.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:12C792486A34E23CA008628F7E7CC55FC0521956
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112870.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ VA - Trance Fusion Vol. 01 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112871.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by youarefinished [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112872.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ magnet:?xt=urn:btih:596C957BB4E8B4D7DC7D393024926E2D2CF1B7BA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112873.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112874.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by AppKaMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112875.jpg" />
 </div>
 
 
@@ -180,7 +258,7 @@ magnet:?xt=urn:btih:C251C3D42CD9C412604E5A4267707463DBCB2CCB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112876.jpg" />
 </div>
 
 
@@ -204,7 +282,7 @@ PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112877.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ magnet:?xt=urn:btih:6A62316F9BC75DC072D64C6451B0FB81FEC50958
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112878.jpg" />
 </div>
 
 
@@ -255,7 +333,7 @@ magnet:?xt=urn:btih:25AAC470DF972110C4BBEDAE46401AACF9B36548
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112879.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ magnet:?xt=urn:btih:E1615890EFDFBF2256762EB6D15E4DCC17B86DF9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112880.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ magnet:?xt=urn:btih:2B05A68FF777D3C537D022B0295A2BCB68557D75
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112881.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ magnet:?xt=urn:btih:BD2D62895DB9CF3BF20001B827C689E99B22610B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112882.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ Sleeping Well - Wisdom Of The Ages (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112883.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ Boris Tolstobokov - Quantum Satis (1988) 2023, Apollon & Evterpa [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112884.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ Holler - Reborn (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112885.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ magnet:?xt=urn:btih:1776BABC7E5963655B4049E8EDBEC6D6AB974B2F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112886.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ Cookie 7.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112887.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ magnet:?xt=urn:btih:3801225D0134B88EFB504C82BB43E1B707ACD372
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112888.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112889.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112890.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112891.jpg" />
 </div>
 
 
@@ -576,78 +654,6 @@ VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6516C299B5C0B58A15F6F7FFC72C8ED645F6D159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709078   (112892) от 23.03.2024
-
-BikeComputer Pro v8.11.0 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112892.jpg" />
-</div>
-
-
-###  Подробнее
-
-BikeComputer Pro - возможно, одно из лучших приложений для велоспорта. Версия Pro содержит все необходимые функции:Тип издания: ModРелиз состоялся: 22.03.2024Разработчик: Robert OehlerПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4CF5BCEDBEB6514D4A38AE1CCF86E7D74BC3B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709065   (112893) от 23.03.2024
-
-Никита Киров, Кирилл Неумытов | Мастер войны (Книга 3). Помолодевший мастер войны (2024) [MP3, Александр Серов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я тысячу лет воевал за свой клан, держа в страхе и почитании весь Китай. Но мне надоело. Где мой отпуск? Где обещанный покой? Плюнув на всё, я изменил внешность и уехал в Россию. Правда, уже через пару недель я понял, что отдых не для меня… Скучно! Хочу собственный клан с преферансом и красотками! Посторонись, магическая аристократия! Старый мастер покажет вам, что (   Читать дальше...   )Жанр: Боевое фэнтезиИздательство: Литрес Паблишинг, АвторПродолжительность: 09:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836199ECD40751EF5812821CAA66DA572172E283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709116   (112894) от 23.03.2024
-
-Без злого умысла / Absence of Malice (1981) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оптовый торговец спиртными напитками из Майами Майкл Галлахер, сын давно убитого босса мафии, однажды утром обнаруживает себя на первой полосе местной газеты по делу об исчезновении и предполагаемом убийстве представителя местного профсоюза грузчиков Джоуи Диаса. Следователь, ведущий дело об убийстве, отчаявшись найти настоящего преступника, обеспечивает утечку информации (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Mirage EnterprisesЖанр: драма, детективРежиссер: Сидни ПоллакАктеры: Пол Ньюман, Салли Филд, Боб Бэлабан, Мелинда Диллон, Лютер Эдлер, Бэрри Праймус, Йозеф Зоммер, Джон Харкинс, Дон Худ, Уилфорд Бримли, Арни Росс, Шелли Сперлок, Шоун МакАллистер, Уильям Кервин, Освальдо КалвоПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C574061C910FF10AFD1E4A98B356B1120446B51
 ```
 
 

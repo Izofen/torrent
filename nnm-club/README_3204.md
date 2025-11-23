@@ -1,3 +1,78 @@
+###  Публикация: 1762068   (102985) от 24.11.2024
+
+VA - The Best Of Suanda Progressive 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Diandra Faye - In Our Memories (ThoBa Extended Remix) [4:39]
+02. TISKANTA - Without You (Extended Mix) [5:59]
+03. Adip Kiyoi - The Future Of A.I (Extended Mix) [7:14]
+04. SMR LVE - Destinations (Extended Mix) [4:52](   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8F0FB46BA10ADAC3D69B7FA21E38368753924F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762003   (102986) от 23.11.2024
+
+Пятеро на одного (23.11.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B407A7F78F3D04DC8BF8A387E25D03E93950C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761872   (102987) от 23.11.2024
+
+Карточный след / The Trail of Cards (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простенькая история в жанре вестерн. За благосклонность красотки (я так полагаю, что в прериях такой дифицит слабого пола, что любая автоматически становится красоткой) борются двое - благородный ковбой и подлый негодяй мексиканец (конечно же мексиканец!) Девушка отдает предпочтение ковбою, но коварный латинос не сдается...Производство: США / American Film Manufacturing CompanyЖанр: короткометражный, драма, вестерн, немое киноРежиссер: Гилберт П. ХэмилтонАктеры: Эдвард Коксен, Лиллиэн Кристи, J. Walter Kerrigan, Луиз ЛестерПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60899ABEE1A0F0E482B1521489B7A8794CA3B000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761966   (102988) от 23.11.2024
 
 Moondive - Dive With Me (2004) [FLAC|Lossless|image + .cue] <Power Progressive Metal>
@@ -6,7 +81,7 @@ Moondive - Dive With Me (2004) [FLAC|Lossless|image + .cue] <Power Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102988.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Bleed The Sky - Paradigm In Entropy (2005) [FLAC|Lossless|image + .cue] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102989.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Herod - For Whom the Gods Would Destroy (2004) [FLAC|Lossless|image + .cue] <Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102990.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Maggoth - System Error (2011) Ressued, 2017, Defense Records [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102991.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ Coldness - Poisoned Gift (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102992.jpg" />
 </div>
 
 
@@ -141,7 +216,7 @@ Plague Widow - Plague Widow (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102993.jpg" />
 </div>
 
 
@@ -168,7 +243,7 @@ Psychotomy - Antinomia (2015) [FLAC|Lossless|image + .cue] <Death Metal, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102994.jpg" />
 </div>
 
 
@@ -195,7 +270,7 @@ Carmina - Carmina (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102995.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:24B510EFF6AD84C49905E5FA287901678CA9908B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102996.jpg" />
 </div>
 
 
@@ -247,7 +322,7 @@ magnet:?xt=urn:btih:F3BB5B193C832E0DA313C271F29BFC830079C4ED
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102997.jpg" />
 </div>
 
 
@@ -271,7 +346,7 @@ Crossbone Skully - Evil World Machine (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102998.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ magnet:?xt=urn:btih:9D62A0EAEF0B1424DABEF49A38A7A4ED34013EB1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102999.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:E79F808BB5BD497E31CF8D8BD61C5C14ECEC6061
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103000.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ Sign Of The Jackal - Heavy Metal Survivors (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103001.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ VA - Top 20 Progressive House (2024) [MP3|320 Kbps] <Progressive House, Melodic 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103002.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ Sultan + Shepard - Circle In Time: The Trilogy (2024) [MP3|320 Kbps] <EDM, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103003.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ magnet:?xt=urn:btih:AF8525970B3D3B20EB4E4CFAA46F1405143B48F8
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103004.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ magnet:?xt=urn:btih:058945A3255F34290920A577FB9A8784E6A9C051
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103005.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ Rival Sons - Pair of Aces, Pt. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103006.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ Pam Tillis - Every Time (1998) CD, HDCD, Album, Club Edition [FLAC|Lossless|trac
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103007.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ Glam Serpent - Obscene (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103008.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ magnet:?xt=urn:btih:02D768904D2B19170E2F390C130F26E3942A3BAA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103009.jpg" />
 </div>
 
 
@@ -586,7 +661,7 @@ Walter Trout - Broken (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103010.jpg" />
 </div>
 
 
@@ -600,87 +675,6 @@ Walter Trout - Broken (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7977C3CFA3DEE9D88064FA4CF9B1DAF59E973CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762076   (103011) от 23.11.2024
-
-Минтранс. Тест-драйв LIXIANG L7 2024  (23.11.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103011.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Юридические нюансы. Обязан ли платить штраф водитель, который не по своей вине не успел поставить авто на учет?
-🔸 Тест-драйв LIXIANG L7 2024. Зачем водителю подушка под голову? Где спрятали кнопку аварийной сигнализации?
-🔸 Передача руля. Кто и когда может управлять машиной по доверенности?
-🔸 Советы для новичка. Сколько занятий по (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8A6131A448E95AE56F72D758D8EB7C76E1DBED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761913   (103012) от 23.11.2024
-
-Isacaarum - Whorecraft (2013) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felch Me 02:39
-02. Spermafrost 03:46
-03. Queef Corps 03:31
-04. Born for Porn 01:44(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B697C6D9FE3FC6F45F981249CCDF6BFCBCC9C61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762122   (103013) от 23.11.2024
-
-Big Big Train - The Likes Of Us (2024) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Left In The Day
-02. Oblivion
-03. Beneath The Masts:
-3.1 Part One: On The Bank(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD713557488D9C109A7F51DA81042B11E576C97
 ```
 
 

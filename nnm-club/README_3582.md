@@ -1,3 +1,84 @@
+###  Публикация: 1709338   (112814) от 24.03.2024
+
+Mindwork - Eterea (2012) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Eterea
+02. Perceiving The Reality
+03. The Stream Of Causality
+04. Mind Renewal(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBFC5D9904FB813DFB40463C49E903176F29086
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709389   (112815) от 24.03.2024
+
+Necrosanct - Equal In Death (1990) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arachneurosis
+02. Pretentious Priests
+03. Trial by Fire
+04. Besieged Citadel(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD26DDA04E4CFC04A0DEAD7783836F73FFE46EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709333   (112816) от 24.03.2024
+
+Mindwork - Into The Swirl (2009) [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Swirl
+02. Unrecognized Entity
+03. Inner Consciousness
+04. Essence of Existence(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B804CDB8258848F11E5417BDCBA98FB9CBCDC46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709306   (112817) от 24.03.2024
 
 Газета | Невыдуманные истории №11 (415) (март 2024) [PDF]
@@ -6,7 +87,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112817.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ magnet:?xt=urn:btih:C49E1393501A153B9875FFB1DCC1D5C06D57FA02
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112818.jpg" />
 </div>
 
 
@@ -55,7 +136,7 @@ Brother Dege - Aurora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112819.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ magnet:?xt=urn:btih:A5ADA44B6701DAE14DF0D570E056004816B48591
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112820.jpg" />
 </div>
 
 
@@ -106,7 +187,7 @@ magnet:?xt=urn:btih:E78870F051684F69FEC8CA8472E61DD7D6DEBFC0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112821.jpg" />
 </div>
 
 
@@ -131,7 +212,7 @@ magnet:?xt=urn:btih:F85AB2F47AE186014BDDDC5096223D4A50823C36
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112822.jpg" />
 </div>
 
 
@@ -156,7 +237,7 @@ magnet:?xt=urn:btih:874A2CCFA0AC952DAF03386A0B4B9AA842093D4F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112823.jpg" />
 </div>
 
 
@@ -183,7 +264,7 @@ TC Tom Comfort - Slave To The Stupid Still (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112824.jpg" />
 </div>
 
 
@@ -210,7 +291,7 @@ The End Machine - The Quantum Phase (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112825.jpg" />
 </div>
 
 
@@ -237,7 +318,7 @@ Stormhunter - Best Before: Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112826.jpg" />
 </div>
 
 
@@ -264,7 +345,7 @@ Ratzlaff & Webb - Delta Badhand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112827.jpg" />
 </div>
 
 
@@ -291,7 +372,7 @@ D4oesz - Lucid Strings (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112828.jpg" />
 </div>
 
 
@@ -318,7 +399,7 @@ Nils Lofgren Band - Spares (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112829.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ magnet:?xt=urn:btih:1B3F37C34E360673B7A3905C6BC8B4A5C3B81AFB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112830.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ Lorenzo Sanchez Band - Blue Avenida (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112831.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ MotoGP. Этап 02 из 22. Гран-при Португалии. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112832.jpg" />
 </div>
 
 
@@ -423,7 +504,7 @@ Innocence Lost - Oblivion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112833.jpg" />
 </div>
 
 
@@ -450,7 +531,7 @@ magnet:?xt=urn:btih:A0F2240EF6809F58E1BFD662F9A077102CEFE1A3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112834.jpg" />
 </div>
 
 
@@ -477,7 +558,7 @@ Sol - Mall Gig (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112835.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ Stevie & the Blue Flames - Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112836.jpg" />
 </div>
 
 
@@ -531,7 +612,7 @@ RJ TextEd 16.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112837.jpg" />
 </div>
 
 
@@ -555,7 +636,7 @@ magnet:?xt=urn:btih:01A43B119C1DFDD3BF8632F9FF8F07D5A1EE8C47
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112838.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ VA - Workout 2024 - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112839.jpg" />
 </div>
 
 
@@ -593,79 +674,6 @@ VA - Workout 2024 - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0613AF88BA5A1015113EE5A4C2BC14116908FBEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709368   (112840) от 24.03.2024
-
-Александр Воропаев | На дорогах четырех королевств. Том 1 (2024) [MP3, Николай Бырев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поездка двух товарищей в Приэльбрусье оборачивается неожиданным приключением. Но то, что их ожидает, не обещает быть приятными. Они попадают в фантастический и жестокий мир Восточного Предела.Жанр: Альтернативная история Боевая фантастика Героическое фэнтезиИздательство: ЛитРесПродолжительность: 15:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5118022B431B7B52207882C85782B9906C88A579
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709344   (112841) от 24.03.2024
-
-Чингиз Абдуллаев | Дронго (Книга 76). Факир на все времена (2024) [MP3, Дмитрий Чистяков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий российский бизнесмен убит в отеле на турецком побережье Черного моря. Никто из тех, кто был в этот вечер в гостях у погибшего, на роль убийцы не подходит, к тому же у всех – железное алиби.
-Эксперт-аналитик Дронго невольно вовлечен в расследование, и именно он обнаружил следы убийцы. Но следы – это еще не сам преступник, тот где-то рядом и хладнокровно (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C873F98605646BC81CDC8D007D897A6D7D85EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709331   (112842) от 24.03.2024
-
-MotoGP. Этап 02 из 22. Гран-при Португалии. Спринт (23.03.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112842.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 марта 2024, суббота. 18:00 МСК. Этап 2, Портимау. Гран-при Португалии. Спринт (12 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726BDECFF803F64F390A909D87C2459C98A79908
 ```
 
 

@@ -6,7 +6,7 @@ AOMEI Partition Assistant Technician Edition 10.4.1 Portable by FC Portables [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50992.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Partition Assistant Technician Edition 10.4.1 (x64) Portable by 7997 [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50993.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ O&O Defrag Professional + Server 28.2 Build 10018 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51009.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Auslogics Windows Slimmer 4.0.0.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51011.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adguard 7.18.0 (7.18.4774.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51012.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:31ED977A2B9DB0E89D112147D9276375E50C82F9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51017.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51026.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ EZ CD Audio Converter 2024.6.28.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51029.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51031.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Aiseesoft Video Converter Ultimate 10.8.38 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51063.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mullvad Browser 13.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51064.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ TweakPower 2.055 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51065.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ R-Studio Network 9.4 Build 191329 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51066.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ KMPlayer 2024.6.25.17 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51067.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Skype 8.123.0.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51068.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Auslogics Duplicate File Finder 10.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51072.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Auslogics Registry Cleaner Pro 10.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51074.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ KMPlayer 4.2.3.13 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51076.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ RegCool 2.006 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51077.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ MiniTool Power Data Recovery 12.0 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51083.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ FolderSizes Enterprise 9.6.490 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51084.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Auslogics Windows Slimmer 4.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51090.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:4DFC60527D8460963475DFEE6390DDEC09F38F22
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51091.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ WinToUSB Technician 8.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51098.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Opera One 111.0.5168.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51099.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51101.jpg" />
 </div>
 
 

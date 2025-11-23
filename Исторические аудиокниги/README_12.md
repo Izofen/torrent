@@ -1,3 +1,27 @@
+###  Публикация: 1084838   (215480) от 20.12.2016
+
+Алексей Иванов | Тобол. Много званых (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_215480.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпоху великих реформ Петра I «Россия молодая» закипела даже в дремучей Сибири. Нарождающаяся империя крушила в тайге воеводское средневековье. Народы и веры перемешались. Пленные шведы, бухарские купцы, офицеры и чиновники, каторжники, инородцы, летописцы и зодчие, китайские контрабандисты, беглые раскольники, шаманы, православные миссионеры и воинственные степняки (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 25:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8F79A7570F001B1F5A35D05C9DB88760557D91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652351   (217644) от 11.08.2023
 
 Владимир Першанин | Штрафники, разведчики, пехота. «Окопная правда» Великой Отечественной (2019) [MP3, Александр Макшанцев]
@@ -6,7 +30,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217644.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217644.jpg" />
 </div>
 
 
@@ -31,7 +55,7 @@ magnet:?xt=urn:btih:A1955303C87E3A168B72E11E2DFE1BDD3480888C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218659.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218659.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ magnet:?xt=urn:btih:D12D9F10550ED12E1841EB6E43328A7C9F3E016F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220878.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220878.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ magnet:?xt=urn:btih:F7DEEA3A9A9E0B090C2BB29D148D3F6E66150CCC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220879.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220879.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ magnet:?xt=urn:btih:C67B4DC2DCA7DFA56ADF3EB440C388ACA4689EE9
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221345.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221345.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ magnet:?xt=urn:btih:333F6302A4619914719B51960CB0506AB18611BA
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221353.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221353.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ magnet:?xt=urn:btih:819D0E95F5065100A3F89C41A619CDF2B4453EC7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222499.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222499.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ magnet:?xt=urn:btih:DB27E68293533EB773DA88FABADA1257FA21DBA0
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223995.jpg" />
 </div>
 
 
@@ -199,7 +223,7 @@ magnet:?xt=urn:btih:31F6C82CBB570BF6E8B184C72B3F7DF60D30D184
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224851.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224851.jpg" />
 </div>
 
 
@@ -223,7 +247,7 @@ magnet:?xt=urn:btih:D1B5F85C07B9E1E950AE0BAC795B2ADA9BB7793E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225898.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225898.jpg" />
 </div>
 
 
@@ -247,7 +271,7 @@ magnet:?xt=urn:btih:A34AE10E1908D26E47B748BEC2DF6BC9B41D4529
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225987.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225987.jpg" />
 </div>
 
 
@@ -271,7 +295,7 @@ magnet:?xt=urn:btih:86FBC7AEEC8FEDD100D6E79802A332B423662970
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226295.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226295.jpg" />
 </div>
 
 
@@ -295,7 +319,7 @@ magnet:?xt=urn:btih:ED7E7092214F04EAA69130F98BA25DE89CEC2DCA
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227660.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227660.jpg" />
 </div>
 
 
@@ -319,7 +343,7 @@ magnet:?xt=urn:btih:417F50DA082B10838F9473A2876324431B201DDF
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228548.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228548.jpg" />
 </div>
 
 
@@ -345,7 +369,7 @@ magnet:?xt=urn:btih:016F6F29DB3AB473A77348292E8816F9C44B60DF
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228697.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228697.jpg" />
 </div>
 
 
@@ -369,7 +393,7 @@ magnet:?xt=urn:btih:82DAC76DD457C66574D1820717CB1CD8D540A3CF
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229226.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229226.jpg" />
 </div>
 
 
@@ -395,7 +419,7 @@ magnet:?xt=urn:btih:117EDDBB5FB5545434DD231A74685D49E9E748EE
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230858.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230858.jpg" />
 </div>
 
 
@@ -420,7 +444,7 @@ magnet:?xt=urn:btih:C0D13B66186FE2920A5A5197B6CA74B3E21A28F4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231316.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231316.jpg" />
 </div>
 
 
@@ -446,7 +470,7 @@ magnet:?xt=urn:btih:377C098DEF4DB8B1EA9FF3463E839EDC9E479C01
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232081.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232081.jpg" />
 </div>
 
 
@@ -471,7 +495,7 @@ magnet:?xt=urn:btih:E5DE47E74C0719CFB0CD350D825308C842EA56D1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232964.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232964.jpg" />
 </div>
 
 
@@ -495,7 +519,7 @@ magnet:?xt=urn:btih:A8F5F147CA5894B731E4CB955E67E3FF46F89B4F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233643.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233643.jpg" />
 </div>
 
 
@@ -519,7 +543,7 @@ magnet:?xt=urn:btih:EE1E59F646CD00467C358E55F779B183A8BFD103
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235718.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235718.jpg" />
 </div>
 
 
@@ -543,7 +567,7 @@ magnet:?xt=urn:btih:34361F277B8D5D4FA02F4935A1FA6146DC24ECF5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236690.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236690.jpg" />
 </div>
 
 
@@ -567,7 +591,7 @@ magnet:?xt=urn:btih:2623896DC4A936C9A350DFD5ACFBE32A61B22F97
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236746.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236746.jpg" />
 </div>
 
 
@@ -591,7 +615,7 @@ magnet:?xt=urn:btih:40C911E4CCA7BF7B8A431C17352A17C9ACE0A18F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238082.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238082.jpg" />
 </div>
 
 
@@ -602,30 +626,6 @@ magnet:?xt=urn:btih:40C911E4CCA7BF7B8A431C17352A17C9ACE0A18F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518B83A30FF49B046EB0A217E901D31E1CE9385A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632074   (240647) от 09.05.2023
-
-Симона Вилар | Светорада (Книга 1). Светорада Золотая (2023) [MP3, Наталья Беляева]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древняя Русь. IX век. Всякое рассказывали о смоленской княжне Светораде: и красива она, и коварна, и головы женихам любит морочить, а капризам и прихотям ее нет числа. И тем не менее именно к ней посватался молодой киевский князь Игорь. Несмотря на то что Олег Вещий привез ему из Пскова другую невесту – Ольгу. И Ольга готова на все, чтобы разлучить Игоря со Светорадой. (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 17:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1412BD71B2C947677B5C597747FD28918E164EF9
 ```
 
 

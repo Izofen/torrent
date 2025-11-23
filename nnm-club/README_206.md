@@ -6,7 +6,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5420.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:21867D7CF4E0C3B4F59E4D840605B8B0A7815D30
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5421.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:567C808793B36AAC8FFF83AC175D24D6B35B2A4B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5422.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8E3E779EBD41636F8E20DEA8A9C4E57673505B4A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5423.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2231F7B63315EFB6368AD1223D4AB33884F165AA
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5424.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4065AF0AE7C2D6604C06249C9669A50E5DAB182A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5425.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Purpleschool, Антон Ларичев | Nuxt - fullstack Vue фреймвор�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5426.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5427.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.69/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5428.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Zentimo xStorage Manager 3.1.2.1301 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5429.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Office Installer & Office Installer+ 1.29 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5430.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [D
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5431.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:A733CC6613DE2AE186C76CE3911FB86B31B76B5C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5432.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Google вводит обязательную верификацию для вс�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5433.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5434.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:CC30DA458A1F0E282548B5F15DD685808535984F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5435.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5436.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ USB Safely Remove 7.1.2.1327 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5437.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:510F9F15E2F103571E9F16017FE88B6258AA183F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5438.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:3039B6153B328ADCA4C57E1B992BF67AB0E62A16
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5439.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Cent Browser 5.2.1168.83 Stable + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5440.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Garbage - 11 альбомов (1995 - 2025) 20 CD [FLAC|Lossless|image + .cue|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5441.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:E354A788A0F838FCD48F1E861D87DA2ACC108E22
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5442.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5443.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.6.a) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5444.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:5D2E024F13FA7C4F09B1AFAF549EC6D81D4B2E51
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5446.jpg" />
 </div>
 
 

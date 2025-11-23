@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:46D504E2D5B70BB1971B0B7FA425BD2745A5EB20
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69363.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TrackChecker Mobile v2.28.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69364.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:448DF21798362D4B17EBF622E10D96565B8F446B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69365.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AE4AF735EAEA225287E33D947F905F006AFFDD3D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69366.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DA2940BC9EE9E9C119E8C56E8D905FCDA0D4DC23
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69367.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Coolio - Greatest Hits (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69368.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:507E132B2FEEC7E5BA267B50A835FB58F3F63EB5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69369.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69370.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Lighting calculations / Расчеты освещения v6.1.0 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69371.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:88415A277853B23E7A9192F7EC8EF0ED5D489A3E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69372.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ iSenin (Целыбеев Антон) - 6 Albums (2024-2025) [MP3|320 Kbps] <Chan
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69373.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:7417C163E1A4A7FE8B65426C07B33BAF455FF5D8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69374.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ PowerDirector – Video Editor v15.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69375.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:A5DAD7BB6FB4EB7E0BAC4184EC3D5422CA3D5B2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69376.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A5DAD7BB6FB4EB7E0BAC4184EC3D5422CA3D5B2A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69377.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F8D0AE93413EFB776A1F7DF859F05A1103BCCB79
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69378.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ V.A. - Buddha-Bar XXVII (2025) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69379.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:B5117293465B2E5116004BE9B410955D9B83F58A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69380.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:7006D46B5EF7ED6A497576DEF9A8881FDD4D5457
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69381.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ TuneIn Radio v37.7 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69382.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:EDBA4AE5DB1C34E9FB6CFA5946A1A43F3573D292
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69383.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Buddha-Bar - XXVII (2025) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out, Tri
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69384.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:1DED48BE0CD60707D5A11E5B54AB026DF39325B6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69385.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SoundHound ∞ - Music Discovery v10.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69386.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Enchanted Stories: Mystic Woods (2025) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69387.jpg" />
 </div>
 
 

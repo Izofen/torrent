@@ -6,7 +6,7 @@ Glary Utilities Pro 6.23.0.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24075.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24075.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:272690C75812321787AB676BA269C323B18F7494
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24076.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24076.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2AAAE1ABB29E4A28A000CFD05E5373AB32E65B2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24077.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24077.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24078.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24078.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rail Rush v1.9.24 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24079.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8D488D9BE4FD825F8936D895D01BDB3DEDF9E760
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24080.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24080.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:BEC7CB23D8CA55E29F9C5BA7137CCB206812A0EE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24081.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24081.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Jewel Match Dragon v1.59.6 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24082.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24082.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Reignbreaker (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24083.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:41CD40C31056752F6CFE9C39CBDA47BE9B8FB79C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24084.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6C91D8F3E8743A16F6CF1CB1C8C38A7E3ECB1276
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24085.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VCap Downloader 0.1.27.6432 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24086.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:5969FA030923AD02877D2F15D9198AC17F2DEF67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24087.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24087.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:C1A7FD0421468D1033B4B5E46D4227FB7F24A5CD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24088.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24088.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:68914ECDDDE4F3FE104D37067CE5E9818C8F71F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24089.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:21F73044517FF07B978CE67F4175BBED93AD1FF0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24090.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24091.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24091.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:326E7B53303E8C9B7970CFBD69BF3A4E7916CA0E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24092.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ CGCircuit, Andrii Zamorskyi | Ship splash and foam (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24093.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24093.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:6A88CA4EC1B00252A1872493347D3B3791945ADE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24094.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24094.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24095.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DF49F47F9849BE6E69D6BA91EB477245405403ED
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24096.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24096.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B8940D8CE9EDD0E1F34D4C87CE522C5076C83668
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24097.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24097.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ CCleaner 6.34.11482 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24098.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24098.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:E88795B032475675862FFA0F8267EDD1EC314CD7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24099.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24099.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Astra Linux Special Edition 1.8.1.UU2 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24100.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24100.jpg" />
 </div>
 
 

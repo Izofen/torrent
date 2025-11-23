@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46869.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D52734268E48991F2E42A4994EBDE48FB403006
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46870.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3A21BEDA484DDD86DC520E961FFAFFCC0421BC02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46871.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CEAB09ABD76F531EB4B225812DFE429B953097CA
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46872.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Bathhouse (2024) [Multi] (1.03) Repack FitGirl [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46873.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46874.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AAF3589FA8351D880DCDDBEB1604EA041ECCC136
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46875.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.7.0809.1937/dlc) Repack Decepticon [Di
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46876.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:4DA8A6DA614EF8EF5E6FC1DA1F0E45ED6B9A1241
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46877.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.4037]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46878.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:973E6FD7E4B45F53EF9AA6FD512DF3085491805C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46879.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Deep Purple: Live In California 1974 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46880.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:62BA483B9D5F5611812CF47C830B9F316CA989E5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46881.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4780]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46882.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Deep Purple - Perfect Strangers Live 1984 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46883.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Adobe Acrobat Pro 2024.002.21005 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46884.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:81F29682FFE46ED94C0C26B21B99DDEF3C33B505
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46885.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:26D563BCE73675A903701EEE5126E92D3987103E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46886.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:8DB4054FFCA882ACED6EB420D4DB849C0C15613E
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46887.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:70EF7439A58E53BA1B809A6604C1B5022BB0A211
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46888.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Microsoft Visual C++ Runtimes AIO v0.83.0 x86-x64 Repack by abbodi1406 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46889.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:52B2688D827F4986B13EBA60498CE08402CE1AFA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46890.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:022F24EDF42FD2E8ED601BB96E8DAFAD30E1C4AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46891.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ One More Night (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46892.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:E82538DB0C2893C5CD4C51E31FD22C9F9AB07FC9
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46893.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:BE409DF7FF2C6A4C75DCBCAB39C99DC10B305104
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46894.jpg" />
 </div>
 
 

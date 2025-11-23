@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8283.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DABBE6023E36355A143C5CA6C5C10758137725C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8284.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Musical kaleidoscope part 49 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8285.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:B7E6865F6F9E62B7977867CAFC5286A9A1D44D89
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8286.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:CAFBC5944219951B86722C44F9F1441AA1EF9D5C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8287.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E596EFD0011D5BAC6CC526AC2EC55059EEBAEA12
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8288.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:49C1D0332BA703DEB94266869E1F8A1832C2BF18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8289.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:09C08ED34AC6F8D447082EB755B5781A398ABFA6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8290.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Freemake Video Converter 5.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8291.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:52C41C5C0CA7772E89B6FDCE2D41F408C9215BD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8292.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8293.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8294.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:63C92ED27821DC4B166152B1E968642BA5C64764
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8295.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:794B42526B734142AAB87D74F90B74982F32FDD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8296.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B74D529781DFAC2054F74E44E04EF504CD44AE7D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8297.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:B74D529781DFAC2054F74E44E04EF504CD44AE7D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8298.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:D573A9C063F4253C7E066F90406906678434959C
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8299.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Notepad++ 8.8.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8300.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Bandicam 8.2.0.2523 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8301.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:C5DA78FA43A1914265D1CE82014D0F43E8B58DB3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8302.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:803F0AABC251457949B70280875D322A9CB2B6A2
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8303.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ TechSmith Snagit 25.3.0 build 7627 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8304.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:879574E578BB274930EECC9A24F6A39CC8E87A02
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8305.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:11525909DFD41E64B14BCD7087250F5754A8DC5C
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8306.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ The Roottrees are Dead (2025) [Multi] (20250717) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8307.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ XRecode 3 1.169 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8308.jpg" />
 </div>
 
 

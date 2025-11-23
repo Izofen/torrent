@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9234.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:EF3B985746B3E027BD39ADF62C4AE1D73BF5F4FC
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9235.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:01C71CE76FE6977E8D5AEC43E70FD02104F8906D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9236.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BC4959307036FCF261BE8D2504B93BF678449C99
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9237.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:EA095D1643A7A8A875DB97D53DEBF1D3A5E52859
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9238.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Process Lasso Pro 16.0.1.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9239.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:54931453B1927BEBCDF99D45FD880F6052393C55
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9240.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:30EF223A895EE8F2954BCA0961B77512335AB1BD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9241.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:4D977B00ED50B2E4A2BF9E9BB8F0B15D50E1A28C
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9242.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Pilgrims / Пилигримы (2019) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9243.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:BD1373310E5F00490ADFAB045A81805CE67F6624
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9244.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Motivation Mix 10 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9245.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4BCC0E9D46636B30A43968AB79D87079EFB748AF
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9246.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:8F3578D28784EC03AAA874A7C56FFFF60FA87CAE
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9247.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:DA87CBE785679B5D0FE4A20429FE12B2C3BF0511
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9248.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9249.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Captain Bones: A Pirates Journey / Пиратское Путешествие (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9250.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:2F760A31A1F85F5A5DC9F7FA58FE427AAF8FBDEC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9251.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ ProfiCAD 13.1.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9252.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ AIMP 5.40.2689 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9253.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:091A2DA69087650FF0A4E2F2DADC64E14E708B60
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9254.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:B4910337FED392CB97B85C770BEF031E4E229246
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9255.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Schrodinger Suite 2025-3 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9256.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:DEBE08CC80E74A172B66526F7893A71E986817BE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9257.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9258.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9259.jpg" />
 </div>
 
 

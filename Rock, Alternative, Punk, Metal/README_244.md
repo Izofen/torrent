@@ -6,7 +6,7 @@ The Grandmaster - Skywards (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155902.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bon Jovi - Keep The Faith (1992) Reissue, Remastered, 2017, Mercury [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155905.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dark Reality - Blossom of Mourning (1995) [FLAC|Lossless|image + .cue] <Death, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155907.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:97699F4E62CF93712497FFA2824E80AE75DA0FD0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155919.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Popol Ace - Stolen From Time (1975) Reissue, 1990, Polydor [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155966.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Them - Manor of the Se7en Gables (2018) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155973.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ One Last Day - Прости, что так (2022) [MP3|320 Kbps] <Alternative Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155979.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Boston - Walk On (1994) [FLAC|Lossless|tracks + .cue] <Arena Rock, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155983.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ South of Reality - 4 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155999.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Act of Denial - Negative (2021) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156015.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Chris Rea - The Best Of Chris Rea (1994) [FLAC|Lossless|tracks + .cue] <Soft Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156055.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Death Angel - The Bastard Tracks (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156071.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Potliquor - Potliquor (1979) Remaster, Reissue, 2010, O-Music [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156072.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:758B4BF150E51574B03AD14BC32234F7193E71ED
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156079.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Vitreous Humor - Posthumous (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156088.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Moviola - The Durable Dream (1999) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156094.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Autumn Lies Buried - Aristocracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156097.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hoax - Conscience (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Thrash, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156104.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Sila Slona - 3 Albums (2017-2022) [MP3|320 Kbps] <Contemporary Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156105.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Spleen - Ocaso (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156113.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Methinks - Будет день опять (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156153.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ AkiaveL - Veni Vidi Vici (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156167.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Wishbone Ash - 25 CD (1970 - 2011) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156378.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156378.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Def Leppard - Limited Edition CD Singles Collector's Box (1993) 4CD [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156472.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Chris Rea - Dancing With Strangers (1987) [FLAC|Lossless|tracks + .cue] <Rock & 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156480.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ magnet:?xt=urn:btih:DE3DC96344B8B41CAD72C889337028A50ACCA898
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156662.jpg" />
 </div>
 
 

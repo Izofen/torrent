@@ -1,3 +1,75 @@
+###  Публикация: 1718843   (110812) от 27.04.2024
+
+Alt SwitchER 21.16 Portable [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alt SwitchER - программа для автоматического исправления "раскладки" слова (с возможностью отключения, назначения программ-исключений), а также авто-обучением и возможностью "ручного" добавления слов в пользовательский словарь и словарь исключений. Alt SwitchER прекрасная альтернатива таким программам, как Punto switcher и Caramba Switcher. В (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6FECBE52276C5B300DC2D2B002BA8D87C6C5DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718954   (110813) от 27.04.2024
+
+Заклятие. Зарождение зла / Auxilio (2023) WEB-DLRip [H.264/1080p] [Line] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110813.jpg" />
+</div>
+
+
+###  Подробнее
+
+1931 год. Эмилия, мятежная и непокорная девушка, сослана отцом в монастырь против собственной воли. Ее приезд сопровождается серией паранормальных явлений, которые со временем становятся все более сильными. Чтобы обрести свободу, Эмилии придется разгадать тайну проклятия монастыря и его обитательниц.Производство: Колумбия, Аргентина / Del Toro Films, Furia Films, Red Vector Productions S A SЖанр: ужасыРежиссер: Тамаэ ГаратегиАктеры: Кумелен Санс, Герман Баудино, Херардо Романо, Матина Гарелло, Марсела Бенхумеа, Камила Токер, Патрисия Кастро, Габи Валенти, Вероника Интиле, Паула КарруэгаПеревод: Дублированный (Paragraph Media) LineЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:27Реклама: Присутствуют вставки аудио и видео рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7C9CF452AD942602F978FA8B630EBE56B998F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718860   (110814) от 27.04.2024
+
+Total Uninstall Pro 7.6.1.677 x64 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Uninstall - утилита, предназначенная для корректного удаления установленных программ. Первым этапом в работе Total Uninstall является слежение за изменениями в системе во время установки нового софта. Делается снимок файловой системы и реестра до начала установки того или иного приложения и после. В дальнейшем, исходя из собранных в момент установки программ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64440C004A4875E5FB8B1EBB8B2553914F5EF36B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718894   (110815) от 27.04.2024
 
 Ultimaker Cura 5.7.1 [Multi/Ru]
@@ -6,7 +78,7 @@ Ultimaker Cura 5.7.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110815.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Gradient v2.10.17 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110816.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Atlantis Word Processor 4.3.9.2 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110817.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ WinMerge 2.16.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110818.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Aiseesoft Screen Recorder 2.9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110819.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Soft Organizer Pro 9.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110820.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110821.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars: Recorded Live At The Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110822.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:E99A7F1BFF616A779D33DE409EFA2C61A0C72B09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110823.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Giuffria - Giuffria (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110824.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ Six by Six - Beyond Shadowland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110825.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ H.E.A.T. - Freedom Rock (2010) Remixed, 2023, H.e.a.t. [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110826.jpg" />
 </div>
 
 
@@ -311,7 +383,7 @@ magnet:?xt=urn:btih:04F67DAA69602F6396361CE4A1B611D2377E0E7B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110827.jpg" />
 </div>
 
 
@@ -336,7 +408,7 @@ Gerald Albright - G (2016) Bright Music Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110828.jpg" />
 </div>
 
 
@@ -363,7 +435,7 @@ magnet:?xt=urn:btih:0E8D7E6998EE9F026AFD54414879DE8AB1DBFD4C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110829.jpg" />
 </div>
 
 
@@ -388,7 +460,7 @@ Bobby Hutcherson - Landmarks (1984 - 1986) 1991, Landmark Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110830.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ magnet:?xt=urn:btih:A9A2740C8B0E22358A40DB453C49A3BD032D5EF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110831.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ VA - Ocean Experience: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110832.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:6CF2D0DCF25E5BDC35B9993BA930497E2E303A2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110833.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:6CF2D0DCF25E5BDC35B9993BA930497E2E303A2D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110834.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ Waterfox Current G6.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110835.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ Q-Dir 11.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110836.jpg" />
 </div>
 
 
@@ -563,7 +635,7 @@ magnet:?xt=urn:btih:DC700B5A0F633D4687B0517680ACB0A917AFDE03
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110837.jpg" />
 </div>
 
 
@@ -574,82 +646,6 @@ magnet:?xt=urn:btih:DC700B5A0F633D4687B0517680ACB0A917AFDE03
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B66530836933B5435FAD1C5967403E65F8A9AA2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718092   (110838) от 26.04.2024
-
-Kasper Bjorke - Puzzles (2024) [FLAC|Lossless|WEB-DL|tracks] <new disco, Alternative>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corridor Of Dreams [00:04:07]
-02. Ugle (Drømmen Om Møn) [00:03:08]
-03. So Much [00:02:56]
-04. I Was There [00:04:12](   Читать дальше...   )Жанр: new disco, AlternativeПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE26195A67CA7D3CFA0A079D82812990B116064
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718725   (110839) от 26.04.2024
-
-Wise Care 365 Pro 6.7.1.643 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A325A7326EEFF78D411EDB5F789EC7487766B56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718807   (110840) от 26.04.2024
-
-Neil Young & Crazy Horse - Fu##in' Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Life (Country Home) (6:37)
-02. Feels Like a Railroad (River of Pride)Жанр: Classic Rock, Country RockПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C0497F1C0D95C2B5AB69B52FBD7FB6A2188874
 ```
 
 

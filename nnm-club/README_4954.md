@@ -1,3 +1,189 @@
+###  Публикация: 1434221   (153586) от 23.12.2020
+
+VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заряд бодрости и позитива в твои колонки! Только самые свежие и отборные хиты от House Garden Music. Рейтинг треков был составлен исходя из регулярного голосования слушателей на сайте радио, а так же по средствам смс. Здесь нет какого-то определенного направления, на сборнике можно услышать артистов различного рода жанров электро музыки, но единственное, что объединяет (   Читать дальше...   )001. Hoodzz X Sherwee - Words
+002. Valiant Ft. Ryan Green - What That Body Do
+003. Dj Dark - Ai Ai Ai (Radio Edit)
+004. Din Jay - Just Be Good To Me(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC001002BAC658027B8C5F1523822607D65E3DED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086143   (153587) от 24.12.2016
+
+The Trombones, Inc. - The Trombones, Inc. (1958) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Neckbones [04:03]
+ 02.Dues Blues [06:58]
+ 03.Long Before I Knew You [04:01]
+ 04.Soft Winds [03:55](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC4362BF7EA291588D5A1F70AC017678FD37192
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433989   (153588) от 23.12.2020
+
+VA - Blues Harmonica (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153588.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:47] 01. Bo Diddley - I'm A Man
+[4:44] 02. John Hammond - When You Got A Good Friend
+[2:22] 03. Howlin' Wolf - Crazy About You Baby (1991 Chess Box Version)
+[1:45] 04. John Mayall & The Bluesbreakers - Another Man(   Читать дальше...   )Жанр: BluesПродолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D074818F7A987006DCF9BF2B798E630D61756F4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434182   (153589) от 23.12.2020
+
+Voodoo Room - Tension City Blues (2020) [FLAC|Lossless|image + .cue] <Blues Rock, Hard Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Love
+02. Shock
+03. No Problem
+04. Headstrong(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB785D25DF8E1FDA4A72EC4B842AD286AC661825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433981   (153590) от 23.12.2020
+
+Murphy Road - No Business (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Business (4:57)
+02. You're My Rock (4:55)
+03. Gaslight (4:19)
+04. I Am Your Mother (4:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD9C881461C9A1A44B4B549709BBF4F354E5ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677065   (153591) от 16.11.2023
+
+Dizzy Reece - Blues In Trinity (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues in Trinity [6:48]
+02. I Had the Craziest Dream [3:06]
+03. Close-Up [10:43]
+04. Shepherd's Serenade [6:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D8E00AAA3652335FA2BDD00110AB7A6C033230
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434259   (153592) от 23.12.2020
+
+NCH WavePad Masters Edition 11.49 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это программное обеспечение для редактирования аудио и является полнофункциональным, профессиональным редактором аудиофайлов. Это позволяет записывать и редактировать музыку, голосовые и другие аудиозаписи. При редактировании аудиофайлов вы можете вырезать, копировать и вставлять части записей, а затем добавлять эффекты, такие как эхо, усиление и шумоподавление. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5A2A56C1C0306944CE7BDDE9BC2D9F601B47A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677126   (153593) от 16.11.2023
 
 Марина Серова | Частный детектив Татьяна Иванова. Вперед и с песней (2022) [MP3, Ирина Данилова]
@@ -6,7 +192,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153593.jpg" />
 </div>
 
 
@@ -30,7 +216,7 @@ Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153594.jpg" />
 </div>
 
 
@@ -57,7 +243,7 @@ Movist 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153595.jpg" />
 </div>
 
 
@@ -82,7 +268,7 @@ DGM - Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153596.jpg" />
 </div>
 
 
@@ -109,7 +295,7 @@ DE3RA - Old Scratch (2020) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153597.jpg" />
 </div>
 
 
@@ -136,7 +322,7 @@ Plaguemace - Reptilian Warlords (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153598.jpg" />
 </div>
 
 
@@ -163,7 +349,7 @@ Self Assistance - Sky Dog Floating in a Land of Impossible Color Combinations (2
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153599.jpg" />
 </div>
 
 
@@ -190,7 +376,7 @@ Grid 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153600.jpg" />
 </div>
 
 
@@ -214,7 +400,7 @@ Adobe Master Collection CC 2017 RUS/ENG
 >>16
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153601.jpg" />
 </div>
 
 
@@ -238,7 +424,7 @@ Trijntje Oosterhuis & Jazz Orchestra Of The Concertgebouw - Wonderful Christmast
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153602.jpg" />
 </div>
 
 
@@ -265,7 +451,7 @@ magnet:?xt=urn:btih:BE948C56962DB896883A13F6FE78D724B12C6651
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153603.jpg" />
 </div>
 
 
@@ -289,7 +475,7 @@ magnet:?xt=urn:btih:2BDD053E0FE0D5E34BB2AEE745F6371ABC61A5A1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153604.jpg" />
 </div>
 
 
@@ -313,7 +499,7 @@ Mur-Len Road - I Gotta Get Outta Here (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153605.jpg" />
 </div>
 
 
@@ -340,7 +526,7 @@ Nesrallah Artuso Project - Wearing the Blues (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153606.jpg" />
 </div>
 
 
@@ -367,7 +553,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153607.jpg" />
 </div>
 
 
@@ -391,7 +577,7 @@ magnet:?xt=urn:btih:5905D72A9E020A41A0905A7B1C425073CA79B0D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153608.jpg" />
 </div>
 
 
@@ -415,7 +601,7 @@ magnet:?xt=urn:btih:6395C4CBB682EE71E67F4B24B826244E6CBDAEFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153609.jpg" />
 </div>
 
 
@@ -439,7 +625,7 @@ Kriegsopfer - Redención (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153610.jpg" />
 </div>
 
 
@@ -466,7 +652,7 @@ Adobe Photoshop CC 2017.0.1 (20161130.r.29) Portable by XpucT [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153611.jpg" />
 </div>
 
 
@@ -477,178 +663,6 @@ Adobe Photoshop CC — многофункциональный графическ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C79B449581909514A977ECE1EC285722071CB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676856   (153612) от 15.11.2023
-
-Windows 10 x64 Rus by OneSmiLe [19045.3693]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Удалены все модерн приложения.
-Поиск работает (значок скрыт)
-Вырезана телеметрия(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA67CE7384B8237E7C5CA849C2F0238D538518C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434201   (153613) от 23.12.2020
-
-AweCleaner Professional 4.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153613.jpg" />
-</div>
-
-
-###  Подробнее
-
-AweCleaner - это универсальное средство для очистки Mac, которое не только помогает пользователям Mac легко и быстро очищать все ненужные файлы, но также может удалять приложения, находить / удалять большие файлы, находить / удалять дублирующиеся файлы, освобождать память, управлять жесткими дисками и т.д. Это комплексное программное обеспечение для очистки также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B223550B317907911F91CC3CDBF30037820CA03C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086118   (153614) от 23.12.2016
-
-Вскрытие Джейн Доу / Демон внутри / The Autopsy Of Jane Doe (2016) WEB-DLRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой Джейн Доу без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: Великобритания | IM Global, Impostor/42Жанр: УжасыРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Паркер Сойерс, Джейн Перри, Ив О’ХараПеревод: Профессиональный (многоголосый, закадровый), любительский (одноголосый, закадровый) х2Продолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E647779E7B41EB0AF9ACE05F97682DFCBDF1E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434261   (153615) от 23.12.2020
-
-Wattagio 1.12.3 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wattagio информирует вас о текущем состоянии батареи и помогает снизить энергопотребление. Гибкие настройки в приложении предоставляют параметры для настройки вашего профиля в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2020Разработчик: Volodymyr NehodovПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24A4EB3DB920536C32BB2DD16D2BB42E1274F31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672301   (153616) от 15.11.2023
-
-Пять ночей с Фредди / Five Nights at Freddy's (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
-
->>След.
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майк Шмидт устраивается работать охранником в «Freddy Fazbear’s Pizza» — когда-то успешный, но ныне заброшенный семейный развлекательный центр. В первую ночь на работе он понимает, что ночную смену будет не так-то просто выдержать.Производство: США, Blumhouse Productions, ScottGames, Universal PicturesЖанр: ужасыРежиссер: Эмма ТаммиАктеры: Джош Хатчерсон, Пайпер Рубио, Элизабет Лэил, Мэттью Лиллард, Мэри Стюарт Мастерсон, Кэт Коннер Стерлинг, Кристиан Стоукс, Джозеф Поликуин, Лукас Грант, Грант ФилиПеревод: Дублированный (HotVoice 41 Studio, TVShows, HDRezka Studio), многоголосый профессиональный (Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 01:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D895A30AAE383C01339AB223CF2B0F87B2B651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085973   (153617) от 23.12.2016
-
-Тролли / Trolls (2016) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь в увлекательное приключение, которое заведет ее далеко от привычного ей мира, Розочка объединяет усилия с самым мрачным троллем на свете по имени Цветан для достижения успеха в своей смелой миссии спасти ее друзей из тисков зловещих бергенов и их лидера, короля Хрящ Старший. Невероятные приключения Розочки проверят ее силу, покажут ее истинную суть и (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Уолт Дорн, Майк МитчеллАктеры: Анна Кендрик, Зои Дешанель, Джастин Тимберлэйк, Кристин Барански, Джеффри Тэмбор, Кристофер Минц-Плассе, Джеймс Корден, Кунал Нэйэр, Гвен Стефани, Расселл БрэндПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, Full), Английский (Full)Продолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F036B42C957051EA38154C6F33BE4248B459254E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434213   (153618) от 23.12.2020
-
-World Clock Deluxe 4.17.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153618.jpg" />
-</div>
-
-
-###  Подробнее
-
-World Clock Deluxe - это надежное и простое в использовании ПО, которое позволяет отображать несколько часов в горизонтальной или вертикальной палитре, в строке меню и в Dock.
-С помощью World Clock Deluxe можно также отображать среднее время по Гринвичу и всемирное координированное время, легко определять лучшее время для конференц-связи или видеоконференции в нескольких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: MaBaSoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582D00737588BE3E7C5D6D284D6478872276D65B
 ```
 
 

@@ -6,7 +6,7 @@ Yars Rising (2024) [Multi] (1.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39799.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pneumata (2024) [Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39806.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39810.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Supermoves (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39817.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39826.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Looney Tunes: Wacky World of Sports (2024) [Multi] (1.0/dlc) Repack FitGirl [Del
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39838.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39845.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39878.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39879.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39881.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39896.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39904.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39913.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39921.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Call of Duty: Black Ops II (2) (2012) [Ru/En] (1.0.0.1 Update 3/dlc) Repack Othe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39934.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39939.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39945.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39997.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40005.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40028.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40106.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Waveform (2012) [Multi] (1.0/dlc) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40111.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cobalt Core (2023) [Ru/Multi] (1.2.4) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40119.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40130.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40131.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40134.jpg" />
 </div>
 
 

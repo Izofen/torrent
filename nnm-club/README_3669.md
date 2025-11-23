@@ -1,3 +1,75 @@
+###  Публикация: 1703466   (115076) от 29.02.2024
+
+AIDA64 Extreme Edition 7.00.6751 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115076.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F21A684DCB91CB403202A8E1DE6815A3D5B5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703603   (115077) от 29.02.2024
+
+Reg Organizer 9.40 (24.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B200A1A2FAB95F5F4D48E68D52C9BDF3DDF8ACA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703457   (115078) от 29.02.2024
+
+Криминальное прошлое / Criminal Record (2024) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-8 из 8) HDRezka, TVShows, RuDub
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект «Криминальное прошлое» из восьми серий описывается как триллер в поисках правды. Местом действия сериала стал современный Лондон, где двое детективов после анонимного телефонного звонка в участок берутся за расследование давнего убийства. История весьма интересна, ведь она затрагивает жизни двух полицейских из абсолютно разных слоев общества. С одной стороны, (   Читать дальше...   )Производство: Великобритания, США / STV Productions, Tod ProductionsЖанр: триллер, драма, криминалРежиссер: Джим ЛоучАктеры: Питер Капальди, Каш Джамбо, Айша Кала, Dionne Brown, Шон Дули, Tom Moutchi, Чарли Крид-Майлз, Стивен Кэмпбелл Мур, Джордан А. Нэш, Кэти ТайсонПеревод: Многоголосый профессиональный (HDRezka, TVShows, RuDub)Язык озвучки: Русский, английскийСубтитры: Русские (full, SDH), английские (full, SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33DD5F0F1F392A4FD2B10EEFAF111CF5765526A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703376   (115079) от 29.02.2024
 
 Лиза Франкенштейн / Lisa Frankenstein (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [DVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115079.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:FDAF07EB3127A096CE7A25D5DF33E80E2E68725A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115080.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:8029B7546E3B64D99F3FB9675EB5EC2794C5F065
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115081.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Topaz Gigapixel AI 7.0.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115082.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:3B19CC5AE490504B87AE05E158DFEE6813D3F858
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115083.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:327BBC9605B086938A8BC3854B5D5163C56F7D90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115084.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:7870A051F30AA1F8171461B898FBB5F1833BC2DF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115085.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ ONLYOFFICE 8.0.1.31 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115086.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ AIMP 5.30 Build 2540 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115087.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:B1CC6E4F46A5A2AD0E5FC1E4843712FAF058B2A9
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115088.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ AIMP 5.30 Build 2540 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115089.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:45D485E34F1198E90AF74E0817D846ED7D567D10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115090.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115091.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:6EE70EB001242D907E72476F4AFAF1D6D207F22C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115092.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ Start11 Version 2.0.6.4 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115093.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ Bus World (2022) [Ru/Multi] (2.3.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115094.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:DBFD35B06375B2AEC36DE6B52D00C3B98BC857B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115095.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:98D44A411F616055BE51490F80C696CDBC33EE93
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115096.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:6E9BEE002628B7CBB15D4935CF40C0219356BE8E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115097.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:689A4045533E80E842C0E2AAFE7C4A7987AE99DA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115098.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:591A2B43B6321630882A3165D7295FF9C92E17C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115099.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ IObit Driver Booster Pro 11.3.0.43 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115100.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:97E1B8823624CBF87EB1434194E3E00A3B5F2A8F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115101.jpg" />
 </div>
 
 
@@ -548,78 +620,6 @@ magnet:?xt=urn:btih:97E1B8823624CBF87EB1434194E3E00A3B5F2A8F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF7CF1808CDF8D1F052E5B5AB20FEA9FAD00AF8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703357   (115102) от 29.02.2024
-
-Лиза Франкенштейн / Lisa Frankenstein (2024) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115102.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в 1989-м году. Лиза Своллоуз, ученица старших классов, не пользуется популярностью в школе, но для нее это не столь важно. Все мысли Лизы посвящены лишь прекрасному незнакомцу из викторианской эпохи, чей надгробный памятник она нашла на кладбище. Однажды ночью, во время грозы, ей случайным образом удается воскресить труп юноши, которого Лиза (   Читать дальше...   )Производство: США / MXN EntertainmentЖанр: ужасы, мелодрама, комедияРежиссер: Зельда УильямсАктеры: Кэтрин Ньютон, Коул Спроус, Лиза Соберано, Дженна Дэвис, Трина ЛаФарг, Паола Андино, Джошуа Монтес, Chris Greening, Mae Anglim, Джои ХаррисПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76AEC233303B573B7083E49BADE63069B9E6691
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703569   (115103) от 29.02.2024
-
-Нерешительный жених / Lo sposo indeciso che non poteva o forse non voleva piu uscire dal bagno (2023) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Джанни Буридано — всемирно известный философ, Саманта — красивая уборщица в университете, где тот преподает. Несмотря на огромные социальные и культурные различия, Джанни и Саманта влюбляются друг в друга и решают пожениться. Вот только не подозревают, что над ними нависло ужасное проклятие, готовое вступить в силу прямо в день их свадьбы.Производство: Италия / Europictures, Adler Entertainment, MG PRODUCTIONЖанр: драма, мелодрамаРежиссер: Джорджо АматоАктеры: Джанмарко Тоньяцци, Иления Пасторелли, Стефано Пеше, Франческо Паннофино, Morena Gentile, Орнелла Мути, Джулия Гуалано, Джорджо Коланджели, Клаудия Джерини, Джулия ГориеттиПеревод: Многоголосый профессиональный (Кириллица)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56474C1EF41EDF1773630E9C154EECD9F7BA5773
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703123   (115104) от 29.02.2024
-
-Формула 1. Драйв выживания / Formula 1: Drive to Survive (2024) WEB-DL [H.264/1080p] (сезон 6, серии 1-10 из 10)
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал даёт болельщикам возможность не только проследить за борьбой за титул с первой до последней гонки сезона, но и познакомиться с личной жизнью их кумиров, увидеть, что происходит внутри команд, тех людей, благодаря труду которых все знают Формулу 1 такой, какая она есть.Производство: Великобритания, Box to Box FilmsЖанр: документальный, спортПеревод: Двухголосый (HDRezka (Ash61)), Двухголосый (Украинский)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (full, forced), Украинские (full, forced), Английские (forced, full, SDH).Продолжительность: серии 10 ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8147C4F68013211C09083C934D76223FE6EAB2A3
 ```
 
 

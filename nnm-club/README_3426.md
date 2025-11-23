@@ -1,3 +1,76 @@
+###  Публикация: 1726385   (108758) от 28.05.2024
+
+Skype 8.120.0.207 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286A3E58356677B4B5877749C08B4B245AC7A5F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726453   (108759) от 28.05.2024
+
+Взорванные дни / Вибухлi днi (1930) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попытка воссоздать образ ближайшего будущего села в виде агрогорода с остроумным пародированием штампов бытовой деревенской драмы середины 1920-х годов.
+По сюжету один украинский завод выделяет трактор, который будут использовать на съемках кинофильма о деревне. Доставить в павильон его должен рабочий. На съемочной площадке он отмечает, что фильм получается неправдоподобным, (   Читать дальше...   )Производство: СССР / УкраинфильмЖанр: агитфильм, драма, немое киноРежиссер: Александр СоловьевАктеры: Иван Сизов, П. Костенко, Алексей Харламов, Дж. Ростов, Владимир Чувелев, Семён Свашенко, Иван Твердохлиб, Степан Васютинский, Г. Ростов, А. БеловСубтитры: украинские (интертитры), русскиеПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319D0638C13EFAB1F48D9B54E0CE395871DC65F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726409   (108760) от 28.05.2024
+
+Журнал | Linux Format №314 (2024) [PDF][EN]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Format — первый ежемесячный журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Future Publishing LimitedФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8362114256B384A665772DC9361D3896644F296B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726452   (108761) от 28.05.2024
 
 Н.И. Гольдфарб | Физика. Сборник задач для 10-11 класса (2021) [PDF]
@@ -6,7 +79,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108761.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Andrew William | ESL Classroom Games: 180 Educational Games and Activities for T
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108762.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:5997703CF08B402DED99BA614728EE10A4947FB9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108763.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:5101F83151A62F77C88531D9C304D429D6228C30
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108764.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108765.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ Photo Lab PRO v3.13.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108766.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ VA - Hotel & SPA Best Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108767.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ Smart AudioBook Player 10.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108768.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Chromium 125.0.6422.113 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108769.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108770.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ Firefox Browser 126.0.1 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108771.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ magnet:?xt=urn:btih:C8E0F3A60724C29D062ABD2B0923D1EC7987E7AB
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108772.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ Lorne Lofsky - Lorne Lofsky (1992) Jazz Inspiration [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108773.jpg" />
 </div>
 
 
@@ -328,7 +401,7 @@ Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108774.jpg" />
 </div>
 
 
@@ -355,7 +428,7 @@ Tezza F - Key To Your Kingdom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108775.jpg" />
 </div>
 
 
@@ -382,7 +455,7 @@ Horace Parlan - Blue Parlan (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108776.jpg" />
 </div>
 
 
@@ -409,7 +482,7 @@ Wizzard - Back and Alive (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108777.jpg" />
 </div>
 
 
@@ -436,7 +509,7 @@ Dave Stryker Quartet - Blue Degrees (1993) SteepleChase [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108778.jpg" />
 </div>
 
 
@@ -463,7 +536,7 @@ Cypecore - Take the Consequence (2010) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108779.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ Dawn of Perception - Fragments (2005) Demo [FLAC|Lossless|tracks + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108780.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ Cypecore - Identity (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108781.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Dead Head - Dream Deceiver (1993) [FLAC|Lossless|image + .cue] <Thrash, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108782.jpg" />
 </div>
 
 
@@ -571,7 +644,7 @@ Vlado Grizelj - Purple Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108783.jpg" />
 </div>
 
 
@@ -585,87 +658,6 @@ Vlado Grizelj - Purple Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47109A908EE9069AFC28653CFE234E88FE6D45F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726160   (108784) от 27.05.2024
-
-Greg Wilson - It's My Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Midnight (Cover) (5:01)
-02. Rock with Me (Cover) (4:20)
-03. It’s My Soul (3:38)
-04. Check up on My Baby (Cover) (3:46)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85CF0BDF2E2E37F7824CECC90997DE5083406CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726020   (108785) от 27.05.2024
-
-Stellar Circuits - Ways We Haunt (2018) Remaster, 2024, Stellar Circuits [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Visitor (2024 Remastered) [00:04:30]
-02. Skylights (2024 Remastered) [00:03:57]
-03. Fell Under a Spell (2024 Remastered) [00:04:04]
-04. Sleepless Goddess (2024 Remastered) [00:05:22](   Читать дальше...   )Жанр: Alt. Metal, Progressive RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2A65E76CA996B4810F5364881F23C0AFBEA1EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726098   (108786) от 27.05.2024
-
-Ilan Kunik - The Casino Club - Positive & Funky Comedy Grooves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funk Brothers (1:55)
-02. Flying Bartender (2:07)
-03. Crazy party (2:03)
-04. The Walk Of Fame (2:00)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E842A7059B7C27860A22B89F21D2D7A811AF4A
 ```
 
 

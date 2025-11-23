@@ -1,3 +1,84 @@
+###  Публикация: 1702480   (115674) от 25.02.2024
+
+Rodney Whitaker - All Too Soon: The Music Of Duke Ellington (2017) 2019, Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cotton Tail [4:17]
+02. All Too Soon [3:42]
+03. Take the 'A' Train [5:28]
+04. Just Squeeze Me [7:01](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Vocal JazzПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15760027EE0766319EB194AC89F31C15A413D12F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702503   (115675) от 25.02.2024
+
+Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Millie [6:16]
+02. O Mama Enit [5:34]
+03. I Should Care [7:31]
+04. Rigor Mortez [6:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D1B9310219B36B2E9881EEC3053774728D0293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702484   (115676) от 25.02.2024
+
+Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeepers Creepers (with Tommy Flanagan) [5:01]
+02. I've Got a Crush on You (with Tommy Flanagan) [6:06]
+03. Some Time Ago (with Renee Rosnes) [5:29]
+04. It's You or No One (with Renee Rosnes) [5:18](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFA722447CE40BE206E431A75AE02B3585A9A29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702536   (115677) от 25.02.2024
 
 Чудо техники с Сергеем Малозёмовым (24.02.2024) WEBRip [H.264/720p]
@@ -6,7 +87,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115677.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ magnet:?xt=urn:btih:58DF5A55FC191F72C4DB9033002BB5F982413718
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115678.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ magnet:?xt=urn:btih:C322D8A9E4B536E6ADCD4378AEC5C335FABB956A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115679.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ Yes - Drama (1993 (1980)) [FLAC 24/192|Lossless|tracks] <Prog Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115680.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ magnet:?xt=urn:btih:C22259174722198FBDA1B17E0E78CA4C4919794A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115681.jpg" />
 </div>
 
 
@@ -134,7 +215,7 @@ Public Image Limited - End Of World (2023) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115682.jpg" />
 </div>
 
 
@@ -161,7 +242,7 @@ magnet:?xt=urn:btih:2E160652DA6DFB0A75A9FD3FE3C075B9C077B793
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115683.jpg" />
 </div>
 
 
@@ -185,7 +266,7 @@ Kyuss - Studio Albums (4 releases) (1991-1995) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115684.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ magnet:?xt=urn:btih:B93F25AEA29F1A18F38064095A3A9A56D4AB36F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115685.jpg" />
 </div>
 
 
@@ -236,7 +317,7 @@ Without Me - Revelations (2022) Deluxe Edition, 2024, Without Me [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115686.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ magnet:?xt=urn:btih:448F3A158C2FD01007F99FC6E052B41DA8AC9765
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115687.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ magnet:?xt=urn:btih:597F7F8C7C703543E64E0DF06506248331D6682D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115688.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ magnet:?xt=urn:btih:BEE23F42BE27DF7DA99846AC0D500BCB4AC35CD1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115689.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ magnet:?xt=urn:btih:1DB1C79624086E97661A1DC795A53C585C225202
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115690.jpg" />
 </div>
 
 
@@ -363,7 +444,7 @@ magnet:?xt=urn:btih:1C3249323CCB09918B9A187B408EF532C3FA6279
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115691.jpg" />
 </div>
 
 
@@ -387,7 +468,7 @@ Beau Geste - Another Night in the City (1986) Reissue, Magada Heritage, 1993 [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115692.jpg" />
 </div>
 
 
@@ -414,7 +495,7 @@ Timson - Forever's Not Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115693.jpg" />
 </div>
 
 
@@ -441,7 +522,7 @@ Beau Geste - Another Night in the City (1986) Remaster, Unidisc, 1998 [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115694.jpg" />
 </div>
 
 
@@ -468,7 +549,7 @@ Job for a Cowboy - Moon Healer (2024) [FLAC|Lossless|tracks + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115695.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Distant - Heritage (2023) 3CD Absolute Deluxe Edition, 2024, Century Media [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115696.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ magnet:?xt=urn:btih:A818BE398A8B81DE5E21AD8EC3AD2C391DBEBC90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115697.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ VA - Александр Зацепин, Леонид Дербенев - Песн
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115698.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ magnet:?xt=urn:btih:A07E7EFD82AE6DE81FEB18A9F29D62684A271157
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115699.jpg" />
 </div>
 
 
@@ -586,87 +667,6 @@ magnet:?xt=urn:btih:A07E7EFD82AE6DE81FEB18A9F29D62684A271157
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12E05A36BFC4442AFB1B20E29BD6ABB9F4E2C9DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702560   (115700) от 25.02.2024
-
-ShockOne - Organism Algorithm (2024) [MP3|320 Kbps] <drum 'n' bass, dubstep, drumstep, electro house>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alone [00:04:45]
-02 - Open Your Mind [00:04:06]
-03 - Ready To Go (feat. Bright Sparks) [00:03:32]
-04 - Organism Algorithm [00:04:41](   Читать дальше...   )Жанр: drum 'n' bass, dubstep, drumstep, electro houseПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80698B961E5CF2D123589BC2ADC859DF251110A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702403   (115701) от 25.02.2024
-
-Dio - Ronnie's Birthday Show (2019) Reissue, 2024, Smokin' [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus Mary And The Holy Ghost [00:03:34]
-02. Strange Highways [00:06:41]
-03. Don't Talk To Strangers [00:05:48]
-04. Pain [00:03:27](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1BAA52A57FF468CD0DDE65838CE8CD5863CBC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702566   (115702) от 25.02.2024
-
-ShockOne - Organism Algorithm (2024) [FLAC|Lossless|WEB-DL|tracks] <drum 'n' bass, dubstep, drumstep, electro house>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alone [00:04:45]
-02 - Open Your Mind [00:04:06]
-03 - Ready To Go (feat. Bright Sparks) [00:03:32]
-04 - Organism Algorithm [00:04:41](   Читать дальше...   )Жанр: drum 'n' bass, dubstep, drumstep, electro houseПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E9F94CC5D875D0513DB3828A0429E7996463E0
 ```
 
 

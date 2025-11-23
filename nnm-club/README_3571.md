@@ -1,3 +1,82 @@
+###  Публикация: 1711310   (112528) от 29.03.2024
+
+StaxRip 2.37.4 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112528.jpg" />
+</div>
+
+
+###  Подробнее
+
+StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
+Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908E9931692F10C615EDB90F97D5E604F23C5063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711325   (112529) от 29.03.2024
+
+GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & GOODBOYS - This Feeling (ID Remix)
+02. The Prodigy - Voodoo People (Josh Samuel Edit)
+03. Opus III vs. Skrillex & Fred Again.. & Flowdan - It's A Fine Day vs. Rumble (
+04. GOODBOYS & Biscits & Max Mylo - The Loop(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34C98167536B2EE4F27C50FF128320191C873F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711345   (112530) от 29.03.2024
+
+Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anything
+02. Too Forever
+03. Chicken Shack
+04. It Hits Different(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FE9604A33B6055D3FAB881B51F5A7619F08E5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711272   (112531) от 29.03.2024
 
 Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Modern Big Band>
@@ -6,7 +85,7 @@ Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112531.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:922B882014D8E69E9A8F531A7DFDD78931A5AAAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112532.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:1B9374FB777A9BAC03EA783A109212EC4A94E065
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112533.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112534.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112535.jpg" />
 </div>
 
 
@@ -135,7 +214,7 @@ magnet:?xt=urn:btih:EC7C66701081AE9C3A06DB3D28F7637A6FC847A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112536.jpg" />
 </div>
 
 
@@ -159,7 +238,7 @@ TONSTURM - DopplerPRO 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112537.jpg" />
 </div>
 
 
@@ -184,7 +263,7 @@ Togu Audio Line - TAL-J-8 1.8.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112538.jpg" />
 </div>
 
 
@@ -208,7 +287,7 @@ Sante DICOM Viewer Pro 14.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112539.jpg" />
 </div>
 
 
@@ -233,7 +312,7 @@ Kdenlive 24.02.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112540.jpg" />
 </div>
 
 
@@ -257,7 +336,7 @@ Chromium 123.0.6312.87 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112541.jpg" />
 </div>
 
 
@@ -281,7 +360,7 @@ magnet:?xt=urn:btih:AB354D192ECBED04F35DF7920B08E00A58954736
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112542.jpg" />
 </div>
 
 
@@ -305,7 +384,7 @@ magnet:?xt=urn:btih:0F5AF3534AC86A44D618ECDEE755F19370E15080
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112543.jpg" />
 </div>
 
 
@@ -332,7 +411,7 @@ magnet:?xt=urn:btih:A297DB2834682FFE9C2F592F921E627FC1717712
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112544.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ Noir – Dark Mode for Safari 2024.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112545.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ magnet:?xt=urn:btih:2805F02C0D8B49CCBEB7A262B381252B46843515
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112546.jpg" />
 </div>
 
 
@@ -406,7 +485,7 @@ magnet:?xt=urn:btih:1B158B8AE257C08C2343290FA5F54FA9377A9331
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112547.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ VA - Deep-House Heaven, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112548.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ VA - трибьют Пурген (2024) [MP3|320 Kbps] <Rock, Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112549.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ magnet:?xt=urn:btih:A78181E4DF30D6B8AC15289879350EBC3AE4589C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112550.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ PhotoDirector v19.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112551.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ The Moving Sidewalks - The Complete Collection (2012) 2 x CD [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112552.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ magnet:?xt=urn:btih:6F30534F2D4CC635E13E418D571E3B5012E8696E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112553.jpg" />
 </div>
 
 
@@ -570,84 +649,6 @@ magnet:?xt=urn:btih:6F30534F2D4CC635E13E418D571E3B5012E8696E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A010FA4551402490201730AF64F328EF3A4195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710905   (112554) от 28.03.2024
-
-Jeff Beck Group - Jeff Beck Group (1972) Reissue, 1989, Epic [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112554.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ice Cream Cakes - 5:40
-2. Glad All Over (A. Schroeder, R. Bennett, S. Tepper) - 2:59
-3. Tonight I'll Be Staying Here With You (B. Dylan) - 4:57
-4. Sugar Cane (S. Cropper) - 4:06(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B621083E084801C6B61ECBFA901132C1B2E99E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710809   (112555) от 28.03.2024
-
-Сибирская Благозвонница | Ветхозаветные cотницы (2009) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга представляет собой краткое содержание важнейших книг Священного Писания Ветхого Завета с объяснением и толкованием главных ветхозаветных событий и пророчеств.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F04A27DAE39E010608C9C66DBEDD9AAB68FE6C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710753   (112556) от 28.03.2024
-
-Eisenwut - Die Herrschaft der Leere (2017) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Auf der anderen Seite der Verzweiflung [1:57]
-02 - Freiheit [6:35]
-03 - Gib mir Kraft [3:23]
-04 - Tod tritt zurück [4:24](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25052429A0C51EB7FFA270645905881F945013E2
 ```
 
 

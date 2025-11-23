@@ -6,7 +6,7 @@ Ardan Labs, Bill Kennedy | Ultimate Go: Software Design with Kubernetes (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120724.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Илья Зернов | After Effects для монтажера (2023) WE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120752.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ OK English School, Елена Вогнистая | Учебные материа
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120753.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Udemy, David Nixon | Unreal Engine 5: The Intermediate Course (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120884.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Udemy, Alexandr Sochirca | Руководство по GitHub Actions (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120887.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:12E249DE76EC0B6D2E434A520342812570F6A9EC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120888.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Udemy, Bogdan Stashchuk | CSS - Полный Курс по CSS (2024) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120915.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Patreon, Timur Shemsedinov | Технологический стек Node.js (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120918.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ OTUS , Алексей Кулиничев, Роман Помазанов, Ива�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121241.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Udemy, Andre LaMothe | Fast and Furious Game Development with JavaScript and AI 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121357.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121367.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121463.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Enterclass, Анна Хопта | Белое на белом (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121534.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121565.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:857F5D1F1C923FA630476B96FD96E59BF16DFFF9
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121604.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Udemy, John Smilga | NextJS & OpenAI - 2024 Edition (2023) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121609.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:35CECAC957F685D82674DA6DD0A7F57DEB930211
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121617.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Skillbox, Виктория Вишнякова | Как правильно пит
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121625.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121630.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121640.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121657.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121782.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121793.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121881.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:F6ACCA85B4266D016C980AA129F57A4FEFEAFBBC
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121921.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121934.jpg" />
 </div>
 
 

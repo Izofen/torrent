@@ -6,7 +6,7 @@ Wartales (2021) [Ru/Multi] (1.0.41212/dlc) Repack FitGirl [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19486.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19487.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:055C6C96A51B5712D2B5487E044C7AAD931B3ECC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19488.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gakken | Артбук по фильмам Звёздные войны / Star War
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19489.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19490.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:DE64BD8FA1B26A3FEF35A4A5939A149E86408FD9
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19491.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:477FF931D4D0C7F007F80B3D6FC0420336B96907
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19492.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:D84688CDCA3439C0A3ADA1194CA339FC884CAAEB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19493.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:AFAEDEBBDD258A5E7F993C6E257869E51FA16E82
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19494.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A3C95DBEF9A44A8CD029CD94BB90A65AD6A96B26
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19495.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Titan Magazines | Артбук по фильму Стартрек: Бескон�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19496.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Chaos Vantage 2.8.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19497.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19498.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:79A568201EC3D8331B2F6B0ADEF7C75310E3C907
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19499.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:82A142190713025C7066BB856FE11AF1EE1040B5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19500.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:E673EB10ACFD70ECA63E100B76E31C947F9CCE28
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19501.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:48F87920D7479767FC978176B6BAC6179E9CDEBE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19502.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:6E471D371E035DE7E57CB6363D40159D13A27038
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19503.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19504.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19505.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:28934680333E5E31F922391C889717738174587C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19506.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:17317D15332884DFE829059A5F518CBA678558FF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19507.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:AB7B2B998166BFE9811352DC15B269D0D828C8A1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19508.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ MiniTool Power Data Recovery 12.5 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19509.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Ultimate 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19510.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:AF106960D5E95A937E00EFC62386ECBD0A8B5343
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19511.jpg" />
 </div>
 
 

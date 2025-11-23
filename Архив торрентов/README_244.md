@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0518) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55940.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Driver Easy Pro 6.0.0.25691 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55944.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Icecream Screen Recorder Pro 7.41 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55949.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Pepakura Designer 6.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55956.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ HiBit Uninstaller 3.2.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55957.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Topaz Video AI 5.0.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55958.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:680460BD944D97BD5B53E4E1BF16EC6620C96B05
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55961.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ PotPlayer 240509 (1.7.22232) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55974.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ System software for Windows v.3.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55990.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Adobe Illustrator 2024 28.5.0.132 + Plug-ins (x64) Portable by 7997 (20.05.2024)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55996.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ FanControl V191 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56024.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PhotoRoom v4.9.6 b1403 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56025.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ EarthView 7.9.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56034.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PDFCreator 5.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56035.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Slimjet 43.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56037.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ LibreWolf 126.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56040.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0518) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56044.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Aiseesoft Video Converter Ultimate 10.8.32 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56047.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ MetaProducts Offline Explorer Enterprise 8.6.0.4976 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56049.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Turbo Studio 24.5.9.0 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56050.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Tablacus Explorer 24.5.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56063.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Foxit PDF Reader 2024.2.1.25153 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56073.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:AE5C49BD6B04A08C59EDD6DCEA36A1A6261ACDC9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56127.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Autorun Organizer 5.40 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56140.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ ES File Explorer File Manager v4.4.2.8 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56142.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ UpNote - Записка, дневник 9.3.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56143.jpg" />
 </div>
 
 

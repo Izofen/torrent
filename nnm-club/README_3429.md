@@ -1,3 +1,84 @@
+###  Публикация: 1726236   (108836) от 27.05.2024
+
+VA - Fulltime, Vol. 3 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:09)
+02. City Group's Band - Our Time (Young Pulse Remix) (5:33)
+03. Joy Salinas - The Mistery Of Love (Joey Negro Remix) (6:18)
+04. Orlando Johnson - Chocolate City (M.B. Edit Remix) (6:11)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BD78601CEDC7B0DC57C0DB013B1E950F7D58BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725953   (108837) от 27.05.2024
+
+Marty Friedman - Drama (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Guitar Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illumination (06:37)
+02. Song For An Eternal Child (05:15)
+03. Triumph (Official Version) (05:08)
+04. Thrill City (04:12)(   Читать дальше...   )Жанр: Rock, Guitar InstrumentalПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E1071A4A8F6D5DC27D63CBF7EAD5811F565E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725746   (108838) от 26.05.2024
+
+The Dirty Denims - Party On! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock'n'Roll, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Party On! [00:04:25]
+02. Victory [00:03:55]
+03. Guestlist [00:03:37]
+04. We Won't Stop [00:03:38](   Читать дальше...   )Жанр: Hard Rock, Rock'n'Roll, Female VocalПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E69E2B49232ED5E57D29625F6143AE6C102C06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725921   (108839) от 26.05.2024
 
 Deaf Owl - From the Bottom of the Sewers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
@@ -6,7 +87,7 @@ Deaf Owl - From the Bottom of the Sewers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108839.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:3A6B78137E3AEE507298194032E62230F87AE1AB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108840.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ Arrayan Path (Ex-Arryan Path) - Studio Albums (9 releases) (2004-2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108841.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:D7DAF4E9EF2F2CF14A41AB9D6E9E96B4DF6F1EC9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108842.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ Collateral - Should've Known Better (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108843.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ magnet:?xt=urn:btih:D25B077BBAD0B81171D9800C5A2772C354697E5B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108844.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Desolus - System Shock (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108845.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ magnet:?xt=urn:btih:C6C01BD85B3A18D2A26071C1FA1CCC62012536B5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108846.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ Intervals - memory palace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108847.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Mammal - The Penny Drop (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108848.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ magnet:?xt=urn:btih:8036A8E4A68CCBB716D107B2E6FDE246511A7995
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108849.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ Defects - Modern Error (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108850.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Hextar - Doomsayer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108851.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ Paul Weller - 66 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Britpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108852.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ Eregion - Non Omnis Moriar (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108853.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ De Halsband - Wat Let Oe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108854.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ magnet:?xt=urn:btih:1AB707308F6B50458CB03A619E8BC56E84F9DDB5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108855.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ magnet:?xt=urn:btih:4B9E32E2C52A68090EE50F11A11455924988DBFF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108856.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ Maggie Lindemann - Headsplit (2024) Deluxe Edition, 2024, EMI [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108857.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ Brave Browser 1.66.115 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108858.jpg" />
 </div>
 
 
@@ -531,7 +612,7 @@ VA - Smooth Jazz Italian Songs Vol. 3 (2024) Canzoni Italiane In Versione Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108859.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ magnet:?xt=urn:btih:DA228DBB7706F10EF842ED41C256F73269A21F78
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108860.jpg" />
 </div>
 
 
@@ -582,7 +663,7 @@ magnet:?xt=urn:btih:DADB37D4D2F6B688D05D8DA0EB4AAC8390C1D7D7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108861.jpg" />
 </div>
 
 
@@ -593,81 +674,6 @@ magnet:?xt=urn:btih:DADB37D4D2F6B688D05D8DA0EB4AAC8390C1D7D7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66831FE0A33CEE2E7BFF3DF6A9AE4A148C958B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725912   (108862) от 26.05.2024
-
-Человек-зверь / La Bete humaine (1938) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм частично основан на романе "Жизнь человека " 1890 года Эмиля Золя... Машинист локомотива Жак Лантье страдает приступами немотивированной агрессии, особенно во взаимоотношениях с женщинами. Только работа может отвлечь его мысли от желаемого убийства... Однажды Жак в выходной день отправляется навестить свою крёстную мать. В вагоне поезда он становится (   Читать дальше...   )Производство: Франция / Paris FilmЖанр: драмаРежиссер: Жан РенуарАктеры: Жан Габен, Симона Симон, Фернан Леду, Бланшетт Брюнуа, Жерар Ландри, Женни Хелья, Колетт Режис, Клер Жерар, Жан РенуарПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D150BCCF6637565539E809F8B5004C2B949C92DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725961   (108863) от 26.05.2024
-
-Нил Барретт | Милые домашние зверюшки (2024) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108863.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гостиница "Интергалактика" вмещает в себя десятки тысяч постояльцев из сотен миров, каждому из которых необходимы особые условия обитания. Нередки случаи, когда одни приезжие смотрят на других как на деликатес." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C0D8978AFB785BB5509A0D249559B46AED7AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726006   (108864) от 26.05.2024
-
-VA - Calming Moments, Vol 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gushi, Raffunk - The Way To You (Intro) (1:48)
-02. Svendaq - World Contact (5:11)
-03. L.M.F. - Raghupati (Traditional Song) (4:13)
-04. Aiko Katana - Basic Wishes (6:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D9D9B76AFDA7A141329568F4C0B516F09565A0
 ```
 
 

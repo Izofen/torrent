@@ -1,3 +1,181 @@
+###  Публикация: 1270682   (155894) от 20.12.2018
+
+Фигурное катание. Гран-при 2018-2019. Ванкувер (Канада). Финал (2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финал Гран-при по фигурному катанию 2018 — заключительный турнир серии Гран-при по фигурному катанию в сезоне 2018—2019 годов. В этом соревновании в каждой дисциплине приняли участие по шесть лучших взрослых и юниоров (одиночников или пар), определившихся по итогам серии.
+Арена: Дог Митчелл Тандербёрд (Ванкувер, Канада)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:12:04 — 02:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131318B666C60E7DC44824A2D0177F509D90B1FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194462   (155895) от 25.12.2017
+
+Фигурное катание. «Ростелеком-Чемпионат России» 2018. Санкт-Петербург (Россия). 2 День (22.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155895.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 декабря 2017 года, пятница
+«Ростелеком-Чемпионат России» 2018 года по фигурному катанию на коньках. Санкт-Петербург (Россия)
+День 2:
+1. Жeнщины - Короткая программа(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:43—02:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A529DC84AC8B7AFDA9FCA43D91DF1BA114EAAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518419   (155896) от 19.12.2021
+
+Своя игра (19.12.2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85F574B756DDB039AACE4A8C2A057BE32C493FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968038   (155897) от 23.12.2015
+
+Auto PowerOFF 6.2 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таймер выключенияРазработчик: Алексей ЕрофеевЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0051D8DAFD3856E1298C3DCEF93893951441F242
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347019   (155898) от 21.12.2019
+
+UltraEdit 20.00.0.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155898.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraEdit является многофункциональным многооконным редактором с гибкой и мощной системой настроек, многоязычным интерфейсом и встроенным FTP клиентом. Он предназначен для редактирования текстовых, HEX и HTML файлов, Имеется подсветка синтаксиса при написании программ на C/C++, VB, HTML, Java, Perl, FORTRAN и LaTex. Cоздан главным образом для программистов, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: IDM Computer Solutions, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D32E26C3F16FD1B6B15D41E0EBCB4A162A7C877
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676653   (155899) от 14.11.2023
+
+Dark Reality - Oh Precious Haze Pervade the Pain (1997) [FLAC|Lossless|image + .cue] <Death, Folk Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silberstreif (04:02)
+02. Rain Orison (05:22)
+03. Skytied (04:59)
+04. Spingono I Vecchi Giorni (03:35)(   Читать дальше...   )Жанр: Death, Folk Metal, RockПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB1050425ECB69965480CDA62771FC38EBD541D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518435   (155902) от 19.12.2021
+
+The Grandmaster - Skywards (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunar Water (4:36)
+02. The Tempest (4:28)
+03. Someday Somehow (4:45)
+04. Dead Bond (3:30)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AEF2F19BF580954DCBBAFE2209D960B1D5ED56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968057   (155903) от 23.12.2015
 
 Старые песни о главном 3 (1997) HDTV [H.264 / 1080i]
@@ -6,7 +184,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155903.jpg" />
 </div>
 
 
@@ -31,7 +209,7 @@ Titiyo - This Is... (1993) [MP3|256 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155904.jpg" />
 </div>
 
 
@@ -58,7 +236,7 @@ Bon Jovi - Keep The Faith (1992) Reissue, Remastered, 2017, Mercury [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155905.jpg" />
 </div>
 
 
@@ -85,7 +263,7 @@ magnet:?xt=urn:btih:123C521CB14F54C00846A43F26643AF73E55DBEE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155906.jpg" />
 </div>
 
 
@@ -112,7 +290,7 @@ Dark Reality - Blossom of Mourning (1995) [FLAC|Lossless|image + .cue] <Death, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155907.jpg" />
 </div>
 
 
@@ -139,7 +317,7 @@ VA - Summer Hemisphere (2018) [MP3|320 Kbps] <Indie, Alternative, Synthpop, Nu D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155908.jpg" />
 </div>
 
 
@@ -166,7 +344,7 @@ magnet:?xt=urn:btih:35C81251273D6DBC183E427C199629E0A8B9BCFB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155909.jpg" />
 </div>
 
 
@@ -191,7 +369,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) [1080p] HDTVR
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155910.jpg" />
 </div>
 
 
@@ -215,7 +393,7 @@ magnet:?xt=urn:btih:C93167433D19CD992F9AB7828CF29546D3D5E849
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155912.jpg" />
 </div>
 
 
@@ -239,7 +417,7 @@ VA - Saturday Feel Good (2021) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155913.jpg" />
 </div>
 
 
@@ -266,7 +444,7 @@ magnet:?xt=urn:btih:2DCD5191DEF23EA1E7E49C099BEAAE67F52D82DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155915.jpg" />
 </div>
 
 
@@ -290,7 +468,7 @@ FxFactory Pro 7.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155916.jpg" />
 </div>
 
 
@@ -315,7 +493,7 @@ magnet:?xt=urn:btih:95B24B458AF838D87FC66EC5AAEF4B72EB867213
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155917.jpg" />
 </div>
 
 
@@ -340,7 +518,7 @@ magnet:?xt=urn:btih:2035E7D2DA8F21E9E60F457CDD6CD1D9856F301B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155918.jpg" />
 </div>
 
 
@@ -364,7 +542,7 @@ magnet:?xt=urn:btih:158895898830645B008E974D3DA77D196E83E529
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155919.jpg" />
 </div>
 
 
@@ -391,7 +569,7 @@ magnet:?xt=urn:btih:999AD379F0F2B49F22A58C29562B60C3E3EAA27F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155921.jpg" />
 </div>
 
 
@@ -418,7 +596,7 @@ Scherlokk - Files finder 4 v4.1.6 (build 41602) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155922.jpg" />
 </div>
 
 
@@ -442,7 +620,7 @@ AdFender 2.01 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155924.jpg" />
 </div>
 
 
@@ -466,7 +644,7 @@ magnet:?xt=urn:btih:F84F16C8CEDFAD7E29713712C44BA3CFFEF784D7
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155926.jpg" />
 </div>
 
 
@@ -480,183 +658,6 @@ magnet:?xt=urn:btih:F84F16C8CEDFAD7E29713712C44BA3CFFEF784D7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87AC82A9AEDD482B6F18E2C79F069B143E2054C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600630   (155927) от 28.12.2022
-
-FSNotes 6.0.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155927.jpg" />
-</div>
-
-
-###  Подробнее
-
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Украинский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3351F511C99EA0640E4CF81D6600D826122D464F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194683   (155928) от 25.12.2017
-
-VA - Inner Harmony Vol.1 (Find The Inner Peace With These Super Calm Electronic Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sangre De La Tierra  -  El Sueno Del Mar (Original Mix)  5:00
-02.  Prana Tones  -  Yoga Anthem (Original Mix)  4:37
-03.  Sunyata Project  -  Mystic Adventures (Oriental Chill Mix)  3:11
-04.  Sami Sivananda  -  Buddha Life (Original Mix)  3:49(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 02:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98299E03E7CCA628BFB95BA23FF88B37561A8249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426311   (155929) от 21.12.2020
-
-Калифорния / Kalifornia (1993) WEB-DLRip [H.264/720p] [Unrated] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист и его любовница-фотограф, изучают поведение убийц-маньяков, собирая материалы для книги. В особенности их интересуют места, где совершаются преступления. Они отправляются в экспедицию на автомобиле и ненароком подсаживают в машину еще одну парочку.
-
-Уж лучше бы они этого не делали - ведь угрюмый заросший детина, сопровождаемый писклявой дурехой, - сумасшедший (   Читать дальше...   )Производство: США / PolyGram Filmed Entertainment, Viacom Productions, Propaganda FilmsЖанр: триллер, драма, криминалРежиссер: Доминик СенаАктеры: Брэд Питт, Дэвид Духовны, Джульетт Льюис, Мишель Форбс, Кэти Ларсон, Дэвид Милфорд, Джон Заркен, Дэвид Роуз, Томми Чаппелль, Джадсон ВонПеревод: Многоголосый профессиональный, авторский (одноголосый)Субтитры: русские, английскиеПродолжительность: 01:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E573FD12BD028F74C25AB2CFC38510C6C5259FD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518380   (155930) от 19.12.2021
-
-The Clock - The Best World Clock 4.6.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первоклассные часы – точное время в любой точке мира. Мгновенное определение времени суток и часовых поясов, благодаря отображению на часах.
-После запуска эти часы мирового времени для Mac всегда находятся в верхнем меню (menubar). Нажав на ее изображение вы увидите выпадающий список активных часов мирового времени. Добавить новые часы можно кнопкой «плюс», выполнив (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17.12.2021Разработчик: Fabrice LeyneПоддерживаемая ОС: OS X 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FF565C876F1C2CA128DF8BE3F1244A69A7D47D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600699   (155931) от 28.12.2022
-
-Винсент Ван Гог | Письма к брату Тео (2021) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155931.jpg" />
-</div>
-
-
-###  Подробнее
-
-К сожалению, литературный архив мастеров искусства невелик. Художники редко берутся за перо, но к счастью, есть и исключения. Существует замечательная переписка и дневники нескольких, действительно великих художников. Среди них на одном из самых первых мест – письма Ван Гога. Они звучат по-особому, они ни на что непохожи. Есть документы более величественные – своды (   Читать дальше...   )Жанр: биографии и мемуары, документальная литература, зарубежная публицистикаПродолжительность: 16:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01B6B908FBF19B0D0AD65EC3444CD298A91915F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085563   (155932) от 22.12.2016
-
-Монстры против пришельцев.Большой отрыв БОБа. / Monsters vs. Aliens.B.O.B.'s Big Break (2009) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155932.jpg" />
-</div>
-
-
-###  Подробнее
-
-У БОБа день рождения и друзья мутанты решили приготовить для него разрывной сюрприз.Производство: США | DreamWorks AnimationЖанр: Короткометражный анимационный фильмРежиссер: Роберт ПортерПеревод: Дублированный, любительский многоголосый (закадровый)Субтитры: Русские, Английские (вшитые, отключаемые)Продолжительность: 00:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA7C9919D56BFB026F71AE7EB2708FBC26F7C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588625   (155933) от 13.12.2012
-
-Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times Bad Times
-02. Ramble On
-03. Black Dog
-04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard RockРежиссер: Dick CarruthersПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -6,7 +6,7 @@ Rykarda Parasol - Tuesday Morning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171220.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gorefest (& The 11th Hour) - Studio Albums (9 releases) (1991-2012) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171225.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Death - Human (1991) Reissue 2021, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171235.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Martin Solveig - Back To Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Danc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171420.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E807CC356A4C7424612DF48C4205E484151F2B20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171506.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lynch Mob - Babylon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171514.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Beartooth - The Surface (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171527.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ RuPaul - Essential Christmas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171560.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171583.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Afterbirth - In But Not Of (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171596.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171738.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171743.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Sparkle Division - Foxy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171752.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lost Girls - Selvutsletter (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171754.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Evian Christ - Revanchist (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171756.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ blink-182 - One More Time... (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-pun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171868.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Tom Petty & The Heartbreakers - Mojo (2010) Remaster, 2023, Reprise [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171894.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Savage - Glory Riders (2023) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171909.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171940.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Duff McKagan - Lighthouse (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171943.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171948.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172096.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172120.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Oxymorrons - Melanin Punk (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172136.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressiv
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172141.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Sax
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172211.jpg" />
 </div>
 
 

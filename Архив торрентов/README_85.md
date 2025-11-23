@@ -6,7 +6,7 @@ SoftMaker Office Professional 2024 rev. S1224.0308 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23891.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ v2rayN 7.10.5 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23892.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Acrobat Pro 2025.001.20435 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23896.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MyLanViewer 6.3.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23904.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 11, 24H2 [26100.3476] 38in1 (x64) by adguard (v25.03.12) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23915.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23915.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.4 Build 11 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23922.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ WPS Office + PDF v18.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23927.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23927.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23930.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23930.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Calibre 8.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23931.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VivaCut v4.1.2 Mod by MustHave [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23933.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23933.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Infected Sounds - Sphinx 7.0.0 VSTi, VSTi 3 + Expansions [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23936.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23936.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PicWish: AI Photo Editor v2.0.10 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23937.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23937.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VK Музыка: песни и подкасты v7.12 Mod by VK Equals [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23938.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23938.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Happy Color® – игра раскраска v2.18.1 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23945.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Photo Lab PRO v3.13.52 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23947.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23947.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ IPTV Pro v9.0.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23956.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23956.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Opera One 117.0.5408.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23961.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23961.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:F53491FE1961F1BE172E52B7C421F45E064C8618
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23964.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23964.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:6ACBC97A85508D59F2C9CB93204A7665F1844B23
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23967.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23967.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Brave Browser 1.76.80 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23968.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23968.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ CalcKit: All-In-One Calculator / Всё-в-одном Калькулятор v7.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23988.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23988.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.9.40 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23989.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23989.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:D44769A82B4FBC611F91AAE3445604E7A41CE133
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23991.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23991.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ MediaHuman YouTube Downloader 3.9.9.98 (1903) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23998.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ XnView Classic 2.52.1 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24003.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ AnyDesk 9.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24005.jpg" />
 </div>
 
 

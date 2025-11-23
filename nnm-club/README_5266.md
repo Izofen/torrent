@@ -1,3 +1,181 @@
+###  Публикация: 1433072   (162358) от 19.12.2020
+
+The Monster - Extervolution (2020) [MP3|320 Kbps] <Heavy, Power-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Worst in This World [00:01:34]
+02 - Let Me Live [00:04:49]
+03 - I Fly When I Dream [00:03:46]
+04 - The Girl of My Life [00:05:31](   Читать дальше...   )Жанр: Heavy, Power-MetalПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA3199489137D85470B2D12E2847A33984A4615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517753   (162359) от 16.12.2021
+
+Dropshare 5.18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162359.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCD0876763BD655DF9DBAED8C0E5A210516EB97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517651   (162360) от 16.12.2021
+
+Pro Microphone: Audio Recorder 1.4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия звукозаписи и записи музыки. Для начинающих певцов или тех, кто хочет, чтобы их услышали - Pro Microphone. Сделайте свой голос громче. Пойте и сохраните все свои треки, выберите разные микрофоны под свое настроение. Профессиональный студийный микрофон всегда на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2021Разработчик: © 2021 Music Paradise, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CBB6DD47F3CFACE6A3AB2D601C1BE0FA95A7E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598447   (162361) от 19.12.2022
+
+Книжная серия | Настоящие преступники [12 книг] (2018-2022) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кажется, что все это вымысел, но подобные истории действительно случаются. Истории людей, годами державших в страхе целые города и, даже, страны. Истории «Настоящих преступников».
+Серия книг «Настоящие преступники» от издательства «Пальмира», собрала в себе подлинные истории самых беспощадных убийств ХХ века. Имена этих серийных убийц до сих пор знакомы практически (   Читать дальше...   )Жанр: Триллер, Биографии и Мемуары, Публицистика, СпецслужбыПеревод: А. А. Самунджян,  Г. Ю. Михайлов, А. А. Рудакова и др.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6EE27BD659EED42C22FFDA91D89648135C488D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432766   (162362) от 19.12.2020
+
+Sainted Sinners - Unlocked & Reloaded (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Same ol' Song (4:51)
+02. Standing on Top (4:47)
+03. Early Light of Day (4:27)
+04. 40 Years (3:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0962D62FBA3750FFD66B507EEA65830779D413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433043   (162363) от 19.12.2020
+
+Postico 1.5.17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой, но мощный менеджер PostgreSQL баз данных для Mac
+Цель - сделать работу с базами данных PostgreSQL немного проще с помощью коллекции интуитивно понятных инструментов в удобном интерфейсе. PostgreSQL является одним из самых мощных и комплексных систем управления базами данных, поэтому работать с ним не так просто, как может показаться.
+Postico - рациональный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: Jakob EggerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18342A6C61EA22E8E3F6CCEAB152709973BBF864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598603   (162364) от 19.12.2022
+
+Р.С. Жуковский | Основы градостроительства (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162364.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены базовые представления о современном градостроительном проектировании на всех пространственных уровнях от территориального планирования и градостроительного зонирования до планировки территорий и формирования объёмно-пространственных композиций застройки и зелёных насаждений. Описаны все структурные единицы систем расселений, городов (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0AEA4890E8FBC511F91E868C9E2B4C29EC839C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517667   (162365) от 16.12.2021
 
 SignFlow - eSign PDF Editor for Mac 1.0 [En]
@@ -6,7 +184,7 @@ SignFlow - eSign PDF Editor for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162365.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ Magick Touch - Heads Have Got To Rock 'n' Roll (2020) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162366.jpg" />
 </div>
 
 
@@ -57,7 +235,7 @@ Typinator 8 v8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162367.jpg" />
 </div>
 
 
@@ -84,7 +262,7 @@ magnet:?xt=urn:btih:E05E3ADB42C98DB4229E3B500991E12E3DF4B377
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162368.jpg" />
 </div>
 
 
@@ -108,7 +286,7 @@ magnet:?xt=urn:btih:FC84AAA97DF936E4D2C01F9645D6E674FF96DB9E
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162369.jpg" />
 </div>
 
 
@@ -132,7 +310,7 @@ VA - Mellow Cool Swedish Jazz (2021) [AAC|~257 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162370.jpg" />
 </div>
 
 
@@ -159,7 +337,7 @@ Base64 Coder 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162371.jpg" />
 </div>
 
 
@@ -183,7 +361,7 @@ magnet:?xt=urn:btih:19A23A3591C469164F15CEE2D5E8B829192309CE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162372.jpg" />
 </div>
 
 
@@ -207,7 +385,7 @@ magnet:?xt=urn:btih:861B5D863510ADB2FFA587A493FF19001A3F9270
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162373.jpg" />
 </div>
 
 
@@ -232,7 +410,7 @@ magnet:?xt=urn:btih:3BB4D6402E8DFBEC41CB0E2283FFB62707A9C1C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162374.jpg" />
 </div>
 
 
@@ -256,7 +434,7 @@ MacPilot 12 v12.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162375.jpg" />
 </div>
 
 
@@ -281,7 +459,7 @@ Hyperkey 0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162376.jpg" />
 </div>
 
 
@@ -305,7 +483,7 @@ HighTop 1.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162377.jpg" />
 </div>
 
 
@@ -330,7 +508,7 @@ Cadaver - Edder & Bile (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162378.jpg" />
 </div>
 
 
@@ -357,7 +535,7 @@ magnet:?xt=urn:btih:D6A6F6BDCD626B6782A1D283816671A86875F510
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162379.jpg" />
 </div>
 
 
@@ -381,7 +559,7 @@ Al Stewart - Songs on the Radio: The Complete U.S. Singles 1974-1981 (2023) Comp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162380.jpg" />
 </div>
 
 
@@ -408,7 +586,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162381.jpg" />
 </div>
 
 
@@ -432,7 +610,7 @@ Radiant Photo 1.1.2.327 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162382.jpg" />
 </div>
 
 
@@ -456,7 +634,7 @@ Application Wizard 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162383.jpg" />
 </div>
 
 
@@ -469,182 +647,6 @@ Application Wizard позволит запускать, завершать и а
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC02925B5A73E6B4291FB593879CCCDDC57C8D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517590   (162384) от 16.12.2021
-
-Johnny Hodges - Storyville Masters Of Jazz (1943 - 1964) 2006, Storyville Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Get Around Much Anymore [3:51]
-02. Passion Flower [4:14]
-03. Perdido [2:56]
-04. All Of Me [1:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885D46013642BCF729DB66BDCA86B074B7FD08E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598392   (162385) от 19.12.2022
-
-BBC. История Вселенной (Наша Вселенная) / Our Universe (2022) WEB-DLRip [H.264/720p] (сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Насколько большая наша Вселенная? Есть ли жизнь на других планетах? Какие тайны хранят в себе космические просторы? Этими вопросами человечество задаётся уже много столетий, но найти точные ответы на них невозможно. Приоткрыть занавес над тайнами космоса помогут лучшие фильмы про вселенную, снятые в художественном и документальном жанре. Конечно, в художественном (   Читать дальше...   )Производство: США, BBC StudiosЖанр: документальный, природа, наука, исследованиеРежиссер: Наоми Остин, Стивен Кутер, Элис ДжонсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английские (SDH, full)Продолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DAB50F76799569D1F0C5E4FCCC00C1DBF2CAB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517589   (162386) от 16.12.2021
-
-Erroll Garner - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body And Soul [3:01]
-02. All The Things You Are [2:59]
-03. I Don't Stand A Ghost Of A Chance With You [2:41]
-04. Yesterdays [3:07](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EC7DE205C6643074F0B1E8D48DD2D05AC3F141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598597   (162387) от 19.12.2022
-
-Advanced Renamer 3.88.1 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
-Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A80E4874AFE8F0A994F8CAC9BA8546CA9208970
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433077   (162388) от 19.12.2020
-
-Secret Folder Pro 10.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Secret Folder - Прячет данные с вашего компьютера от любопытных глаз других пользователей.
-Наиболее простой способ защиты данных: работа программы построена на том, что никто не станет пытаться открыть файл, о существовании которого и не догадывается. Secret Folder позволит вам создать список файлов и папок, которые вы сможете делать видимыми и невидимыми одним щелчком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: ApimacПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A89A9875973692D5F46D5A47D95B61C63AAD19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825902   (162389) от 18.10.2025
-
-Йога на стуле v1.0.7 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение «Йога на стуле» для пожилых – простые и безопасные движения для улучшения гибкости, баланса и силы! Присоединяйтесь к нашему персонализированному 30-дневному плану йоги на стуле с мягкими и низкоударными движениями, которые помогают снизить риск падений, укрепить мышцы, поддерживать контроль веса и улучшить общее самочувствие.Тип издания: PremiumРелиз состоялся: 17.10.2025Разработчик: EZ HealthПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674077   (162390) от 04.11.2023
-
-Topaz Photo AI 2.1.0 (x64) Portable by conservator [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD07B271679AC84004AB9A44AFA7CCD0D88D34B
 ```
 
 

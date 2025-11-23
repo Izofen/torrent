@@ -6,7 +6,7 @@ A Crime Called... - Primal Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126446.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - A Very Metal Christmas II (2023) [FLAC|Lossless|image + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126449.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kalamity Kills - Kalamity Kills (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126454.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Slade - The Other Side of Slade - The 80s (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126463.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Elysian Fields - Femmes, Family and Mars (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126471.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Berzerker Legion - Chaos will Reign (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126494.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Edward De Rosa - Darkness Falls (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126578.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Power Reset - Son Of The Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126580.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vargrav - The Nighthold (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126581.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kaos Krew - Blackout (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126582.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Damnationis - The Fallen Princess (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126583.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Randy VanWarmer - Warmer (1979) Japanese Edition, Reissue, 1995, Bearsville [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126584.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2EB0059ECB507506B653DF3A7843BB2DE1935A2F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126586.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Arch Enemy - Stigmata (Deluxe Edition) (1998) Reissue, 2009, Century Media [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126588.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Animal ДжаZ - Корни (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126590.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126592.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:228F27E3DE3085B0568BB227CA6FEF1CC488194D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126598.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Horilka - Хай буде треш! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126600.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Albert - Береговое братство (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126602.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:969F998FA041C4246C08A2242783C979055F73D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126603.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:53447AA42A78EC3FC00E178826CFCB2C4D446B5C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126604.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2AF6E8183FB76F8A321211BB965D4529DCA1A0F0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126605.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:3E825ED4544612B16EB64F1FB6F5B187A8AB5A41
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126624.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:536326FC5F94F12915E893B8EF4F5329842C008C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126625.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Horrifier - Horrid Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126729.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Apostasy - Accuser of Brethren (1993) Reissue, 2020, Pathologically Explicit Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126730.jpg" />
 </div>
 
 

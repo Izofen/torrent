@@ -1,3 +1,75 @@
+###  Публикация: 1674768   (160796) от 06.11.2023
+
+AOMEI Partition Assistant Standard Edition 10.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160796.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Partition Assistant Standard Edition бесплатный многофункциональный продукт, предназначенный для администрирования разделов жестких дисков. Несмотря на свою простоту, программа позволяет производить все основные необходимые операции, такие как, изменение раздела, перемещение, увеличение, уменьшение, соединение нескольких разделов, а также удаление, создание, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A656D15231745AD240689186B91E1C4B36580A27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674762   (160805) от 06.11.2023
+
+ColorControl 9.7.0.0 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160805.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorControl - небольшая программа которая после запуска предлагает новые функции и возможности для пользователей, имеющих видеокарты от компании NVIDIA или АМД. С помощью нее можно изменить не только основные параметры дисплея, но и некоторые скрытые значения, которые обычно недоступны через стандартную панель управления, что значительно расширяет возможности наши (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF7B0C0E0B69EEE2097ABABDCBF7188C776B368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674656   (160809) от 06.11.2023
+
+NetLimiter 5.3.5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160809.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3E3202A0D83322D6976A4C5E766F507A56A534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674784   (160812) от 06.11.2023
 
 RarmaRadio Pro 2.75.5 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ RarmaRadio Pro 2.75.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160812.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Opera Crypto Browser 104.0.4944.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160814.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Busuu - изучение языков 31.6.0(843845) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160818.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Little Snitch 5.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160821.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ TapinRadio 2.15.96.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160829.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ HDCleaner 2.060 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160832.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ RegCool 1.346 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160848.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ BetterTouchTool 4.317 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160849.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Busuu - изучение языков 31.6.0(843845) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160854.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Stats 2.9.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160864.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Tower Pro 10 v.10.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160865.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ Dato 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160867.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Microsoft Office 2021 for Mac LTSC v.16.78.3 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160888.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:C66800B5153FC34B8268B32C6D8F5704E431ADC9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160915.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Malwarebytes Premium 4.6.6.294 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160926.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ Adobe Photoshop 2023 24.1.0.166 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160954.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ NoMachine 7.0.209_5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160985.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ XYplorer 22.60.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160995.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ Cockos REAPER 6.19 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160997.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ AOMEI Backupper Technician Plus 7.3.3 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161005.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ Chromium 87.0.4280.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161012.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ magnet:?xt=urn:btih:2E012DF61E2799F3B2950742ACF66CB1182C17ED
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161013.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ Firefox Browser 91.4.1 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161023.jpg" />
 </div>
 
 
@@ -552,78 +624,6 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:893D21D32ED4620C14F16F688BC81BBBC7164FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433361   (161024) от 20.12.2020
-
-Allavsoft Video Downloader Converter 3.23.1.7653 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0147C951013CBCD056CE9B61CC3D5B368A8F8BBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598945   (161027) от 21.12.2022
-
-Windows 11 Pro VL x64 22Н2 (build 22621.963) by ivandubskoj 21.12.2022 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка Windows 11 Pro (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1027490D0B0260F939828DA1B0B777E606141C2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518019   (161060) от 18.12.2021
-
-4K Video Downloader 4.19.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: © 2021 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E497ADA633474515A177BCD582EE18E4D8E221B
 ```
 
 

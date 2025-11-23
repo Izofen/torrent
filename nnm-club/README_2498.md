@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65696.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:833CB6316441DFE755311D8C240706420B969E34
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65697.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Frank Zappa, The Mothers Of Invention - Cheaper Than Cheep: The Soundtrack (Live
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65698.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:ACC6F574BB0C84A08EAAE0DCAD23BAF5A2833DC7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65699.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Thundertale - Pranašystė (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65700.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Georgia Mancio & Alan Broadbent - Songbook (2017) Roomspin Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65701.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Related to Strangers & Matthew. - Ghost (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65702.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:62E63AFB990097CC881B07A59D76EB9CA149B175
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65703.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:37BA8FB4628B984E57D8F29C352914970CFEB306
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65704.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:4057643DD9885C7D6B038E4D14E48417E8234951
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65705.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:303EE9D8B489E11110E132393A4AEEE3D2EB5EC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65706.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:DD98A5B0B3E90BC01E57E1F327222E250173C03B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65707.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Peter Gabriel - In The Big Room (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65708.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:2604B911D6304803F9F164964B27ACB4F01349D8
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65709.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Royale Lynn - Black Magic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65710.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:D9C8C4C24ED7DB9B92B766BC733A2507818F0D6D
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65711.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:D10D793F2B7EDEC0B99596ACB023928BC82D2842
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65712.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65713.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Lorde - Virgin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Electropop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65714.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:9259D406A8574693252BDDAB5737C086F004B397
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65715.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:729A2B5C8BF0AADB48F4F3E95475CC5C20A87FEB
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65716.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Chillaxing Jazz Kollektion - Groove Jazz N Chill #10 (2025) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65717.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6827CC4A748282B6A6912C663E03D52CB2A164A5
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65718.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Mint Club - Slice Of Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Punk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65719.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Ablazing Summer Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65720.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Anthony Krizan - Cool Shade of Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65721.jpg" />
 </div>
 
 

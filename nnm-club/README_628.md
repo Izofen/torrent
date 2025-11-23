@@ -6,7 +6,7 @@ Will Sumner - Rivers (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16641.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16641.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ron&Bjorn - Worlds Apart (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16642.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16642.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Misty Blues - Other Side of Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16643.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16643.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mickey Jupp - Dance with Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16644.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16644.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mick Clarke - Rust Busters (The Collection) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16645.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mark Winkler - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16646.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16646.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ KORG - multi/poly native 1.0.5 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16647.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16647.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ KORG - Wavestate Native 1.4.6 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16648.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16648.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ KORG - Modwave Native 1.3.6 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16649.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16649.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16650.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16650.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:1C5FC65A4B8DE5840ED2E93F318240D6AB95B253
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16651.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16651.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16652.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16652.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Konstantin Klashtorni - Summer Favorites (2025) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16653.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16653.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ John Christopher Morgan - Right On Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16654.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16654.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Las Mejores Baladas del Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16655.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:7836392E46B54C63384C4F58808E194023B056CB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16656.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:1C9BCA16A517FD11C315F1FC2A93EEAD98AA031A
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16657.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C48EBF05D3288C604B9FE999AD49D898DA775AF6
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16658.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:01E5C0459CE8D6021FFD7F2F5B3121A287C7B48B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16659.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:24D08F0A8EBEC20745FF0BB24255F8753B420333
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16660.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:1A992198E5FE2F4EC57B87EEFFDA75EE347DF28C
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16661.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:DC2E182DB5ABB3A66AB369219538DA254706C304
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16662.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:3686015CBBE2D8A9942BA5C58A3EDE9DD96CFC26
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16663.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:84E9CE6245BAA610FC8BB1C40A3FF67056C99A1C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16664.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:5D42FDB4C63F885DBE167AA01D8680DD97372E7D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16665.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Genius Art: Image AI Generator v1.3.4 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16666.jpg" />
 </div>
 
 

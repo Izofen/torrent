@@ -1,3 +1,76 @@
+###  Публикация: 1673372   (165077) от 01.11.2023
+
+Rename Expert 5.31.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rename Expert - программа предназначена для быстрого и легкого переименования файлов и папок. Предлагается множество инновационных функций для создания последовательных и, прежде всего, понятных имен. Буквально в несколько щелчков мыши можно нумеровать файлы и папки, сокращать длинные имена файлов, переименовывать расширения и многое другое. Rename Expert поддерживает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADEB5044824A7C35F7FE2BC622BD84CA7E58A8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597908   (165079) от 16.12.2022
+
+Nova 10.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
+Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2020–2021 Panic, IncПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D21160BCD0A4876805AB052A912B304A4607E1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345940   (165080) от 17.12.2019
+
+Mozilla Thunderbird 68.3.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1709F43F9C547FAE63306C60D61DBF46CD3D23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673400   (165081) от 01.11.2023
 
 CyberLink PowerDirector Ultimate 22.0.2213.0 (x64) Portable by 7997 [Multi]
@@ -6,7 +79,7 @@ CyberLink PowerDirector Ultimate 22.0.2213.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165081.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ WinTools.net Premium 23.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165085.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Wondershare PDFelement Pro OCR 9.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165087.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ JRiver Media Center 26.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165088.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Rhinoceros 7 v.7.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165095.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ IObit Driver Booster Pro 11.1.0.26 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165096.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ Firefox Browser ESR 102.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165101.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ magnet:?xt=urn:btih:CF014C3E93EC3238B88331C50E6D7358FB32F400
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165102.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ Microsoft PowerToys 0.75.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165106.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Easy Data Transform 1.38.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165110.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ IObit Driver Booster Pro 11.1.0.26 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165111.jpg" />
 </div>
 
 
@@ -271,7 +344,7 @@ VideoDuke 1.5 (build 257) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165114.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ Moderator - The Mosaics (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumen
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165117.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ Room Arranger 9.6.0.621 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165118.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Opera GX 93.0.4585.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165128.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ FontExpert 2021 18.0 Release 1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165129.jpg" />
 </div>
 
 
@@ -398,7 +471,7 @@ CyberLink PhotoDirector Ultra 15.0.10.1025 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165131.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ Topaz Video AI 4.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165140.jpg" />
 </div>
 
 
@@ -446,7 +519,7 @@ GoodSync Enterprise 10.10.16.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165142.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ Firefox Browser 84.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165146.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ WinTools.net Premium 23.11.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165150.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ magnet:?xt=urn:btih:C52746DC3F0D701D6C1FE6B648EDF095CDB41B38
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165152.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165157.jpg" />
 </div>
 
 
@@ -555,78 +628,6 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF5E01EE9C291727C7890E88936A6BE79EE88C65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432146   (165160) от 16.12.2020
-
-Lacey Free Music & Video Downloader 2.49 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lacey -  простой инструмент для поиска и скачивания мультимедийного аудио и видео контента. Поскольку найти в интернете популярные хиты обычно не составляет труда, вот только скачать их не всегда предоставляется возможным. Впрочем, и это не является проблемой, поскольку есть программы, которые позволяют, что называется, выпрямлять ссылки, а если проще — скачивать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB36D7E3BF938417ABCD1F8C97A99582DE78CCD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345949   (165163) от 17.12.2019
-
-One Chat Pro - All In One Messenger 4.9.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165163.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Chat объединяет чаты и службы обмена сообщениями в одно простое приложение для Mac. WhatsApp, Facebook Messenger, Hangouts, Telegram, Skype, Slack, WeChat, Twitter, YahooChat, ICQ-чат, HipChat, Discord, GroupMe, QQ, Facebook, VKChat и др. Одно приложение для всех служб обмена сообщениями.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBA393F7C5544EDD92892CE02DD3C6740F50AC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432265   (165164) от 16.12.2020
-
-Autorun Organizer 5.0 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autorun Organizer - простое в использовании приложение, позволяющее управлять программами, которые запускаются при старте системы. Инструмент является надежным менеджером автозагрузки, который позволяет просматривать и управлять программами, запускающимися автоматически при старте системы. Вы можете просмотреть свойства программ, проверять на вирусы с помощью онлайн-антивируса (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3903550E6926EE64056DAD43BB9EA11BD526A8F5
 ```
 
 

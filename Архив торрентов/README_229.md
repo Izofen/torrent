@@ -6,7 +6,7 @@ Sigil 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53104.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Free Download Manager 6.23.0.5756 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53113.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ O&O DiskImage Professional 19.1 Build 146 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53118.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Internet Download Manager 6.42 Build 11 RePack by elchupacabra (16.06.2024) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53131.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Multi Commander Full Edition 14.0 Build 3016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53141.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53175.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Process Lasso Pro 14.1.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53187.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ CherryTree 1.1.3.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53192.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:EC0463280225B71D04086A4B77D6D036ADC59DE8
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53199.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ JetBrains RubyMine 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53210.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Internet Download Manager 6.42 Build 11 RePack by elchupacabra (15.06.2024) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53212.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ JetBrains Rider 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53217.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Viber 22.9.0.2 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53220.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ JetBrains CLion 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53225.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Excite Audio - Bloom Bundle 1.1.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53230.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NirLauncher Package 1.30.12 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53243.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Rainlendar Pro 2.21.1 Build 178 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53266.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ JetBrains PhpStorm 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53268.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ CrystalDiskInfo 9.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53270.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Duolingo: изучай языки 5.155.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53294.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ OneCommander Pro 3.84.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53295.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Viber 22.9.0.2 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53302.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Icecream PDF Editor Pro 3.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53303.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ meteoblue weather & maps Cirrus Uncinus 2.7.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53309.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Tablacus Explorer 24.6.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53310.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chromium 126.0.6478.57 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53316.jpg" />
 </div>
 
 

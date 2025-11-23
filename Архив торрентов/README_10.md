@@ -6,7 +6,7 @@ Purvpn 8.6 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6679.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4F78BE81D3CC3B0850301964C56E534B04D3860A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6685.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Listen Audiobook Player v5.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6776.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Rosetta Stone: Изучение языков v8.34.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6791.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.13 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6792.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ R-Drive Image Technician 7.3 Build 7309 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6795.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Glary Utilities Pro 6.30.0.34 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6797.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Adobe Acrobat Pro 2025.001.20630 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6814.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ WiFi Analyzer v6.2 (b100) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6826.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Google Chrome 139.0.7258.139 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6827.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Adobe Photoshop 2025 26.10.0.7 Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6829.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Adobe Acrobat Pro 2025.001.20630 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6832.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:3579B0652ECB1288695ACEB74E157BAB239B0583
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6836.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Tor Browser Bundle 14.5.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6837.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe Photoshop 2025 26.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6862.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:301AC715E24D59B288E8376C961391A335B43F4D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6882.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Room Arranger 10.2.0.730 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6919.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:37565A94E50A1969E66F8FCB3C4A7889819E6082
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6926.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Glary Utilities Pro 6.30.0.34 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6927.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Cockos REAPER 7.43 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6933.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ RarmaRadio Pro 2.77.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6941.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Xiaomi Home (Ранее. MiHome) v10.8.700 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6945.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (19.08.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6968.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AIMP 5.40.2691 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6971.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:A3DF897E724DFF52EE338DCAC50AE09B5E185099
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6992.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:29EF1549336D5DDA8D6B3E58EDB9C8A4E6E9D42B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7007.jpg" />
 </div>
 
 

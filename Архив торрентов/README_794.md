@@ -1,3 +1,77 @@
+###  Публикация: 1598663   (162136) от 20.12.2022
+
+Piezo 1.7.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
+Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
+Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E47D2070FEFC8B4EEC4D31A03426F6205C06EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598781   (162140) от 20.12.2022
+
+AnyMP4 Android Data Recovery for Mac 2.1.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162140.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Android Data Recovery – это отличное приложение для восстановления данных на Android телефонах и планшетах, которая может восстанавливать удаленные текстовые сообщения, фотографии, контакты, журналы вызовов, видео, фотографии и многое другое из Ваших Android телефонов/планшетов/ карты SD. Она поддерживает различные популярные Android устройства, такие как, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BD05C9EE91BEBE148F70A98554835F2974BB36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598704   (162144) от 20.12.2022
+
+Kiosc 1.15.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kiosc — это приложение для создания пользовательских интерфейсов с сенсорным экраном для линейки контроллеров освещения Visual Productions. Kiosc не имеет возможности редактирования, что делает его надежным интерфейсом, который можно безопасно представить нетехническим операторам.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2021 Visual Productions BV.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475B62672AB89936E8867A831CF8FB9D3574FF59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598816   (162147) от 20.12.2022
 
 SQLPro for SQLite 2022.103 [En]
@@ -6,7 +80,7 @@ SQLPro for SQLite 2022.103 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162147.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Mitti 2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162152.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ Contacts Journal CRM 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162159.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ NCH Express Burn Plus 9.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162160.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ magnet:?xt=urn:btih:21018BE978A62D30B0C0D4BC67F0AF2179EB02C4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162161.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ Luminar Neo 1.15.1.12389 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162165.jpg" />
 </div>
 
 
@@ -157,7 +231,7 @@ Moom 3.2.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162168.jpg" />
 </div>
 
 
@@ -182,7 +256,7 @@ LibreOffice 7.2.4.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162169.jpg" />
 </div>
 
 
@@ -206,7 +280,7 @@ Firefox Browser 95.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162174.jpg" />
 </div>
 
 
@@ -230,7 +304,7 @@ NCH Crescendo Masters Pro 8.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162175.jpg" />
 </div>
 
 
@@ -254,7 +328,7 @@ Vellum 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162178.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ ScreenFlow 9 v9.0.6 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162180.jpg" />
 </div>
 
 
@@ -305,7 +379,7 @@ Screegle - Clean Screen Sharing 2.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162184.jpg" />
 </div>
 
 
@@ -329,7 +403,7 @@ Wondershare PDFelement 10.1.5.2527 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162189.jpg" />
 </div>
 
 
@@ -353,7 +427,7 @@ Stats 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162191.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ Telegram Desktop 4.11.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162194.jpg" />
 </div>
 
 
@@ -403,7 +477,7 @@ BusyContacts 2022.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162198.jpg" />
 </div>
 
 
@@ -428,7 +502,7 @@ Rhinoceros 7 v7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162200.jpg" />
 </div>
 
 
@@ -453,7 +527,7 @@ iShot Pro-ScreenShot Recording 2.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162206.jpg" />
 </div>
 
 
@@ -477,7 +551,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162209.jpg" />
 </div>
 
 
@@ -501,7 +575,7 @@ Firefox Browser ESR 91.4.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162220.jpg" />
 </div>
 
 
@@ -525,7 +599,7 @@ Nevercenter CameraBag Pro 2024.0.1 x64 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162227.jpg" />
 </div>
 
 
@@ -549,7 +623,7 @@ Steinberg Nuendo 12.0.70.464 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162238.jpg" />
 </div>
 
 
@@ -560,80 +634,6 @@ Steinberg Nuendo 12.0.70.464 (x64) Portable by 7997 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04E7CBEA6BFB5147F93FA886C991A2E771E6A411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674083   (162241) от 04.11.2023
-
-4K Video Downloader + 1.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 11.2023Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB59BDC9D7F350A0804BCC39F65142315B2CC961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517764   (162249) от 16.12.2021
-
-Opera GX 82.0.4227.44 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97A95B46FC9AB995C189530867BE34ECC5CCF9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598436   (162272) от 19.12.2022
-
-Не звезди! / Menteur (2022) BDRip [H.264/1080p] [TS]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жером всегда врет, да так, что и глазом не моргнет! Он врет постоянно и с особым размахом: глядя прямо в глаза, он будет утверждать, что лично знаком с Мисс Мира, что он чемпион по карате и, по совместительству, астронавт. Но однажды Жером просыпается в мире, где вся его ложь становится правдой и все выдуманное начинает происходить с ним на самом деле.Производство: Франция / Gaumont, M6 Films, M6Жанр: комедияРежиссер: Оливье БарруАктеры: Тарек Будали, Арту, Полин Клеман, Катрин Осмален, Карим Белхадра, Луиз Колдефи, Бертран Юскла, Филипп Вие, Ги Леклюиз, Флоранс МюллерПеревод: Дублированный (TS)Язык озвучки: Русский, ФранцузскийСубтитры: Русские (Forced), Английские, Французские (Forced)Продолжительность: 01:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5AE5C6604F5426E778B23DD8EBF2FF445043A73
 ```
 
 

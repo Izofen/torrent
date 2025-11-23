@@ -6,7 +6,7 @@ Topaz Video AI Pro 6.0.4 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27732.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LuBan 3D 06.02.2025 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27739.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27739.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ALLPlayer 9.4.0 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27861.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Movavi Photo Editor 24.3.0 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27888.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Helium Music Manager Premium 17.3.306.0 (x64) RePack (& Portable) by elchupacabr
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27946.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27946.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Movavi Photo Editor 24.3.0 RePack (& Portable) by elchupacabra (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28095.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ DxO PhotoLab Elite 8.2.1.487 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28278.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Movavi Video Editor 25.3.0 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28648.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28648.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Soundify Vocal Remover 1.2.5 Portable by Spirit Summer [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28698.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28698.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Nucleer Coffee - My Music Collection 2.3.14.156 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28716.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VSDC Video Editor Pro 9.1.1.516 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28731.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ashampoo Music Studio 12.0.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29084.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Zynaptiq - PUNCH 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29117.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29117.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Auburn Sounds - Lens 1.3.0 (FULL) VST, VST 3, AAX, CLAP (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29122.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29122.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Bigasoft Audio Converter 5.8.1.9133 RePack (& Portable) by elchupacabra [Multi/R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29389.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29389.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Bigasoft Total Video Converter 6.6.1.9133 RePack (& Portable) by elchupacabra [M
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29516.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ XviD4PSP 8.1.100 Pro (x64) Portable by FC Portables [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29524.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29524.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:3FF2480D108C989E75327C2F8AB83C5D03B682D9
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29547.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29547.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:3303396A85813D4BFC5876CD384A2F75A750ECFB
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29645.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Movavi Video Editor 25.2.0 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29647.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29647.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Streaming Audio Recorder 4.3.5.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29684.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Aiarty Image Enhancer 3.2 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29732.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Zoom Player MAX 20.1.0 Build 2010 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29861.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Aiarty Image Enhancer 3.2 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29939.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Digiarty AIArty Image Matting 2.3 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30068.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30068.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FliFlik KlearMax for Photo 3.0.0 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30259.jpg" />
 </div>
 
 

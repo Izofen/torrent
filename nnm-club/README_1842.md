@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48247.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48248.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8729F48EBC860C4EE20554ADD5EDB9FED43E215F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48249.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8729F48EBC860C4EE20554ADD5EDB9FED43E215F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48250.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Adobe Acrobat Pro 2024.002.20965 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48251.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Planet VPN 2.8.35.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48252.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:91422EF89A596B32EFD23FFA60FFD894176B533F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48253.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:23AF525FA79C34A0E651C8D9613EB68D1C83B6E9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48254.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:50A0910817D8F87156410CA8231D1A1F648B80B3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48255.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:2A1A47AE3F869B7FCE2605322B6B6E6D211B1ECB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48256.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:C165AD2A89129073D6D104C3F37AE6239BABD787
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48257.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:2DC03C5C0AFCD24A84615299304CB2FC2BFFCB06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48258.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D88D7FAA633BB10037FB7D9B1F53819126056295
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48259.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:2B490B3E03E1753B2289E34DF548D16405905061
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48260.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Google Chrome 127.0.6533.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48261.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Glary Utilities Pro 6.13.0.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48262.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:5B029C89B695877EF1B6CE92CAB65BA2FCB299E7
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48263.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Lindsey Stirling - 7 Albums (2013-2024) [MP3|320 Kbps] <Pop>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48264.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Wondershare PDFelement 10.4.10.2780 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48265.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Aiseesoft Video Converter Ultimate 10.8.62 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48266.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Iced Earth - Studio Albums (16 releases) (1990-2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48267.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Wise Disk Cleaner 11.1.4.830 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48268.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:50AA5647E297C470698EA21195F5B1AB5DD5D1B4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48269.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Excite Audio - Bloom Bundle 2024.7.31 STANTALONE, VSTi, VSTi 3, AAX (x64) RePack
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48270.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Calibre 7.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48271.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Wondershare PDFelement 10.4.10.2780 Portable by 7997 + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48272.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47753.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Avidemux 2.8.2 Nightly (r240804) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47754.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B60F5C05284B9B6B6664B83A84C57D8B49694A92
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47755.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:EBF4C335F9A6CD43090417C21F7C65148C5BFE10
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47756.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Deadlink (2022) [Ru/Multi] (1.2.27806) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47757.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:CE0C9510244C3368F4A3E8724F645CE2825713A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47758.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:51E402FC920485FA3B8E690C8111E96A1EB75B10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47759.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D14FD41125CA237AD5AD3F403E60027EFC1A4100
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47760.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:9EEEA007AE9B37DFD7A99F4267564ACB1F31CDCA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47761.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:5192C237471863B8C309D5FD09AE4AEB09D880D5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47762.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fakin The Funk 6.0.0.162 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47763.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:41DEE0ADC51EE18F67665E4A134FD2F2EAF1C5C9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47764.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:853E6A7932C51B6D7A1EBA11EB7254AFACAB01AA
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47765.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4938146A398B16AF4AC23AAEFCE6F5EE337EF960
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47766.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:231BD1D0D2E750DD74BB187ADBB2A5BF2EFB5976
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47767.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:ED52B6E851A7525F259C4ACCD89AABD7B1CBF557
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47768.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F7D25D1151346CD875AC5AEA31A46452094FA969
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47769.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ WinTools.net Premium 24.8.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47770.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:B6F74E05FFF05CB19A691DE95855CE2A221A1FA7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47771.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Closer the Distance (2024) [Multi] (1.0) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47772.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ PIGROMANCE (2022) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47773.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ AOMEI Backupper Technician Plus 7.4.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47774.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Topaz Video AI 5.2.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47775.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:C14809F3107FFA8D3AC23E5FE77D947AEB9427CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47776.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:C14809F3107FFA8D3AC23E5FE77D947AEB9427CB
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47777.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:656E2948F225208AADB4A8193C1AAB7358185578
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47778.jpg" />
 </div>
 
 

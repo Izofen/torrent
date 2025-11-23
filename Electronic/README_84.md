@@ -6,7 +6,7 @@ Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122734.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Pop Mania 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122741.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:77513F3A847BBFE5CEF6B8424B827AA5D7B30BF5
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122768.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Chronicles, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122772.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Antarsys - The North Star (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122904.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Real Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122928.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122929.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Dance Vibes for Your Ears (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122940.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pet Shop Boys - SMASH - The Singles 1985–2020 (2023) 3CD, Remaster [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122951.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Best Vocal Songs of 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123079.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Winter Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123080.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Armin van Buuren - A State Of Trance 1155 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123088.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Armin van Buuren - Breathe In (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Elec
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123148.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123268.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Schwarz & Funk - Diamonds of Lounge, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123276.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Blank & Jones - #WhatWeDoAtNight 4 EP 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123281.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ray Orion - Sunshine 2024 (2024) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123303.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Anyma - Genesys (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123308.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Best of Phoenix Recordings 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123391.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - 10 Years Of Suanda Music - Mixed by Aimoon (2024) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123392.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Trevor Something - Archetypes (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123419.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Synth Radio Collection (2010-2015) [MP3|320 Kbps] <Electronic, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123518.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ V.A. - Chill Out Cafe 60 Essentials Classics (25 Years Celebration) (2024) [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123553.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Golden Apes - Our Ashes At The End Of The Day (2024) [FLAC|Lossless|WEB-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123637.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Corey James - Axtone House Party (2024-01-08) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123649.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Igor Pumphonia - Euphonia 60 (2023) [MP3|320 Kbps] <Chillout, Organic House>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123666.jpg" />
 </div>
 
 

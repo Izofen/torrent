@@ -1,3 +1,77 @@
+###  Публикация: 1694170   (121030) от 25.01.2024
+
+Заветное желание / Wish (2023) WEBRip [H.265/1080p]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аша — остроумная идеалистка, которая загадывает настолько сильное желание, что на него отвечает космическая сила — маленький шарик безграничной энергии по имени Звезда. Вместе они противостоят самому грозному правителю Росаса, королю Магнифико. Защищая своих близких, Аша доказывает, что, когда воля одного отважного человека соединяется с магией звезд, могут происходить (   Читать дальше...   )Производство: США, Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Крис Бак, Фон ВирасунторнАктеры: Ариана ДеБос, Крис Пайн, Алан Тьюдик, Анжелика Кебрал, Виктор Гарбер, Наташа Ротуэлл, Дженнифер Кумияма, Харви Гильен, Нико Варгас, Эван ПитерсПеревод: Дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: 01:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3F857D73048484AE17AD643443388F09CD2F17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694533   (121031) от 25.01.2024
+
+CCP Games | Артбук по игре EVE Online: Фрегаты / Frigates of EVE Online - The Cross Sections (2017) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это прекрасно иллюстрированное руководство с подробными изображениями двадцати восьми самых знаковых кораблей EVE Online предлагает беспрецедентный взгляд на фрегаты каждой фракции с замысловатыми вырезами и сложными лором.
+
+Серия артбуков по играм EVE: Артбук EVEЖанр: АртбукЯзык: АнглийскийИздательство: Dark HorseФормат: CBRКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAB37758B18C61F2E6CEE8FB5952D585F143589
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694498   (121032) от 25.01.2024
+
+DefenderUI 1.16 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121032.jpg" />
+</div>
+
+
+###  Подробнее
+
+DefenderUI - бесплатная программа, являющаяся альтернативной графической оболочкой для настройки антивируса Безопасность Windows. Программа включает возможность изменять все настройки безопасности и поведения встроенного в Windows антивируса. DefenderUI значительно повышает удобство использования и открывает многие скрытые функции безопасности Microsoft Defender.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658B616F6AF57C7627D35ECCCA260A14EEE0EDBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693498   (121033) от 25.01.2024
 
 Золотое дно (2024) WEBRip [H.264] (сезон 1, серии 1-8 из 8)
@@ -6,7 +80,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121033.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Modern Tweaker 2.0 Final (24.01.2024) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121034.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:3DC169D0EF261BB7E593D3A896DC21ACCAC37B55
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121035.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:73CC208D8DF524C1B6AB59BAD151679B0E6D6429
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121036.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Aiseesoft HEIC Converter 1.0.36 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121037.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ magnet:?xt=urn:btih:1960C7EE5E1B0B5E5EDA194098D472E5C1E7EC26
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121038.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ magnet:?xt=urn:btih:DA54210D3755260CF2A940323F9F89D1A802A018
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121039.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ FITLAB (ФИТЛАБ) | Интенсив по подбору запчастей 
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121040.jpg" />
 </div>
 
 
@@ -205,7 +279,7 @@ PictureThis - Plant Identification v3.76.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121041.jpg" />
 </div>
 
 
@@ -229,7 +303,7 @@ magnet:?xt=urn:btih:F7C937268D932689C0841A626992DCFE23674883
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121042.jpg" />
 </div>
 
 
@@ -255,7 +329,7 @@ magnet:?xt=urn:btih:973BBDF12646AC9D78F2DF6CD6267FE057A62040
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121043.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ magnet:?xt=urn:btih:91AABB7FD3090135B4FA1B21CE60EA9F3539DB9B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121044.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ magnet:?xt=urn:btih:8709D8F73A67E9B901CC87A6BB2E1929AAF45C00
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121045.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ magnet:?xt=urn:btih:E6EE32967A58B4341784BB375539399460B88DA9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121046.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ magnet:?xt=urn:btih:650B2C941A74C01A20021D76BC63FEFC3B040C75
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121047.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ WinRAR 7.00 Beta 4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121048.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ magnet:?xt=urn:btih:8CC1AF2984813179E187D0D64ECAF5C424EA41A9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121049.jpg" />
 </div>
 
 
@@ -425,7 +499,7 @@ magnet:?xt=urn:btih:0AB3FF67B58E04C7EC39DE2C16C0A4153D5FA264
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121050.jpg" />
 </div>
 
 
@@ -450,7 +524,7 @@ Blood: One Unit Whole Blood (1998-2016) [En] (12.2016) Repack/Mod 1nomok [BloodC
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121051.jpg" />
 </div>
 
 
@@ -474,7 +548,7 @@ magnet:?xt=urn:btih:55B825E78D3E72FCFE2EC471B4CFE4DD85C72CD7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121052.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ magnet:?xt=urn:btih:A255EBC8B02A82214BB2DEA915D730D848134556
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121053.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ magnet:?xt=urn:btih:AF2359E5341B7EAF23CFAABD92E7C19BD4B179F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121054.jpg" />
 </div>
 
 
@@ -548,7 +622,7 @@ magnet:?xt=urn:btih:0B71CDD2D2F39F7E956A75B0595C485243CF944A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121055.jpg" />
 </div>
 
 
@@ -561,79 +635,6 @@ magnet:?xt=urn:btih:0B71CDD2D2F39F7E956A75B0595C485243CF944A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F9C05CA2D889069DC816F3FBDB265F58BDC8E6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509941   (121056) от 25.01.2024
-
-Е.А.Чудинский | Русские народные сказки, прибаутки и побасенки [Раритет] (1864) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121056.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержатся сказки : Небесная избушка, Деревянный орел и царевич-летатель, Золотая нога, Циган в монастыре, Русский и жид, Вызывание привидений, Оборотень, Клад, и др., а также прибаутки и побасенки.Жанр: Детская литература, сказкиИздательство: «Москва: тип. Грачева и К°»Формат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B436644850172DEEB57AE222085A0D458E2A3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693877   (121057) от 25.01.2024
-
-Легендарный Winamp впервые появился на iOS
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121057.jpg" />
-</div>
-
-
-###  Подробнее
-
-В марте 2023 года в сети представили полностью переосмысленную версию популярного плеера Winamp. Утилита пользовалась наивысшим спросом в 2000-х, а сейчас приложение превратилось в стриминговый сервис для прослушивания музыки.О том, как за десятки лет изменился Winamp, мы писали здесь. Если вкратце: теперь Winamp — это аналог Spotify, где пользователь платит не за (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004848   (121058) от 25.01.2024
-
-Владимир Даль | Пословицы русского народа. Том I и II (Раритет) [2 книги] (1879) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если кто захочет узнать русские пословицы и поговорки - надо идти в народ - всяк об этом знает, потому как в образованном обществе пословиц нет.
-Владимир Даль собрал два тома поговорок не как наставление и не для забавы, а для изучения и розыска. Поэтому и мы все хотим знать что есть на самом деле. Не пугает автора и прямота выражений русского мужика - что есть то (   Читать дальше...   )Жанр: Справочный материал, фольклорИздательство: «книгопродавца-типографа М. О. Вольфа» Санкт Петербург - МоскваФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A8E4E2978C1C240E3324529CD0C8342A89A976
 ```
 
 

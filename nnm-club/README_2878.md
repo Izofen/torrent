@@ -1,3 +1,87 @@
+###  Публикация: 473078   (84291) от 25.03.2012
+
+Ария - Герой асфальта 20 лет дубль 2 в Санкт-Петербурге! (2010) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+ 02. Последний закат
+ 03. Отшельник
+ 04. Колизей
+ 05. Беги за солнцем
+ 06. Крещенье огнем
+ 07. Антихрист
+ 08. Свет былой любви
+ 09. Кровь королей
+ 10. На службе силы зла(   Читать дальше...   )2010Жанр: Heavy MetalПродолжительность: 01:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156D9B8AF85C71A2356DFA9968C87FE4490C12B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473065   (84294) от 25.03.2012
+
+До первого снега / First Snow (2006) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока чинили машину Джимми, так некстати сломавшуюся посреди дороги, он, чтобы скоротать время, решил зайти к старику-предсказателю. От него Джимми узнал, что вскоре дела его пойдут в гору, а самому ему суждено умереть — сразу после того, как выпадет первый снег. Джимми не воспринял слова старика всерьез, но каково же было его смятение, когда предсказания начали сбываться! И поскольку температура неуклонно понижается, он не может не думать о самом главном и зловещем пророчестве…Жанр: Триллер, ДрамаРежиссер: Марк ФергусПродюсер: Брайан Ферст, Боб Яри, Шон Ферст, ...Актеры: Гай Пирс, Пайпер Перабо, Уильям Фихтнер, Стивен Майкл Квезада, Дж. К. Симмонс, Николас Бэллас, Рик Гонсалес, Дэвид ХаусПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскиеПродолжительность: 01:41:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472504   (84295) от 25.03.2012
+
+Angel Voices. Libera in Concert(2007) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы постоянно слушаем музыку, но мы даже не задумывались о том, что есть церковный хор, который как показалось на первый взгляд не отличается от остальных. Но, что мы видим это не просто кучка подростков поющих церковные песнопения, это группа детей профессионально занимающихся музыкой и вокалом. Они дают понять нам, что музыка это не просто слова и мелодия, а это отголоски нашей души. Ив каждой новой песне мы слышим их по разному. Libera — это то к чему стремится каждый 2-ой человек планеты — спокойствие и душевный покой.
+
+Этот концерт дает понять нам, что все к чему мы стремимся это покой и мир в наших сердцах.
+Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАктеры: Jonathan Barrington, Tiarnan Branson, Oliver Cole, Tom Cole, Liam Connery, Ben Crawley, Tom Cully, Edward Day, Steven Geraghty, Michael Horncastle, Michael Horncastle, Alexander Leggett, Sam Leggett, Zack Lockett, Joshua Madine, Conor O'Donnell, Callum Payne, Fiona Pears, Benedict Philipp, Robert Prizeman, Joseph Snelling, Michael Vereycken, Jakob WoodПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 0:55:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473303   (84297) от 25.03.2012
 
 Б.А. Звонарев, Е.В. Кузнецова (ред.) | Банкноты и монеты Федеральной Резервной Системы США [2002] [PDF]
@@ -6,7 +90,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84297.jpg" />
 </div>
 
 
@@ -30,7 +114,7 @@ magnet:?xt=urn:btih:CA31660D95CD01E856C83CD84F83591A0418A3AF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84298.jpg" />
 </div>
 
 
@@ -54,7 +138,7 @@ magnet:?xt=urn:btih:EDC55FE402FFD02F45F1EF45C00C9A0AA8FDA49C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84299.jpg" />
 </div>
 
 
@@ -78,7 +162,7 @@ magnet:?xt=urn:btih:EDC55FE402FFD02F45F1EF45C00C9A0AA8FDA49C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84301.jpg" />
 </div>
 
 
@@ -104,7 +188,7 @@ magnet:?xt=urn:btih:D4E4796F4E9CC105584CF21CFB7A1E5EEE8EBA68
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84302.jpg" />
 </div>
 
 
@@ -128,7 +212,7 @@ magnet:?xt=urn:btih:D4E4796F4E9CC105584CF21CFB7A1E5EEE8EBA68
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84305.jpg" />
 </div>
 
 
@@ -152,7 +236,7 @@ magnet:?xt=urn:btih:D4E4796F4E9CC105584CF21CFB7A1E5EEE8EBA68
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84309.jpg" />
 </div>
 
 
@@ -178,7 +262,7 @@ magnet:?xt=urn:btih:5CB0DED71D531928D60DACF57BCBD3343EBB8393
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84310.jpg" />
 </div>
 
 
@@ -202,7 +286,7 @@ magnet:?xt=urn:btih:80A5974CCE4B699AA998712B1C9D46DFEF4DD26E
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84311.jpg" />
 </div>
 
 
@@ -226,7 +310,7 @@ magnet:?xt=urn:btih:08913EDE8303CF7434A8F7801A6D7AD05EFD072B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84314.jpg" />
 </div>
 
 
@@ -250,7 +334,7 @@ magnet:?xt=urn:btih:08913EDE8303CF7434A8F7801A6D7AD05EFD072B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84317.jpg" />
 </div>
 
 
@@ -274,7 +358,7 @@ magnet:?xt=urn:btih:42853077B3506BE28136B5FF2E19262AD59AA345
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84318.jpg" />
 </div>
 
 
@@ -298,7 +382,7 @@ magnet:?xt=urn:btih:87A5A04569788C188EFDECE475B449A1D8850549
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84319.jpg" />
 </div>
 
 
@@ -324,7 +408,7 @@ magnet:?xt=urn:btih:0204E6806DE3AB59F8FD48C399F1F2BE51FA35CA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84322.jpg" />
 </div>
 
 
@@ -348,7 +432,7 @@ magnet:?xt=urn:btih:0204E6806DE3AB59F8FD48C399F1F2BE51FA35CA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84323.jpg" />
 </div>
 
 
@@ -372,7 +456,7 @@ magnet:?xt=urn:btih:3D1F6F3C9B1538B20B5B6252B3C5B7CC351BE45F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84326.jpg" />
 </div>
 
 
@@ -396,7 +480,7 @@ magnet:?xt=urn:btih:48E5C12AC4BEAB81EE4E3A495EB06836395766A1
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84328.jpg" />
 </div>
 
 
@@ -420,7 +504,7 @@ magnet:?xt=urn:btih:48E5C12AC4BEAB81EE4E3A495EB06836395766A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84329.jpg" />
 </div>
 
 
@@ -445,7 +529,7 @@ magnet:?xt=urn:btih:D6813DB72633407E308E421D87868B3D6A3E8E8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84330.jpg" />
 </div>
 
 
@@ -471,7 +555,7 @@ magnet:?xt=urn:btih:D6813DB72633407E308E421D87868B3D6A3E8E8A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84331.jpg" />
 </div>
 
 
@@ -495,7 +579,7 @@ magnet:?xt=urn:btih:975B4F3C9E3FDFE49C1E5489CE388EEF06AA0169
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84332.jpg" />
 </div>
 
 
@@ -519,7 +603,7 @@ magnet:?xt=urn:btih:08473766AA3BB816C424AA3CA54040BBCA01C4D7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84335.jpg" />
 </div>
 
 
@@ -544,94 +628,13 @@ Autodesk AutoCAD Architecture 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84336.jpg" />
 </div>
 
 
 ###  Подробнее
 
 AutoCAD® Architecture – это AutoCAD® для архитекторов. Специализированные функции для архитектурного проектирования и черчения, а также привычная рабочая среда повышают эффективность выпуска проектов и рабочей документации. Рост производительности работы пользователей в AutoCAD Architecture по сравнению с традиционными САПР наблюдается уже с первой минуты, а новые функции продукта проектировщики изучают в удобном для себя темпе.Название программы: Autodesk AutoCAD Architecture 2013 (x86)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473054   (84337) от 25.03.2012
-
-Миссия невыполнима: Протокол Фантом / Mission: Impossible - Ghost Protocol (2011) Screener "PROPER" [Звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: Боевик, Триллер, ПриключенияРежиссер: Брэд БёрдПродюсер: Джей Джей Абрамс, Брайан Берк, Том КрузАктеры: Том Круз, Пола Пэттон, Саймон Пегг, Джереми Реннер, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: Профессиональный (полное дублирование)Продолжительность: 02:12:59
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472897   (84339) от 25.03.2012
-
-Katy Perry - Teenage Dream-The Complete Confection (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teenage Dream (3:48)
-02. Last Friday Night (T.G.I.F.) (3:51)
-03. California Gurls ft. Snoop Dogg (3:55)
-04. Firework (3:48)
-05. Peacock (3:52)
-06. Circle the Drain (4:33)
-07. The One That Got Away (3:47)
-08. E.T.(3:26)
-09. Who Am I Living For? (4:09)
-10. Pearl (4:08)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 543
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12689EDA2C9EF2338F929E9B04C6F09E5BC8CA85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472858   (84342) от 25.03.2012
-
-Ключи для ESET NOD32 от 24.03.2012 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84342.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче,Название программы: Ключи для ESET NOD32Язык интерфейса: Ru
 
 ## Скачать торент
 ```bash

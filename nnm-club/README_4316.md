@@ -1,3 +1,78 @@
+###  Публикация: 1681098   (132848) от 02.12.2023
+
+Журнал TIME выбрал 10 лучших игр 2023 года
+
+>>След.
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редакция журнала TIME опубликовала традиционный список лучших игр года. Первое место в десятке у Alan Wake 2 — хоррора от Remedy Entertainment, который стал прямым продолжением первой части, вышедшей в 2010 году.Второе место у самой громкой новинки этого года — ролевой игры Baldur’s Gate 3. Замыкает тройку Marvel’s Spider-Man 2 от Insomniac Games, Marvel и Sony.Весь (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681357   (132850) от 02.12.2023
+
+Иван Зылёв | Создание семейств в Autodesk Revit для дизайнеров и архитекторов (2018) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс о том, как научится создавать параметрические семейства и c их помощью увеличить скорость создания проектов в Revit
+
+Вопросы которые будут решены:
+Тратите много времени на поиск семейств?(   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 45:27:23Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06BC5627C02C3265320ADBEEEBA126990743473
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681224   (132852) от 02.12.2023
+
+Робин Гуд: Мужчины в трико / Robin Hood: Men in Tights (1993) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робин и его компания в трико, срывая с себя регалии вместе со штанами, должны свергнуть злобного принца Джона и найти ключ к сердцу прекрасной девы Мэриан и к поясу верности.Производство: США, Франция / Brooksfilms, GaumontЖанр: мюзикл, мелодрама, комедия, приключенияРежиссер: Мэл БруксАктеры: Кэри Элвес, Ричард Льюис, Роджер Рис, Эми Ясбек, Марк Блэнкфилд, Дэйв Шаппелл, Айзек Хейз, Меган Кавана, Эрик Аллан Крамер, Мэттью ПорреттаПеревод: многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9A58D729F6BE1C7F8ADA25672820F3519A50DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681131   (132854) от 02.12.2023
 
 Соучастник / Collateral (2004) BDRip [AV1/1080p] [10-bit]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132854.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:0DF033E2D597869DABB5210302E75DA44EBA8083
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132856.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Zipp's Café (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132858.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:166158B271746E6A1CBB72622820F5ACEB0D16E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132860.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:2E6EB5817B5890917AF44DE9A3A0CFF81D7A9562
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132862.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132863.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132864.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:B32FCA428B649CC73668A283C434450FC7BE190B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132865.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:BA0DA389E87D5965CA5BDB5044CB808C32B5C58C
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132866.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132869.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132871.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ Creature Lab (2023) [Multi] (2.0.40/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132872.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ magnet:?xt=urn:btih:C97E1F4D0CC55BC0F2D712B017B5498AFF93C866
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132873.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ Singularity [Ru/En] (RePack/1.1) 2010 | R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132874.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132875.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ Far Cry 3 [Ru] (RePack/1.04) 2012 | Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132876.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ magnet:?xt=urn:btih:E79B722A855C3CBE0B995D525A4B088CF9428204
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132877.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ FUEL [Ru/En] (RePack) 2009 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132878.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ magnet:?xt=urn:btih:30B83DD4D9FF6A358F1A390382061D99E947C5F8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132879.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ magnet:?xt=urn:btih:71CFB8BABA735E4DBE38825EE14E340BA6852B3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132881.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ magnet:?xt=urn:btih:6C1B6AD357DC53CEF7FBDA359D74135E5EE3FC8B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132883.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ VA - Русские Хиты 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132884.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132887.jpg" />
 </div>
 
 
@@ -562,84 +637,6 @@ magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E95AB7D08237350E3E32DBA9C4D3F3547EC46B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 428296   (132888) от 02.12.2023
-
-Владимир Даль | Сказки (2009) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Детская аудиокнига.
-Писатель, этнограф, лингвист, создатель знаменитого Толкового словаря живого великорусского языка Владимир Иванович Даль первый сборник своих сказок озаглавил так: «Русские сказки, из предания народного изустного на грамоту гражданскую переложенные, к быту житейскому приноровленные и поговорками ходячими разукрашенные».Жанр: Русская литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 03:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001E174FA1A72EA214264DB62E3BBA50D5568A46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595083   (132889) от 27.12.2012
-
-Final Cut Pro X 10.0.7 [Multi/Eng]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio,
-так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-Инструменты Motion и Compressor ещё больше расширяют ваши возможности в работе с видео.
-В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как удобно автору, в то время как другие клипы тут же пропадают с экрана. Автор может использовать функцию Clip Connections для склейки основных клипов с другими элементами, такими как титры и звуковые эффекты, сохраняя идеальную синхронизацию всех элементов независимо от их передвижения. Автор сможет совместить связанные по смыслу элементы в составной клип (Compound Clip), который можно редактировать как единый. Революционная новая функция Auditions позволяет переключаться внутри коллекции клипов, мгновенно сравнивая альтернативные дубли.Название программы: Final Cut Pro XРелиз состоялся: декабрь 2012Тип издания: Mac OS X softwareЯзык интерфейса: English, Chinese, French, German, Japanese
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595001   (132890) от 27.12.2012
-
-ACDSee Pro 6.1 Build 197 Final [Английский + Русский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132890.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACDSee Pro - профессиональная программа для работы с цифровыми фотографиями, которая обладает расширенным набором функций, рассчитанных на профессиональных фотографов. Поддерживает более 100 форматов графических файлов, позволяет работать с RAW-изображениями, автоматически сортировать фотографии по параметрам, полученным из цифровых фотокамер, содержит эффективный визуальный метод добавления к изображениям метатегов и быструю пакетную обработку большого количества картинок, в том числе и в RAW формате. Кроме того, здесь присутствуют инструменты для независимого регулирования цветовых каналов, исправления артефактов фотографий, появляющихся из-за погрешностей оптики, добавления "водяных знаков", работы с IPTC-метаданными, имеется возможность архивирования графических коллекций в ZIP-файлы, запись на CD или DVD и многое другое.
-
-(   Читать дальше...   )Язык интерфейса: Английский + Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121942.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121968.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Color school, Анна Давидян | Фотография в интерьер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122059.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122064.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122082.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122083.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ CG Boost, Louis du Mont | Robotic Planet (2023) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122111.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:A70E43FC2CC542FD672EAF8054CC0E81FC267678
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122112.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ zbrush3d.com, Александр Галевский | Zbrush Проекты с �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122129.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122201.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Net Ninja | TypeScript Masterclass (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122257.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122296.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122299.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122399.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:5D80DEA06F49C7D8E8769ACEBF097CD5E5CC6B34
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122431.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:E73910BADA862CC0D8C91839434843F7351DE1BD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122582.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122597.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:B912E3E58CD1E464A336E2B122EFB5C7A54C89B9
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122669.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Liveclasses, Антон Мартынов | Adobe Firefly в Photoshop: быст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122670.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:09C54EDD23A9E76BD34457B98815C57F9FD7CB6B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122692.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:AA9D574A1AA569E6B38DD7B7210C489153FA29F5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122827.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ tishbyme, Кристина Дмитриева | Mастер класс по ди
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122868.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Softwaretesting, Арсений Батыров, Виталий Котов | Ав
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122984.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Podlodka Crew | Podlodka QA Crew. Сезон 7. Оптимизируем про�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122992.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:8AC92B8530A239EA0F267B11E8594A169CC8823E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123005.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Stepik, Глеб Учитель | Проектирование архитект�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123010.jpg" />
 </div>
 
 

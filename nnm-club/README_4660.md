@@ -1,3 +1,159 @@
+###  Публикация: 1194981   (144424) от 28.12.2017
+
+Stan Kenton - City Of Glass (1947 - 1953) 1995, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thermopylae [02:57]
+02. Everything Happens To Me [03:03]
+03. Incident In Jazz [03:29]
+04. House Of Strings [04:18](   Читать дальше...   )Жанр: Big Band, Third StreamПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E401A198837D2D1EF0DB8FCE9E83700564BD27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087703   (144425) от 28.12.2016
+
+П. Чайковский - Сюита из балета Лебединое озеро, Увертюра до минор (Е. Светланов) (1991) [WavPack2.0|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Сюита из балета Лебединое озеро
+01. Сцена 3:22
+02. Вальс 7:24(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272455   (144427) от 27.12.2018
+
+VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art of Trance - Firebird (Original Mix)
+02. L.S.G. - Netherworld (Oliver Lieb 2017 Main Mix)
+03. Martin Merkel - Little Wonder (Simon Berry & Luke Brancaccio Remix)
+04. Art of Trance - Ultrafoxx (Gai Barone's Cuboid Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91765094A197E9B9108F28AC80F6102D49D0F50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519676   (144428) от 26.12.2021
+
+Последний поезд в Рождество / Last Train to Christmas / The Age of Tony (2021) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тони - беззаботный владелец клуба в Англии конца 80-х. Его дело процветает и у парня светлые жизненные перспективы. В канун рождества он едет со своей невестой Сью в родной город, познакомить её с родными. Но, перейдя в другой вагон, он вдруг понимает, что оказался в будущем. Печально то, что это будущее совсем не такое блестящее, каким себе его представлял молодой (   Читать дальше...   )Производство: Великобритания, Future Artists Entertainment, Stigma FilmsЖанр: Фэнтези, драма, комедияРежиссер: Джулиан КемпАктеры: Натали Эммануэль, Кэри Элвес, Майкл Шин, Робин Эсквив, Миа Маккенна-Брюс, Софи Симнетт, Шианад Грегори, Джон Томсон, Анна Лундберг, Натали МицонПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Русские (PhysKids), английские - отдельными файламиПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE0CFAB176582B065DD167FE1D68F076DD951D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678362   (144429) от 21.11.2023
+
+Создатель / The Creator (2023) WEB-DLRip [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144429.jpg" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются в будущем, во время войны между людьми и искусственным интеллектом. Бывший спецназовец Джошуа вместе с отрядом оперативников получает задание найти и убить архитектора продвинутого искусственного интеллекта — Создателя, который разработал оружие, способное положить конец не только войне, но и всему человечеству.Производство: США, 20th Century Studios, New Regency Productions, Entertainment OneЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Гарет ЭдвардсАктеры: Джон Дэвид Вашингтон, Мэделин Юна Войлс, Джемма Чан, Эллисон Дженни, Кэн Ватанабэ, Стерджил Симпсон, Амер Чадха-Пател, Марк Менчака, Робби Танн, Ральф АйнесонПеревод: Дублированный (MovieDalen), многоголосый (NewComers, TVShows)Язык озвучки: русский, английский, украинскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: 02:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37CBD196E5FABCE1E51A78EA45C3617B883BFAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087163   (144430) от 28.12.2016
+
+VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack) (2013-2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Junipero (80s-90s-00s-??S) (04:01)
+02. Faith, Hope, Fear & Falling in Love (02:47)
+03. Tick Tock (Clock of My Heart) (04:09)
+04. Night Drive (02:38)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 03:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8E8BF1995D228D08C06B22B477A90998605941
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195299   (144431) от 28.12.2017
 
 Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
@@ -6,7 +162,7 @@ Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144431.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144432.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ magnet:?xt=urn:btih:547B467D6B8FE17790F8BBE5436E5B4256006F37
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144433.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ magnet:?xt=urn:btih:E7922B605A6261601030DF6C7E57D2C3FAFA0D62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144434.jpg" />
 </div>
 
 
@@ -108,7 +264,7 @@ Haunted Hotel 17: Beyond the Page (2018) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144436.jpg" />
 </div>
 
 
@@ -132,7 +288,7 @@ magnet:?xt=urn:btih:11D82C0C2282797F69786A2BD0C8CD041099BCA7
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144437.jpg" />
 </div>
 
 
@@ -158,7 +314,7 @@ magnet:?xt=urn:btih:9AF1C4D504778E5A25B5C1DE6BC85D0DA9F8FF38
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144439.jpg" />
 </div>
 
 
@@ -182,7 +338,7 @@ VA - Guitar Collection 10 (2016) [MP3|320 Kbps] <Blues, Acoustic, Metal >
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144440.jpg" />
 </div>
 
 
@@ -209,7 +365,7 @@ magnet:?xt=urn:btih:537F7014002CAA3674D824BDFE37DCF44C7E77C3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144441.jpg" />
 </div>
 
 
@@ -233,7 +389,7 @@ TG Gray - TG Gray EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144442.jpg" />
 </div>
 
 
@@ -260,7 +416,7 @@ My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144443.jpg" />
 </div>
 
 
@@ -285,7 +441,7 @@ magnet:?xt=urn:btih:17377505D1ED89875334A5870604CBEA43AF5E62
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144445.jpg" />
 </div>
 
 
@@ -309,7 +465,7 @@ magnet:?xt=urn:btih:49469BC1D64F83B832ED4FEA3CAF2BEA890F75C1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144446.jpg" />
 </div>
 
 
@@ -333,7 +489,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144447.jpg" />
 </div>
 
 
@@ -357,7 +513,7 @@ magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144448.jpg" />
 </div>
 
 
@@ -382,7 +538,7 @@ Harry Allen - The Bloody Happy Song (2020) [FLAC|Lossless|image + .cue] <Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144449.jpg" />
 </div>
 
 
@@ -409,7 +565,7 @@ magnet:?xt=urn:btih:8CFCE830E74A0DD4B5DF06DF8887840BA57A6C54
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144450.jpg" />
 </div>
 
 
@@ -433,7 +589,7 @@ magnet:?xt=urn:btih:3C749C2CC87C70CF097696AEE420653FB5C7518E
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144451.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ Phase One Capture One Pro 9.0.1 Build 13 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144453.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ Demon Hunter 5: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144454.jpg" />
 </div>
 
 
@@ -492,155 +648,6 @@ Demon Hunter 5: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DFB0A342804AFDFF35EF9029F8A2ECFA5F34335
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678375   (144455) от 21.11.2023
-
-Kaspersky Tweak Assistant 23.11.19.0 [En]
-
->>След.
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Tweak Assistant - небольшая программа, которая позволит сбросить триальный период продуктов от компании "Касперский" - список можете просмотреть ниже. После запуска, сканирует систему, находит установленный софт от этих ребят, дальше вы сбрасываете и опять можете пользоваться 30 дней не заплатив за ПО, все просто.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC736D481496ACD3376139C7E15A3E06B101310A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520031   (144457) от 26.12.2021
-
-Гарик Мартиросян. Новогодний концерт / Камеди Клаб / Комеди Клаб / Comedy Club (2021.12.26) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сольный новогодний концерт Гарика Мартиросяна. Комик расскажет про всё, что тревожит его и беспокоит всю страну. Много шуток, веселья, хорошее настроение, невероятное обаяние Гарика и его фирменный юмор — всё это в одном выпуске. Вечер воскресенья обещает быть позитивным, а атмосфера в зале зарядит зрителя хорошим настроением на всю неделю.Телекомпания: ТНТЖанр: ЮморАктеры: Гарик МартиросянСубтитры: ОтсутствуютПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BC74A6A30811FA42CCE56246768806A0BE6CC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435600   (144459) от 28.12.2020
-
-Stavros Papadopoulos - Rare Tracks (Freerock Sessions) (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Will Never Die (3:18)
-02. Mr. Wiseman (3:43)
-03. Highway Dust (5:38)
-04. Free Man (4:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC3798F3C74575702608DD70B938A72B648BAAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087741   (144460) от 28.12.2016
-
-Морозко (1964) HDTVRip [H.264] [MP4|788x576]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жила-была хорошая добрая девушка Настенька. Злая мачеха заставляла ее работать, не давая продыху. Однажды она решила избавиться от падчерицы и отправила ту замерзать в зимний лес. В этих же краях жил паренек Иван. Он полюбил Настеньку, да вот только был он большим хвастуном, потому лесной колдун и превратил его в медведя. И Настеньке, и Ивану пришлось пройти через (   Читать дальше...   )Производство: СССР / Студия ГорькогоЖанр: Фэнтези, Мелодрама, Комедия, СемейныйРежиссер: Александр РоуАктеры: Александр Хвыля, Наталья Седых, Эдуард Изотов, Инна Чурикова, Павел Павленко, Вера Алтайская, Георгий Милляр, Галина Борисова, Анатолий Кубацкий, Валентин Брылеев, Татьяна Пельтцер, Татьяна Барышева, Варвара Попова, Зинаида Воркуль, Анастасия Зуева, Маргарита Корабельникова, Юрий Чекулаев, Пётр Мухин, Клавдия Козлёнкова, Вера Петрова, Лев Потемкин, Михаил Щербаков, (   Читать дальше...   )Перевод: Не требуется (русский)Язык субтитров: РусскийПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C037CBDB31C4457F08511D7D8CE35423DB9494D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969824   (144461) от 28.12.2015
-
-Macgo Windows Blu-ray Player 2.16.9.2163 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Blu-ray Player – это лучший проигрыватель для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает производительность при умеренном (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26519E46116139EB0E9FED00740184F9D6B03E55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272274   (144462) от 27.12.2018
-
-VA - Snowflakes IX (2018) Raumklang Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Industrial, IDM, Ambient, Noise>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirk Geiger - Zurich (04:46)
- 02. the_empath - Muohtačalbmi (08:00)
- 03.Жанр: Industrial, IDM, Ambient, NoiseПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2039372E2D8D4F4A711BAE1F63F71F3785E242BB
 ```
 
 

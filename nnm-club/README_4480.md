@@ -1,3 +1,101 @@
+###  Публикация: 1520805   (138570) от 30.12.2021
+
+Фукусима / Атомные самураи / Fukushima 50 (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138570.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о ликвидаторах аварии на АЭС Фукусима-1 после землетрясения у восточного побережья острова Хонсю в Японии 11 марта 2011 года, также известного как Великое восточно-японское землетрясение. Как руководству станции, так и обычным сотрудникам предстоит принять ряд важных решений и бороться с мирным атомом ценой собственных жизней.Производство: Япония, Гонконг / Fukushima 50 Film Partners, Just Creative Studio, Kadokawa, Shochiku Films Ltd.Жанр: Драма, биография, историяРежиссер: Сэцуро ВакамацуАктеры: Коити Сато, Кэн Ватанабэ, Хидэтака Ёсиока, Наруми Ясуда, Наото Огата, Сёхэи Хино, Мицуру Хирата, Масато Хагивара, Рихо Ёсиока, Такуми СаитоПеревод: Дублированный (iTunes)Язык озвучки: Русский, Японский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A89C32F58991719746330A31311FB856F932224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679336   (138572) от 25.11.2023
+
+Doppler for Mac 2.1.17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный проигрыватель Doppler упрощает владение музыкой. Doppler — хорошая альтернатива для людей, которым нужен способ воспроизведения локальных файлов.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2023 Brushed Type Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175C2A677D9E5457FA6A6F4A6523CAB53662B3B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436039   (138573) от 30.12.2020
+
+Michael Pavlovich | Intro To ZBrush 4R7 Part 1 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Павлович - художник по персонажам, его специализация - 3D концепт арт и продакшн пайплайны.
+В 2005 закончил Ринглингский колледж искусств и дизайна, получив степень бакалавра изящных искусств в комптютерной анимации.
+Начал свою карьеру в Electronic Arts в качестве художника по окружению, работал над такими проектами, как Madden NFL и NCAA Football, затем занимался (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 06:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC66EEC049DE8D3F57CC3CD3BCE50DAE5969A586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520707   (138574) от 30.12.2021
+
+Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяси и её горничная-дракон [ТВ-2] [2021, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кобаяси — самая обычная офисная сотрудница, проживающая свою скучную жизнь в маленькой квартирке. Так и тянулись её рутинные дни, пока не спасла она попавшую в беду дракониху, которую по пьяни ещё и жить к себе пригласила. Дракониха эта, Тору, может обращаться в человека (хотя, рожки и торчащий хвост никуда не деваются!), и теперь она всеми силами желает отплатить (   Читать дальше...   )Производство: Студия Kyoto Animation / 京都アニメーションЖанр: комедия, повседневностьРежиссер: Исихара ТацуяЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BC22D087D50F11D20F82A8DE3F63769A5AB0A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088185   (138575) от 31.12.2016
 
 2016 год продлится на секунду дольше
@@ -6,7 +104,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138575.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138576.jpg" />
 </div>
 
 
@@ -54,7 +152,7 @@ magnet:?xt=urn:btih:B348DFFC0EF01A45AD586EE59681B6B5348D4841
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138577.jpg" />
 </div>
 
 
@@ -78,7 +176,7 @@ Any DVD Converter Professional 5.8.7 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138578.jpg" />
 </div>
 
 
@@ -103,7 +201,7 @@ magnet:?xt=urn:btih:6DDDEE68AD052BBB076D2F41D15C2BBA9F7504A0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138579.jpg" />
 </div>
 
 
@@ -127,7 +225,7 @@ VA - Русский рок 2021 [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138581.jpg" />
 </div>
 
 
@@ -154,7 +252,7 @@ Vinland Saga / Сага о Винланде [2019, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138583.jpg" />
 </div>
 
 
@@ -178,7 +276,7 @@ magnet:?xt=urn:btih:CA327D938D90EDE2BA95EEE0E9B8743AB8C84A9B
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138584.jpg" />
 </div>
 
 
@@ -207,7 +305,7 @@ magnet:?xt=urn:btih:21E5EC045BE442BAE3D605E5535D632312051C9E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138586.jpg" />
 </div>
 
 
@@ -231,7 +329,7 @@ magnet:?xt=urn:btih:35BDF6735021A62651AB0A0E1A27C16E904E6CD9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138587.jpg" />
 </div>
 
 
@@ -258,7 +356,7 @@ magnet:?xt=urn:btih:0410DC2DBBE57F58A8F9AEE8E4D05C6AA68C8854
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138588.jpg" />
 </div>
 
 
@@ -285,7 +383,7 @@ HTML Academy | Профессиональный онлайн-курс JavaScript
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138589.jpg" />
 </div>
 
 
@@ -309,7 +407,7 @@ magnet:?xt=urn:btih:C1B164914F1B2AB471C99CBC800EA111A0CADFA7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138591.jpg" />
 </div>
 
 
@@ -333,7 +431,7 @@ magnet:?xt=urn:btih:B5C741BE5AD2DF7FA615F54FA5660AC20812C0BE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138593.jpg" />
 </div>
 
 
@@ -357,7 +455,7 @@ magnet:?xt=urn:btih:26997CD88285A8353838233237B405E0BA940878
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138594.jpg" />
 </div>
 
 
@@ -381,7 +479,7 @@ magnet:?xt=urn:btih:057314BBE421E4AB12B21DB09246D592BC284108
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138595.jpg" />
 </div>
 
 
@@ -405,7 +503,7 @@ magnet:?xt=urn:btih:FE10192D7933109D77BCD6ADC7569FA3DBF59326
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138596.jpg" />
 </div>
 
 
@@ -429,7 +527,7 @@ magnet:?xt=urn:btih:E7DC210161A85DC8F2826C1616031BA6855DC118
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138597.jpg" />
 </div>
 
 
@@ -453,7 +551,7 @@ magnet:?xt=urn:btih:B20F79F5D31F1E7340587A2FF959EECB74ABA9A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138598.jpg" />
 </div>
 
 
@@ -477,7 +575,7 @@ magnet:?xt=urn:btih:61606E7392C4FD5E2418DE68B6785AE4F3D95C7D
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138599.jpg" />
 </div>
 
 
@@ -503,7 +601,7 @@ magnet:?xt=urn:btih:AD880632116D3DC61B5B0271D397B9C72AE86D1E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138601.jpg" />
 </div>
 
 
@@ -527,7 +625,7 @@ VSO DVD Converter Ultimate 3.6.0.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138602.jpg" />
 </div>
 
 
@@ -538,104 +636,6 @@ VSO DVD Converter Ultimate - это очень мощное профессион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6284D678DE3195FAC23672F957DE86B3180CAE24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477625   (138603) от 30.12.2019
-
-Мальчик в полосатой пижаме / The Boy in the Striped Pyjamas (2008) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138603.jpg" />
-</div>
-
-
-###  Подробнее
-
-История, происходящая во время Второй мировой войны и показанная сквозь глаза невинного и ничего не подозревающего о происходящих событиях Бруно, восьмилетнего сына коменданта концентрационного лагеря. Его случайное знакомство и дружба с еврейским мальчиком по другую сторону ограды лагеря, в конечном счете, приводит к самым непредсказуемым и ошеломительным последствиям.Производство: Miramax Films, BBC Films / США, ВеликобританияЖанр: Драма, Военный, ИсторияРежиссер: Марк ХерманАктеры: Аса Баттерфилд, Вера Фармига, Дэвид Тьюлис, Джек Скэнлон, Шила Хэнкок, Ричард Джонсон, Руперт Френд, Эмбер Битти, Лазло Арон, Домонкос НемитПеревод: Профессиональный (полное дублирование)Субтитры: Русские, Английские, Английские (SDH)Продолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5CB60B5B15D98A721973946FE770865976A4D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195946   (138604) от 31.12.2017
-
-Журнал | Квант №9 (сентябрь 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138604.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17C4B1D7692F56C72D8EFB20167DC48713E69C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587979   (138605) от 18.12.2012
-
-Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вихри враждебные веют над ними — в новой игре из легендарной серии юморных походовых стратегий. Передовая 3D-графика делает любимых червячков еще очаровательнее, чем прежде. А еще смертоноснее их делает классический 2D-геймплей, обогащенный на сей раз поистине революционными возможностями. Безжалостные червячки-убийцы отныне способны перемещать предметы, обладающие всеми физическими свойствами, и даже высвобождать природную стихию, буквально смывая противника с уровня бурным потоком. Но самое главное — их индивидуальность. Бесшабашные кольчатые вояки наконец выучились по специальностям и теперь объединяются в отряды с оглядкой на личные качества. И — конечно, несомненно, разумеется — они раздобыли новое оружие!
-
-Червяки всех стран, вооружайтесь! Присоединяйтесь к великой кольчатой армии! Весь мир в труху! Во имя веселья!(   Читать дальше...   )Тип издания: RePackРазработчик: Team17 DigitalЖанр: Strategy / 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2CFE7A87F6938540630C167C1DCBC6B4A7B068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088725   (138606) от 31.12.2016
-
-Шпана 3 / Brotherhood  (2016) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальная драма Шпана 3 является очередной частью кинопроекта, рассказывающего о непростой жизни подрастающего поколения на небольших британских улочках и трущобах. Героям этого фильма не довелось родиться в огромных особняках, у богатых родителей, так что все премудрости выживания в этом несправедливом мире им пришлось осваивать самостоятельно, отстаивая свои (   Читать дальше...   )Производство: ВеликобританияЖанр: драмаРежиссер: Ноэль КларкАктеры: Эшли Томас, Ноэль Кларк, Оливия Ченери, Стивен Кри, Ник Неверн, Дэвид Аджала, Тония Сотиропулу, Джейсон Мацца, Арнольд Ошенг, Фейди Эльсайед, Лашана ЛинчПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1ECE4BDA7D65A039A28BABE236816DE9F5987A6
 ```
 
 

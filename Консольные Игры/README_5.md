@@ -6,7 +6,7 @@ Guitar Hero Van Halen (2009) [PS3] [USA] 3.01 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153769.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Unravel Two (2019) [Switch] [USA] 9.1.0 [NSZ] [License] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154647.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mario Kart 8 Deluxe (2017) [Switch] [EUR] 16.1.0 [NSZ] [License / 3.0.0 / DLC] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154809.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Red Dead Redemption (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154828.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ I Am Alive [PS3] [PSN] [RUS] [NTSC] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155746.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Hotline Miami Collection (2019) [Switch] [USA] 16.0.0 [NSP] [License / 2.03] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156078.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Hogwarts Legacy (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.1 / DLC] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156093.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ OCTOPATH TRAVELER (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156698.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. DShock
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157926.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Double Dragon Neon (2012) [Xbox360] [RegionFree] FreeBoot [XBLA] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158315.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Gray Matter / Gray Matter. Призраки подсознания (2011) [Xbox3
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158559.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Manhunt (2003) [PS2] [NTSC] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163218.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Final Fantasy X | X-2 HD Remaster (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164743.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Brothers in Arms: Hell's Highway (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165471.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ G-Force / Миссия Дарвина (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166037.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ LEGO CITY Undercover (2017) [Switch] [EUR] [NSZ] [License / 1.0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167767.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Ultimate Spider-Man (2005) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168085.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Spider-Man 2 (2004) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168100.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Crash Time 4: The Syndicate (2010) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170088.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ The Long Dark (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.89.69528] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170213.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Red Dead Redemption (2023) [PS4] [EUR] 5.05 [HEN] [License] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171813.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ EA Sports FC 24 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171982.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Atomic Heart (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.16 / DLC] [Ru/Multi] [Pr
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172699.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ EA SPORTS UFC 4 (2020) [PS4] [EUR] 5.05 [HEN] [License / 24.00] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172899.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Minecraft Legends (2023) [PS4] [USA] 5.05 [HEN] [License / 1.06] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172934.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ ELDEN RING (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.15] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173077.jpg" />
 </div>
 
 

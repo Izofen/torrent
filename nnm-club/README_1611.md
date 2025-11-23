@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42241.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42242.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42243.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1B339DD96999CD8796622E7AD4CF5076AECA386A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42244.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FD25FD81115375696961B3FE8E642AFE95F2C1C9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42245.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:79393A03C3C209BE831EFC85981CE037B3151546
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42246.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Ultimaker Cura 5.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42247.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:AE507AB777FB8620A70923D0F06773160FE4BB8A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42248.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B3E36CEA2B14E7B66E7D3617254069D97B6CD0A7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42249.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:439E591F9A0DA2D98AA60BC388C3B2E3CDB15064
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42250.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:383251C24B2DEEA8B7EAC2A74251670AB3D58489
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42251.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Topaz Photo AI 3.2.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42252.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Veeam ONE 12.2.0 Build 4093 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42253.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Senpai wa Otokonoko / Senpai is an Otokonoko / Моя сэмпай — паре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42254.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:2C2AC4538D0CE9ADD7C0658E97A1CD35EC604B48
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42255.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:2C2AC4538D0CE9ADD7C0658E97A1CD35EC604B48
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42256.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:B154FC1AD8A1262503E52FED6613386FF505F0B7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42257.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ AMD Ryzen Master 2.13.1.3097 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42258.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:DA2D8BA173DABFD1AEBDF53DE2FC0FE34E072C7A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42259.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:E34F80B08F29A4CDF2E1DE19DA96E7052C66FA41
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42260.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Modern Talking - Modern Talking 40 (2024) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42261.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:383511BB1CCF0F4E223964B8E15636978340E016
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42262.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:EDECCDBED6188912D8643383A549B8629A704519
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42263.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Devuan 5 (Daedalus) [x86_64, i586] 4DVD+14xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42264.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ AMD Ryzen Master 2.14.0.3205 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42265.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:E5E786A956A972E1B704380492EFC0863BCFA701
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42266.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1728795   (108160) от 09.06.2024
+
+Void Commander - Void Commander (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner rock, blues rock, psychedelic rock, doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dyke Blues [00:03:22]
+02. Sweet Depression [00:04:54]
+03. To The Grave [00:07:45]
+04. Alien Wizard [00:06:26](   Читать дальше...   )Жанр: stoner rock, blues rock, psychedelic rock, doom metalПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A638AB5DED9BE886BAC4CDE0B2CEB4AAAA003FD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729021   (108161) от 09.06.2024
+
+Sons of Arrakis - Volume II (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic-Doom-Metal, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scattering [00:03:47]
+02. High Handed Enemy [00:04:24]
+03. Beyond the Screen of Illusion [00:03:50]
+04. Interlude I [00:01:08](   Читать дальше...   )Жанр: Psychedelic-Doom-Metal, Stoner RockПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972FFE9922A6215FDB2795A19268874D4A534E22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728881   (108162) от 09.06.2024
+
+Lee Ritenour - Rit/2 (1982) 2005, Collectables [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross My Heart [3:47]
+02. Promises, Promises [4:06]
+03. Dreamwalkin' [4:12]
+04. Keep It Alive [4:52](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1030F7C1B5FCCE08E7A4B9ABF36BA2D63FDC4AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728750   (108163) от 09.06.2024
 
 Ileana Mottola - Cool Life (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
@@ -6,7 +87,7 @@ Ileana Mottola - Cool Life (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108163.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Ilya Serov - Colors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108164.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ LØLØ (LOLO) - falling for robots & wishing i was one (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108165.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:A7B9980A056A7015BC2C77FD1C8048788F3044ED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108166.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Parker James & Paul DeFiglia & Caleb Breaux - Afterglow (2024) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108167.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Orbium - Ouroboros (2024) [FLAC|Lossless|WEB-DL|tracks] <doom metal, stoner, pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108168.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Jack McDuff & Friends - Color Me Blue (1992) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108169.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ Folkrim - Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108170.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ Gangruel - The Harvest Withers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108171.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ Dying Fetus - Descend into Depravity (2009) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108172.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brut
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108173.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ Euge Valovirta - Hardtones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108174.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ Huntsmen - The Dry Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108175.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ magnet:?xt=urn:btih:BE1C511DA6E18DE9E760FFA11768EBA5A008790B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108176.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ Rikard From - In My Own Time (2024) [FLAC 24/48|Lossless|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108177.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ Clan of Xymox - Exodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108178.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ magnet:?xt=urn:btih:A2F4B9ADE383EADFA52BB6A05C1EE391BBD7EB12
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108179.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ magnet:?xt=urn:btih:0ACFF50459CF2802FB0202E76556E3137CDD064C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108180.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ magnet:?xt=urn:btih:E464CB061CB4DBC843A609E61B759E4CA836CAEB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108181.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ magnet:?xt=urn:btih:438F97EF7A4AB24C11BB8A214AA1BB049BBC8C21
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108182.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ Haldun Lenger - Chaos War (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108183.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ Relaxing Jazz Music, Cuban Latin Collection - Nostalgic Cuban Nights: Soft Instr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108184.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ magnet:?xt=urn:btih:AF15E0BCF14A22A8D584444907968A759F5876D5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108185.jpg" />
 </div>
 
 
@@ -601,87 +682,6 @@ magnet:?xt=urn:btih:AF15E0BCF14A22A8D584444907968A759F5876D5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6851F0DDBCAF826761215ABB515F2FC98AF33F31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728580   (108186) от 09.06.2024
-
-Escarlathia - Escarlathia (2024) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Delirium
-03. Misantropía
-04. Agonía(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CEEBEEF145F54F3806E82ABE3A625ADA3632FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728944   (108187) от 09.06.2024
-
-Paul Kleber - Little Home (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Loving (8:00)
-02. Fourty (4:34)
-03. Poisson d´or (5:47)
-04. Nachteule (6:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9EAE93C3A4CBBF1806395E937281438E40657EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728754   (108188) от 09.06.2024
-
-Lamb Shelter - Out The Cage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambience (3:49)
-02. Harvest (1:27)
-03. Make (3:21)
-04. Port Wine Cherry Sauce (3:02)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8DC2049150D5A7D75C4789415892E02C3A7A77
 ```
 
 

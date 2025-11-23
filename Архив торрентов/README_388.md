@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90634.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90639.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Apex - Omega Point (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90642.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Tor Even Mathisen - Arctic Motion (Релакс) (2012) HDRip [H.264/720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90644.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:2AB4A6CE8B4EE9FE5A5CA7E521FC687CD7CA88F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90645.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:2AB4A6CE8B4EE9FE5A5CA7E521FC687CD7CA88F2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90671.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:62AFF0209AC620F1DD220F177A9B3BBBBDF83A1D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90675.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:62AFF0209AC620F1DD220F177A9B3BBBBDF83A1D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90679.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90680.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90683.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90690.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90705.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90706.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90718.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless]<Gothic Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90722.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Linux Mint Debian Edition (XFCE & MATE/Cinnamon) 201204 [x32 + x64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90731.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:429AB5892DE6873D50F8402D24B529983B44F1ED
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90735.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ TerraTime v2.7.3 - Виртуальная Земля с часовыми поя�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90736.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Spyro Gyra - 5 Albums (2001 - 2007) [DTS 5.1|(SACD-Rip) tracks]<Jazz fusion, Smo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90739.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:09A22716119188FED4A5533CA3BF7E67A564A519
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90743.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:09A22716119188FED4A5533CA3BF7E67A564A519
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90747.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:09A22716119188FED4A5533CA3BF7E67A564A519
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90748.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:09A22716119188FED4A5533CA3BF7E67A564A519
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90751.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ FreeBSD 8.3 [i386] (1xDVD+1xCD+LiveFS+USB IMG+BootOnly)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90754.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ ClearOS Community 6.2 [i386 + x86-64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90761.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:2FE5152750BCCD1D16CEB437D43FF6C89DF2996C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90775.jpg" />
 </div>
 
 

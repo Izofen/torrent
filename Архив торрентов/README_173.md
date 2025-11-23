@@ -6,7 +6,7 @@ Office Installer & Office Installer+ 1.18 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42074.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.8.10 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42115.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VirtualBox 7.1.2 Build 164945 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42117.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Disk Drill 5.6.913 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42127.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IObit Driver Booster Pro 12.0.0.354 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42140.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Vivaldi 6.9.3447.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42184.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PdfFactory Std & Pro 9.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42188.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Calibre 7.19.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42209.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Soft Organizer Pro 9.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42212.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Autorun Organizer 5.45 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42218.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ FinePrint 12.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42219.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ FanControl V205 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42223.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Zoom Player MAX 19.5.1 Build 1951 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42234.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wise Care 365 Pro 7.0.6.688 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42235.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Ultimaker Cura 5.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42247.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Topaz Photo AI 3.2.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42252.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ AMD Ryzen Master 2.14.0.3205 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42265.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Skype 8.129.0.201 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42267.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r17 Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42278.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Krita 5.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42290.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Google Chrome 129.0.6668.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42291.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Wise Care 365 Pro 7.0.5.686 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42301.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ IsMyHdOK 4.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42322.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wise Disk Cleaner 11.1.6.832 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42323.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Capture One 23 Enterprise 16.4.6.2414 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42333.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PDF-XChange Editor Plus 10.4.1.389 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42335.jpg" />
 </div>
 
 

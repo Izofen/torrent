@@ -1,3 +1,76 @@
+###  Публикация: 1682598   (131388) от 07.12.2023
+
+Д.Н. Верхотуров | Сталинская Индустриализация (2022) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сталинская индустриализация была эпохой короткой, в целом около десяти лет, но очень насыщенной большими и важными событиями. В это время решалась дальнейшая судьба страны, и от успеха сталинского плана очень многое зависело.
+В этой книге сталинская индустриализация впервые предстает в необычном виде: появление грандиозного замысла технической реконструкции, влияние (   Читать дальше...   )Жанр: История, политикаИздательство: ВечеФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204487DC93036CD81E69E0D73BA2121A2527D4E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682254   (131389) от 07.12.2023
+
+Мои пpиключeния с Суперменом / My Adventures with Superman (2023) WEB-DL 1080p (сезон 1, серии 1-10 из 10) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131389.jpg" />
+</div>
+
+
+###  Подробнее
+
+История рассказывает о Кларке Кенте, который строит свою тайную личность как Супермена и исследует свое загадочное происхождение, а также о Лоис Лейн, в которую Кларк влюбляется, и наоборот, которая находится на пути к тому, чтобы стать звездным репортером. Объединившись с фотографом и лучшим другом Кларка Джимми Олсеном, трио раскрывает важные истории и спасает (   Читать дальше...   )Производство: США, Warner Bros. AnimationЖанр: приключения, экшн, комиксРежиссер: Йен Беннетт, Диана Хух, Кики МанрикьюАктеры: Джек Куэйд, Элис Ли, Ишмель Сахид, Дженни Тирадо, Киана Мадейра, Азури Харди-Джонс, Майкл Юрчак, Майкл Эмерсон, Даррел Браун, Зехра ФазалПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Mystery World Team), английскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F28641CC5C2FBC6051E785825CC06DB10DB029
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682575   (131390) от 07.12.2023
+
+Slimjet 42.0.1.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B468B5334FE94A0311D73815C79F5883465015FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682425   (131391) от 07.12.2023
 
 Dee D. Jackson - The Singles Collection (2023) ESonCD, Unofficial Release [FLAC|Lossless|image + .cue] <Disco, Electronic>
@@ -6,7 +79,7 @@ Dee D. Jackson - The Singles Collection (2023) ESonCD, Unofficial Release [FLAC|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131391.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ RogueKiller Anti-Malware 15.13.1.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131392.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ ScreenToGif 2.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131393.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:CD509821932662F614305F64A64D91BC0A0E3257
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131394.jpg" />
 </div>
 
 
@@ -112,7 +185,7 @@ magnet:?xt=urn:btih:AD5A992428ED52A85F3DF891467F12CC50B09E61
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131395.jpg" />
 </div>
 
 
@@ -137,7 +210,7 @@ Opera One 105.0.4970.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131396.jpg" />
 </div>
 
 
@@ -161,7 +234,7 @@ Process Lasso Pro 12.4.3.14 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131399.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ magnet:?xt=urn:btih:A1AE3E2E692287D1DD0D09C77249324C1DBF4E76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131401.jpg" />
 </div>
 
 
@@ -209,7 +282,7 @@ LinkedIn Learning, Dr. Chaz Austin | Succeeding in a New Job (2020) PCRec [EN / 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131402.jpg" />
 </div>
 
 
@@ -233,7 +306,7 @@ magnet:?xt=urn:btih:52B684747B2B6EE56298AF3E2765619103689A42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131404.jpg" />
 </div>
 
 
@@ -257,7 +330,7 @@ Emurasoft EmEditor Professional 23.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131405.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ magnet:?xt=urn:btih:EB7AC615E5424F3DBC9211344D9D9B160B623FA3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131406.jpg" />
 </div>
 
 
@@ -309,7 +382,7 @@ magnet:?xt=urn:btih:EB7AC615E5424F3DBC9211344D9D9B160B623FA3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131407.jpg" />
 </div>
 
 
@@ -333,7 +406,7 @@ Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Roman
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131408.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ EarthView 7.7.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131409.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ Google Chrome 120.0.6099.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131411.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ Comodo Dragon 119.0.6045.200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131413.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ magnet:?xt=urn:btih:DC1869DCF2E078E44073F0C3B2F852E71F70112F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131415.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ magnet:?xt=urn:btih:6D467A0E90E2BF32C7F5954EF7E4E682DAD4527A
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131416.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ Macrorit Partition Expert 8.1.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131417.jpg" />
 </div>
 
 
@@ -501,7 +574,7 @@ magnet:?xt=urn:btih:60CEE082AA773D4BB213D59C40BA56EF728E6DF5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131418.jpg" />
 </div>
 
 
@@ -525,7 +598,7 @@ Bob Corritore - Bob Corritore and Friends Phoenix Blues Rumble (2023) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131419.jpg" />
 </div>
 
 
@@ -552,7 +625,7 @@ Windows 8 Codecs 1.36 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131420.jpg" />
 </div>
 
 
@@ -565,91 +638,6 @@ Windows 8 Codecs - Набор кодеков от разработчиков Win
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682537   (131421) от 07.12.2023
-
-Ханна Кричлоу | Наука о судьбе. Почему ваше будущее более предсказуемое, чем вы думаете (2021) [MP3, Алина Арчибасова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто мы – творцы собственной судьбы или биомашины, каждое действие которых заранее предопределенно? Этим вопросом человечество задаётся испокон веков. Известный нейробиолог Хана Кричлоу пытается ответить на него с помощью своей науки, обращаясь за помощью специалистов из разных областей: от генетики и психологии до богословия.
-В своём исследовании Хана описывает, (   Читать дальше...   )Жанр: Психология, СаморазвитиеИздательство: БомбораПродолжительность: 07:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8BBCD08E8E93566B16BAE1DFA71FD06D70441E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596366   (131425) от 30.12.2012
-
-Damn Yankees - Damn Yankees / Don't Tread (1990/1992) [WavPack|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Of Age [04:20]
-02. Bad Reputation [04:29]
-03. Runaway [04:03]
-04. High Enough [04:45]
-05. Damn Yankees [04:39]
-06. Come Again [05:39]
-07. Mystified [04:15]
-08. Rock City [04:26]
-09. Tell Me How You Want It [04:33]
-10. Piledriver [04:27]Жанр: Hard RockПродолжительность: 01:38:03
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595566   (131426) от 30.12.2012
-
-Шоу Элементы: Модель для сборки (2002) VHSRip - Повелительница тьмы
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу "Элементы: Модель для сборки" на национальном музыкальном канале Муз-ТВ.
-
-МДС представляет собой литературно-музыкальный симбиоз, состоящий из лучших произведений зарубежной и российской литературы, современной прозы, преимущественно фантастического жанра, в сопровождении музыкального ряда в стилях современной электроники: даун-темпо, эмбиента, трип-хопа, дип-техно, транса и подобных музыкальных направлений. Фирменное звучание "Модели" достигается благодаря актерскому таланту и "профессиональному" голосу автора программы и бессменного чтеца Влада Коппа в сочетании со вкусом музыкальных ведущих проекта — диск-жокеев Михаила Габовича и Андрея Эддисона, которые своими миксами погружают слушателя в глубину рассказа и создают соответствующую атмосферу восприятия.
-Как правило, в эфире звучат рассказы и небольшие повести, время прочтения которых ограничивается одним эфиром. Но, нередко используются и более продолжительные произведения и минисериалы, занимающие до 5-6 выпусков программы.Жанр: Музыка, Видеоарт, ЛитератураРежиссер: Влад Копп, Андрей Кильдеев (DJ Incognito), Михаил Габович, Наталья УрманПродолжительность: 1:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E094082CE2723DDCED30BC9853DCAACDA220B108
 ```
 
 

@@ -6,7 +6,7 @@ BetterTouchTool 4.443 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63074.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rhinoceros 8 v.8.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63089.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ TG Pro (Temperature Gauge Pro) 2.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63097.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Shottr for Mac 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63177.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Cisdem Video Converter 7.13.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63203.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ableton Live Suite 11 v.11.3.22 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63210.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ BetterDisplay Pro for Mac 2.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63239.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ DearMob iPhone Manager 6.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63269.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Clearview X 3.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63287.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.38 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63295.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ DCommander 3 Premium for Mac v.3.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63493.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Navicat Premium 16.3.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63592.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Capture One 23 Enterprise 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63609.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Capture One 23 Pro 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63618.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63652.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ HitPaw Video Converter for Mac 4.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63685.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Bundle for MS Office Templates for Mac 7.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63726.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ForkLift 4 v.4.1.1 U2B fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63748.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Pixelmator Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63762.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Remote Desktop Manager Enterprise Edition 2024.1.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63789.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ iA Writer 7.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63802.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ MacGPT 3.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63811.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ The Unarchiver - Unzip RAR ZIP 3.4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65047.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ RAR Extractor - Unarchiver (vip) 6.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65065.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ DiskWarrior Boot DVD 4.4 rev. 1102 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78614.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Spectra Foo Complete 4.2.3 [English]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79465.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Soul Button - Phantom Existence (2020) Remix Edition [MP3|320 Kbps] <Tech House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109251.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Soul Button - Phantom Existence (2020) Remix Edition [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109253.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Darren Tate - Metamorphosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109267.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Electronica Confessions, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109268.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Soul Button - Tranquility: Ethereal Techno (DJ Mix) (2024) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109272.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Travel In The Universe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109273.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Keep It Trance Vol. 21 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109275.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 03 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109276.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ootkeen - Voo Da Borboleta EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109278.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Redux Selection Vol. 6 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109279.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109285.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Black Hole Trance Music 05-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109299.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Armin van Buuren - A State Of Trance 1173 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109301.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - D.Trance 106 (incl. D-Techno 61) (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109302.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Deep-House Heaven, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109379.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Danse d'ete 2024: la meilleure musique Dance pour votre ete par Hoop Record
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109385.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Niel De One - People Are People (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109387.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Niel De One - People Are People (The Remixes) (2024) [FLAC|Lossless|WEB-DL|track
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109403.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Black Hole House Music 05-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109409.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Silent Shore Trance - Essential Classics Vol. 4 (2024) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109416.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Seb Zito - Dialled In LP (2024) [FLAC|Lossless|WEB-DL|tracks] <deep house, progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109417.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Dance Anthems Spring 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109419.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Nothing But... Trancetopia Vol. 14 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109421.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Deep Trance Showcase III (2024) [MP3|320 Kbps] <Trance, Progressive, Electr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109445.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Levitated - Trance Essentials Vol. 4 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109448.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Kris Baha - Cyber Body Music Vol.1 (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Te
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109460.jpg" />
 </div>
 
 

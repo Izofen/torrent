@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63441.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v3 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63442.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9339F44189F279FE8E47C95E4C547A79FEB21D10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63443.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9339F44189F279FE8E47C95E4C547A79FEB21D10
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63444.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ SуперКопы: Миссия «Бабушка» / 3 jours max (2023) WEB-DL [
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63445.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ MobaXterm 24.0 build 5204 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63446.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:ADC26D0C8F6028228993C0F4825DE017D3463D72
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63447.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:CE5A9D6375DE50C789D8543030F229F1AD9D48B1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63448.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ BBC. Эттенборо и морской дракон / Attenborough and the Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63449.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:FE8A4E159186A58C015F6822FAB7547A68CDBA35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63450.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:EA9DD4F35D1B0EF937E79E57EF12959AD072799C
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63451.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ BBC. Экспедиция в Бирму / Expedition Burma (2011) BDRemux [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63452.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:674283D968C4820CC83C9F5326469DB91263A1FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63453.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CorelDRAW Graphics Suite 2024 25.0.0.230 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63454.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:E7059800E069ED117386A5BC96F20E0F526B865E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63455.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:E7059800E069ED117386A5BC96F20E0F526B865E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63456.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:B2D269ECC05F93AC027C1396FD93B9BA26C32BEC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63457.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:BF423BCA5B57A0DC97A85A0EDF7A620DB0B2575A
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63458.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:6B57803E12A7A683167AA08D3296CCE80181C264
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63459.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:E799CC41B89F260AB95FB3CF4AD2E8A68D78789D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63460.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E799CC41B89F260AB95FB3CF4AD2E8A68D78789D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63461.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:4C3835AEE1581E8DE307F95A3D58EE8498961EB6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63462.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:990406E3BAC9654A36FD8BECD3B4A0B5DCBCA1C6
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63463.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:222CCFCA2F6D8677120758A0FC59114F112DD134
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63464.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:9E09B9DF3717627475BA90AC36195037C57CEF1A
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63465.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ CyberLink PowerDVD Ultra 23.0.1406.62 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63466.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1685873   (126885) от 20.12.2023
+
+Жорж Санд | Книга 1. Консуэло (2021) [MP3, Юлия Тархова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XIX век. Зарубежная проза.
+Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
+Аудиостудия «Ардис» предлагает вам послушать в исполнении Юлии Тарховой дилогию о Консуэло, принадлежащую (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 37:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086981B9A0559780E1858F0F1AAC315B9734A994
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686005   (126886) от 20.12.2023
+
+Electus - Episode IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More More More
+02. All the Way
+03. Got the Time
+04. If I Stay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03231405BC8B8B33E88BE02F8E8467716D9B7E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685833   (126887) от 20.12.2023
+
+Christian Sands - Christmas Stories (2023) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [5:52]
+02. Let It Snow! Let It Snow! Let It Snow! (feat. Jimmy Greene) [4:38]
+03. Have Yourself a Merry Little Christmas [4:49]
+04. God Rest Ye Merry Gentlemen (feat. Keita Ogawa) [5:45](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C70F55D5EAFCE786996212F0CF38C4C3BFA95BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685919   (126888) от 20.12.2023
 
 Jollo - Ведьма (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +86,7 @@ Jollo - Ведьма (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126888.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ magnet:?xt=urn:btih:05CF381564B3B82087F1B4669DFE941E28B39D54
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126889.jpg" />
 </div>
 
 
@@ -57,7 +137,7 @@ magnet:?xt=urn:btih:D9B89EC797BE23936B074768B65D5DF785561944
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126890.jpg" />
 </div>
 
 
@@ -82,7 +162,7 @@ Autumn's Child - Tellus Timeline (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126891.jpg" />
 </div>
 
 
@@ -109,7 +189,7 @@ VA - Калина красная 19. Песни, спетые сердцем (20
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126892.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ magnet:?xt=urn:btih:80311BB3DE1D00807ABF6F58C2EC5207AD2B78C6
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126893.jpg" />
 </div>
 
 
@@ -160,7 +240,7 @@ magnet:?xt=urn:btih:F0D976256963ABC57A64DF40645A4F503214751C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126894.jpg" />
 </div>
 
 
@@ -187,7 +267,7 @@ VA - Bravo Hits 12 (1996) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126895.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ Sandboxie plus 1.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126896.jpg" />
 </div>
 
 
@@ -238,7 +318,7 @@ VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126897.jpg" />
 </div>
 
 
@@ -265,7 +345,7 @@ FileZilla 3.66.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126898.jpg" />
 </div>
 
 
@@ -289,7 +369,7 @@ VA - The Best Of Aerodynamica Music Group 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126899.jpg" />
 </div>
 
 
@@ -316,7 +396,7 @@ Opera GX 105.0.4970.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126900.jpg" />
 </div>
 
 
@@ -342,7 +422,7 @@ magnet:?xt=urn:btih:746211532D02D53E06CBF2110D6C09FEF63D2DC4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126901.jpg" />
 </div>
 
 
@@ -366,7 +446,7 @@ magnet:?xt=urn:btih:1FF3059AB26A75F4A9551112C69E82E4EA88042C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126902.jpg" />
 </div>
 
 
@@ -390,7 +470,7 @@ Sandboxie 5.67.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126903.jpg" />
 </div>
 
 
@@ -414,7 +494,7 @@ magnet:?xt=urn:btih:529D957E4C9AC08FF653542DF13EA232C4C4F374
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126904.jpg" />
 </div>
 
 
@@ -438,7 +518,7 @@ Vatican Shadow - Destroy Chemical Weapons (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126905.jpg" />
 </div>
 
 
@@ -464,7 +544,7 @@ magnet:?xt=urn:btih:3BB446479436B5CB687371FEC8D5359262A8267D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126906.jpg" />
 </div>
 
 
@@ -491,7 +571,7 @@ TV Girl - French Exit (2014) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnot
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126907.jpg" />
 </div>
 
 
@@ -518,7 +598,7 @@ Serj Tankian - Invocations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126908.jpg" />
 </div>
 
 
@@ -545,7 +625,7 @@ magnet:?xt=urn:btih:EC79343EA811D867AD7198F45AD690581B2DFA3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126909.jpg" />
 </div>
 
 
@@ -570,7 +650,7 @@ magnet:?xt=urn:btih:6E987E2AED1AB6DEFF2EC4A55781AE6DCE353F7A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126910.jpg" />
 </div>
 
 
@@ -582,80 +662,6 @@ magnet:?xt=urn:btih:6E987E2AED1AB6DEFF2EC4A55781AE6DCE353F7A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15CA9B818A6583E3D5CA302BDEEAC53CABE81714
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685950   (126911) от 20.12.2023
-
-Убийцы: Пойманные на камеру / Killers: Caught on Camera (2018) WEBRip [H.264] (сезон 1, серии 1-10 из 10) [VO]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о реальных преступлениях с уникальным доступом к видеозаписям, которые приводят к осуждению убийц по всему миру. Каждое дело собирается воедино, как мозаика, связывая камеры видеонаблюдения на улицах, домашнее наблюдение, нательные полицейские камеры и записи с мобильного телефона, которые создают доказательства для поимки убийцы. В каждой серии представлены (   Читать дальше...   )Производство: Великобритания, Канада, Back2Back Productions, Cbs Amc Networks Uk Emea Channels Partnership, CBS RealityЖанр: документальный цикл, расследованиеРежиссер: Джереми Рьедер, Джош Каудри, Эйдан ВудвордУчастники: Джулия Шоу, Эми Полито, Стив Джонс, Трейси БарреттПеревод: одноголосый любительский (Пожилой Ксеноморф)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии 10 x ~00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6545C2E4229A0D496DA9C330418BCDEF7FB7B47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685933   (126912) от 20.12.2023
-
-Замок Фу Манчу / The Castle of Fu Manchu (1969) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126912.jpg" />
-</div>
-
-
-###  Подробнее
-
-5-й из серии британо-немецких фильмов 60-х годов о зловещем докторе Фу Манчу.
-Злой китайский гений Фу Манчу разрабатывает очередной план порабощения мира. На этот раз он связан с новым изобретением, позволяющим заморозить всю воду мирового океана.Производство: Германия (ФРГ), Италия, Испания, Великобритания, Лихтенштейн / Balcázar Producciones Cinematográficas S.A., International Cinema, Italian International Film, Terra Filmkunst, Tilma Films, Towers of LondonЖанр: ужасы, криминал, приключенияРежиссер: Хесус ФранкоАктеры: Кристофер Ли, Ричард Грин, Говард Мэрион-Кроуфорд, Гюнтер Штоль, Розальба Нери, Мария Перши, Хосе Мануэль Мартин, Вернер Абролат, Цай Чинь, Стенли БейкерПеревод: Авторский, А. ДольскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6EEF6958C38A3514B0BED8C066FB0E9C37EC05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685869   (126913) от 20.12.2023
-
-Лицо Фу Манчу / The Face of Fu Manchu (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страшные убийства, происходящие в Лондоне, привлекают внимание полицейского Найленда Смита. Судя по почерку преступлений, это дело рук загадочного Фу Манчу, которого казнили несколько лет назад. Все улики приводят полицейского к Темзе...
-1-й из серии британо-немецких фильмов 60-х годов о зловещем докторе Фу Манчу.Производство: Великобритания, Германия (ФРГ) / Constantin Film, HallamЖанр: боевик, триллер, драма, криминалРежиссер: Дон ШарпАктеры: Кристофер Ли, Найджел Грин, Йоахим Фуксбергер, Карин Дор, Джеймс Робертсон Джастис, Говард Мэрион-Кроуфорд, Цай Чинь, Вальтер Рилла, Гарри Броган, Франческа ТуПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A451E62E43B5A9D8137817EB04443B388752F0
 ```
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16981.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16981.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C64A99F070D0A0258F357A715D37DB7CEED29F39
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16982.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3D7EFC47571A77392CA85BB9AA48299629032080
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16983.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16983.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E9E825A15E7EADCB89A085B4B9B06E55CE30CB44
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16984.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:ED38117058869DC92DBF8AC15E94FAF42AF5B610
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16985.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Find MAC Address 25.05 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16986.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ RUTUBE - видео, шоу, трансляции 30.2.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16987.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Record Super Chart 24.05.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16988.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:AD86182C1F86A36502BDF95BD349EC6582B33F60
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16989.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8CF8CBC51EFCB4C95FFB5E206F473B53067DDF1B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16990.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ MassTube Ultra 20.1.6.131 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16991.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16992.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:95CE02EB0DBB59AE92F864824717C6340FE67253
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16993.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:BB192299A29291DCCF503D9EBB411C2F9118C6F8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16994.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Synergy (2024) [Ru/Multi] (1.0.2505130427) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16995.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ES File Explorer File Manager v4.4.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16996.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AR Plan 3D: Линейка, Рулетка v4.10.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16997.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:AA24455DDEC1CDB6C97B036978630503013F19F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16998.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Wise Disk Cleaner 11.2.3.843 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16999.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:7461AB3B62DEF631CA8F1D29021F45C05F5860BC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17000.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Deliver At All Costs (2025) [Multi] (250331-132937) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17001.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17002.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:3C69785BD8DAE0C1C9820C5A2B38DE7E2519DC24
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17003.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:0C51CD1B9D4C0B011FD56318A9CB50FD0898D7CC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17004.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:9BC01829ACFCB0244B5E1AD8AB1AE0231AE105D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17005.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:543C030037E0279A70E5558DA1A202CE90D67A4E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17006.jpg" />
 </div>
 
 

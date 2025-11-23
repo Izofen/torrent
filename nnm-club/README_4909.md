@@ -1,3 +1,177 @@
+###  Публикация: 1518826   (152143) от 21.12.2021
+
+Проекты - VideoHive - Merry Christmas Slideshow - 35318564 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний шаблон слайд-шоу с привлекательным дизайном и анимациейФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B02751D6F7EBB4026188885CF88EFAAB144DBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194921   (152144) от 27.12.2017
+
+Воздвиженье. Николин день (изд.) | Тайная жизнь души. Православный календарь 2018 [Православные чудеса и знамения] (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Православный календарь на 2018 год с указанием церковных праздников, дней особого поминовения усопших, постов, содержащий реальные истории православных чудес, знамений Божиих.
+
+ВЕНЦЫ ОТ ЦАРИЦЫ НЕБЕСНОЙ
+В 1922 году в станице Килермецкой (под Майкопом) чекистами была расстреляна группа невинных людей, один из которых чудом остался в живых. «После того, как душегубы (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890020B30D531C84016188FEFF3D681F8719A7F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271151   (152145) от 22.12.2018
+
+Водопад Виктория / Victoria Falls (2017) WEBRip [VP9/2160p] [4K, HDR]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктóрия — водопад на реке Замбези в Южной Африке. Расположен на границе Замбии и Зимбабве. Ширина водопада — примерно 1800 метров, высота — 120 метров. Шотландский исследователь-путешественник Дэвид Ливингстон, побывавший на водопаде в 1855 году, назвал его в честь королевы Виктории. Среди коренного населения этих мест водопад был известен как «Гремящий дым». (   Читать дальше...   )Производство: АфрикаЖанр: Документальный, видовойРежиссер: Милош КичковичПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9814776EF2AACC0A5EFF511C505281940F2FEABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347521   (152146) от 23.12.2019
+
+VueScan Pro 9.7.14 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152146.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B5E48AC4B4B8E4D5F876C77F114E60792A8A5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676989   (152148) от 16.11.2023
+
+Искривление Времени: Величайшие Культовые Фильмы / Time Warp: The Greatest Cult Films of All-Time (2020) WEB-DL [H.264/1080p] (серии 1-3 из 3) [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о культовых фильмах всех времен и народов.
+Первая серия посвящена рассвету и закату полуночного кино, благодаря которому и появилось понятие "cult movie".
+Вторая расскажет о крутейших хоррорах и сай-фаях прошлого века.
+В третьей серии разберут феномен кэмповых фильмов и вспомнят все самые умопомрачительные комедии.Производство: США, Plausible FilmsЖанр: документальный, история, кинематографРежиссер: Дэнни ВульфУчастники: Кевин Поллак, Иллеана Дуглас, Джон УотерсПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced+full, Pazl Voice), английские (full+SDH)Продолжительность: 01:41:58+01:23:23+02:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E87627C427DD3796EC86B7B876B12260254507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968525   (152149) от 24.12.2015
+
+Стажёр / The Intern (2015) WEB-DLRip [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152149.jpg" />
+</div>
+
+
+###  Подробнее
+
+70-летний вдовец Бен Уитакер обнаруживает, что выход на пенсию — ещё не конец. Пользуясь случаем, он становится старшим стажёром в интернет-магазине модной одежды под руководством Джулс Остин.Производство: США / Waverly FilmsЖанр: мелодрама, комедияРежиссер: Нэнси МайерсАктеры: Роберт Де Ниро, Энн Хэтэуэй, Рене Руссо, Андерс Холм, ДжоДжо Кушнер, Эндрю Рэннеллс, Адам Дивайн, Илан Кригсфелд, Зак Перлман, Джейсон Орли и др.Перевод: Дублированный (чистый звук)Продолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB076930522016AD19C7031DFF52B8535E0A833D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271267   (152151) от 22.12.2018
+
+Animal Planet: Летающие челюсти. Прогулка с белыми акулами / Air Jaws. Walking With Great Whites (2015) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный эксперт по акулам Джефф Карр с помощью индивидуальной передвижной алюминиевой клетки исследует морское дно в районе охоты больших белых акул.Производство: США, Shark Entertainment, Discovery CommunicationsЖанр: Документальный, природа, флора, фаунаРежиссер: Джефф КаррПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F479629FF2A5B5465BA3EBCA5321586F66CFDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518619   (152152) от 21.12.2021
 
 Ventoy 1.0.63 [Multi/Ru]
@@ -6,7 +180,7 @@ Ventoy 1.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152152.jpg" />
 </div>
 
 
@@ -32,7 +206,7 @@ Capsula - Sense of a Drop (2009) Waveform Records [FLAC|Lossless|tracks+.cue] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152153.jpg" />
 </div>
 
 
@@ -59,7 +233,7 @@ Combo Cleaner Antivirus Premium 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152154.jpg" />
 </div>
 
 
@@ -83,7 +257,7 @@ magnet:?xt=urn:btih:FC9D15BE0A407BA5B595D8D0E3F79B560923D039
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152155.jpg" />
 </div>
 
 
@@ -107,7 +281,7 @@ IObit Driver Booster Pro 3.1.1.457 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152156.jpg" />
 </div>
 
 
@@ -131,7 +305,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1115) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152157.jpg" />
 </div>
 
 
@@ -155,7 +329,7 @@ magnet:?xt=urn:btih:A1302CE1F979620C25BC9483D0B0019CD59CC7E5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152158.jpg" />
 </div>
 
 
@@ -181,7 +355,7 @@ magnet:?xt=urn:btih:3DB939064C601B37A1E531881D317CD71F728481
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152159.jpg" />
 </div>
 
 
@@ -206,7 +380,7 @@ MAGIX Vegas Pro 19.0 Build 458 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152161.jpg" />
 </div>
 
 
@@ -231,7 +405,7 @@ Gears 5 (2019) [Ru/Multi] (1.1.97.0/dlc) License CODEX [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152162.jpg" />
 </div>
 
 
@@ -255,7 +429,7 @@ magnet:?xt=urn:btih:EAB83BF7C91861930CDBFD37F5848DAE6929BEE0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152163.jpg" />
 </div>
 
 
@@ -279,7 +453,7 @@ Loopmasters - Bass Master 1.1.2 VSTi (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152164.jpg" />
 </div>
 
 
@@ -304,7 +478,7 @@ Slimjet 25.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152167.jpg" />
 </div>
 
 
@@ -328,7 +502,7 @@ magnet:?xt=urn:btih:B4FAFFCFDE2CADD0EF7061512D459BF783B5A7B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152168.jpg" />
 </div>
 
 
@@ -352,7 +526,7 @@ FanControl V142 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152170.jpg" />
 </div>
 
 
@@ -376,7 +550,7 @@ magnet:?xt=urn:btih:598FE77815402077703A4AFC23916B9E8EA09107
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152171.jpg" />
 </div>
 
 
@@ -403,7 +577,7 @@ magnet:?xt=urn:btih:E1A8F531EF97CB518707B3E7245E308CBFD3F4EF
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152172.jpg" />
 </div>
 
 
@@ -429,7 +603,7 @@ magnet:?xt=urn:btih:51A42A8FF17F17ED5DCC5914833635278A9BEEF5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152173.jpg" />
 </div>
 
 
@@ -453,7 +627,7 @@ Orianthi - Best Of Orianthi... Vol. 1 (2014) Robo Records, UICO-1273, Japan [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152174.jpg" />
 </div>
 
 
@@ -467,181 +641,6 @@ Orianthi - Best Of Orianthi... Vol. 1 (2014) Robo Records, UICO-1273, Japan [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C1FD99D34F6075BA6B95E01AFE0F21DFABD11B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968620   (152175) от 24.12.2015
-
-Kaspersky Software Updater 1.5.1.202 Beta [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Software Updater позволяет поддерживать в актуальном состоянии программное обеспечение, установленное на вашем компьютере. Быстрое сканирование проверит систему на наличие устаревших потенциально уязвимых программ, предоставив в результатах список необходимых обновлений, чтобы сохранить ваш компьютер в полной безопасности от возможных вредоносных атак с (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A66D99006184ABB8D6E60B417160358D88E2F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518719   (152177) от 21.12.2021
-
-Шрифты - Русские новогодние и рождественские шрифты [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник шрифтов из 25шт
-Русские новогодние и рождественские шрифты.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AECDE16AB037E58DDB1A0FA6B423895CA49B9C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271164   (152178) от 22.12.2018
-
-VA - Корпоратив 2019 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Funky House, Dance, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152178.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Preparty
-Продолжительность: 01:02:41
-
-01-Syntheticsax - Jingle Bells (Choir Extended Mix)(   Читать дальше...   )Жанр: Club House, Funky House, Dance, Deep HouseПродолжительность: 03:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA48B61A5DF26F346FB8022D64AC521B4DE65FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086440   (152179) от 24.12.2016
-
-FastStone Image Viewer 6.1 Corporate RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152179.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - вьювер, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B79FA5C6A31221D7A5A2963F8A86F23023CFA3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738513   (152180) от 25.12.2013
-
-Современные чудеса. Запредельные самолеты / Modern Marvels. Extreme Aircraft (2004, 2007) IPTVRip
-
->>Документалистика и Телепередачи
->>Авиация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к взлету. В небе XXI века маневрируют запредельные самолеты всех видов. От реактивного истребителя из «Звездных войн» и сверхзвукового бомбардировщика, который считает себя истребителем, до крошечного летающего глаза в небесах. Вашему вниманию предстанут: F-35 Lightning II, YF-12, F-22, F-335 B, B-1, могущественный B-52. Летательный микроаппарат с глазом, способный нанести больше урона, чем взорвавшаяся бомба, а так же личные летательные средства будущего.Жанр: Документальный, авиация, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 х ~ 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D345F77010CCCD64FBEA1CE313DDE60B7E47713A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347412   (152181) от 23.12.2019
-
-Блейк Пирс | Загадки Макензи Уайт (Книга 3). Прежде чем он начнёт охоту (2019) [MP3, Сергей Пухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «ПРЕЖДЕ ЧЕМ ОН НАЧНЁТ ОХОТУ», свежеиспечённый агент ФБР Макензи Уайт выпускается из Академии в Куантико и с головой окунается в неотложное расследование дела о серийном убийце.
-В национальном парке Западной Вирджинии находят тела женщин, приехавших на кемпинг. Парк огромен, и связи между убийствами нет.
-В то же время Макензи получает звонок из Небраски. Её просят (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C301C863772F6C6756DD7E13AE782C857C1D515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195146   (152183) от 27.12.2017
-
-Вернер Йегер | Пайдейя. Воспитание античного грека [2 Тома] (1997-2001) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга знаменитого филолога-классика Вернера Йегера посвящена наиболее интересной и богатой событиями и идеями эпохе становления греческого воспитательного идеала.
-Книга представляет интерес для историков философии и культуры, а также для широкого круга читателей, интересующихся истоками европейского гуманизма.Жанр: Философия, культурологияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242AF17E92E38FAE6C7E55E42B3031DB58F93C1D
 ```
 
 

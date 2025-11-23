@@ -1,3 +1,81 @@
+###  Публикация: 1525545   (129190) от 21.01.2022
+
+Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris by Night (3:51)
+ 02. Sourire (4:26)
+ 03. Seine (3:39)
+ 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525376   (129191) от 21.01.2022
+
+VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
+002. Simone D Jay - Move Your Feet
+003. DJ Planet Express - Wanted U 2 Kno
+004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525578   (129192) от 21.01.2022
+
+Firefox Browser 96.0.2 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6084A08CC54620246D5FF04B7C17FF0E513352BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525182   (129193) от 21.01.2022
 
 Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
@@ -6,7 +84,7 @@ Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129193.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129194.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:11FD96C95829D7A0D543996BFD807ABC16F7265B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129195.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129196.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ Sketch 82.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129198.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ VA - Клубные Новинки Vol.66 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129200.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ Nocturna - Daughters Of The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129201.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ Mozilla SeaMonkey 2.9 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129202.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129203.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ VA - Beatport Deep House: Sound Pack #397 (2022) [MP3|320 Kbps] <Deep House, Sof
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129205.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ magnet:?xt=urn:btih:6319632BDA2F8A0E2FD136B92962D69CB2E54499
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129206.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ magnet:?xt=urn:btih:B62374E15C1E7949D6CF3C21A7EA6F840497B4DA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129208.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129209.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ VA - Colored Clouds: Deep House Soft Session (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129210.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ magnet:?xt=urn:btih:9D5D5B451906E35F71D33A4C41A044BFAE63A93F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129213.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ magnet:?xt=urn:btih:D95EF99C6526C7555B297477FA8BC48C44AFC3B0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129214.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ magnet:?xt=urn:btih:6F45D14A9E0552B02E8C5BC76C5A04B3936537F0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129215.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Cockos REAPER for Mac v6.46 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129217.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ John Mellencamp - Strictly A One-Eyed Jack (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129218.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ magnet:?xt=urn:btih:3785435F8C55F5AB7D740CE0A01B0CC5B09E6C66
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129220.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129221.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ magnet:?xt=urn:btih:49542489F5CC4F12CCC123F66C285E81287E870D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129222.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ magnet:?xt=urn:btih:DB0407DF2163384A72C08D599F0DF829CB882F06
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129224.jpg" />
 </div>
 
 
@@ -588,84 +666,6 @@ magnet:?xt=urn:btih:DB0407DF2163384A72C08D599F0DF829CB882F06
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C1D040CF7DB1B443F26A3FB15CDCEBA9E23783E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525725   (129226) от 21.01.2022
-
-VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thakzin, Kitty Amor - Khoisan (4:24)
-02. Dawgpound - Egypt (6:40)
-03. Un_Nown, Zikhona - Sikelela (7:38)
-04. Drega, Maline Aura - Mama Dear (6:32)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 02:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D054A817DB6BDF2C0EF063B6C11CE00C28EE3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525752   (129227) от 21.01.2022
-
-В сетях Каморры / Il Pastore / Im Netz der Camorra (2021) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винодел Маттео живет со своей женой Стефанией и дочерью Лаурой в окружении живописных виноградников Южного Тироля. Семья известна своим хорошим вином и пользуется уважением в деревне. Затем однажды на его винодельне появляется Нино Соррентино, очевидно, является старым знакомым Маттео. С появлением незнакомца отец семейства сталкивается со своим тёмным прошлым, которое (   Читать дальше...   )Производство: Германия / good friends FilmproduktionЖанр: криминал, триллерРежиссер: Андреас ПрохаскаАктеры: Тобиас Моретти, Урсина Ларди, Фабрицио Романьоли, Харольд Виндиш, Антония Моретти, Mariam Sanusi, Мелика Форутан, Теа Фалько, Lukas Thomas Watzl, Герхард Либманн и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео (2 бегущих строки), аудио вставки (2 короткие) рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0362725CE6E865AB31F3D196F5CA05E7EF8A63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525574   (129229) от 21.01.2022
-
-VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Candys, Jack Holiday - Insomnia (Rework) (3:00)
-02. W&W, Blasterjaxx - Dynamite (Bigroom Nation) (2:50)
-03. Timmy Trumpet, Azteck, Darren Styles - Dance Tonight (2:57)
-04. Sam Feldt, Justus, Georgia Ku - Call On Me (3:27)(   Читать дальше...   )Жанр: Big Room, Dance, Hands UpПродолжительность: 04:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
 ```
 
 

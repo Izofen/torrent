@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2534.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:892A140D68DBA46C12E5EA7354931BF7FB3C798A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2535.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.741703/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2536.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9F87E72D3117F21A46690E7AF578958E44953E21
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2537.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:57E7A8E537FECD34141D25FB9889E498E948BB18
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2538.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2539.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С ны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2540.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:6A5FEA1FC9313FA8514C7616E3ED796186EBAF4C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2541.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:6A5FEA1FC9313FA8514C7616E3ED796186EBAF4C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2542.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:15A30D78DF9A3596CEBDA1FCBF9DAB9922B558F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2543.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Windows Server 2025 LTSC [10.0.26100.6584], Version 24H2 (Updated September 2025
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2544.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:D94A230FF85398C3AE53183528FE957A7BD17D41
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2545.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ PotPlayer 250910 (1.7.22613) (x64) RePack (& portable) by 7sh3 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2546.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:0E0E5332659FAD40D407407F162950EF1CED716B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2547.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ GRAPHISOFT ArchiCAD 28.2.2 ARM [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2548.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:B23E60248E50A9340962FD1E9CF905D3710ECCDE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2549.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ SoftMaker Office Professional 2024 rev. S1228.0906 RePack (& portable) by KpoJIu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2550.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | К�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2551.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2552.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Kitaria Fables (2021) [Ru/Multi] (1.10/dlc) License GOG [Digital Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2553.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:093EEE738C340C07F7729C6FD1C308CB9D2004AC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2554.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack Wanterlude [4-Year Anniversary Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2555.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:7DD6BD4C42EF74577FA4E3DEE172FD8CD4D15E92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2556.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ NASA представило самые веские доказательства
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2557.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ NASA за 30 лет исследования представили самые �
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2558.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1693086   (121836) от 20.01.2024
+
+Animarum - Machina (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Simulation (02:21)
+02 - Vikalpa (06:01)
+03 - Machina (07:33)
+04 - Bloodletting (06:20)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D3ED2FABDA5854CC55C5C1C6CBDACE5E85CA98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693357   (121837) от 20.01.2024
+
+Typora for Mac 1.8.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Typora дает вам безупречный опыт как читателя, так и писателя. Приложение удаляет окно предварительного просмотра, переключатель режимов, синтаксические символы исходного кода и все другие ненужные отвлекающие факторы, заменяя их предварительным просмотром в реальном времени, чтобы помочь вам сосредоточиться на самом контенте.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2024Разработчик: © 2021 TyporaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6116F2A942DC245B4861264B79394CE5FC815308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693319   (121838) от 20.01.2024
+
+JaSFTP for Mac 13.8[En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121838.jpg" />
+</div>
+
+
+###  Подробнее
+
+JaSFTP - автоматизированный протокол безопасной передачи файлов (SFTP). Безопасный протокол передачи файлов (SFTP), разработанный с учетом требований автоматизации, чтобы вам не приходилось тратить время на интерактивную передачу файлов. Для Windows, Mac OSX, Linux и других Unix-платформ.Тип издания: macOS SoftwareРелиз состоялся: 01.01.2024Разработчик: © 1999 - 2014 Hitek Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6C9D4DFF9FD3C29387489CFA39144EF8CB0549
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693318   (121839) от 20.01.2024
 
 AutoKrypt 13 for Mac 13.08 [En]
@@ -6,7 +81,7 @@ AutoKrypt 13 for Mac 13.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121839.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Abysmal Grief - Narcissistic Necrophiles (2023) Live [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121840.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.010.1433 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121841.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ One Chat Pro - All In One Messenger 4.9.95 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121842.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:DCFFF3D511CEA0D91E2FC6EF0013E970601BB361
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121843.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Magic Disk Cleaner 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121844.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ WiFi Signal Strength: Wifiry 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121845.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:84D3AD3677BAD9980937944A61CDE34D7715CF2A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121846.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:2D8D9678B7579F757AE797E0DA1AD11DA99352B8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121847.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:333CC71FC11C35534FD8B83049D3A12E3E96E964
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121848.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ Bernard Allison - Luther's Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121849.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ FoneDog Toolkit for Android on Mac 2.1.12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121850.jpg" />
 </div>
 
 
@@ -305,7 +380,7 @@ magnet:?xt=urn:btih:5B99C3F7B149B7BF6502A7F2102707101A2C4CA7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121851.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ VA - Armin van Buuren - A State Of Trance 1156 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121852.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ magnet:?xt=urn:btih:394BB43DE120F77DD2C2135EBBABE019A77200D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121853.jpg" />
 </div>
 
 
@@ -384,7 +459,7 @@ Eddie James - 'Ard (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121854.jpg" />
 </div>
 
 
@@ -411,7 +486,7 @@ Wondershare Recoverit for Mac 12.5.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121855.jpg" />
 </div>
 
 
@@ -436,7 +511,7 @@ Bobby "Blue" Bland - Blues At Midnight (2003) Limited Edition [FLAC|Lossless|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121856.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ Master of Typing 3 - Practice 15.14.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121857.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ PhotosRevive for Mac 2.1.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121858.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ magnet:?xt=urn:btih:8FB89C538F363D472A76C01134F7F72B4C3663B0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121859.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ Ella Fitzgerald - Three Classic Albums Plus (1960, 1961) 2CD, 2014, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121860.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ magnet:?xt=urn:btih:2990ADB9E5933282840C429E2507C6F347C2C294
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121861.jpg" />
 </div>
 
 
@@ -573,84 +648,6 @@ magnet:?xt=urn:btih:2990ADB9E5933282840C429E2507C6F347C2C294
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7E2E7496F37E0A6A11CB578957F484C3D802F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692508   (121862) от 20.01.2024
-
-In Flames - Hell Is Overcrowded And Heaven's Full Of Sinners (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind Space (Live 2022)
-02. Scorn (Live 2022)
-03. Only For The Weak (Live 2022)
-04. Take This Life (Live 2022)(   Читать дальше...   )Жанр: Melodic Death Metal, Alternative RockПродолжительность: 00:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0B61F237A047B0645B45A2A5396707AF42C691
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693228   (121863) от 20.01.2024
-
-VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vicent Ballester, The Nurk & Dave Baron - Thinking About You (Moe Turk Remix) (05:35)
-02. Hiss Band & U.R.A. - Let It Shine (Ballester Remix) (03:34)
-03. Soulshade, Jaytor & Elodia - Touch The Sky (Sharapov Remix) (05:02)
-04. Sharapov - Story (Alexander Hristov Remix) (04:59)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82916F963D0EF4127B55BB2A330457EBD88675D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693279   (121864) от 20.01.2024
-
-Журнал | The Woodworker & Good Woodworking №02 (февраль 2024) [PDF][En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите изготовить вручную красивую мебель для собственного дома или сделать небольшие вещи, такие как шкатулку для пустяков, миски и игрушки, чтобы продать или подарить их в качестве подарка, журнал Woodworker наверняка заставит вас встряхнуться и приступить к работе над вашим следующим проектом. Каждый месяц есть чем заняться, пока не выйдет следующий номер.Жанр: Столярное делоЯзык: АнглийскийИздательство: MyTimeMedia Ltd.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973E953798F77DFE9F6C78E53F3750184AC2679E
 ```
 
 

@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174416.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174416.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6CF2A64A08FBCE163829E4A81D7DF0A943EEE4AD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174424.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174424.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C2426D5B567194516EF6E2006D5056ED47EB98E9
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174451.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174451.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:01B31FD2BE9C9D046DFE08AEFCED03DD79763B61
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174455.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174455.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:12B1ABD0EDCE3A47AF2FEE1C39DF2E12448AF660
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174484.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174484.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:9E136E1A185B9328AB2A0931D19D1FBFA6F22242
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174507.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174507.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:1291B2725350A7F248512AB01542D24458673C31
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174513.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174513.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:6055643D45CC1AB324FF8C701F53F11F9EB80FAA
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174519.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174519.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:A5E6BED901D1DCC6C1A777198C09CFAA1DD7C863
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174527.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174527.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:8CF12E4E27A00C76E0EE829C045E4206B3E4A4F8
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174531.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174531.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E270BC26690F9A3F580857EC80F2040014FE2BC8
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174538.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:672133E07489DA6EB2A299B9D1A37E5987E8481C
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174544.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:5C72422B4E78A6592E60F394D752CB1E2AAB873E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174630.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174630.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:1E0D7BC594A453340D8A549ADEED9CD406DAD94F
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175078.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:0F7AA133CD342A7F14F3C83DB12FC08F3C2ABD86
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175091.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ WRC: ACI Rally Monza, 03-06.12.2020 [A21 Network Russian Motorsport Television]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175134.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175134.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:C73DC28405C57F7936B27C141349920C956E7058
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175173.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175173.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:D53EEF06D8CE00B8AE338E975C0CEC6E07190504
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175186.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175186.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:AD68EB26BF98FB9CB710D8BB334B1B388F71826B
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175196.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175196.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:17925230F2F71C89275C95E9CE37474044DF46B0
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175216.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175216.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:E473B02AEC888287D3817F693E310A8EADD85688
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175221.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175221.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:8793F3B503A1BACADE10846516ED83D6EC9FDE3F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175237.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175237.jpg" />
 </div>
 
 
@@ -580,6 +580,33 @@ magnet:?xt=urn:btih:31CB64D8A9E3E1BA2C72899CB980224DE6210CF5
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429921   (175240) от 08.12.2020
+
+Биатлон. Кубок Мира 2020-2021. Этап 2. Контиолахти (Финляндия). Женщины. Эстафета 4 x 6 км (2020) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_175240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+05 декабря 2020, суббота. 17:15 МСК
+Этап 2. Контиолахти (Финляндия)
+Женщины. Эстафета 4 x 6 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4E643A3CA013A2170455A7878A41E638DBBB72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429988   (175245) от 08.12.2020
 
 Биатлон. Кубок Мира 2020-2021. Этап 2. Контиолахти (Финляндия). Женщины. Гонка преследования 10 км (2020) WEB-DL [H.264/1080p-LQ]
@@ -588,7 +615,7 @@ magnet:?xt=urn:btih:31CB64D8A9E3E1BA2C72899CB980224DE6210CF5
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175245.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175245.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ magnet:?xt=urn:btih:82FD2D436D9162AE6E229481FDAEB21932A1B1CD
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175248.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175248.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ magnet:?xt=urn:btih:720C3A90843F620C5E186BE96F1281728F7FE824
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175256.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175256.jpg" />
 </div>
 
 
@@ -656,33 +683,6 @@ magnet:?xt=urn:btih:720C3A90843F620C5E186BE96F1281728F7FE824
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451CB055FE9C841749B800B4270B0AD5A8557FED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429973   (175278) от 08.12.2020
-
-Биатлон. Кубок Мира 2020-2021. Этап 2. Контиолахти (Финляндия). Мужчины. Эстафета 4 x 7,5 км (2020) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок мира по биатлону 2020-2021
-06 декабря 2020, воскресенье. 14:45 МСК
-Этап 2. Контиолахти (Финляндия)
-Мужчины. Эстафета 4 x 7,5 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFAADD5E9F5E7B5177DCAC8E87FC8E6FEF5814D
 ```
 
 

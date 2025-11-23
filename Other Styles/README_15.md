@@ -6,7 +6,7 @@ Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148968.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heilung - Drif (2022) [FLAC|Lossless|Web-DL|tracks] <Neofolk, Dark Folk, Experim
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149097.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rammstein - Klavier (2015) Piano Version [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149998.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150010.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150063.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150433.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150463.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151589.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Ved
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151762.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152101.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:22EB4DDFA9F340A28727F5C148A376CFA0249AD1
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152114.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ O. D. Davey - Some Waking Woman (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152123.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152233.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:1A51471FB6A3264CD8454FD045287AA35AB18F41
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152362.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dario Marianelli - Kubo and the Two Strings / Кубо. Легенда о сам
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152861.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Kenio Fuke - Spirit Of Nature (2012) [FLAC|image + .cue|WEB-DL] <New Age, Piano,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153264.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Gilead - Medieval Groove (2017) [FLAC|Lossless|image + .cue] <Medieval folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153877.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Paul Haslinger - Resident Evil: The Final Chapter / Обитель зла: По�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153878.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:56D9DB4A6F6CB3133C5437B1EC467CD562C5826F
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154009.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:1861A5EE1639532D5823C1E30AC0F49EF05A3FA1
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154031.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:57A0183D8E3EEC5C3B5376C49FBB78F1574B61B2
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154081.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Pistol Annies - Hell on Heels (2011) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154104.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kari Arnett - Midwestern Skyline (2015) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154176.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154211.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossle
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154231.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154584.jpg" />
 </div>
 
 

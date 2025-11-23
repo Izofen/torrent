@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33737.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE2081DEF84974EE106686D62D43BABB23EB8D38
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D1D0A8A590642AFDAE6A8C5E44C3E05C58E73D61
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33739.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Morcheeba - Collection (23 CDs) (1996-2010) [MP3|137-320 kbps]<Trip-Hop, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33740.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3ADE2EE321D3D128AE2D6D65764848D8EB4C3066
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33741.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5D0677517198F3D03D3C9334706A80AEEB81F125
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33742.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PotPlayer 241216 (1.7.22398) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33743.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ State of Decay 2 (2020) [Ru/Multi] (38.2/dlc) Repack Pioneer [Juggernaut Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33744.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A0CFED0B8A2B84BE52120ACC98D3C004C1DC0628
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33745.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:DF637276C2BF68AE40B9BD8548BB59A351D72D55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33746.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hitoribocchi no Isekai Kouryaku | Нападение одиночки на ин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33747.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:148F3C13E1EFB7996C46C8DBEA8A75D0A8815F6E
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33748.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:EF2435727EDA96BB5D96CF59FE6B4E1EBF0C83E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33749.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Merry Swingmas (Electro Swing Christmas) (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33750.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:19A84DF2B49C86748A981232AF104D02E1933973
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33751.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:FA22ED12A9AE79C7F3F2499365B506C2BEC0E93F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33752.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Linea: An Innerlight Game 1.4.15 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33753.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:7D74228F3CA9BBC8EB500E01D8975556583CDAFF
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33754.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Black Hole Recordings - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33755.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:0A7875A6D164874358FEBA1B8455E2E98DD40F9D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33756.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:B3C6F6DD28E397DA8D7B73E99B3F1D6D6A0EAD98
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33757.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Canblaster - Liberosis (Director'S Cut) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33758.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Funk & Soul For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33759.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:2DA74C9A4BF3FE8B27AF8F7A8D94496C03556FE1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33760.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:8E61727405D9023C93F389509A84EF319E928C71
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33761.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:4CAFB336B591D5B6CF0B6D55DBACF48672772FA8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33762.jpg" />
 </div>
 
 

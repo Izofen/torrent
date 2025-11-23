@@ -1,3 +1,82 @@
+###  Публикация: 1708170   (113178) от 19.03.2024
+
+Генри Слизар и др. | Единственная возможность (2022) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113178.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Милт Кловиц не был маменькиным сынком, но кроме работы в рекламной конторе и книг фантастического жанра ничем не интересовался. Несколько раз он встречался с Наоми Уинклер, машинисткой из офиса, но дальше пары поцелуев дело не пошло.
+Но, однажды вернувшись домой, Милт обнаружил в своей квартире зеленого человечка.." (с)Жанр: Фантастика, ЮморИздательство: Аудиокнига своими рукамиПродолжительность: 00:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3FF35003B82E9EF3E76FFB912671AC8FE5C96C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708005   (113179) от 19.03.2024
+
+Craig Erickson - 12 Albums (1992 - 2015) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский блюз-роковый гитарист, добавляющий в свою музыку изрядную долю фанка и тяжелый гитарный фьюжн с характерным влиянием 70-х годов. Craig Erickson родился в американской глубинке в небольшом городке штата Айова. В детстве его окружали звуки джаза и классической музыки, поскольку отец Erickson, сам поклонник этих направлений, держал своего сына на музыкальной (   Читать дальше...   )Список альбомов:
+1992 - Roadhouse Stomp!
+1994 - Retro Blues Express
+1995 - Two Sides Of The BluesЖанр: Blues RockПродолжительность: 11:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0193A46BB480A6CDBD0FBC49F2ADC9B1DA8BFC79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707641   (113180) от 19.03.2024
+
+Ganymed - Dimension No.3 (1980) [FLAC 24/96|Lossless|tracks] <Pop, Electronic, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113180.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1-Bring Your Love To Me
+A2-I Want You
+A3-One Day Fool
+A4-Life Can Be Some Better(   Читать дальше...   )Жанр: Pop, Electronic, DiscoПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708173   (113181) от 19.03.2024
 
 Гнилой Район - Мы с вами на века (2023) [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +85,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113181.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ DiskCatalogMaker 9.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113182.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:45FEE49A0F877D5FD739C625960A7E837338642F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113183.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ magnet:?xt=urn:btih:49E9EBCEB4D4A64833AD73429976DD3369389460
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113184.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113185.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ magnet:?xt=urn:btih:75090211A0F7566C92B566FC3D3FB67DB392F90D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113186.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ DesktopOK 11.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113187.jpg" />
 </div>
 
 
@@ -186,7 +265,7 @@ VA - Feel Good Classic Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113188.jpg" />
 </div>
 
 
@@ -213,7 +292,7 @@ Strava: бег, велоезда, хайкинг v351.15 Mod by ReVanced Team [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113189.jpg" />
 </div>
 
 
@@ -237,7 +316,7 @@ VA - От мелодии к мелодии (5 серия) - Концерт ит�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113190.jpg" />
 </div>
 
 
@@ -264,7 +343,7 @@ VA - Эстрадная орбита (1974) [FLAC 24/192|Lossless|tracks] <Retro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113191.jpg" />
 </div>
 
 
@@ -291,7 +370,7 @@ magnet:?xt=urn:btih:A39791309F904E0D8D047E95DAFCD43EF6E69010
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113192.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113193.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113194.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ Room Arranger 9 fo Mac 9.8.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113195.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ Subtitle Edit 4.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113196.jpg" />
 </div>
 
 
@@ -420,7 +499,7 @@ magnet:?xt=urn:btih:4A0D640CADE5911380636A85A5B5C0067B3A0DD9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113197.jpg" />
 </div>
 
 
@@ -444,7 +523,7 @@ magnet:?xt=urn:btih:769C8BF42AA54D2EA30DED2EFC548DB09BBDD35A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113198.jpg" />
 </div>
 
 
@@ -468,7 +547,7 @@ magnet:?xt=urn:btih:CCA6E47BDAF3884FD32A862B5CDABCD016CEF9D8
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113199.jpg" />
 </div>
 
 
@@ -492,7 +571,7 @@ magnet:?xt=urn:btih:37F7363EB42096BEFFF4C2E5A3ADF2D147D550CD
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113200.jpg" />
 </div>
 
 
@@ -516,7 +595,7 @@ magnet:?xt=urn:btih:D46D3B61AB26FCDB10DFE933D39B8CBA259EAA19
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113201.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ magnet:?xt=urn:btih:89988F66EF98BB99BDA2B88EF69A0B134845678F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113202.jpg" />
 </div>
 
 
@@ -565,7 +644,7 @@ magnet:?xt=urn:btih:3EC7E97623DB9A57EFEAD922637038485E56DDED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113203.jpg" />
 </div>
 
 
@@ -576,81 +655,6 @@ magnet:?xt=urn:btih:3EC7E97623DB9A57EFEAD922637038485E56DDED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3F986E75A1993B324AD9A3D3A638918C8ABA4F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708158   (113204) от 19.03.2024
-
-Реинкарнация / Rinne / Reincarnation (2005) DVDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начинающая актриса Нагиса Сугиура получает главную роль в фильме ужасов известного режиссёра. Картина основана на реальных событиях — резне в провинциальном отеле 35-летней давности — и девушке достаётся роль дочери спятившего профессора, который прикончил весь персонал, постояльцев, последними убил собственных детей и после покончил с собой. Во время подготовки (   Читать дальше...   )Производство: Япония / Entertainment Farm (EF), Geneon Entertainment, Mainichi Broadcasting System (MBS), Nikkatsu, Oz Company ,Toho Company, Tokyo Broadcasting System (TBS)Жанр: ужасыРежиссер: Такаси СимидзуАктеры: Юка, Карина, Киппэй Сина, Тэтта Сугимото, Сюн Огури, Марика Мацумото, Мантаро Коити, Ацуси Харута, Мики Сандзё, Мао СасакиПеревод: Дублированный ("Сонотэк")Язык озвучки: русский, японскийСубтитры: русскиеПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC641C57B76124056BBD1F4AA84DA291087FAD80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707995   (113205) от 19.03.2024
-
-Неприятности: Дублинская история / The Troubles: A Dublin Story (2022) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113205.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух молодых братьев из рабочего класса, выросших на севере Дублина в 1970-х и начале 80-х годов. Братья далеки от событий, происходящих в Северной Ирландии, но потрясены жестокостью, свидетелями которой они становятся по телевидению и это, в конечном итоге, затягивает молодых героев в неизбежность радикализма, бандитизма, в сложный мир противостояния и лицемерия.Производство: Ирландия / TinyJan ProductionsЖанр: драма, криминалРежиссер: Люк ХэнлонАктеры: Рэймонд Мэлоун, Адам Редмонд, Уэйн Бирн, Уильям Делани, Сара Вулверсон, София Адли, Пол Мерфи, Филлип Расселл, Люк Хэнлон, Пол ФицджералдПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D0DD5B54D6E0A3C70086D2237A8E93C7A43DF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708175   (113206) от 19.03.2024
-
-Depeche Mode - The Singles 81-85 (1985) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming Of Me (3:44)
-02. New Life (3:44)
-03. Just Can't Get Enough (3:37)
-04. See You (3:53)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318C57ADC31B82B717301C704F8B3CE0CC026E78
 ```
 
 

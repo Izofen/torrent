@@ -6,7 +6,7 @@ VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126236.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126239.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cosmic Gate - Best Of 2023 (2023-12-20) [MP3|320 Kbps] <Progressive House, Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126240.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Knight Wolf 1981 - R.A.G.E. (2023) [MP3|320 Kbps] <Darksynth, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126260.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Black Hole Recordings - Best Of 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126435.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Markus Schulz - Global DJ Broadcast Year in Review (2023) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126443.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The best of Tecnomind 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126444.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lane 8 - Winter 2023 Mixtape (2023-12-20) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126453.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Planeta Mix Hits 2024: Winter Edition (2023) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126468.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Blank & Jones - Chilltronica EP 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126472.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Infected Mushroom - Dream Theater REBORN (2023) Single [FLAC|Lossless|WEB-DL|tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126477.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Rencontre Nocturne - Recap 2023 (2023) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126579.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Karminsky Experience Inc. - The Power of Suggestion (2003) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126589.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Armin Van Buuren - A State Of Trance 1152 (Top 50 Of 2023) (2023) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126593.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:80A27FCA1B6DA6BFA1C7DD23D7757978E9778A55
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126599.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Liquicity Winter (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Liquid 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126619.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Armin van Buuren - Feel Again (Remixes) - Extended Versions (2023) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126622.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Dance Mix 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126766.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Silent Place, Vol. 1-3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126769.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Sunday Night Blues, Pt.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126873.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - The Best Of Aerodynamica Music Group 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126899.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Vatican Shadow - Destroy Chemical Weapons (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126905.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - The Best Of Trancemission 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127208.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - The Best Of Full On 140 Records 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127219.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Van Roy Asylum - Т​р​е​в​о​ж​н​ы​е м​ы​с​л​
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127282.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Clubbing 2024 (2023) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127387.jpg" />
 </div>
 
 

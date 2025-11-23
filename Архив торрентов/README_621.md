@@ -6,7 +6,7 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133290.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SamDrivers 23.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133296.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GPU-Z 2.56.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133299.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ W10Privacy 5.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133301.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIMP 5.30 Build 2530 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133313.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ LDPlayer 9.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133320.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ NetPolice Lite 1.9.3.45 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133339.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Topaz Photo AI 2.1.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133348.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Telegram Desktop 4.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133354.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Topaz Photo AI for Mac 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133358.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ The Darkness 2 / II: Limited Edition [Ru/En] (L/1.0/4 DLC) 2012 | 2DVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133359.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ MediaInfo 23.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133362.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ RealPlayer 16.0.0.282 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133369.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133371.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Opera Crypto Browser 105.0.4970.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133377.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Icecream PDF Editor PRO 3.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133379.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Opera One 105.0.4970.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133381.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wondershare PDFelement 10.1.10.2563 + OCR Plugin (x64) Portable by 7997 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133382.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ DigiKam 8.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133383.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Firefox Browser 120.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133386.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Transcend SSD Scope 4.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133391.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Shotcut 23.11.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133393.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Samsung Kies v2.5.1.12123 Multi/Rus
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133396.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ PortableApps.com Platform 27.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133403.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Download Master 5.14.2.1329 Final RePack + Portable by elchupacabra [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133416.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Smart AudioBook Player 10.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133417.jpg" />
 </div>
 
 

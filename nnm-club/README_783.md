@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20684.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:30CD83DD83C8B50130A2D89BA203BD3836582024
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20685.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20685.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:492C3DF91BA402DAB2DD4C7C20AA12881C83F0A3
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20686.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Erasure - Don't Say You Love Me (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20687.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20687.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Baron Rojo - Las Aventuras Del Baron (25 Aniversario) (2006) 2 x CD, Compilation
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20688.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:EF157B06ADEC0C11F37ABA48BE4E551D071F3D3E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20689.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20689.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:ED373EFEDEECFFF6FE90B94F5D2584B3B9E5F855
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20690.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20690.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:CC95D10C2285A837B7027AE3F762A876B1A856B6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20691.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20691.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:DA36DB7AEF26D47F5FE3D5C32A0C4EB83C3313FA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20692.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20692.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:19025DBD53FDE643D87D16B70320B93C392F5EFA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20693.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20693.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Rated Revisited Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20694.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20694.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:983B49B3C8CDB3F74C0097F8F4A9680B6B236F23
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20695.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20695.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Jeff Libman - Feet Off the Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20696.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20696.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Whipstriker - Cry of Extinction (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20697.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20697.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:C69E7C791E78E551B3B4A4C1DCF5CFD33C525CD5
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20698.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20698.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Clark Terry And His Orchestra - Featuring Paul Gonsalves (1959) 2001, Storyville
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20699.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20699.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:E278A50DC0B34CC29BCAB11B2025A38F2A722822
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20700.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20700.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - 80s Hits on Saxophone (2023) [MP3|320 Kbps] <Jazz, Instrumental, Saxophone>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20701.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20701.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sipnetic v1.1.6 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20702.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20702.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:4808EE66422C0D02AB611E529F31374EF201B269
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20703.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20703.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ TikTok Private Plus v39.6.5 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20704.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20704.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:FAE562DB67AE6DDE7CFBF07C7169F4EF2BFF4EA1
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20705.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20705.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E192B07CE07CF702F20D79E432160026B207B60A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20706.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20706.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:46A78891AABD877433DFF9A2734AECE2E8459200
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20707.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20707.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:9218475D60C3CA1BC332EE834002A9DFE1F3AAE7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20708.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20708.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:308571DFBEAE21547482F35D782995D4CBB97DAA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20709.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20709.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1753204   (103843) от 04.10.2024
+
+Exif Pilot 6.25.1 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exif Pilot - EXIF редактор используется для просмотра EXIF, EXIF GPS, IPTC и XMP данных, редактирования, создания EXIF, EXIF GPS и IPTC данных. Импорт/экспорт из/в XML, MS Excel формат, текстовый файл. Exif Pilot поддерживает следующие форматы: JPEG, TIFF, PNG, DNG, NEF, PEF, CRW, JP2 - читает, редактирует и создает метаданные. RAW изображения, включая CR2, MRW, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD770720024F00618D9DBB89DDD6C561308F658
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753200   (103844) от 04.10.2024
+
+Досье «Чёрная канарейка» / Canary Black (2024) TS [H.264/720p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_103844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти похищенного террористами мужа, лучший оперативник ЦРУ Эйвери Грейвс вынуждена поставить на карту все: безупречную репутацию, преданность своему делу, да и саму жизнь. Неожиданно став чужой среди своих, она поднимает связи в преступном мире, чтобы раздобыть секретную информацию, которую требуют похитители. Эйвери теперь может положиться только на свои (   Читать дальше...   )Производство: Великобритания, Anton, MP Film Production, MP ProdukcijaЖанр: боевик, драмаРежиссер: Пьер МорельАктеры: Кейт Бекинсейл, Рэй Стивенсон, Руперт Френд, Саффрон Берроуз, Бен Майлз, Майкл Брэндон, Эмма Гойкович, Андрей Ленарт, Арбен Байрактарай, Масаёси ХанэдаПеревод: Дублированный (Мосфильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:37Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753397   (103845) от 04.10.2024
+
+Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 Kbps] <Blues Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolly Dagger (Mix 2) [04:20]
+02. Night Bird Flying (Alternate Version) [03:54]
+03. Freedom (Alternate Version / August 20, 1970) [03:27]
+04. Midnight Lightning / Beginnings [09:30](   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 03:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C381175BCF66382CA9157A8D0E28A1FE1C24839C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753199   (103846) от 04.10.2024
 
 Оно слушает / AfrAId (2024) WEBRip [DVO] [AD]
@@ -6,7 +81,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103846.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103846.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103847.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:6A5A2455B3857713BBDB278058C481B5D564E414
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103848.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ RJ TextEd 16.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103849.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:D7D0DE68F12913FF2C0AE35EFB5637BB41338AA0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103850.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ KDRR - Деконструкция (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103851.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ magnet:?xt=urn:btih:8A3EBA79ACAD152FBD7CEA5AD513C4FC7CED89A9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103852.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ VA - Armin van Buuren - A State Of Trance 1193 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103853.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ magnet:?xt=urn:btih:0D551302EB73567D35DADC81C52EC1E4ED902A9B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103854.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ King Of The World - Get Up, Get Down & Get With It (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103855.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:D8DF7F4FE68882A0C1E7B014D85271EFC845349C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103856.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ Toby Lee - House On Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103857.jpg" />
 </div>
 
 
@@ -308,7 +383,7 @@ Chick Corea / Miroslav Vitous - Tones for Joan's Bones & Mountain in the Clouds 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103858.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ Jeanie Lambe And The Danny Moss Quartet - The Blue Noise Session (1999) Nagel He
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103859.jpg" />
 </div>
 
 
@@ -362,7 +437,7 @@ magnet:?xt=urn:btih:4C24BBF4A06FA2C8D4C078E46B3CADF2A125963A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103860.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ OneCommander Pro 3.90.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103861.jpg" />
 </div>
 
 
@@ -412,7 +487,7 @@ magnet:?xt=urn:btih:6FD46935DFAE6690288FA884B86444651B6AD3DE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103862.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103863.jpg" />
 </div>
 
 
@@ -461,7 +536,7 @@ Eric Clapton - Meanwhile (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103864.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ Draw.io 24.7.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103865.jpg" />
 </div>
 
 
@@ -512,7 +587,7 @@ magnet:?xt=urn:btih:3909CB18B5F956380F3163D25A2B2455A3B0AB06
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103866.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ XtraTools Professional 24.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103867.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ magnet:?xt=urn:btih:4548AB374E3AE84E63D76072E32D2DC9010182C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103868.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103868.jpg" />
 </div>
 
 
@@ -571,78 +646,6 @@ magnet:?xt=urn:btih:4548AB374E3AE84E63D76072E32D2DC9010182C4
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752870   (103869) от 04.10.2024
-
-Журнал | Главбух №19 (октябрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9908CCF1ED3DC65B1CAF0F99A0E773FA854160D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752859   (103870) от 04.10.2024
-
-Журнал | Наша история №10 (64) (октябрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B615D581FDE2114F91500E5105B07CB9C116110A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752811   (103871) от 04.10.2024
-
-Firefox Browser ESR 128.3.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E496BA9551438B71E1F1225B8734D15EFF9D6EA
 ```
 
 

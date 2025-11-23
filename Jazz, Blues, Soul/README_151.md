@@ -6,7 +6,7 @@ Ella Fitzgerald & Joe Pass - Hamburg Duets (1976) 2008, Gambit Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173249.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Oscar Peterson - In London: The Rare Trio Session (1971) 2014, Pacific Delights 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173256.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dave Hole - 11 Albums  (1990 - 2018) 14 CD [FLAC|Lossless|image + .cue|tracks + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173312.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Marilyn Monroe - Film By Film (1953 - 1962) 2CD, 2004, Nocturne [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173374.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Carolyn Wonderland - Truth Is (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173421.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Buddy DeFranco (De Franco) And The All-Stars - Wholly Cats (1957) 2016, Universa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173471.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Barb Jungr - Hard Rain (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Singer-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173718.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173718.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Karen Souza - Suddenly Lovers (2023) Japan [FLAC|Lossless|image + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173756.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Matt O'Ree Band - 3 альбома (2013-2019) [MP3|320 Kbps] <Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173763.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173763.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Edie Daponte - Young At Heart (2015) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173878.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173878.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Gene Krupa - Dejavu Retro: Gold Collection (1928-1963) 2CD /2002, Recording Arts
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173885.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173885.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173920.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sammy Davis, Jr. - Starring Sammy Davis, Jr. (1955) 2007, Collectors' Choice Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173957.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173957.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Electro Swing Bass Party (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173980.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173980.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Electro Swing Disco of the Alps (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174004.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174004.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Fay Claassen, David Linx, WDR Big Band Cologne - And Still We Sing (2021) Jazzli
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174017.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174017.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Yassine Karoui - Dog's Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174032.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174032.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Country Breakup Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues/Country/F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174061.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174061.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Martin Stephenson & John Perry - New Wave Connection (2022) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174072.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174072.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Eric Johanson - Live at DBA: New Orleans Bootleg (2022) 2CD [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174078.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174078.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Manzanita Blues - Cobalt (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174083.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174083.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Jon Balke & Siwan - Hafla (2022) [FLAC|Lossless|tracks + .cue] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174092.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174092.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Lee Shot William - Southern Soul Icon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174101.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174101.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Carmela Blues Trio - Blend (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Gospel>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174108.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174108.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Quinn Golden - Southern Soul Icon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174112.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174112.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Elli de Mon - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174122.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174122.jpg" />
 </div>
 
 

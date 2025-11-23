@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8706.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8707.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ iTubeGo YouTube Downloader 10.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8708.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4098C53CD51A5C78C75B56D12B7D35EE44D27D5A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8709.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Zettlr 3.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8710.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:65A4D101FA2099C26EA0DCD2826B167406AD71B9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8711.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6B1082BDC3119AF186F3E5F628FFB68BD109DE96
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8712.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Atlantis Word Processor 4.4.6.3 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8713.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:33D408A981D98C89E0251B3658547C98F4817FC4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8714.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:FFC0B90A8483F1963B399D8D5B310AE1EC8E6AEF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8715.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Room Arranger 10.1.0.716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8716.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:453353219C38FCFBAEA579500DFB06120BEFC6DF
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8717.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ RAILGRADE (2023) [Ru/Multi] (7.3.63.1) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8718.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:6A7FA09C2A751E7D9BDB69B7AE56E79B9906BA44
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8719.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8720.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8722.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:929DF32EEA4FE461A1A0E89C8820E7A1F4010BD0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8723.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:C8D43BE6865658376E44EB5F89DA9413186A231E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8724.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:C8D43BE6865658376E44EB5F89DA9413186A231E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8725.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The RPG (2025) [Ru/Multi] (1.001/1.004) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8726.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D385299A0C85B843C23AAB58962B20D923B22D8D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8727.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8728.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:5A9C17E7EBB7A29444D7502CD8A5E2EA836D4EF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8729.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:5FDB547D126F494AAAC3EC1F767CEF32A9A644B0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8730.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:5FDB547D126F494AAAC3EC1F767CEF32A9A644B0
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8731.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:A6365E412A93F6FB13EEE542F4A710A313FC8845
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8732.jpg" />
 </div>
 
 

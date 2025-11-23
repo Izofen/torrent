@@ -1,3 +1,75 @@
+###  Публикация: 1704853   (114062) от 06.03.2024
+
+Мистер Блейк к вашим услугам / Completement crame / Mr. Blake at Your Service! (2023) WEB-DL [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чопорный английский джентльмен приезжает погостить во французский замок, где он некогда встретил свою первую любовь. С тех пор имение опустело, прислуга разбежалась, а гостя принимают за долгожданного дворецкого. Чтобы вернуть замку и его прекрасной хозяйке былое величие, в распоряжении Мистера Блейка есть видавшее виды оборудование, (   Читать дальше...   )Производство: Франция, Люксембург / Bidibul Productions, SuperprodЖанр: драма, мелодрама, комедияРежиссер: Жиль ЛегардиньеАктеры: Джон Малкович, Эмили Декенн, Фанни Ардан, Филипп Бас, Евгения Анселен, Аль Гинтер, Кристел Хенон, Anne Brionne, Дэниэл КовачПеревод: Дублированный (Пифагор)Язык озвучки: Русский, ФранцузскийСубтитры: РусскиеПродолжительность: 01:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22DA63D23FC3FB98FED90786A35EBB5FC51E73D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704986   (114063) от 06.03.2024
+
+Роман Прокофьев | Звездная Кровь (Книга 5). Вечность (2024) [MP3, Олег Кейнз, Алиса Тверская]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астроинженерную штуку, что построена вокруг черной дыры, местные называют Небесный Трон. А внутри него находится Вечность. Это вроде как загробный мир, в который после смерти уходят избранные Восходящие, чтобы обрести бессмертие. Но, в отличии от земного, он абсолютно реален, и оттуда иногда снисходят гости, называющие себя эмиссарами Вечности. Гости? Или хозяева? (   Читать дальше...   )Жанр: Боевая фантастика, киберпанк, литРПГИздательство: ИП Роман ПрокофьевПродолжительность: 09:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B729C4E571FDE8A31A610333FBE88BF138132E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705005   (114064) от 06.03.2024
+
+Семья чёрной мафии / Black Mafia Family (2024) WEB-DL [H.264/1080p] (сезон 3, серии 1 из 10) Jaskier (обновляемая)
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114064.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух братьев, создавших одну из самых знаменитых преступных группировок в истории.Производство: США / Emmett/Furla Oasis Films, G Unit, G-Unit Film & TelevisionЖанр: биография, криминал, драмаРежиссер: Солван Наим, Таша Смит, Тимоти А. БертонАктеры: Деметриус «Младший Мич» Фленори, Да’Винчи, Тишон Фриман, Миколь Уайт, Расселл Хорнсби, Стив Харрис, Майлс Труитт, Эрик Кофи-Абрефа, Лайла ПрюиттПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74547EC4E2E31D7E2C6D360A805D5277B5BD93E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704868   (114065) от 06.03.2024
 
 Nik Collection by DxO 6.9.0 [Multi/Ru]
@@ -6,7 +78,7 @@ Nik Collection by DxO 6.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114065.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114066.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:33CD11B50AACB4293DE60BDD8F1A6D228A9490D2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114067.jpg" />
 </div>
 
 
@@ -83,7 +155,7 @@ magnet:?xt=urn:btih:7118D1EE63A2A084ECE641274030305C2BB3E3C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114068.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:7118D1EE63A2A084ECE641274030305C2BB3E3C6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114069.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ ReffPassGen 1.0 + Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114070.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:6AA1749A38BEAE29093DA4B6CC3AFFDD82A1F8CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114071.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:E7DE50AFFF40706E14E814DF61242DF42881CF38
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114072.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:998B365578B0FF16E09568B76C8780C0C0058F82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114073.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:4490D5E33B769374A1CADE409DBCD044CF58ECB1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114074.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:A60BC880DCF842D4353CD6E196F645CAE5BAA6E3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114075.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:A31633D37162434923513D6465D1569BFB3008A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114076.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ Foxit PDF Reader 2024.1.0.23997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114077.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ Paint.NET 5.0.13 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114078.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:8C68E33A83B645D35F5248491F409C8F728AD4CF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114079.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:8C68E33A83B645D35F5248491F409C8F728AD4CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114080.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:86E18B28311DB0DD2D428238EEA031557AF96BB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114081.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ CleanMyMac X 4.15.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114082.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:9024F535F22F055F1C491EDEEE7996912A26812A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114083.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114084.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:7E1887130D841F66631996EDC775E2EDD1B15B39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114085.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ magnet:?xt=urn:btih:D138181EEC0EDD35AB140A0AEDEE2F203E9B20E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114086.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:E12E46E903DBE9BA92519085DAB53A9ABFE58489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114087.jpg" />
 </div>
 
 
@@ -553,78 +625,6 @@ magnet:?xt=urn:btih:E12E46E903DBE9BA92519085DAB53A9ABFE58489
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A58B8AEFBE52F61CDB480D71CDEAC07CF292D48A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480232   (114088) от 06.03.2024
-
-Сайлент Хилл / Silent Hill (2006) WEB-DLRip [H.264/1080p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая мать, отчаявшись найти лекарство от таинственного заболевания своей дочери Шэрон, отказывается отдать ее в психиатрическую лечебницу. Вместе с Шэрон она отправляется в Сайлент Хилл, город, название которого ее дочь постоянно твердит во сне. Но когда они подъезжают к заброшенному городу, на дороге появляется таинственная фигура, Роуз резко тормозит, и машина (   Читать дальше...   )Производство: Канада, Франция, Япония, США / Metropolitan Filmexport, Davis-Films, Silent Hill DCP Inc., KonamiЖанр: Ужасы, Детектив, ПриключенияРежиссер: Кристоф ГансАктеры: Рада Митчелл, Джоделль Ферланд, Лори Холден, Шон Бин, Дебора Кара Ангер, Ким Коутс, Таня Аллен, Элис Крайдж, Коллин Уильямс, Рон ГэбриелПеревод: Дублированный (R5)Субтитры: Русские, английскиеПродолжительность: 02:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747624C51973969FC868E2A1512C9C5890D20E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703970   (114089) от 06.03.2024
-
-Cent Browser 5.1.1130.26 Beta + Portable [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6ACC7F1E1932312BC8426642D381932EA0C7FE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704969   (114090) от 06.03.2024
-
-Призрачный воин / The Phantom Warrior (2024) WEBRip [H.264/1080p] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114090.jpg" />
-</div>
-
-
-###  Подробнее
-
-История происхождения женщины-линчевателя Немезиды Найт. Немезида одета во все черное, на ней маска Диониса от бога подземного мира Аида. Ее гладкие и красивые вьющиеся светлые волосы развеваются на ветру, когда она скачет на своем черном коне по имени Зевс. Вооруженная верным дробовиком и пистолетом, привязанным к ноге, Немезида Найт яростно сражается с самыми презренными (   Читать дальше...   )Производство: Великобритания / Saints and SavagesЖанр: Фантастика, фэнтези, приключенияРежиссер: Саввас Д. МайклАктеры: Дин Кейн, Стивен Беркофф, Дженни Миллер, Чарли Роуз, Джин Андерсон, Уэс Блэквуд, Адам Дикон, Марк Смит, Элайджа Роуэн, Джош БёрдеттПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:21:28Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAB1014B4CBF0B61128AE07C103A8EF694B62E9
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97086.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA - Bravo Hits Wiosna (2CD) (2012) [MP3|192 kbps]<Dance | Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97087.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - TMP : Trance Harmony 063 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97092.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Alchemix - The Visions Begin (2012) [MP3|~248 кб/с (V0)]<Psychedelic / Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97095.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:765E1DD0599D0232BD12D6F06C204F443F47F8A9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97096.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Новые Райские Хиты. Зарубежный (2012) [MP3|256 к
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97097.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Nope is Dope vol.12 2CD (2012) [MP3|~256 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97098.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Звездная Вечеринка. Зарубежные Новинки (2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97099.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Kaspersky World 1.3.2.99 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97100.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97100.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kaspersky World – это комплексное решение для рабо
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97102.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:0C22393C5DFC35DB6B7768342036B2884D5D4889
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97104.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7C29AC0F2FEEEAA082CCEA9CF9857391FC8AA286
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97105.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97105.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7C29AC0F2FEEEAA082CCEA9CF9857391FC8AA286
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97107.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:42FA96D432FF120FD860C2F22BC72D8F42079A30
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97108.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:856AA87BD01E3096FB520405C9C4813406234E82
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97117.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:F57A18B11841BF0B9365B94B5D9583F7E48E9713
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97120.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Simone Kopmajer - Nothing's Gonna Change (2011) [MP3|~225 кб/с (V1)]<Vocal Ja
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97121.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:07F57FFBF0B50F24893A771C3BA98DD10523A615
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97123.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:E1930909EF22AC5B3E250DAD38AE1B26A5DAFB91
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97124.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97124.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Absenth - Green Devil v2.0 EP (2012) WEB [FLAC|Lossless]<Industrial metal, Cyber
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97126.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97126.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Absenth - Green Devil v2.0 EP (2012) WEB [FLAC|Lossless]<Industrial metal, Cyber
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97131.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:D99316786BB89AE69991BE34AE7AF92777AEEF0D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97136.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989) [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97137.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97137.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - TOP 30 Клубные РУССКИЕ Новинки (17.03.2012) [MP3|128-3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97138.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ magnet:?xt=urn:btih:A82975586F62B749EB433A8D14891ABBCA0DD6D0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97140.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ magnet:?xt=urn:btih:87EE6E05322C72E0B5CA21F313C9CACD9BF434FC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97144.jpg" />
 </div>
 
 

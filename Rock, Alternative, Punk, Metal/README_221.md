@@ -6,7 +6,7 @@ Alex Harvey - The Last Of The Teenage Idols (2016) 14 CD Box Set, Limited Editio
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139344.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Clepsydra - The Gap (2019) 2xCD, Remastered, 2021, Oskar [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139503.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Destruction - Born To Thrash: Live In Germany (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139573.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Glass Hammer - Chronomonaut (2018) [FLAC|Lossless|tracks + .cue] <Symphonic Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139610.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Chrome Division - One Last Ride (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139624.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ George Lynch & Jeff Pilson - Heavy Hitters (2020) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139627.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Christian Tolle Project - Point Blank (2018) [FLAC|Lossless|tracks + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139636.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ The Marcus King Band - Carolina Confessions (2018) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139643.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ John Hackett & Nick Fletcher - Beyond the Stars (2018) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139655.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Riot Horse - Cold Hearted Woman (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139664.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Bonnie Tyler - The RCA Years (2019) Compilation, 4CD,  Reissue, Remastered [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139671.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:AC3AAD5DD6D5EBBD6E91B38AC3DEB00976235AEB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139672.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Forces United - Andy Vortex (2018) [MP3|320 Kbps] <Heavy metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139683.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Crucial Fix - Crucial Fix (2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139746.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ The Air of Hiroshima - Желчь (2020) [MP3|320 Kbps] <Post Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139765.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139783.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ The Noble Manes - Hysteria Of Being (2020) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139802.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:D63EF88FCF028CC6DD28BBC2D6BB482CE5E4BBC6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139848.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Slade - Merry Xmas Everybody (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139852.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Soulburn - Noa's D'ark (2020) Limited Edition [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139877.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Gary Moore - Blues And Beyond (2017) 4CD Box-Set Limited Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140040.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Thronehammer - Kingslayer (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140068.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ In Tormentata Quiete - 4 Albums (2005-2017) [FLAC|Lossless|image + .cue] <Folk R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140096.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Sebastian Bach - Give 'Em Hell (2014) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140097.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Grand Magus - Sword Songs (2016) Japan [WavPack|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140106.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:0EAD917E7C5739616794D6480A419E7D19B1ABA8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140128.jpg" />
 </div>
 
 

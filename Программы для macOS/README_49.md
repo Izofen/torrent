@@ -6,7 +6,7 @@ ABBYY FineReader PDF for Mac 15.2.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174964.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Gemini 2: The Duplicate Finder 2.9.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175029.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ PortsMonitor 1.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175316.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175316.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Pro Microphone: Audio Recorder 1.5.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175356.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Typora for Mac 1.7.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175370.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Audio Editor - Merge Split And Edit 1.6.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175373.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Viper FTP 6.3.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175382.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Screens 4 v.4.12.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175418.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ GraphicConverter for Mac 12.0.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175461.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Elmedia Player Pro 7.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175698.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175698.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176028.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176028.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Monodraw 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176034.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176034.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Aseprite 1.2.25 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176241.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176241.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Luminar Neo 1.5.1 ARM [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176615.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176615.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Tower Pro 9 v.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176654.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176654.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ AirMail Pro 5 v.5.5.81 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176672.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176672.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Image Exif Editor 5.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177302.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177302.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Text Workflow 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177424.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177424.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Dropshare 5.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177426.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177426.jpg" />
 </div>
 
 
@@ -469,172 +469,174 @@ magnet:?xt=urn:btih:A791C723241713DCE62F40F8DA4B9ED8F475C324
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666188   (180015) от 03.10.2023
+###  Публикация: 1429236   (177747) от 05.12.2020
 
-Alpha Blender PRO for Mac 1.1.1 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое и простое приложение для вырезания фигур или фона из изображений. Полученные изображения можно использовать для веб-дизайна, создания коллажей и т.д.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2022Разработчик: © 2023 Pavel KosykhПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56534C32565F7D6BB31CFF58E95DBD65B789D618
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592738   (182175) от 24.11.2022
-
-PyCharm Community Edition 2022.2.4 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182175.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyCharm – это самая интеллектуальная Python IDE с полным набором средств для эффективной разработки на языке Python. PyCharm выполняет инспекцию кода на лету, автодополнение, в том числе основываясь на информации, полученной во время исполнения кода, навигацию по коду, обеспечивает множество рефакторингов.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2022Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABA12FBDB6C3A85A8DB2242092ABA53BBEC986F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592491   (182236) от 24.11.2022
-
-KeyKey v.2.9.5 [Multi/Ru]
+Faronics Power Save Enterprise for Mac 3.70.2200.0455 [Multi]
 
 >>Программы для macOS
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182236.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_177747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Научитесь печатать максимально быстро, без ошибок и не глядя на клавиатуру
-
-Слепая десятипальцевая печать — штука полезная. Даже если вы пишете только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
-Чтобы научится слепому набору не нужны учителя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2022Разработчик: Sergiy Vynnychenko & Vlad GorohovskyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и другие
+Программное обеспечение Faronics Power Save предлагает современные механизмы для управления электропитанием рабочих станций. Автоматически завершая работу неиспользуемых компьютеров, Power Save позволяет оптимизировать потребление энергии и снизить расходы на электричество.
+Faronics Power Save управляет энергопотреблением компьютера, абсолютно не мешая работе пользователя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Faronics CorporationПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F27BF24F7A8B1016DD083314B90A07DE49E68732
+magnet:?xt=urn:btih:A74906F5A24EC4DA87CF2E1A53AE6297EBABBE4B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427821   (182401) от 29.11.2020
+###  Публикация: 1428900   (178434) от 04.12.2020
 
-GPG Suite 2020.2 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один простой пакет со всем необходимым, чтобы защитить ваши электронные письма и файлы. Используйте GPG Suite для шифрования, расшифровки, подписания и проверки файлов или сообщений. Управляйте своим GPG Keychain несколькими щелчками мыши и испытайте всю мощь GPG проще, чем когда-либо прежде.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: GPGTools GmbH.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5218420BADA1E86A6BD66C32BB46FBF8EAEE1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592726   (182439) от 24.11.2022
-
-Pixelmator Classic 3.9.11 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2022Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4 и вышеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D66A935DFE35D5797D4430CBC07B6379AFB8F36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427403   (183542) от 28.11.2020
-
-SideNotes 1.2.7 [En]
+Skynet 2020.2.1 [En]
 
 >>Программы для macOS
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183542.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_178434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SideNotes - это боковая панель, которая заполнит заметками одну из сторон экрана вашего Mac. Текст, код или изображения - SideNotes справится со всем, что позволит вам хранить важные данные под рукой. Для удобства переносите заметки в настраиваемые папки, назначайте цвет и добавляйте флажки к задачам. Это общая полка для всего действительно важного.Тип издания: macOS SoftwareРелиз состоялся: 27.11.2020Разработчик: ApptoriumПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+Приложение Skynet создано, чтобы прекратить эти раздражающие объявления! Сохраняйте данные, не загружая рекламу! Это лучший блокировщик рекламы для iOS и macOS. Это очень просто! Просто включите расширение, приложение обо всем позаботится. Работайте в Интернете без перерывов.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Hariharan MurugesanПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1858A4F7BF0D3FEB7F6D0D35CD3A779E0803EF9
+magnet:?xt=urn:btih:053098501E09D20D2220B171F5BD578F09370F68
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422938   (183695) от 27.11.2020
+###  Публикация: 1429021   (178445) от 04.12.2020
 
-JetBrains Full Pack 2020.2.3 - 2020.2.4 [En]
+OverPicture for Safari 1.11 [En]
 
 >>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_178445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект программ от JetBrains для разработки под различные платформы и технологии. В комплект входят версии 2020.2.3-2020.2.4 программ для Mac OS, доступные на сайте производителя (некоторые из них уже получили минорные апдейты до версий 2020.2.2-2020.2.8. Не стал заменять образы в торренте, чтобы не напрягать скачиванием всех тех кто уже скачал, т.к. им проще обновиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.13 или более поздняя версияЯзык интерфейса: Английский
+OverPicture - расширение Safari, которое позволяет воспроизводить любое Web-видео в режиме PIP (Picture-In-Picture) и расположить его в любом месте рабочего стола. Нажмите кнопку воспроизведения/паузы в любом Web-видеоплеере в Safari, затем на панели инструментов PIP, и видео начнет воспроизводиться в режиме Picture-In-Picture поверх ваших окон. Плагин встраивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Pedro Jose PereiraПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84FE9BA1C7BBAF05A065B2028C1C74A9281BC599
+magnet:?xt=urn:btih:B0E79FFD8DFC226CD5C201243D005B4DC83BD32E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428870   (178551) от 04.12.2020
+
+Chronicle Pro 9.7.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вам приходится часто оплачивать счета, то - Chronicle будет незаменимым помощником. Программа дает Вам душевное спокойствие, с ее помощью Вы никогда не пропустите нужный платеж.
+
+Даже если вы используете другие приложение для учета Ваших финансов, Вы оцените помощь Chronicle . Просроченные платежи могут нанести ущерб вашей кредитной истории, что приведет к повышению (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: LittleFin LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5F450F884CE97F610833DA63B4C389A01C35B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428639   (179297) от 03.12.2020
+
+DesiGN for Numbers - Templates 5.0.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Templates for Numbers - коллекция из более чем 400 высококачественных разнообразных и полезных шаблонов для Apple`s Numbers. Используйте шаблоны для Вашего бизнеса или личных целей. Конструкции очень легко редактировать и адаптировать к Вашим требованиями: создавайте таблицы, производите расчеты, рисуйте диаграммы, добавляйте изображения - таким образом, Templates (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230EF312DB41C60A8572E975D3828D9B967528B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428544   (179622) от 02.12.2020
+
+Marvelous Designer 10 Personal 6.0.351.32317 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marvelous Designer позволяет создавать красивую виртуальную 3D-одежду с нашим передовым программным обеспечением для проектирования. Наконец-то вдохните жизнь в свои проекты с помощью инструментов, которые повышают качество и экономят ваше время. От простых рубашек до платьев с замысловатыми складками и грубой униформы.
+Marvelous Designer может виртуально воспроизводить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2020Разработчик: Marvelous DesignerПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B23EE87B49AFCD9AB8A3BBB590C89CF9C55EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428400   (179711) от 02.12.2020
+
+Smart Zipper - RAR&7Zip Tool 1.90 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Zipper представляет собой простую в использовании и эффективную утилиту сжатия и распаковки файлов. Поддерживаются более 20 форматов файлов для распаковки, включая RAR, 7z , ISO, CAB, Zip, StuffIt, Lzma, Tar, Gzip, Bzip2, EXE, PAX и многие другие. Поддерживаемые форматы файлов для сжатия: 7z, ZIP, GZIP, Tar, Bzip2 с 5 различными уровнями сжатия.
+Smart Zipper (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: Yu qipengПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9215DB12E3F7DD73870E9AB42623764B1B2A27
 ```
 
 

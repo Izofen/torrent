@@ -1,3 +1,75 @@
+###  Публикация: 1676460   (157363) от 13.11.2023
+
+K-Lite Codec Pack Update 17.9.4 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157363.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C0F42D3B04616B866A4788110060D64F8F74C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085058   (157370) от 21.12.2016
+
+Глубоководный горизонт / Deepwater Horizon (2016) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженер-электрик Майк Уильямс наслаждается жизнью по утрам со своей красавицей-женой, гоняет маленькую дочку по матчасти бурильных установок и готовится отбывать трудовую вахту на нефтяной платформе "Глубоководный горизонт" в Мексиканском заливе. Он еще не знает, что вместо мирного сна в подсобке его ожидает филиал ада на земле во время самого крупного (   Читать дальше...   )Производство: Гонконг, СШАЖанр: Боевик, Триллер, ДрамаРежиссер: Питер БергАктеры: Дилан О’Брайен, Марк Уолберг, Курт Рассел, Кейт Хадсон, Джон Малкович, Джина Родригез, Итан Сапли, Дуглас М. Гриффин, Сью-Линн Ансари, Брэд ЛелэндПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0386FD165D57965D327C581121A536392FB9F6A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968385   (157373) от 23.12.2015
+
+Время покажет с Петром Толстым (23.12.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157373.jpg" />
+</div>
+
+
+###  Подробнее
+
+В студии программы "Время покажет" обсуждают качество продуктов в российских магазинах. Эксперты пытаются понять, как выбрать вкусные и безопасные продукты для новогоднего стола и кто при этом отвечает за безопасность граждан – государство или производитель. Во второй части программы говорят о международном имидже России, которую западные СМИ часто называют (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7462248EA30282D2E45E716090FCBF7E1B1E8CC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676395   (157377) от 13.11.2023
 
 MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157377.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ CudaText 1.180.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157383.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Money Pro - Personal Finance 2.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157384.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:10603C7ECC3AC9FA696D8EDADCDF8ED51CB67FD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157388.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ MacClean360 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157393.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ AllDup 4.5.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157400.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ JetBrains Rider 2019.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157407.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157411.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Monkey's Audio 10.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157412.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Microsoft Visual Studio 2019 Enterprise 16.3.10 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157416.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:E5A7FB1D8AC6AE3650DAEC8C9489E26833053AAF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157417.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ MediaInfo 17.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157418.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ MacPilot 12 v12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157423.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ MediaHuman Audio Converter 1.9.6.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157431.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1111) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157433.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ magnet:?xt=urn:btih:9272313D47FD7CD30E1DAF9E29819CDD47913968
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157435.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ Ashampoo Burning Studio 21.3.0.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157436.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ FireAlpaca 2.11.11 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157438.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ XYplorer 23.90.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157439.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ Glary Utilities Pro 5.199.0.228 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157443.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Stellarium 0.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157444.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Project Hospital 1.1.17753 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157447.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ Vivaldi 6.4.3160.42 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157451.jpg" />
 </div>
 
 
@@ -555,79 +627,6 @@ Vivaldi 6.4.3160.42 include standalone [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ABF342C179162C461BC2DA51E30EDE3A6584646
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270599   (157454) от 19.12.2018
-
-Opera 57.0.3098.106 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397BDAAD8158CD2ABA9D294E26EE5B750A170274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346818   (157460) от 20.12.2019
-
-Athentech Perfectly Clear WorkBench 3.9.0.1710 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829FA057B6CD6C9AE18EC9C63D9D9445BB79F351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518094   (157472) от 18.12.2021
-
-Media Player Classic Home Cinema (MPC-HC) 1.9.18 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFD96B7DC9F37BEA1EC5067658B95DD02AD49A0
 ```
 
 

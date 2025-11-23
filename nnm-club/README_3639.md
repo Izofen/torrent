@@ -1,3 +1,81 @@
+###  Публикация: 1704137   (114296) от 04.03.2024
+
+Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session with Piano, Violin and Harp (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Peace (4:10)
+02. Inner Happiness (3:52)
+03. True Emotions (4:10)
+04. Heavenly Piano (3:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570001576E29DE793FB5DC5625C02540BFD9CF54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704427   (114297) от 04.03.2024
+
+Бонни Дзякс (Япония) - Квартет "Бонни Дзякс" (1982) [FLAC 24/96|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A
+01 - Море В Чашке Кофе
+02 - Ресторан Для Птиц
+03 - Продаются Золотые Рыбки(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBA5551A2B8AC030160016A0D5A8C5D91AD9066
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704288   (114298) от 04.03.2024
+
+Своя игра (03.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114298.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD84666CC8541E7F9D2E997FC04001EC3E813AAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704178   (114299) от 04.03.2024
 
 AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
@@ -6,7 +84,7 @@ AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114299.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114300.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Odd Chap - Collaborations (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114301.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ StopTheMadness 40.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114302.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ SnapMotion Unlimited for Mac 5.2.1. [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114303.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Van Morrison - The Legendary Bang Sessions (1994) Remaster, 2024, Charly Digital
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114304.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Timo Lassy and Jukka Eskola - Nordic Stew (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114305.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114306.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ WatsGo for Mac 8.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114307.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114308.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ Solitude Aeturnus - Hour of Despair (2024) Deluxe Edition [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114309.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ Sarah L King - Fire Horse (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Voca
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114310.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ Desktop Stickers 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114311.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ Malted Milk - 1975 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114312.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ MetaRename for Mac 1.0.10 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114313.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Syncovery for Mac 10.12.4 ARM/iNTEL [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114314.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Observers - The Age of the Machine Entities (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114315.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114316.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ magnet:?xt=urn:btih:1ECF220750FF2BE1B10594E48D10660F18EDFDD7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114317.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ magnet:?xt=urn:btih:901A31E462661FE357329D0B1C3F6099B72BD981
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114318.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ magnet:?xt=urn:btih:8D38FC996B57B30E7843848619459FBD2B8B1B2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114319.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114320.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Screen Studio for Mac ARM/iNTEL 2.20.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114321.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ Screen Studio for Mac ARM/iNTEL 2.20.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59DB1D2FB387C2B3F146EE43C94CC739920C9C30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704154   (114322) от 04.03.2024
-
-Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dope 'n Roll (4:21)
-02. Day Of The Living Dead (4:07)
-03. Electric Fire (2:48)
-04. Brain Dead (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704346   (114323) от 04.03.2024
-
-Чингиз Абдуллаев | Альтернатива (Книга 1). Альтернатива для грешников (2024) [MP3, Pogorelov FM]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночная операция по задержанию банды преступников. Опасно, но не опаснее любой операции группы особого назначения. Уж такова работа многоопытного полковника и его людей. Однако одна-единственная случайная находка внезапно наводит полковника на след запутанного, необычного преступления. Преступления, раскрыть тайну которого практически невозможно…Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 09:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8F623D6D68EB0DDD17057E93AFB3E4ADC6041C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704495   (114324) от 04.03.2024
-
-VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Happiness (4:18)
-02. Chillaxonic - Iridescent (5:10)
-03. Kool&Klean - My World (5:25)
-04. Chillaxing Jazz Kollektion - Summer Wind (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C347856CC2F91D62409C626BF1BB853CC5528140
 ```
 
 

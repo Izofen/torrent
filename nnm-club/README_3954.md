@@ -1,3 +1,76 @@
+###  Публикация: 1692628   (122486) от 17.01.2024
+
+CCleaner 6.20.10897 Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122486.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35A758A2B27543618445C122F5AB03A703A7013
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690813   (122487) от 17.01.2024
+
+Ресторан по понятиям (2023) WEBRip [H.264/1080p] (сезон 3, серии 1-12 из 12)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122487.jpg" />
+</div>
+
+
+###  Подробнее
+
+История четырех преступников: вора со стажем Шустрого, альфонса-мошенника Кощея, заядлого хулигана-драчуна Кувалды и наивного и тупого похитителя домашних животных Кильки. Все они познакомились в тюрьме и теперь, прежде чем завязать с криминальной жизнью, решаются на финальное грандиозное ограбление, чтобы денег хватило на всю оставшуюся жизнь. Бывшие арестанты арендуют (   Читать дальше...   )Производство: Россия / ООО «К.Б.А.»Жанр: комедия, криминалРежиссер: Давид ДадунашвилиАктеры: Владимир Вдовиченков, Дмитрий Дюжев, Владимир Сычев, Иван Кокорин, Ирина Темичева, Михаил Тарабукин, Виктория Богатырёва, Уиллиам Ламберти, Теона Дольникова, Максим КоноваловПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43DF03EBF5C1311536F8EC1E1B9389B73EF9A35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692014   (122488) от 17.01.2024
+
+Так кто же изобрёл радио: Гульельмо Маркони или Александр Попов?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_122488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попов, возможно, был первым — но он не запатентовал свои изобретения и не пытался их коммерциализироватьВ 1895 году русский физик Александр Попов использовал свой инструмент для исследования гроз для демонстрации передачи радиоволн
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692347   (122489) от 16.01.2024
 
 Hannah Wicklund - The Prize (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Female Vocal>
@@ -6,7 +79,7 @@ Hannah Wicklund - The Prize (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122489.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122490.jpg" />
 </div>
 
 
@@ -58,7 +131,7 @@ MouseBoost pro for Mac 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122491.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ Mildred Bailey - 1938 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122492.jpg" />
 </div>
 
 
@@ -109,7 +182,7 @@ Elegy - Graveflowers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122493.jpg" />
 </div>
 
 
@@ -136,7 +209,7 @@ Lair - The Hidden Shiv (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122494.jpg" />
 </div>
 
 
@@ -163,7 +236,7 @@ magnet:?xt=urn:btih:28509FAFDCC92B057D5BEF6A94B4BF8F7E6E0188
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122495.jpg" />
 </div>
 
 
@@ -187,7 +260,7 @@ Stats 2.9.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122496.jpg" />
 </div>
 
 
@@ -211,7 +284,7 @@ Boxy SVG 4.21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122497.jpg" />
 </div>
 
 
@@ -235,7 +308,7 @@ Keep It 2.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122498.jpg" />
 </div>
 
 
@@ -259,7 +332,7 @@ Bike Outliner for Mac 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122499.jpg" />
 </div>
 
 
@@ -283,7 +356,7 @@ magnet:?xt=urn:btih:D4EDA33A22D7318F330A5478B2E75873EE2850A7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122500.jpg" />
 </div>
 
 
@@ -309,7 +382,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122501.jpg" />
 </div>
 
 
@@ -336,7 +409,7 @@ ForkLift 4 v.4.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122502.jpg" />
 </div>
 
 
@@ -360,7 +433,7 @@ VA - Nu Urban Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122503.jpg" />
 </div>
 
 
@@ -387,7 +460,7 @@ Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2024-01-03) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122504.jpg" />
 </div>
 
 
@@ -414,7 +487,7 @@ Caro Emerald - Live In Glasgow (2015) Remaster, 2024, MVKA/Grandmono Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122505.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ Wondershare UniConverter for Mac 15.0.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122506.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122507.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ Fort Firewall 3.10.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122508.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ magnet:?xt=urn:btih:6C461E05F8CF8F13DBC5A4533479BD7192DBB14F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122509.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ magnet:?xt=urn:btih:D3D1B753ADB4CC3CEFDD094529CFD087711D3BE4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122510.jpg" />
 </div>
 
 
@@ -566,7 +639,7 @@ DxO ViewPoint 4 for Mac v.4.13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122511.jpg" />
 </div>
 
 
@@ -578,84 +651,6 @@ DxO ViewPoint — программное решение, посвященное 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7198C2B73CF66B1C46DC01C1AB15B06CAB44E205
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692374   (122512) от 16.01.2024
-
-To The Max! - Midnight Tea (2024) [MP3|320 Kbps] <Heavy Rock'n'Roll, Garage, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Master [00:03:37]
-02 - Speed [00:03:46]
-03 - No Matter What [00:04:08]
-04 - P.O.V [00:03:59](   Читать дальше...   )Жанр: Heavy Rock'n'Roll, Garage, Stoner, DoomПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1635BECED329FF0F947A8710B15693BD7F3170E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692422   (122513) от 16.01.2024
-
-Журнал | Цветок №1 (475) (январь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5DEFB4385686389B4FB5ACDA5A9AD8FEF49214
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692365   (122514) от 16.01.2024
-
-Александра Анненская | Николай Васильевич Гоголь. Жизнь и творчество (2008) [MP3, Игорь Серебряный]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиобиблиотека школьника.
-Александра Никитична Анненская (1840–1915) – педагог и известная детская писательница XIX – начала XX века, сестра П.Н. Ткачева, супруга Н.Ф. Анненского.
-Издание содержит великолепно написанную, знаменитую работу Александры Анненской «Биографический очерк А.Н. Анненской. Гоголь. Его жизнь и литературная деятельность».
-Произведение (   Читать дальше...   )Жанр: Русская литература, классика, биографический очеркИздательство: ИДДК, БизнессофтПродолжительность: 03:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483008D6E0E96B0C0BA8169064A3C510F68855CE
 ```
 
 

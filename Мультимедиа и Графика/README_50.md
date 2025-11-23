@@ -1,3 +1,77 @@
+###  Публикация: 1558392   (213205) от 20.06.2022
+
+FastStone Photo Resizer Corporate 4.4 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213205.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Photo Resizer - программа для различных манипуляций с графическими файлами. С помощью FastStone Photo Resizer можно конвертировать изображения в распространенные графические форматы (JPEG, BMP, GIF, PNG, TIFF, JPEG2000, PDF), изменять размер и глубину цвета, обрезать, разворачивать под разными углами и переименовывать графику. Кроме того, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D43C7509DB8114592EDA64F1B295415BF451E80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557708   (213314) от 16.06.2022
+
+DxO PureRAW 2.0.2 Build 1 [Multi]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
+
+С программным обеспечением DxO PureRAW легко и просто улучшить файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670BB94E526DB4BC36E1B67CB361BBF71B3584BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557429   (213330) от 15.06.2022
+
+Adobe Substance 3D Stager 1.2.1 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Substance 3D Stager – данный цифровой продукт представляет собой одну из самых передовых и технических усовершенствованных платформ, которая предназначена для разработки трехмерных сцен. Программа способна организовать выполнение профессионального проектирования любой сложности, где на выходе Вы получите очень качественный и детально проработанный результат.Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651E85C5E749394176FF18C2F7B52E71B0D8BBCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557450   (213340) от 15.06.2022
 
 Movavi Picverse 1.9.0 [Multi/Ru]
@@ -6,7 +80,7 @@ Movavi Picverse 1.9.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213340.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213340.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ EximiousSoft Logo Designer 3.90 Standart / 3.75 Pro Repack (& Portable) by elchu
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213405.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213405.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ EximiousSoft Vector Icon 3.75 Repack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213416.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213416.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ EximiousSoft Business Card Designer 5.11 Standart / 3.75 Pro Repack (& Portable)
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213419.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213419.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Adobe Photoshop 2026 27.0.0.25 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213420.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213420.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ Cowon jetAudio 8.1.11.22010 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213445.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213445.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ Adobe Photoshop 2026 27.0.0.25 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213548.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213548.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Capture One 23 Enterprise 16.7.0.3201 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213579.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213579.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ SoftOrbits Photo Retoucher 6.0 [Multi/Ru] (sharewareonsale до 11 декабр�
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214090.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214090.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ dslrBooth Professional 6.42.2011.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214104.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214104.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215102.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_215102.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ Cyberlink ColorDirector Ultra 11.0.2220.0 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215387.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215387.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ Unfiltered Audio - TRIAD 1.0.0 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215531.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215531.jpg" />
 </div>
 
 
@@ -322,7 +396,7 @@ GiliSoft Audio Recorder Pro 8.1.0 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217382.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217382.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ Adobe Photoshop Lightroom Classic 12.0.0.13 RePack by PooShock [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219841.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219841.jpg" />
 </div>
 
 
@@ -371,7 +445,7 @@ Adobe Photoshop 2026 27.0.0.25 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220291.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220291.jpg" />
 </div>
 
 
@@ -395,7 +469,7 @@ Adobe Photoshop Lightroom Classic 2026 15.0.0.17 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220588.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220588.jpg" />
 </div>
 
 
@@ -419,7 +493,7 @@ Adobe Illustrator 2026 30.0.0.123 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220683.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220683.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ Adobe InDesign 2026 21.0.0.192 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220790.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220790.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ Denise Audio - Bad Tape 1.0.1 VST, VST3, AAX (x86/x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221273.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221273.jpg" />
 </div>
 
 
@@ -492,7 +566,7 @@ Corel PaintShop Pro 2023 Ultimate 25.1.0.28 (x64) [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221822.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221822.jpg" />
 </div>
 
 
@@ -516,7 +590,7 @@ Serato - Sample 1.3.0 VSTi (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222152.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222152.jpg" />
 </div>
 
 
@@ -540,7 +614,7 @@ Toontrack - Superior Drummer 3 v3.2.3 STANDALONE, VSTi, VSTi3, x64 Update RePack
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223276.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223276.jpg" />
 </div>
 
 
@@ -551,79 +625,6 @@ Toontrack - Superior Drummer 3 v3.2.3 STANDALONE, VSTi, VSTi3, x64 Update RePack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B1D5604179EB8D0A054AAC69E63C3064A8B90BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585119   (223281) от 20.10.2022
-
-Arturia Augmented GRAND PIANO 1.0.0 STANDALONE, VSTi, VSTi3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Arturia выпустила Augmented GRAND PIANO - виртуальный инструмент высокого качества для использования в производстве звука в кинематографии, а также игр и любой другой среде где требуется качественный звук клавишных.
-Augmented GRAND PIANO обеспечивает множество выразительных, современных и абстрактных фортепианных звуков, прекрасно записанных, объединенных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C01941C946A297D9FE6CDC1938FDAB4971E784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585067   (223326) от 20.10.2022
-
-Aiseesoft 3D Converter 6.5.12 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft 3D Converter - простая в использовании программа, с помощью которой можно быстро и легко конвертировать видео файлы 2D в 3D и наоборот. Присутствует возможность использовать несколько 3D режимов, как например Anaglyph 3D, Side by Side 3D и Top and Bottom 3D. Присутствуют разнообразные предустановленные профили, имеется возможность настройки параметров выходных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7DC494D74D3C569690B5E239337108DA4E9F0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425194   (223946) от 19.11.2020
-
-DDMF - MagicDeathEye 1.1.4 VST, VST3, AAX (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, кто когда-либо имел возможность слушать компрессор MagicDeathEye, были поражены его звуком. Тщательно разработанный г-ном Яном Сефчиком (мастеринг-инженером в Capitol Records), схема этого лампового компрессора свободно основана на Fairchild 660. Это компрессор с переменным усилением, который звучит так же великолепно на вашей мастеринговой шине, как и на ваших (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4970185BB2854D0477A17AECB7CA9FA87F899C20
 ```
 
 

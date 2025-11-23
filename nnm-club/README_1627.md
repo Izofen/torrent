@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42657.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:81F4655592BA4319B2846BB10BDFD7603A1939A2
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42658.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Stellarium 24.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42659.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D4C4D16BF7407B44AE90B4E74302C2FDEBEE8BF8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42660.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:335EEB1ECBC5A3778DA43257919F1A7C03022F9A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42661.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E45BB0F15768FADABE21AB51CA8D8F43C7503A8B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42662.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Starперцы / Last Vegas (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Op
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42663.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:1E15DD32CFD509A3EB24B97A5922C59B70DD18D6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42664.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42665.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2D8107C4950E9A3DC5BE92E2C6652CDB7D387AD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42666.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PreSonus Studio One 7 Professional 7.0.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42667.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:4E74137286DE69C5245654279A4EAC7C1F5EA1D1
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42668.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F043D03616D2415B80F6CB151AAC4024C8C711E8
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42669.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42670.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:8713C20AD3A7E67A6DEB27160B86940BBF2E3B2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42671.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8713C20AD3A7E67A6DEB27160B86940BBF2E3B2F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42672.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E02D898ABA065ED1960F885439D3BAC62021DA38
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42673.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Madougushi Dahlia wa Utsumukanai | Dahlia in Bloom | Maгичecкaя peмecлeн
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42674.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8F61B5A6CBA02F6BBC7A46E6502AF831BF4F03D7
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42675.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:DB3F66D09B9999731E4B5665B8EEB621B2993849
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42676.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4275F396A7077846CA74ADA7FB49AFA27737EABF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42677.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:AF5B66EC78A16F96C2C857CE73C282F76EE51EA2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42678.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42679.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:2649EFBC4745606BD30B66502CEAC13153244719
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42680.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.1 HotFix 3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42681.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:F757FE7802E05BE0D03FD5D3C9C890E7CF74BC01
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42682.jpg" />
 </div>
 
 

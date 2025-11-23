@@ -1,3 +1,174 @@
+###  Публикация: 1516340   (166463) от 10.12.2021
+
+Futuremark 3DMark 2.21.7324 Professional Edition RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166463.jpg" />
+</div>
+
+
+###  Подробнее
+
+3DMark - поможет вам протестировать ваше оборудование для игр. Играете вы на персональном компьютере, ноутбуке или планшете? В 3DMark есть все инструменты для вашей платформы что бы протестировать игровую производительность. 3DMark поможет вам протестировать ваше оборудование в основных популярных базовых и таких разрешениях как 2K и 4K и даже супер экстремальных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CECC4E259A919159425022400CCDB83BFC78B11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431712   (166464) от 14.12.2020
+
+Skylum Luminar AI 1.0.0.7348 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Skylum Software продолжает развивать свой популярный фоторедактор Luminar.  В этот программный продукт была еще сильнее интегрирована система искусственного интеллекта AI, поэтому было принято решение назвать программу LuminarAI. Автоматизируя наиболее распространенные ручные задачи и упрощая постобработку, Luminar AI настроен на революцию в том, как мы используем (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24A79118144E9C994BEDE2B76F28061D1DE65DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673124   (166465) от 31.10.2023
+
+Baring Teeth - The Path Narrows (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Gate (01:05)
+02 - Obsolescence (03:31)
+03 - Culled (04:06)
+04 - Rote Mimesis (04:11)(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3048DC7D63BF68544D5850483A70C5C43D6134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345655   (166466) от 15.12.2019
+
+Шоу профессора Бинокса / Dr. Binocs Shows (2016-2019) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-130 из 130) [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166466.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шоу профессора Бинокса» анимационный познавательный сериал для детей дошкольного и младшего школьного возраста. Причудливый и забавный профессор Бинокс в веселой и доступной форме помогает юному зрителю найти ответы на тысячи его «почему», «как» и «зачем»? Как устроен наш мир и что таится за его пределами, какие бывают погодные явления, известные и малоизвестные (   Читать дальше...   )Производство: ИндияЖанр: Мультсериал, Познавательный, Обучающий, РазвивающийРежиссер: Раджат БарйятяПеревод: Русский / Дублированный (CLS MЕDIA)Субтитры: ОтсутствуютПродолжительность: ~00:04:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B333629A2D932284726E883B9A323DE624AE0578
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597280   (166467) от 14.12.2022
+
+Андрей Ткачев | Сильнейший ученик (Книга 2) (2022) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мной был проделан довольно большой и трудный путь, но вот не факт, что того, через что я прошёл, будет достаточно, чтобы стать тем, кем меня видят мои наставники. Еще слишком много вопросов стоит передо мной. Но сегодня вновь предстоит тренировка в додзё, а значит, ответы я получу позже. Если выживу, разумеется.Жанр: Боевое фэнтези, Бояръ-анимеПродолжительность: 09:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163028366925D59F53595197F97A129FEC8E3F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516284   (166468) от 10.12.2021
+
+Совесть (2021) WEBRip [VP9/2160p] (сезон 1, серии 1-10 из 10)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой радиоведущий, после очередной бурной ночи, обнаруживает в своей ванной девушку, которую раньше никогда не видел. Пышногрудая блондинка сообщает Денису, что она Совесть и будет его мучать, пока тот не исправит все свои ошибки. В это происшествие верит только одна коллега – напарница Дениса по радиоэфирам. Денис благодарен Анне за помощь, но тут он узнает, (   Читать дальше...   )Производство: Россия | "AVK production"Жанр: Комедия, мелодрамаРежиссер: Дарья ПолторацкаяАктеры: Виктория Клинкова, Филипп Горенштейн, Анастасия Волынская, Наталья Коровкина, Данила Чванов, Евгений Кутянин, Евгений Фроленков, Софья Щербакова, Дмитрий КостяевПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119A3988F9C891E1BCCCBC2D5384200BD75BE1C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673185   (166469) от 31.10.2023
+
+4K Tokkit Pro 2.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один простой способ скачать все с TikTok. 4K Tokkit - это идеальное приложение для массовой загрузки контента TikTok. Сохраняйте задачи TikTok, подписи, целые аккаунты, хэштеги и отдельные видео в высоком качестве. Смотрите TikToks офлайн, просматривайте ленту TikTok без рекламы, делайте репосты клипов в другие социальные сети.Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2022 Open Media OOOПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F221F883B766A38328A45D314242C141CCE88CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431528   (166470) от 14.12.2020
 
 Журнал | Maxim [Россия] №10-11 (октябрь-ноябрь 2020) [PDF]
@@ -6,7 +177,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166470.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ AIDA64 Extreme /Engineer / Business 6.85.6300 RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166471.jpg" />
 </div>
 
 
@@ -54,7 +225,7 @@ Zoner Photo Studio X 19.1909.2.198 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166472.jpg" />
 </div>
 
 
@@ -78,7 +249,7 @@ magnet:?xt=urn:btih:D25A933100C4C3A019CF36DF9140A80633566437
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166473.jpg" />
 </div>
 
 
@@ -102,7 +273,7 @@ magnet:?xt=urn:btih:3EDFE06261A95BCDA24BF3B5EEDA15D9E87147D6
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166474.jpg" />
 </div>
 
 
@@ -126,7 +297,7 @@ magnet:?xt=urn:btih:E430960B327FB0EEDDE2856300757275B8E4FA1C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166475.jpg" />
 </div>
 
 
@@ -150,7 +321,7 @@ magnet:?xt=urn:btih:5E89266897DE5AB7870265F5B1AEEE6583DA4FF1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166476.jpg" />
 </div>
 
 
@@ -174,7 +345,7 @@ magnet:?xt=urn:btih:4C50B276AB271434B94E3C4CF3C6417D9CB871FC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166477.jpg" />
 </div>
 
 
@@ -199,7 +370,7 @@ magnet:?xt=urn:btih:A5A7871E74641643118E4161662329058399F286
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166478.jpg" />
 </div>
 
 
@@ -223,7 +394,7 @@ magnet:?xt=urn:btih:01C80671CFFA93B11B0EDE18C206258E8597A634
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166479.jpg" />
 </div>
 
 
@@ -248,7 +419,7 @@ Garden Of Delight - Lutherion II (2006) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166480.jpg" />
 </div>
 
 
@@ -275,7 +446,7 @@ Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166481.jpg" />
 </div>
 
 
@@ -302,7 +473,7 @@ magnet:?xt=urn:btih:BF13796C6C830E75969F2F19F1DB4D2C8156BF29
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166482.jpg" />
 </div>
 
 
@@ -326,7 +497,7 @@ Chain Timer 9.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166483.jpg" />
 </div>
 
 
@@ -350,7 +521,7 @@ magnet:?xt=urn:btih:F2256341F8B0AA6E8B8718F7F85C7B417FB8FE66
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166485.jpg" />
 </div>
 
 
@@ -374,7 +545,7 @@ magnet:?xt=urn:btih:8BF3AE058DB649F992B8BC1E40A6423CC8E4F6A8
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166486.jpg" />
 </div>
 
 
@@ -399,7 +570,7 @@ magnet:?xt=urn:btih:5C42E74D88EBA413A5C7846BEB502355E004E212
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166487.jpg" />
 </div>
 
 
@@ -423,7 +594,7 @@ Swift Publisher 5 v5.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166488.jpg" />
 </div>
 
 
@@ -447,7 +618,7 @@ Microsoft Windows and Office ISO Download Tool 8.45.0.152 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166489.jpg" />
 </div>
 
 
@@ -459,179 +630,6 @@ Windows and Office ISO Downloader - небольшое бесплатное пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEA9FFD5F2466D34293502DE332643B7EB59E972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597354   (166490) от 14.12.2022
-
-Psiphon 3 build 176 (DC 13.12.2022) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры.
-
-Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831C637D41788263523DD4C40C4270C368E28724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516233   (166491) от 10.12.2021
-
-Дорога домой / Back to the Outback (2021) WEB-DL [H.265/1080p] [HDR10, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Животные из тематического парка вырываются на свободу и отправляются на поиски родного дома.Производство: Австралия, США /  Netflix Animation, Reel FX Creative Studios, Weed Road PicturesЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Гарри Криппс, Клер Де ШенюАктеры: Джеки Уивер, Рэйчел Хаус, Айла Фишер, Гай Пирс, Уэйн Найт, Эрик Бана, Дизель Ла Торрака, Тим Минчин, Джиа Каридес, Энгус ИмриПеревод: Дублированный (Пифагор по заказу Netflix)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CD77E5A7E3CC195BB6B81BDC11A6EE82285D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673085   (166492) от 31.10.2023
-
-A.C.T - Today's Report (1999) Special Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandoned World
-02. The Wandering
-03. Waltz With Mother Nature
-04. Why Bother(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED3DB5EB6B40E4D2E0EB039974355A44439C0EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516270   (166493) от 10.12.2021
-
-Падал прошлогодний снег (1983) DVDRip [H.264/720p-LQ] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в одной весьма пластилиновой местности, жил да был орёл-мужчина, которого как-то под новый год послала жена за ёлкой.Производство: СССР / ТО "Экран"Жанр: Мультфильм, Короткометражка, Пластилиновая анимацияРежиссер: Александр ТатарскийАктеры: Станислав Садальский - рассказчик, озвучкаСубтитры: ОтсутствуютПродолжительность: 00:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1F0FD0EDC22DFAACACC1842BA29F7281B97DCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345491   (166494) от 15.12.2019
-
-1979 / 1979 Big Bang of the Present (2019) HDTVRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166494.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1979-м закончилась эпоха Мао в Китае, началась исламская революция в Иране, пришла к власти Маргарет Тэтчер, а папа римский Иоанн Павел II посетил коммунистическую Польшу. Фильм расскажет о том, почему в этот год началась новая эпоха.Производство: Германия, Франция , OutreMer Film, K2 ProductionsЖанр: Документальный, история, исследованияРежиссер: Дирк К. ван ден БергПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047F137DBE076985D2536F4DB4975AA5899C6F40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673050   (166495) от 31.10.2023
-
-Privatus 6.6.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский, Французский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D51D7229F2F27CB991B876C6E20C1483DB1611
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431723   (166496) от 14.12.2020
-
-Пропавшая / Alone (2020) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джессика собирает свои нехитрые пожитки и на автомобиле с прицепом отправляется на новое место жительства. Недавно в её жизни произошла трагедия, от которой она ещё не оправилась, но вскоре грустные мысли придётся отложить, так как женщина становится объектом преследования неприятного незнакомца.Производство: США / Mill House Motion Pictures, Paperclip LimitedЖанр: ТриллерРежиссер: Джон ХайамсАктеры: Джулз Уиллкокс, Марк Менчака, Энтони Хилд, Джонатан Розенталь, Лаура Дуйн, Макс Хаскинс, Шелли Липкин, Бетти МойерПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B695A4E56077E2D58361CFE0C24DA04D19B2A70
 ```
 
 

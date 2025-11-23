@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150509.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8C6A008BAD65FC3BAE9C2742153EA4E8470577A6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150597.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:50C73F52B039812D491FC5ABFB1F6807E9C98469
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150622.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AD1C77C484F368F65B0FD43E8DA98C9CE276C1E8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150660.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:24E307030CF6E273E4CBFD02116F61DBC19222BD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150661.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:832A71A46D89E7706789141AE3A3A8D56392F63A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150662.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4E79F166A9914528CB29A2C7D884F841263B0D30
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150811.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9AEB1264A5A6935A1C4B620DF833857EBAD59553
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150880.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B16ECB0FCAEEE3B623F8AE6A5084A8809F1C6A43
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151032.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F3466A91F7AFC67D8D2F486248048E294C669E4E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151078.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bryan Adams - Video Collection от ALEXnROCK (2018) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151101.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:D83AAF8DF37E33BE7A695E419D4535C50AA7A36A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151343.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:071F3A14B7FF90A2444812802327C39F7EE2CEF4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151364.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:C4A1D6EA84E7098E7DB673B63D8516B0C28D1257
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151413.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:6B7E0E52B98A3E15399880ECA6CAC0F86775D3A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151511.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:299D2475571424999B513C1675EE777A0AF2CF66
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151909.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:8432C569D84A9C0F76403C0F43523B98B47A41A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151924.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:8B37425509500B47B1AD03741A6683B8662BA78B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152136.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7A5BD68D327574B1059C5112A4D81E8F727A943F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152310.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:C4759B781F658B22F5EA7308169F89B3554D2BFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152363.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Belinda Carlisle - Belinda Live! Good Heavens Tour! (1988) DVDRip [hand made 60f
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152378.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9733929FFBEBE59EA7F03A12DF70094E4AD6AC6D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152420.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:3EBB2AA473890F5BF880EBC70139BB005B2EC090
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152511.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:7FCE8870816D0E81759FA61163C8C1220CF38338
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152563.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:DF13CD0593FE9B71918B0B9804D1E1F55C3174C0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152648.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:6917C97F7A911C2B7105016E729DA6F7920F0EA4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152727.jpg" />
 </div>
 
 

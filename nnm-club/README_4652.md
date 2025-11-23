@@ -1,3 +1,153 @@
+###  Публикация: 1502652   (144181) от 26.12.2021
+
+Лучший в мире ассасин, переродился в другом мире аристократом | Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei suru [2021, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Величайший убийца на Земле умел только выполнять заказы своих работодателей, пока они не решили избавиться от него. Однако богиня предложила убийце сделку: он должен устранить сверхсильного героя, из-за которого наступит конец света, если его не остановить. Приняв предложение богини, он переродился в мире мечей и магии в семье потомственных убийц под именем Лью Туата (   Читать дальше...   )Жанр: Приключения, фэнтезиРежиссер: Тамура МасафумиЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E62BDE36F63CE058BF6AF7136375CE0DD1A837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087591   (144182) от 28.12.2016
+
+Картина маслом (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай — честный, принципиальный парень средних лет. Офицер запаса с богатым опытом сложно адаптируется в гражданской жизни, то и дело подрабатывая в охране. Не найдя общего языка с очередным боссом, Николай увольняется с работы, едва заступив на службу. Однако на следующее утро на пороге его дома появляется супруга бывшего работодателя, со странным предложением (   Читать дальше...   )Производство: Россия, США, Арго ФильмЖанр: КомедияРежиссер: Олег Тактаров, Александр МосинАктеры: Николай Кудряшов, Юлия Лонгинова, Том ’Тайни’ Листер мл., Олег Тактаров, Александр Мосин, Александр Баширов, Юлия Гришина, Денис Козлов, Сергей Литвинский, Жуль СанчесПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:22:48Реклама: Есть реклама от спонсора показа.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27EDBDE634ACA2EDC4A760BFF3FABB434D087B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348401   (144183) от 27.12.2019
+
+Джокер / Joker (2019) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада / Warner Bros., Village Roadshow Pictures, DC Entertainment, DC Comics, 22 & Indiana PicturesЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Джоли Чань, Марк Мэрон, Фрэнсис Конрой, Мэри Кейт Малат, Ши Уигхэм, Брайан Коллен, Бретт Каллен, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Forced, full Enigma, full iTunes), английскиеПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED5C6D27FB41508E854F846F848FD960C392A88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678742   (144184) от 22.11.2023
+
+Panda Kingdom - Panda Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal opera, symphonic king-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thy Majestic Procession [00:06:06]
+02. Thy Castle [00:05:11]
+03. Thy Decree [00:04:19]
+04. Thy Bejeweled Crown Of Unspeakable Honor And Might [00:04:47](   Читать дальше...   )Жанр: heavy metal opera, symphonic king-metalПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766E0EBCF79BFD37C3964CB58002EDE7565DF6B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348061   (144185) от 27.12.2019
+
+Затерянные в космосе / Lost in Space (2018) WEB-DL [H.265/2160p] [HDR, 10-bit] (сезон 1, серии 1-10 из 10) [Пифагор]
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144185.jpg" />
+</div>
+
+
+###  Подробнее
+
+2046 год. Космический корабль теряется в космосе и терпит крушение на планете на расстоянии нескольких световых лет от планируемого места назначения. Его обитатели, семья Робинсонов, вынуждены приспособиться и выжить в новых условиях. Джон и Морин Робинсоны не слишком хорошо ладят друг с другом, но отчаянно пытаются не замечать своих проблем ради сохранения хотя (   Читать дальше...   )Производство: США / Applebox Pictures, Clickety-Clack Productions, Legendary Television, Synthesis EntertainmentЖанр: ФантастикаРежиссер: Тим Соутэм, Дебора Чоу, Стивен СерджикАктеры: Мина Сандвол, Молли Паркер, Тоби Стивенс, Паркер Поузи, Макс Дженкинс, Тейлор Расселл, Игнасио Серричио, Амелия Берстин, Раза Джеффри, Аджай Парих-ФризеПеревод: Дублированный (Пифагор)Субтитры: Русские, английскиеПродолжительность: ~ 01:04:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB4BA856541E3A1AD015490A2FB4E3330B5D6E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195104   (144186) от 28.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 26) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Александра Стрельченко  -  Эхо любви  3:39
+02.  Евгений Мартынов  -  Алёнушка  3:29
+03.  Мария Лукач  -  Я шаги твои слышу  2:46
+04.  Нина Бродская  -  С любовью встретиться  3:06(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E4A2D6AF0F7E0057B42BB926CA36DB2C73AA58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435585   (144187) от 28.12.2020
 
 Приют для детей леса / Pas si sauvages (2018) HDTV [H.264/1080i]
@@ -6,7 +156,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144187.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ magnet:?xt=urn:btih:B357592A6FC6BFC53D26708F97025CA167C9DAE3
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144188.jpg" />
 </div>
 
 
@@ -54,7 +204,7 @@ magnet:?xt=urn:btih:88AF44F4DFB192FB7D7A1EA7537A7151C6BE78DA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144189.jpg" />
 </div>
 
 
@@ -78,7 +228,7 @@ magnet:?xt=urn:btih:88AF44F4DFB192FB7D7A1EA7537A7151C6BE78DA
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144190.jpg" />
 </div>
 
 
@@ -102,7 +252,7 @@ Udemy, Dzianis Matveyenka | Java для начинающих. Level 1 (2021) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144192.jpg" />
 </div>
 
 
@@ -129,7 +279,7 @@ magnet:?xt=urn:btih:F8E88C8951EF5845AFC4FA6AB45BE39F571F2712
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144193.jpg" />
 </div>
 
 
@@ -153,7 +303,7 @@ In Flames - The Mirror’s Truth (2008) EP [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144195.jpg" />
 </div>
 
 
@@ -180,7 +330,7 @@ magnet:?xt=urn:btih:AFA1A9311FB20AA90CC8A551B68D2AA99C6A908D
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144197.jpg" />
 </div>
 
 
@@ -204,7 +354,7 @@ magnet:?xt=urn:btih:6AC00747C485C297C28AF9EF05F60D004F834144
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144198.jpg" />
 </div>
 
 
@@ -229,7 +379,7 @@ magnet:?xt=urn:btih:5DB01961D59EF49DB2E8E5B3AA405DFA6DEC2BF2
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144200.jpg" />
 </div>
 
 
@@ -254,7 +404,7 @@ Juggernaut - La Bestia (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144201.jpg" />
 </div>
 
 
@@ -281,7 +431,7 @@ magnet:?xt=urn:btih:7474A77A11077A1479473B345B28A45D92070A65
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144202.jpg" />
 </div>
 
 
@@ -305,7 +455,7 @@ magnet:?xt=urn:btih:F50E88CA9EC931B2F43B8891DA7C04AE6A86F6E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144203.jpg" />
 </div>
 
 
@@ -329,7 +479,7 @@ magnet:?xt=urn:btih:21B4B596B22F39182BDE47DD7E8ABF547BF55ABF
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144204.jpg" />
 </div>
 
 
@@ -353,7 +503,7 @@ Udemy, Oleksiy Atroshchenko | Сети с нуля. Просто - о сложн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144205.jpg" />
 </div>
 
 
@@ -377,7 +527,7 @@ The Ghostbusters - Семь (2020) EP [MP3|320 Kbps] <Ghost-Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144206.jpg" />
 </div>
 
 
@@ -404,7 +554,7 @@ magnet:?xt=urn:btih:D704F5548D33F40D9AD89C1704282D070DEADC31
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144207.jpg" />
 </div>
 
 
@@ -431,7 +581,7 @@ magnet:?xt=urn:btih:13C7FC6B3DEB638945421680293DE775F5E15C22
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144208.jpg" />
 </div>
 
 
@@ -458,7 +608,7 @@ Sleep Therapy - nothing, nowhere. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144209.jpg" />
 </div>
 
 
@@ -485,7 +635,7 @@ Adobe Photoshop 2022 Build 23.1.0.143 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144210.jpg" />
 </div>
 
 
@@ -496,153 +646,6 @@ Adobe Photoshop 2022 - мощное и продвинутое приложени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F551A32DE73CECC48B1A7AD950A348B625EE84BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348327   (144212) от 27.12.2019
-
-Cinema Grade Pro 1.1.3 (build 486) [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinema Grade - это современное программное обеспечение для цветовой градации, которое работает как плагин внутри Premiere Pro, DaVinci Resolve и Final Cut Pro X на Mac. С Cinema Grade цветовая градация сразу становится проще и быстрее, благодаря прямой цветовой градации экрана, профессиональному руководству колориста и более 90 встроенных цветов в голливудском стиле (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Color Grading LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B2F5AEB95DD33615FC85FF1077504A56F54C9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195326   (144213) от 28.12.2017
-
-Студия Союз (2017.12.28) SATRip (выпуск 21: Дайджест)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:12Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49217830D3F4C2DF437A8BC723927A820F8CF4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348206   (144214) от 27.12.2019
-
-VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. NILETTO - Любимка 3:40
-002. Tones And I - Dance Monkey 3:30
-003. Carla Morrison - Disfruto (Audioiko Remix) 3:18
-004. Trevor Daniel - Falling 2:39(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2B8F1D82BAD510E19413DEA9D4117EB63D872E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678683   (144215) от 22.11.2023
-
-Nevercenter CameraBag Pro 2024.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144215.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2123728878D8E0BD93B6454D5F126123AC194196
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272257   (144216) от 27.12.2018
-
-Л. А. Леонтьев | Начальный курс политической экономии [2-е изд.] (1962) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как показывает название этой книги, она призвана служить начальным пособием для ознакомления с основами экономической науки. Имея в виду начальное руководство по политической экономии, В. И. Ленин указывал, что в таком пособии следует излагать содержание этой науки в форме характеристики последовательных периодов экономического развития, дать изучающему основные (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D48F7662359D14601262784851479D738F61E6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435460   (144217) от 28.12.2020
-
-JRiver Media Center 27.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144217.jpg" />
-</div>
-
-
-###  Подробнее
-
-JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF78C15F43E8863E49BFADEBA9A4B506187B090
 ```
 
 

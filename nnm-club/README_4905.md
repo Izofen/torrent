@@ -1,3 +1,176 @@
+###  Публикация: 968473   (152011) от 24.12.2015
+
+Rammstein - XXI (2015) The Vinyl Box Set, Remastered [MP3|320 кб/с] <Industrial Metal>
+
+>>След.
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Празднование 21-летней годовщины создания Rammstein и формальное «совершеннолетие» легендарных немецких рокеров. Уже более двух десятков лет Rammstein штурмует чарты и собирает многотысячные стадионы, издавая одни из самых коммерчески успешных альбомов в истории тяжелой музыки. Специальный бокс-сет охватывает всю музыкальную карьеру группы, начиная с самых первых (   Читать дальше...   )01. Wollt ihr das Bett in Flammen Sehen
+02. Der Meister
+03. Weisses Fleisch
+04. Asche zu Asche(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 05:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A618CE4575F86CB54B568F5AA87FCFC4ACB99A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518755   (152012) от 21.12.2021
+
+Собачник / Mondocane (2021) BDRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таранто - город-призрак, в который никто не решается войти. Беднейшим остается борьба за выживание, а банды преступников ведут борьбу за территорию. Два тринадцатилетних подростка, которые росли вместе, мечтают присоединиться к одной из банд.Производство: Италия / Groenlandia, Minerva Pictures, Rai CinemaЖанр: Фантастика, боевикРежиссер: Алессандро ЧеллиАктеры: Алессандро Борги, Людовика Насти, Адриано Новелли, Лавиния Новелли, Деннис Протопапа, Барбара Рончи, Джулиано Сопрано, Федерика Торчетти, Джозафат ВаньиПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:55:26Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195032   (152013) от 27.12.2017
+
+VideoSolo DVD Creator 1.1.10 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152013.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoSolo DVD Creator - это програма для создания собственного меню DVD. Запись ваших собственных DVD-дисков выполняется всего за три шага. Хороший интерфейс и иллюстрированная панель инструментов делают весь процесс простым от начала до конца. Просто импортируйте медиафайлы или видеофайлы, которые вы хотите записать на DVD, создайте свое собственное меню DVD. Создание (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117D2C6BF8463780DF4EEFEF2BEA456ED48427C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601221   (152014) от 30.12.2022
+
+Падшие ангелы / Do lok tin si / Fallen Angels (1995) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в Гонконге 1995 года, до передачи власти. В фильме представлены две переплетённые сюжетные линии — одна рассказывает историю наёмного убийцы, желающего покинуть преступный мир, проститутки, с которой он начинает отношения, и его агента, который влюблён в него. Другая история о немом бывшем заключённом, скрывающемся от полиции, и психически неуравновешенной (   Читать дальше...   )Производство: Гонконг, Block 2 Pictures Inc., Chan Ye-Cheng, Jet Tone Production Co.Жанр: драма, мелодрама, комедия, криминалРежиссер: Вонг Кар-ВайАктеры: Леон Лай, Мишель Райс, Такеши Канеширо, Чарли Ен, Карен Мок, Чань Фай-Хун, Чань Мань-Лэй, Тору Сайто, Кун То-Хой, Ли-на КванПеревод: Профессиональный двухголосыйЯзык озвучки: русский, кантонскийСубтитры: Русский, АнглийскийПродолжительность: 01:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985C5F53815B04AA453F80CEACCC6A704E0CC8AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086273   (152015) от 24.12.2016
+
+TheAeroClock 4.04 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152015.jpg" />
+</div>
+
+
+###  Подробнее
+
+TheAeroClock - это уникальные настольные часы с прозрачностью. TheAeroClock - декоративные часы, которые наглядно показывают местное время на Вашем рабочем столе. Основные функции: полная прозрачность, размер, настройки, выбор фактуры и положения.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8383F14BA526715183BBE39389D053C6286EB356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271095   (152017) от 22.12.2018
+
+Голос. Перезагрузка (2018.12.21) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 11)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых ярких шоу-проектов в очередной раз продемонстрирует невероятные результаты от альянса обладателей незаурядных голосов и опытных наставников, позволяющих талантам раскрыться и расцвести. Великолепные голоса, уникальные музыкальные постановки, молодые и не очень участники, которым придется испытать радость творчества, счастье триумфа и слезы поражения (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCE1C766CE815AE23991A1C8DDAA7B448D52C71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825338   (152018) от 
+
+Third Party - Live @ Party People, HERE at Outernet London, United Kingdom (2025-09-20) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third ≡ Party & Mark Roma - ENEMY (Matisse & Sadko Intro Edit) w/Martin Garrix & Third ≡ Party ft. Max McElligott - Lions In The Wild (Acappella)
+02. Capozzi - Pressure w/PARISI x Sebastian Ingrosso x Steve Angello - U Ok?ь w/Swedish House Mafia - Can U Feel It
+03. Third ≡ Party - Arrival w/Adam Port & Stryv ft. Malachii - Move (   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119A52BE76411FAF585D568D8A9661FFA33A1561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968421   (152019) от 24.12.2015
 
 Assassin's Creed Syndicate [patch/dlc] (2015) (1.31)
@@ -6,7 +179,7 @@ Assassin's Creed Syndicate [patch/dlc] (2015) (1.31)
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152019.jpg" />
 </div>
 
 
@@ -30,7 +203,7 @@ magnet:?xt=urn:btih:D7F8F0177EEE9F3F0A63DDA3F9743BB21EE62373
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152020.jpg" />
 </div>
 
 
@@ -54,7 +227,7 @@ Luminar 3 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152021.jpg" />
 </div>
 
 
@@ -80,7 +253,7 @@ Alpina Digital, Артемий Анцупов | Канбан-метод. Как 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152022.jpg" />
 </div>
 
 
@@ -105,7 +278,7 @@ DevID Agent 4.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152024.jpg" />
 </div>
 
 
@@ -129,7 +302,7 @@ Within Nostalgia - Void & Decay (2020) [MP3|320 Kbps] <Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152025.jpg" />
 </div>
 
 
@@ -156,7 +329,7 @@ VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152026.jpg" />
 </div>
 
 
@@ -183,7 +356,7 @@ magnet:?xt=urn:btih:25CCB436FC07D16F0525E9C0B37FCEE1E4EB708B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152027.jpg" />
 </div>
 
 
@@ -209,7 +382,7 @@ magnet:?xt=urn:btih:EBB3F7FBB8F4EB32FE865C0E699CAF63A644C6CB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152028.jpg" />
 </div>
 
 
@@ -233,7 +406,7 @@ magnet:?xt=urn:btih:4C5619F0464DF6B203C096F525BFE699105D31D9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152029.jpg" />
 </div>
 
 
@@ -259,7 +432,7 @@ Basic Element & Dr. Alban & Waldo’s People & Elize Ryd - Life Is Now (2022) Si
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152030.jpg" />
 </div>
 
 
@@ -284,7 +457,7 @@ magnet:?xt=urn:btih:7A4F7EAE9E54F3A9B765282750D2A4CB4EAA5F74
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152031.jpg" />
 </div>
 
 
@@ -308,7 +481,7 @@ magnet:?xt=urn:btih:E7429055512E8F95369CA005D15605EA77505537
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152033.jpg" />
 </div>
 
 
@@ -332,7 +505,7 @@ magnet:?xt=urn:btih:877F8C42A449EABBE1ED2505A74369127D77D2BB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152034.jpg" />
 </div>
 
 
@@ -356,7 +529,7 @@ magnet:?xt=urn:btih:FEF498CB61F15DD8D8F75B1DF2E35B734DF4A2CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152035.jpg" />
 </div>
 
 
@@ -380,7 +553,7 @@ VA - Ori Uplift - Uplifting Only Episode 662 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152036.jpg" />
 </div>
 
 
@@ -407,7 +580,7 @@ magnet:?xt=urn:btih:11A15F7AF1A40AC47AFE8A84A6494A711D0250BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152037.jpg" />
 </div>
 
 
@@ -431,7 +604,7 @@ Hidden Machine - Djeneration II (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152038.jpg" />
 </div>
 
 
@@ -458,7 +631,7 @@ magnet:?xt=urn:btih:5DE33D720183EE457125F915AA97AA229C9E2F47
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152039.jpg" />
 </div>
 
 
@@ -469,174 +642,6 @@ magnet:?xt=urn:btih:5DE33D720183EE457125F915AA97AA229C9E2F47
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E6C6BAFC61DC83AE770B2D5062461763C95D059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517581   (152040) от 21.12.2021
-
-Набор обновлений UpdatePack7R2 для Windows 7 SP1 и Server 2008 R2 SP1 21.12.15 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любого языка и архитектуры. Включены обновления для Internet Explorer 11, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026974E20FDBCB30DBBE6B486642F687156F28DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968549   (152041) от 24.12.2015
-
-Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сноубординг – это стиль жизни. Парни и девчонки день за днем подвергают себя риску, штурмуют горные хребты и бросают вызов заснеженным вершинам. Стремление к совершенству, безудержный азарт и драйв, бьющий через край адреналин – вот что толкает их вперед, заставляет выполнять самые безумные фишки на обрывистых склонах и в предвкушении сжиматься сердце.Тип издания: Lossless RepackРазработчик: Ubisoft EntertainmentЖанр: Sport (Winter sports, Extreme sports), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D612129CF2A9415D58CD1EF9D1E8B46A4FFFEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518713   (152042) от 21.12.2021
-
-Под прицелом / Первое свидание / First Date (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152042.jpg" />
-</div>
-
-
-###  Подробнее
-
-После покупки сомнительного авто жизнь Майка переворачивается с ног на голову. Отправляясь на своё первое свидание с Келси, он даже представить не мог, в какую опасную игру ввязался, приобретая этот автомобиль. Майк невольно становится мишенью отъявленных преступников и полицейских, и его первое свидание превращается в настоящий кошмар с погонями, перестрелками и (   Читать дальше...   )Производство: США / Cinexus Pictures, Visit FilmsЖанр: Комедия, криминал, детективРежиссер: Мануэль Кросби, Даррен КнаппАктеры: Тайсон Браун, Шелби Дюкло, Джесси Джанзэн, Николь Берри, Сэмюэл Адемола, Райан Куинн Адамс, Анджела Барбер, Дэйв Реймер, Скотт Е. Ноубл, Леа ФинитиПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30633E724CCB18E57DAB58A81D9B997779830734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854152   (152043) от 28.12.2014
-
-Журнал | Chip [Украина] №12 (декабрь 2014) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98A4D372794E21052B8028812C7994313FD4F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601087   (152044) от 30.12.2022
-
-Идеальное ограбление / American Night (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152044.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Нью-Йорк прибывает стоящая десятки миллионов долларов картина «Мэрилин» Энди Уорхола. Картина тщательно охраняется, и для ее похищения необходим гениальный план. За дело берется команда самых искусных воров во главе с Джоном. Однако, на нее также претендует целая армия киллеров мафии.Производство: Италия /  Martha Production, Pegasus, QMIЖанр: триллер, драма, криминалРежиссер: Алессио Делла ВаллеАктеры: Джонатан Риз Майерс, Эмиль Хирш, Пас Вега, Джереми Пивен, Фортунато Серлино, Майкл Мэдсен, Альба Амира, Анастейша, Аннабелль Бельмондо, Мара ЛейнПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE932EFEE78F296FAFE21AE2C32F747BAF0F2EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086127   (152045) от 24.12.2016
-
-Danse Macabre 5: Lethal Letters / Танец смерти 5. Роковые письма (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152045.jpg" />
-</div>
-
-
-###  Подробнее
-
-По просьбе графа Антонова вы приехали из Лондона в Санкт-Петербург. Графу понадобилась ваша помощь как лучшего специалиста в области когнитивной психологии и гипноза в каком-то очень личном деле, о котором он обещал подробнее рассказать при встрече. И вы не сомневаетесь, что последние достижения науки сослужат ему хорошую службу!Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC133DB724AE296B5A241FA4D56B5AB6B23A4A89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677064   (152047) от 16.11.2023
-
-Expressif Systems | ESP32-C3: Беспроводное приключение: Полное руководство по IoT (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга демонстрирует различные приложения семейства ESP32-C3 – одноядерного микроконтроллера, представляющего собой «систему на кристалле» (SoC) с интегрированными Wi-Fi и Bluetooth 5 (LE). Он обеспечивает необходимый баланс мощности, возможностей ввода-вывода и безопасности, предлагая таким образом оптимальное экономичное решение для подключаемых устройств. Вы (   Читать дальше...   )Жанр: Компьютерная литература, электроникаПеревод: Ю.В. РевичИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5747B52018A5866060E205A8AE8C178D46D28930
 ```
 
 

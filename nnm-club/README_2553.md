@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67126.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9339B72A9B8F9EA0D7AC8479C218A298A69F116F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67127.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E022CEA67C077B07CB5760156D3C1FDA13F2F16A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67128.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:01A4665E2FBC2C29B3B9ADE4BBDB6E4463481517
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67129.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:12F916DE1FEFFA01C62D6D7A01753A1D1A787321
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67130.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7CEDA88AAD58796D08E65290C6E2267FE893D486
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67131.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9912421C3B7E81D144120F7D541402FD0951E360
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67132.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:79715AAC1F1A638A401FA80590FE1195E377E2BC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67133.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Espresso Pronto Roma! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67134.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:BE87427E09A03CE7CD23EB9D3829CC6ABDB69719
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67135.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:7EBB2B18D41CBB7835C9E49D821EB50E6BDCFE36
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67136.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - 60 Years of the Southend Scene (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67137.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D3E12B61A9AD0541434E01FFFA9D0FB4402DDBBA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67138.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F275A5A42D6A2F12F405CF5FA05BF5AB0FA4FF96
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67139.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67140.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:832D0DE88865E1AF3087BC25EADA79B86759BB03
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67141.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:BB7D6896577DAFD3A94DB0A57359B6A6991F70FB
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67142.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:5A2030190DDD1612AE8B11906A24D79321681D36
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67143.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:F7BACCB2373F34D3005CA07CA384855D85CDC96B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67144.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:F4A675A56BA55987480F0475258BBA83DBFCA288
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67145.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:BB1F3E10F27F3C48D32091BD92377F042CB11487
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67146.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Power Surge - Shadows Warning (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67147.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7A5EBC57E55CCDF69CD6630E8E2AF1B1B16409D9
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67148.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:6000803756FC381BF2130E1956B22EA38F6676AE
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67149.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:58C3F3854DE43C96F41C91894844C96E585D377A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67150.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:504DFFFD6F01BEC519629BA62FD2F954598F4966
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67151.jpg" />
 </div>
 
 

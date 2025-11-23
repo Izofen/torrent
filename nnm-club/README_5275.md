@@ -1,3 +1,180 @@
+###  Публикация: 1517468   (162596) от 15.12.2021
+
+Митчеллы против машин / The Mitchells vs the Machines (2021) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка-подросток Кэти Митчелл всегда считала, что родители не понимают её увлечений — делать странные фильмы про всё вокруг, в том числе про мопса-полицейского с семейным питомцем в главной роли. Поэтому когда она поступила в киношколу на другом конце страны, счастью не было предела. Кэти не могла дождаться, когда же она наконец сядет в самолёт и полетит к понимающим (   Читать дальше...   )Производство: США, Канада, Гонконг / Sony Pictures Animation, Lord Miller, Columbia PicturesЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Профессиональный (дублированный) ПифагорСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, SDH)Продолжительность: 01:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A6BDDD9D8E6C5DCDD136D61EBBD5C8A4E8C7A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598551   (162597) от 19.12.2022
+
+VA - Recharged 002 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Cargo -  Shinichi  (7:08)
+02.  Cream (PL) -  Kaleidoscope  (8:37)
+03.  Leandro Murua -  Nana Child (Seth Vogt Remix)  (7:39)
+04.  Sinan Arsan -  Ekubya (Dhany G Remix)  (7:44)(   Читать дальше...   )Жанр: Deep Progressive House, Organic HouseПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A5DC68EB5D50177F17B3D58CD178ABEDC062F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432617   (162598) от 18.12.2020
+
+VA - Трибьют Сектор Газа (2020) [MP3|320 Kbps] <Punk Rock, Rock>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162598.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. План Ломоносова - Возле дома твоего
+2. Голос Омерики - Колхозный панк
+3. Сектор Газовой Атаки - Утопленник
+4. ДДТ - Ночь перед Рождеством(   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 01:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38555A0466891F3B7715C7E1760664140D5F0819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674166   (162599) от 04.11.2023
+
+Compagniet - Juke Joint Sessions '23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Learn To Love The Blues (4:30)
+02. Do You Really Love Me? (3:48)
+03. Got A Hold On Me (4:23)
+04. Not Guilty (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623D9463224B541160A0F54C9104B599AC0C9D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517506   (162600) от 15.12.2021
+
+FreeCAD 0.19.3 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162600.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeCAD – это очень мощный и серьезный продукт, предназначены как для домашних пользователей, так и для профессионалов, опытных пользователей САПР, при создании 2D и 3D моделей. За почти 20-летнюю историю программы. Авторы приложения сделали версии для разных платформ. Оно может быть запущено не только на Windows системах, но также поддерживает Mac и Linux. Возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEE2CE2A0C95E7B915237ED47EB16AAE5B4E9FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412262   (162601) от 18.12.2020
+
+Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешением 4K
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в царство отдыха, превратив свой телевизор в прекрасный камин! Идеально подходит для успокоения перед сном или для расслабления в гостиной! Blaze предоставляет 6 тщательно отобранных каминов с красивой графикой и профессионально проработанным звуком. Камины могут быть представлены в формате HD или Ultra HD, в зависимости от вашего телевизора. С каминами (   Читать дальше...   )Тип издания: Пиратка (разблокированы камины)Релиз состоялся: 25.11.2020Разработчик: PirinelПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1641F697CEB8E19D136EE61D86FCFDF3F9F7A62A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516947   (162602) от 15.12.2021
+
+Струны (2021) WEBRip [H.264] (сезон 1, серии 1-12 из 12)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162602.jpg" />
+</div>
+
+
+###  Подробнее
+
+История четырех студентов Академии Гнесиных. У молодых и талантливых виолончелистов появляется новый педагог, который предъявляет к ним требования совершенно иного уровня. Случайно снятое видео, где ребята играют вчетвером, становится вирусным, и они объединяются в квартет. Разрываясь между своей популярностью и подготовкой к международному конкурсу, герои взрослеют, (   Читать дальше...   )Производство: Россия | «Спутник Восток Продакшн»Жанр: Драма, музыкаРежиссер: Александр Кессель, Иван КорвинАктеры: Артём Ткаченко, Алина Рачковская, Ева Инденбаум, Федор Левин, Олег Отс, Анна Богомолова, Светлана Тома, Елена Сафонова, Арам Бабаджанян, Александра ЛедневаСубтитры: РусскиеПродолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FAEC99D1D41E083ABC3F15AF5F4C9FEAAB9C67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674217   (162603) от 04.11.2023
 
 Зёрна | Святитель Василий Рязанский. Житие, акафист (2017) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +183,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162603.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:3157E52BA6F91EEC489722B4C4CAE3FA2873DB7A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162604.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ magnet:?xt=urn:btih:B640DC99D4E54B95A1896ACC5166BFA83FCAEEBF
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162605.jpg" />
 </div>
 
 
@@ -78,7 +255,7 @@ VA - Metal Love Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162606.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ magnet:?xt=urn:btih:D50D45900EF48D6E701B2276F09141D441D52DBA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162607.jpg" />
 </div>
 
 
@@ -131,7 +308,7 @@ magnet:?xt=urn:btih:0F218AF50DFA931AF932ED1DB649C3E69AD76D17
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162608.jpg" />
 </div>
 
 
@@ -158,7 +335,7 @@ Bert Hillesheim - I'm Talking to You (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162609.jpg" />
 </div>
 
 
@@ -185,7 +362,7 @@ magnet:?xt=urn:btih:FD0A2AFCB86837843DCD0C841E9DFF592699BBF9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162610.jpg" />
 </div>
 
 
@@ -209,7 +386,7 @@ magnet:?xt=urn:btih:02A61879848AFEF73C849951C1B4B6E747CDDDB3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162611.jpg" />
 </div>
 
 
@@ -233,7 +410,7 @@ Blocs 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162612.jpg" />
 </div>
 
 
@@ -258,7 +435,7 @@ Carnifex - Necromanteum (2023) [FLAC|Lossless|tracks + .cue] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162613.jpg" />
 </div>
 
 
@@ -285,7 +462,7 @@ magnet:?xt=urn:btih:35E3F2B2472BBABE0A63EF3AF83E2722926278B1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162614.jpg" />
 </div>
 
 
@@ -309,7 +486,7 @@ magnet:?xt=urn:btih:57190D2ECEA7195A3B5A32B0FE3FD3BAEB26E286
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162615.jpg" />
 </div>
 
 
@@ -334,7 +511,7 @@ magnet:?xt=urn:btih:3625C03DCC5215415D0288D8A0407F17CA2A197F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162616.jpg" />
 </div>
 
 
@@ -358,7 +535,7 @@ Adobe Premiere Pro 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162617.jpg" />
 </div>
 
 
@@ -382,7 +559,7 @@ magnet:?xt=urn:btih:F514CBECF20405F023B32258E875C121EF007C73
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162618.jpg" />
 </div>
 
 
@@ -406,7 +583,7 @@ NCH WavePad Audio Editor Pro 17.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162619.jpg" />
 </div>
 
 
@@ -430,7 +607,7 @@ VA - Rock/Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162620.jpg" />
 </div>
 
 
@@ -457,7 +634,7 @@ Black Hornet - Remove Before Flight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162621.jpg" />
 </div>
 
 
@@ -471,184 +648,6 @@ Black Hornet - Remove Before Flight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AC9099A2ABF50A24CB0F27BFAB70A64A83C3D55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598104   (162622) от 19.12.2022
-
-VA - The Metal Rock Summer Festival (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Bugen's Rock Turn - Wind Force Twelve [01:20]
- 02. - De Winnewupps - Kien Plaan [03:33]
- 03. - Pandemic - God Versus God [05:23]
- 04. - Caravan of Souls - Ratworld [06:00](   Читать дальше...   )Жанр: MetalПродолжительность: 03:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C260BF5C2335DA46574A74EAFD19D1A60C3202
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598612   (162623) от 19.12.2022
-
-Sandboxie 5.61.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D624E39FC16C2864F42D077C1FF618F098335CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673913   (162624) от 04.11.2023
-
-Acceso Norte - Shadows of Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasted Time (4:07)
-02. Duro y con Placa (4:10)
-03. Depredador (5:26)
-04. Déjà Vu (5:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4BFB2381D2DB273D33EF35BA023F9A47AB9261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598540   (162625) от 19.12.2022
-
-Tidabie Tidal Music Converter 1.4.4 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tidabie Tidal Music Converter дает вам платформу для загрузки любых треков с Tidal Premium и HiFi Music на Mac. Поддерживает преобразование треков Tidal в формат MP3 / AAC / FLAC / WAV / AIFF, чтобы вы могли воспроизводить Tidal Music на различных устройствах.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2022Разработчик: © 2022 Tidabie IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABC1899BCF1E0E1F29BF25A44536BA2E9C18134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598505   (162626) от 19.12.2022
-
-Sonic Dynamite - Another World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempestate 02:49
-02. Bread & Circuses 04:43
-03. Another World 05:08
-04. Distant Lands 06:23(   Читать дальше...   )Жанр: Melodic Hard Rock, Heavy MetalПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA78EE8231D1A4C75B753D1CA60765CBB218CBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674087   (162627) от 04.11.2023
-
-Amadine 1.5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
-Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: ©2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EC44DD62B58DCF54B25332D38BA99FDD533A53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517418   (162628) от 15.12.2021
-
-Семейка Аддамс: Горящий тур / The Addams Family 2 (2021) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если в доме поселилось настоящее исчадие ада, а именно два подростка? Срочно планировать самый жуткий отпуск! Мартиша, Гомес, Уэнсдей, Пагсли и дядя Фестер загружаются в семейный походный катафалк, чтобы отправиться навстречу новым приключениям и чудаковатым друзьям, от которых волосы встанут дыбом. В этой поездке семейка Аддамс сплотится намертво! Если, (   Читать дальше...   )Производство: Великобритания, Канада, США / BRON Studios, BermanBraunЖанр: мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный, двухголосый любительский (Pazl Voice)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C38B24BAC1F46FFC82DC9EA09E5CE0782813F06
 ```
 
 

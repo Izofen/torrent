@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70584.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Musical kaleidoscope part 28 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70585.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:E8842BB9A12A61520CDDFF9817B74C924CDAE654
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70586.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:4ACCE3F7E27C5D2AD9CBC1526F66A60827B3D87F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70587.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0EDB159E7510C9DF9CAC448C58A7607B2A2A21E1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70588.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:AFD4B5ADFB25276D849C0B56ED8D6BDC64E13682
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70589.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Textra SMS v4.79 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70590.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0AA525F229B2C532EF0A191E5D4DDE72D664F268
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70591.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Musical kaleidoscope part 29 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70592.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A503F2BF7D56027DDBE81874BE1FAB0C26ABF7AB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70593.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Blank & Jones & Marc-George - Rediscovered Works (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70594.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:C1296C80B7E60D3F63668ECA18A0DE6B4E95454A
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70595.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Hige o Soru. Soshite Joshikousei o Hirou. | Higehiro: After Being Rejected, I Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70596.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:E6198E6D2FC49F183F1B6FD305197AA8C8EC89E2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70597.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:77D1DA5F83DBEB9C973A69D7C04BD9DC271051E6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70598.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:FFCDA8270EF74C36AE98B434A76ED86B95A724C8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70599.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:9C9C0EC9BA7A5156F2C4A14D581245263EC3A213
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70600.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:160FB8867B24FA910377D9FEC7E721D2D28A6E94
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70601.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7D5F37D2236D2E99D7B8ED02C28778D85C571B81
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70602.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Solid Explorer File Manager v2.8.58 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70603.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:900B0923EE49D83294D5B83616CE5C819B8D887E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70604.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kdenlive 24.12.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70605.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:460C73523B31334DC084C75CCD43B8BDE8170120
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70606.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:DE7A659D7D6F061F3B10FFA92C3E7015711EF598
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70607.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:80D00643F92F2C9BB2985B27DD7B4CADEC3BF157
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70608.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70609.jpg" />
 </div>
 
 

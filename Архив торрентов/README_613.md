@@ -6,7 +6,7 @@ Master PDF Editor 5.9.80 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132045.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Soul Browser 1.3.89 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132051.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ RegCool 1.348 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132059.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Soul Browser 1.3.89 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132067.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dropbox 1.6.11 Stable [Multilingual]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132068.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dropbox - программа для работы с облачным храни�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132082.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Opera GX 104.0.4944.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132089.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:9CEB262E16E2AA796A884C1B2CACE084EA4BEBF2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132090.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:D30335DA4865647A49AB1C0954A73E83E3A3610E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132106.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:D30335DA4865647A49AB1C0954A73E83E3A3610E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132110.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:7A984140ADFCDAEFCB59BEC0696E40FE8E3A9A3E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132124.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:BAF4E976CB2968C7D478D37C180F64CFD9B7E46E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132126.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:B5E821E85D3C316E34C3F94DF7726EEFD931B569
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132140.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:02AD854443F067D2DC190BAEFF0DE4197D79A48D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132162.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ New year wallpapers 2013 (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132169.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:1D809B875D5D1BC7C338F65BC6F158596530937E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132171.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Best HD Wallpapers Pack (29.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132172.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132173.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ GeoGebra 4.9.82 Beta [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132176.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ GeoGebra — свободно распространяемая (GPL) динам�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132184.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:95ECC7880518D2FD014EDB81C8B23BCFAA6C151E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132185.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Dutch House Anthems (2012) [MP3|320 kbps]<House, Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132191.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:1623E94468FA8572F527C031FBE2D86E59524D63
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132196.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Sexy Girls Wallpapers (29.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132199.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:B3F0C401EE7C40C0EFEB95EF02653AE280B43F21
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132204.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Sexy Girls Wallpapers (28.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132211.jpg" />
 </div>
 
 

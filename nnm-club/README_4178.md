@@ -1,3 +1,78 @@
+###  Публикация: 379819   (128315) от 12.12.2023
+
+Михаил Лермонтов, А.Н. Островский, Максим Горький | ДРАМЫ: Маскарад. Бесприданница. На дне (2004) [MP3, Вячеслав Герасимов, Владимир Самойлов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Библиотека школьника.Жанр: Русская литература, классика, пьесаПродолжительность: 08:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DA5160955C684F7DB50F7827F59151D04E923F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683838   (128316) от 12.12.2023
+
+Последний богатырь (2017) BDRip [H.264/1080p-LQ] [Open Matte]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Победитель 5-го сезона «Битвы магов» белый маг Святозар, а на самом деле — обычный парень Иван, привычно пудрит мозги телезрителям и доверчивым клиентам, готовым поверить во что угодно. Однажды, спасаясь бегством от крепких охранников мужа очередной одураченной им домохозяйки, парень внезапно переносится из Москвы в сказочную страну Белогорье. А встреченный там старец (   Читать дальше...   )Производство: Россия / Кинослово, Walt Disney Pictures, Yellow, Black & WhiteЖанр: комедия, фэнтези, приключенияРежиссер: Дмитрий ДьяченкоАктеры: Виктор Хориняк, Мила Сивацкая, Екатерина Вилкова, Елена Яковлева, Константин Лавроненко, Евгений Дятлов, Александр Семчев, Сергей Бурунов, Александр Кухаренко, Марина КалецкаяСубтитры: ОтсутствуютПродолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF38FBA5C5A119F1FFB5F59110E8D204785898DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683707   (128317) от 12.12.2023
+
+Дан Лебэл | Схождение (Книга 1). Схождение (2023) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дан Лебэл – псевдоним разнопланового писателя-фантаста.
+Представляем в аудиоформате книгу из его новой серии «Схождение», написанной в жанре боевой фантастики и антураже РеалРПГ.
+
+Герой узнаёт, что люди вовсе не хозяева своей судьбы и что жребий Земли предопределён случайным выбором из множества вариантов. Земной мир катастрофически изменился, и теперь для героя (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, LitRPG,Издательство: 1С-ПаблишингПродолжительность: 09:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C2D6E5766572AEF94A72A327CD8E2AF80E03F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683796   (128318) от 12.12.2023
 
 Андрей и Мария Круз | На пороге Тьмы (Книги 1-7) (2010-2017) [MP3, Дмитрий Чепусов]
@@ -6,7 +81,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128318.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:976ABEF76A199AC19878195CEE087C85F8AA8041
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128319.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128319.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:976ABEF76A199AC19878195CEE087C85F8AA8041
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128320.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:9E3B0431DB7985E17FCE7DEA2FAC44F516DDD8E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128321.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:BEACFDBE14228F9CB02B18EA3B4859CEC67B22C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128322.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128322.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:BEACFDBE14228F9CB02B18EA3B4859CEC67B22C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128323.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:5106BFCECCAA49B8EF12FBC01675DA310F35EF03
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128324.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128324.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:5106BFCECCAA49B8EF12FBC01675DA310F35EF03
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128325.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:9AC9B9F7FEC04DADFF4ABDD2EA457584A924215A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128326.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ magnet:?xt=urn:btih:294088BE3668C0CD23094827DEEFE4DD8D737DA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128327.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ Cyberpunk 2077 (2020) [Ru/En] (2.1/dlc) Repack Other s
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128328.jpg" />
 </div>
 
 
@@ -272,7 +347,7 @@ magnet:?xt=urn:btih:B5E4E8B4BC0BF91C371549176A5E51106DB12E2E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128329.jpg" />
 </div>
 
 
@@ -296,7 +371,7 @@ Rory Gallagher - 27 Albums, 5 Box Set (1971 - 2023) 94 CD [FLAC|Lossless|image +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128330.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ magnet:?xt=urn:btih:BFB7FEFCABF0347FA7947C15747E1B47197F3BAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128331.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128331.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ magnet:?xt=urn:btih:BFB7FEFCABF0347FA7947C15747E1B47197F3BAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128332.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128332.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ Need for Speed: Underground (2003) [Ru/En] (1.4.0) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128333.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:134573A483695EADE7333650A4E21FF8D0651651
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128334.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ magnet:?xt=urn:btih:EF88A830B3A016A28AC2B79404BA0286A14080CF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128335.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ magnet:?xt=urn:btih:568B03F132C9CC8A7AD4FF73B589EA8B49768F94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128336.jpg" />
 </div>
 
 
@@ -470,7 +545,7 @@ magnet:?xt=urn:btih:CC52A841A4F084F3285039F261AD825651C5A14B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128337.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ magnet:?xt=urn:btih:9C9378FE2EB0E4C7D7F94E39754320D1780EAA22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128338.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ magnet:?xt=urn:btih:854747C4C067859A7E874269F92E7B3BBDD1ED93
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128339.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:18492048C45D5C88524C3F3A098694A962BE7DB3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128340.jpg" />
 </div>
 
 
@@ -554,81 +629,6 @@ magnet:?xt=urn:btih:18492048C45D5C88524C3F3A098694A962BE7DB3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB1ABEBF4864EE026D89F9877BBD3F17706A636
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681499   (128341) от 12.12.2023
-
-Журнал | Хакер №10 (295) (октябрь 2023) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128341.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хакер» - журнал рассказывающий о компьютерах, программном обеспечении, железе, технологиях, играх и, конечно же, о хакерах. Но на этом все не ограничивается. В журнале публикуются материалы о стиле жизни, о каких-то абсолютно жизненных вещах, о здоровье, о том, как провести свободное время. Издание отличается от других, наверное, в первую очередь манерой подачи (   Читать дальше...   )Жанр: Компьютерный журналИздательство: ООО «Эрсиа»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19B54194517F0C03A926DF815158C4BFA27EF25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683711   (128342) от 12.12.2023
-
-быдло.jazz | Защищенный и анонимный Андроид телефон (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128342.jpg" />
-</div>
-
-
-###  Подробнее
-
-- работа с кастомными прошивками (выбор прошивки под свои задачи).
-- получение systemless-Root изменение загрузочного образа без внесения изменений в раздел
-/system, нюансы работы с альтернативными сборками Magisk с расширенным функционалом для более эффективного скрытия Root в системе
-- разбираем KernelSU в качестве альтернативы Magisk, сравниваем плюсы и минусы (   Читать дальше...   )Производство: быдло.jazzЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 00:04:21Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA585123DA8F221FADA49B61A9413A80D90A8F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683831   (128343) от 12.12.2023
-
-Отпуск в октябре (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая актриса Света окончила театральную академию, живет в Санкт-Петербурге и мечтает сниматься не в проходных сериалах, а в серьезных фильмах и играть серьезные роли. Ей везет, она попадает в болливудский проект, в котором собраны звезды кино, лучшие диджеи и хореографы страны. Но все оказывается не очень просто. Никто не знает сценария, актеры месяцами живут (   Читать дальше...   )Производство: Россия / Фрут ТаймЖанр: ДрамаРежиссер: Роман МихайловАктеры: Мария Мацель, Геннадий Блинов, Анна Завтур, Евгений Ткачук, Юлия Марченко, Кирилл Полухин, Фёдор Лавров, Виталий Коваленко, Варвара Павлова, Екатерина СтарателеваПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C64C559A21CCB627168837FAF80FBF3796A3678
 ```
 
 

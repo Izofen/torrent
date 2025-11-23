@@ -1,3 +1,111 @@
+###  Публикация: 1639342   (238268) от 13.06.2023
+
+Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clutch — американская рок-группа из города Джермантаун, штат Мэриленд.1993 - Transnational Speedway League
+1995 - Clutch
+1997 - Impetus (EP)
+1998 - The Elephant RidersЖанр: Stoner RockПродолжительность: 14:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6717AE599D59EB30E48D921F7C4A010F96DFB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140820   (238299) от 30.04.2022
+
+Ингви Малмстин/Yngwie J. Malmsteen - Трилогия/Trilogy (1986) Reissue 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238299.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ты Не Помнишь, Я Никогда Не Забуду (You Don't Remember, I'll Never Forget)
+A2 Лжец (Liar)
+A3 Влюбленная Королева (Queen In Love)
+A4 Плач (Crying)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623865   (238316) от 03.04.2023
+
+Jonathan Jeremiah - Horsepower For The Streets (2023) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop-Rock, Soul, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horsepower For The Streets
+02. You Make Me Feel This Way
+03. Cut A Black Diamond
+04. Small Mercies(   Читать дальше...   )Жанр: Pop-Rock, Soul, R&BПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BF9EF408516EE593942130A41FAB9DDA2F2575
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145522   (238348) от 30.04.2022
+
+VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Vietnam - Roadhouse Blues (The Doors)
+02. Poison - What I Like About You (The Romantics)
+03. Jorn - Feel Like Making Love (Bad Company)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D0BB1F761B06C3834CA52614E589D708E00026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144837   (238355) от 30.04.2022
 
 David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+.cue|Audio-DVD-Rip] <Acoustic, Prog Rock, Classic Rock>
@@ -6,7 +114,7 @@ David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238355.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238355.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Visage - The Anvil (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238357.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238371.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238371.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238389.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Elton John - The New Collection vol. I - vol. II (1983) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238397.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238397.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ VA - RETROспектива часть XXI. Зарубежные исполнит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238403.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238403.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ magnet:?xt=urn:btih:02AF04C9BF7A7499A0397B6A9426AA131106CF9D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238422.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238422.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ VA (Юрий Антонов, Александр Серов, Александр �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238423.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238423.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238458.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238458.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Amon Amarth - Studio Albums (13 releases) (1996-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238489.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Duran Duran - Notorious (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238506.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238506.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ The Eagles - Hotel California (1976) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238688.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238688.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238726.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238726.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238861.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238861.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238862.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238862.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238933.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238933.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ Europe - Дискография (14 albums) (1983-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238954.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238954.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238977.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238977.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239216.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239216.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239353.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239353.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239544.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239544.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239608.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239608.jpg" />
 </div>
 
 
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590239   (239802) от 17.04.2023
-
-Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunder — английская рок-группа из Лондона. Основана в 1989 году бывшими участниками Terraplane Дэнни Боузом (вокал), Люком Морли (гитара, бэк-вокал) и Гэри Джеймсом (ударные), а также вторым гитаристом и клавишником Беном Мэтьюзом и басистом Марком Лакхерстом.1990 - Laughing On Judgement Day
-1992 - Laughing On Judgement Day
-1994 - Behind Closed Doors
-1996 - The Thrill Of It All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 19:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635324   (239834) от 25.05.2023
-
-И. Кальман - Принцесса цирка. Фрагменты из оперетты, запись 1952 г. (1982) [FLAC 1.0|192/24|tracks|Vinyl-Rip] <Classical, Operetta>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-Увертюра. I действие
-Сцена и дуэт Лизы и Тони. Ария Мистера Икс. Ария Сюзанны
-Сцена и дуэт Сюзанны и Мистера Икс(   Читать дальше...   )Жанр: Classical, OperettaПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635254   (239913) от 25.05.2023
-
-Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heretic - американская пауэр-метал группа из Лос-Анджелеса, образованная в 1986 году.1986(2013) - Torture Knows No Boundary (EP)
-1988 - Breaking Point
-2012 - A Time Of Crisis
-2017 - A Game You Cannot WinЖанр: Heavy/Power/Thrash MetalПродолжительность: 02:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635275   (239937) от 25.05.2023
-
-VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Folk, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239937.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 П. Нечепоренко - Час Да По Часу
-A2 П. Нечепоренко - Олынка
-A3 П. Нечепоренко - Цвели, Цвели Цветики
-A4 П. Нечепоренко - Наигрыш Владимирских Рожечников(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
 ```
 
 

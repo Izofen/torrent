@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136552.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5420B83FF978A221644B4C64602F4BD4A84588CA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AOMEI Partition Assistant Technician Edition 9.1.0 [DC 31.12.2020] RePack by Kpo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136574.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ R-Studio Network Edition 8.15 Build 180125 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136579.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Realtek High Definition Audio Driver 6.0.9071.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136589.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Reg Organizer 8.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136590.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F709AC69D46D4A5895A44E24B2B1A64E218D7427
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136598.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:42C1905E8B27F7EA00487C2168D127EEE96B2E18
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136607.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ IObit Driver Booster Pro 8.2.0.308 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136612.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BELOFF [dp] 2020.12.4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136616.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Microsoft PowerToys 0.29.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136618.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Wise Care 365 Pro 5.6.2.558 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136665.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Skype 8.67.0.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136684.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ O&O Defrag Professional 30.0 Build 1065 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136988.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ MediaHuman YouTube Downloader 3.9.17 (1410) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136989.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137003.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:80B553439C74DF68CE5CE41958607F06E45B3DAB
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137008.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:81E9A155CADE8605A573B5E15854782A10EA5873
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137042.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ OpenVPN 2.6.8 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137043.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Vinland Saga / Сага о Винланде [2019, TV, 24 ep] WEB-DL 1080p Rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137076.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ iTubeGo 7.2.0 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137100.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:36755A85243EA9DAFFE698C1A20A5B7554C6D650
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137116.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Psiphon 3 build 176 (DC 31.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137135.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137157.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Reg Organizer 9.10 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137159.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ MInstAll StartSoft 51-2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137162.jpg" />
 </div>
 
 

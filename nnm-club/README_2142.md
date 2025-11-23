@@ -6,7 +6,7 @@ Moon+ Reader Pro v9.4 (build 904000) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56057.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ciruelo Cabral | Артбук Феи и драконы / Ciruelo - Lord of the D
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56058.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:13E3A92A6D4DE857FDA6D2A638590620A23C270A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56059.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - A State Of Trance Festival, Ahoy Rotterdam, Netherlands (2024) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56060.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4A31E841F46576E6F59FB8CD8ADC0E69CA2E69EF
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56061.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Busuu - изучение языков 31.22.0(1019875) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56062.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Tablacus Explorer 24.5.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56063.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F73D5BFC2BA9B555C7A283D4647679D6F12D8082
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56064.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:F73D5BFC2BA9B555C7A283D4647679D6F12D8082
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56065.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4E2CB1D423804173029D4F124B444BCB2BAC7777
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56066.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D33149028A36FF8B8E5CDB276BBAA75B024CC78A
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56067.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D33149028A36FF8B8E5CDB276BBAA75B024CC78A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56068.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F585667664E0FDF53986FCD463962D945B075487
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56069.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:636F82E36987EC6BEFCE1B06AEFDAC653A289DB7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56070.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Шансон премьера 2024 март (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56071.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:B844A1D897427D83079D15BD8111DAECD02B0DCC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56072.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Foxit PDF Reader 2024.2.1.25153 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56073.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:AE5C49BD6B04A08C59EDD6DCEA36A1A6261ACDC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56074.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:A55BC454AF994D6C6895B450F68EB1BD7260E8BC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56075.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Maid of the Dead (2024) [Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56076.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:BDE5F7541FABEADB0187A3797671A690911DEBA6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56077.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:E74D2BE17C71B16AD57FC60EA868F11AB2351EC4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56078.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:FAA97CE9B9CCD27776EF5AAF9BE0A7D9E3DDA5DB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56079.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - РАДИО БАТЯ - 006 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56080.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lorelei and the Laser Eyes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56081.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:68884573ACBED3DE959C2A30C14F0B19B5B0592B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56082.jpg" />
 </div>
 
 

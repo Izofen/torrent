@@ -1,3 +1,181 @@
+###  Публикация: 1674246   (162148) от 04.11.2023
+
+DearS | ДиарС [2004, TV, 12 + 1] DVDRip 544p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог предположить, что инопланетный космический корабль, в результате аварии упавший в Японии, окажется битком набит красивейшими девушками в стильных ошейниках! За ночь выучив земной язык, девушки тут же покорили землян… обаянием и хорошими манерами! Но покорились не все — простой японский школьник Такэя с детства ненавидит все, связанное с пришельцами. Его (   Читать дальше...   )Производство: Daume / 童夢Жанр: комедия, романтика, фантастика, эттиРежиссер: Судзуки ИкуПеревод: TM aka ТехноМагЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин. + 1 спешиал на 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D92180D4F21D2D67E55B03AC8D8D145C44C298
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433078   (162149) от 19.12.2020
+
+Ларри Симон. Парочка королей / A Pair of Kings (1922) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162149.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме сразу два Ларри: один - король, по некоторым данным, узурпировавший престол, второй - бродяга, случайно приплывший в город на корабле. На короля готовится покушение. Случайно встретив своего двойника, король меняется с ним местами и исчезает... Харди играет главаря заговорщиковПроизводство: СШАЖанр: Короткометражка, комедияРежиссер: Ларри Симон, Норман ТорогАктеры: Ларри Симон, Люсиль Карлайл, Оливер Харди, Уильям Хаубер, Джо РокЯзык озвучки: АнглийскийСубтитры: Русские отдельным файлом (statuslux, bankolya)Продолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D65C41C682C35825A9EA41DA6EA368BD677271F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432951   (162150) от 19.12.2020
+
+Прыжки с трамплина. Чемпионат мира по полётам на лыжах 2020. Планица (Словения). Индивидуальные соревнования. Финальные попытки (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по полётам на лыжах 2020. Планица (Словения)
+12 декабря 2020 года
+Трамплин HS 240.
+Индивидуальные соревнования. 3-я - 4-я попытка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BF669D9837E7C1DC684CDCDDD08A9D56DFE265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674229   (162151) от 04.11.2023
+
+Рецепт на любовь (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Накануне своей свадьбы деревенская медсестра Ксюша Михайлова узнаёт, что жених Валера Берестнев изменил ей. Лучшая подруга Ксюши Инга ждёт от него ребёнка. Ксюша планирует уехать в город, учиться на кардиохирурга, чтобы вылечить свою больную мать. Но в деревне умирает участковый врач, и главврач районной больницы уговаривает девушку остаться дома на год, чтобы не (   Читать дальше...   )Производство: Россия | БравоЖанр: мелодрамаРежиссер: Алексей КарелинАктеры: Дарья Затеева, Егор Сазыкин, Дарья Юргенс, Галина Данилова, Василий Копейкин, Зоя Буряк, Олег АлмазовПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7F790AF85CED039E8B226953FEF28DACDF64B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598810   (162152) от 20.12.2022
+
+Mitti 2.2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mitti - это современное, многофункциональное, но простое в использовании профессиональное программное обеспечение для видео воспроизведения в театральных, аудиовизуальных шоу, выступлениях и выставках.
+Mitti имеет понятный, интуитивно простой пользовательский интерфейс с легким в освоении и использовании рабочим процессом, современным 64-битным аудио с низкой задержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2022Разработчик: © 2022 ImimotПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C6F4E1F86DFCF73D5F3006DE3BFBAB7DC90E2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432944   (162153) от 19.12.2020
+
+Лыжные гонки. Кубок мира 2020-2021. 2-й Этап. Давос (Швейцария). Спринт 1,5 км. Финалы (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по лыжным гонкам 2020-2021.
+12 декабря 2020, суббота. 15:45 МСК
+Этап 2. Давос (Швейцария)
+Спринт 1,5 км. Свободный стиль.(   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: СпортПеревод: Нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 02:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A59A4632A6D62C3601B78CBF97A8EB7B38D2554
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598745   (162154) от 20.12.2022
+
+Godwatt - Vol. III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signora morte [00:05:00]
+02. Sepolta [00:04:40]
+03. Croce [00:05:45]
+04. Delirio [00:04:39](   Читать дальше...   )Жанр: Heavy Rock, Stoner, DoomПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD06575E40A68F2D0F30DE61FCFE4EDC78649F25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674291   (162155) от 04.11.2023
 
 Дайана Найэд / Nyad (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
@@ -6,7 +184,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162155.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ magnet:?xt=urn:btih:84A8F58B4BBBA0BD31A1004425D4426D44A8361E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162156.jpg" />
 </div>
 
 
@@ -54,7 +232,7 @@ VA - The Chill Jazz Pleasure (2021) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downt
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162157.jpg" />
 </div>
 
 
@@ -81,7 +259,7 @@ magnet:?xt=urn:btih:943E05A0FE496DBF9571243100176C58AF01D54B
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162158.jpg" />
 </div>
 
 
@@ -105,7 +283,7 @@ Contacts Journal CRM 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162159.jpg" />
 </div>
 
 
@@ -130,7 +308,7 @@ NCH Express Burn Plus 9.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162160.jpg" />
 </div>
 
 
@@ -157,7 +335,7 @@ magnet:?xt=urn:btih:21018BE978A62D30B0C0D4BC67F0AF2179EB02C4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162161.jpg" />
 </div>
 
 
@@ -181,7 +359,7 @@ magnet:?xt=urn:btih:8FDB7362AB52120D0F42A7B247EBA762C0CCB91B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162162.jpg" />
 </div>
 
 
@@ -205,7 +383,7 @@ magnet:?xt=urn:btih:D044757E061113ABCF077DA9DF6057B3A341BB97
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162163.jpg" />
 </div>
 
 
@@ -232,7 +410,7 @@ magnet:?xt=urn:btih:0460E398EEE96B3357D90514FA6B2E83C096E155
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162164.jpg" />
 </div>
 
 
@@ -259,7 +437,7 @@ Luminar Neo 1.15.1.12389 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162165.jpg" />
 </div>
 
 
@@ -285,7 +463,7 @@ magnet:?xt=urn:btih:86389505063D1229309437F9C3F8E98F6EF17B78
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162166.jpg" />
 </div>
 
 
@@ -309,7 +487,7 @@ American Dream Machine - Deadhearts (2020) [FLAC|Lossless|tracks + .cue] <Modern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162167.jpg" />
 </div>
 
 
@@ -336,7 +514,7 @@ Moom 3.2.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162168.jpg" />
 </div>
 
 
@@ -361,7 +539,7 @@ LibreOffice 7.2.4.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162169.jpg" />
 </div>
 
 
@@ -385,7 +563,7 @@ magnet:?xt=urn:btih:E5A9A5FCB13BBB1F5DD66967F996A2E7D2AF2E03
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162170.jpg" />
 </div>
 
 
@@ -409,7 +587,7 @@ Hate Priest - Hate Priest / Lillins Currents (2019-2020) [MP3|320 Kbps] <Deathco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162171.jpg" />
 </div>
 
 
@@ -436,7 +614,7 @@ magnet:?xt=urn:btih:63E41B02E978EAC0166961B7CDDE992122AF51EB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162172.jpg" />
 </div>
 
 
@@ -460,7 +638,7 @@ Vanden Plas - The Ghost Xperiment - Illumination (2020) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162173.jpg" />
 </div>
 
 
@@ -474,180 +652,6 @@ Vanden Plas - The Ghost Xperiment - Illumination (2020) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E6064AA30EF442DEB2F1A0ECC142E6AD1264626
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517747   (162174) от 16.12.2021
-
-Firefox Browser 95.0.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D706C9468DB96FF04287093C81309EBAE877C79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598690   (162175) от 20.12.2022
-
-NCH Crescendo Masters Pro 8.86 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Crescendo Masters для написания музыкальных заметок и создания музыкальных партитур на Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2022 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC6C73B1359CF5C2D88BFF27C78A632C43E2079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517693   (162176) от 16.12.2021
-
-Вероника Трифонова | Последняя жертва (2021) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнесмен Георгий Карасёв и его жена Ксения – автор красочных триллеров – терпят не лучшие финансовые времена. Супруги переезжают в маленький городок, который оказывается вовсе не безобидным. Сонный, окруженный непролазными лесами, он много лет страдает от боли, причиняемой неведомым злом: в мрачных дебрях то и дело пропадают девушки. Преступления с отсутствием улик (   Читать дальше...   )Жанр: Полицейский детектив, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E341F9A5332B0A471A9E50DB944D1E73DDB6C13F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432923   (162177) от 19.12.2020
-
-Los Cochinos - Tequila Berserker (2020) [FLAC|Lossless|tracks + .cue] <Death'n'Roll, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tequila Berserker [00:04:50]
-02. Tits or Face [00:03:32]
-03. Deviant Romance [00:04:23]
-04. Cutletties [00:04:25](   Читать дальше...   )Жанр: Death'n'Roll, Groove MetalПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E80F5DD989E2C00716863263047C0710AB9660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598807   (162178) от 20.12.2022
-
-Vellum 3.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
-Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2022 180gПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37095EE9773B9884054D9891461D498D5DA37A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826469   (162179) от 19.10.2025
-
-Any Video Downloader Pro 9.6.3 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736E87053F7D7FE491312385F49EE512EB8EF8EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433025   (162180) от 19.12.2020
-
-ScreenFlow 9 v9.0.6 CR2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162180.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFlow - создаем свои скринкасты
-Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
-Простая, но крайне мощная утилита для захвата и записи видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768F4F327E667D57ABB805163B83CA1240BD27FF
 ```
 
 

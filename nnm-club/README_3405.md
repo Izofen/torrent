@@ -1,3 +1,81 @@
+###  Публикация: 1729018   (108212) от 09.06.2024
+
+Николай Лесков | Воительница. Тупейный художник. Левша. Грабёж (2007) [MP3, Фаина Раневская, Михаил Ульянов, Михаил Яншин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Фирмы Мелодия».
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+На диске представлены (   Читать дальше...   )Жанр: Русская литература, классика, рассказ, пьесаИздательство: 1С-Паблишинг, МФГУП «Фирма Мелодия»Продолжительность: 03:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4D54F97249948D2D4806D014E25729410F162B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728857   (108213) от 09.06.2024
+
+Mephisto - Forever Mine (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mephisto - Forever Mine (2:56)
+02. Mephisto - Forever Mine (Extended Mix) (4:47)Жанр: Nu-Disco, HouseПродолжительность: 00:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63CB5739A7F7EDDF2C037768C9F2C276812E6C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729023   (108214) от 09.06.2024
+
+Алексей Кузнецов - В старом стиле (2022) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108214.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Случайная встреча / Sluchainaya Vstrecha 3:21
+02. Garota de Ipanema 6:34
+03. Верные друзья / Vernye Druzja 7:20(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B80A218CBEFAA61F219443F5E3409EFC263BCE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728727   (108215) от 09.06.2024
 
 PowerDirector – Video Editor v14.1.0 b2406061 Mod by Balatan [Ru/Multi]
@@ -6,7 +84,7 @@ PowerDirector – Video Editor v14.1.0 b2406061 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108215.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:CB91C410ABFD81E01AC07320F49870DC8ED4445F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108216.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:2CBB11375D80A2FB9CD87611897CA786B83100AB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108217.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ FontViewOK 8.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108218.jpg" />
 </div>
 
 
@@ -102,7 +180,7 @@ magnet:?xt=urn:btih:E9AA2F4ED09641140675EA7B09F3318BBB0F11F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108219.jpg" />
 </div>
 
 
@@ -127,7 +205,7 @@ magnet:?xt=urn:btih:9851CAFBFE1AA7E45664738E82FED4E3440757FE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108220.jpg" />
 </div>
 
 
@@ -151,7 +229,7 @@ magnet:?xt=urn:btih:516384B4E6180B0B2AEF9ED45A078F0F28104C39
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108221.jpg" />
 </div>
 
 
@@ -175,7 +253,7 @@ magnet:?xt=urn:btih:445A797E5933064AB7414B40B4A38DB7F5002216
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108222.jpg" />
 </div>
 
 
@@ -200,7 +278,7 @@ magnet:?xt=urn:btih:6302487DAAE3D8AF49E77564A3EFBCAB0DD3AE69
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108223.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ magnet:?xt=urn:btih:71C90A85984A955DEAC6DB9A8BFD98ACDA18D438
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108224.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ VA - Classical & Baroque Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108225.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ Endangered Reign - The Forester Awakens (2024) [MP3|320 Kbps] <Power, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108226.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ PrivaZer Pro 4.0.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108227.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108228.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ AccuWeather - прогноз погоды 20.3-2-google Mod by LITEAPKS [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108229.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Terminal Zero - Brace for the End (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108230.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ SnapEdit - ИИ фоторедактор / SnapEdit - AI Photo Editor 6.4.4 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108231.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Newfangled Audio - Recirculate 1.1.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108232.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Ventusky: Прогноз погоды 35.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108233.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ magnet:?xt=urn:btih:21021A5046A5BED685390F01AE8EEB7B6300B4D1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108234.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ StaxRip 2.40.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108235.jpg" />
 </div>
 
 
@@ -525,7 +603,7 @@ magnet:?xt=urn:btih:4B9A2E726265126223881BAD9FAE5F9BA5281EC2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108236.jpg" />
 </div>
 
 
@@ -549,7 +627,7 @@ Telegram Desktop 5.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108237.jpg" />
 </div>
 
 
@@ -562,78 +640,6 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:983AB4A06F3EC7D25C343C84769074384D839942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728916   (108238) от 09.06.2024
-
-Eventide - Ensemble Bundle 2.18.0 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагины Eventide дают вам возможность создавать в ваших записях звуковой ландшафт легендарных альбомов и открывать двери для создания новых звуков, о которых раньше не слышали. Наши устаревшие плагины, такие как H910 Harmonizer и H3000 Factory, воссоздают культовые звуки, используемые ведущими артистами, инженерами и продюсерами, такими как Стив Вай, Тони Висконти, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A77786157E08F97EEEACC59A6BE898562D3ED6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729096   (108239) от 09.06.2024
-
-Красная дверь / La porta rossa (2023) WEBRip (сезон 3, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонардо Калиостро — обычный полицейский североитальянского города Триеста. У него есть любимая работа и любящая жена Анна, но никому, кроме нее, он не доверяется и не доверяет. Расследуя преступления, он всегда работает один и не чувствует необходимости в друзьях. Однажды во время выполнения очередного задания Леонардо убивают. Он получает шанс остаться на Земле (   Читать дальше...   )Производство: Италия / VelafilmЖанр: фэнтези, триллер, детективРежиссер: Кармине Элиа, Джанпаоло ТескариАктеры: Габриэлла Пессион, Лино Гуанчале, Валентина Романи, Пьерпаоло Споллон, Андреа Боска, Елена Радоничич, Гаэтано Бруно, Leonardo Ghini, Антонио Жерарди, Фаусто Мария Шиараппа и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED35E333F3F8E835293654BB25D23838DAAB314
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728957   (108240) от 09.06.2024
-
-Полный провал / Fiasco (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сериал рассказывает о молодом и неопытном режиссёре, который хотел снять фильм о своей бабушке, спасшей в свое время несколько еврейских семей. Вдохновленный этой историей Рафаэль желает снять нечто невероятное, но на его беду из-за своей безалаберности и неумения отстаивать границы, а также руководить съёмочным процессом, все начинает идти наперекосяк. Мало (   Читать дальше...   )Производство: Франция / Five Dogs, Ninety FilmsЖанр: комедияРежиссер: Игорь ГотсманАктеры: Пьер Нинэ, Жеральдин Накаш, Паскаль Демолон, Лесли Медина, Луиз Колдефи, Джимо, Джульетт Гаске, Игорь Готсман, Венсан Кассель, Франсуа Сивиль и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DD3C31FA3CD1586D6CD3B6180F520A91A34BB0
 ```
 
 

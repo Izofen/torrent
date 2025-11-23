@@ -1,3 +1,78 @@
+###  Публикация: 1699652   (117702) от 14.02.2024
+
+Валентин Борцов | История спорта. От Древней Греции до наших дней (2023) [FB2]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спортивные состязания пришли к нам из далёкой древности. Уже много тысяч лет назад, во времена каменного века, наши предки соревновались между собой в меткости, скорости, силе и выносливости. Многие наскальные рисунки, которым уже около 30000 лет, рассказывают, как это происходило тогда. Конечно, пока это были не те виды спорта, к которым мы привыкли сегодня, но (   Читать дальше...   )Жанр: Спорт , ИсторияИздательство: ЦентрполиграфФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5AABF5FF70C2FF38FCCA9730D39EB783BE1C04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699279   (117703) от 14.02.2024
+
+VA - Nu Jazz & Electro Swing compilation part 55 (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan Palace - Mighty
+02. Riff Kitten - Fire Dance
+03. Caravan Palace - Lone Digger
+04. Kate Earl - Tongue Tied(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing HouseПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A668213403F7B96A0F6E3BA2F17B2DD85BFD75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699653   (117704) от 14.02.2024
+
+Журнал | Render Magazine №2 (февраль 2024) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117704.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Render Magazine» - Журнал посвящен компьютерной графике, секретам, обучению и новинкам индустрии. В нем нас ждут подборки лучших по мнению редакции 2D и 3D работ, отобранных Администраторами галерей, так же нас ожидают самые яркие новости и подборка лучших работ форумного раздела. Присутствуют и эксклюзивные переводы, а так же интервью с крупными отечественными (   Читать дальше...   )Жанр: Графика и моделированиеИздательство: Render MagazineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B90FBE243458E48685F117D16737838FB34261D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699650   (117705) от 14.02.2024
 
 Сергей Сурин | Английский футбол. Вся история в одной книге. Люди. Факты. Легенды (2018) [FB2]
@@ -6,7 +81,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117705.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:CCD11E8D3870DB4EABB3D6EB36ECD5E8FC198373
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117706.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:3D368B86DB1A6142F370C64C5331EA51E8046AE9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117707.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ CCleaner 6.21.10918 Technician Edition (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117708.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:19E7E93192ACD3DF157F09C165E941D5E85FCF66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117709.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ uTorrent Pro 3.6.0 Build 47012 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117710.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117711.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ VA - It's Glam Rock (2024) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117712.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ ReviverSoft PC Reviver 4.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117713.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ magnet:?xt=urn:btih:D2ECC853884C7A786E7BB01D382649620915D26E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_117714.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_117714.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ VA - Rock 'n' Roll 50s (2024) [MP3|320 Kbps] <Rock 'n' Roll>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117715.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ SamDrivers 24.2 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117716.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ magnet:?xt=urn:btih:D9E0262507BC7EBE863033A422B16024EF72E1D4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117717.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ magnet:?xt=urn:btih:68D6A54194CE363671D0E49E4382621C5AC6640F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117718.jpg" />
 </div>
 
 
@@ -352,7 +427,7 @@ magnet:?xt=urn:btih:CE2A11CF219FF56EBEF13B68F2E5251ABBC27021
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117719.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ magnet:?xt=urn:btih:6B053581A931539D328484854301DCEC320366EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117720.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ Microsoft .NET 8.0.2 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117721.jpg" />
 </div>
 
 
@@ -427,7 +502,7 @@ magnet:?xt=urn:btih:07FAD2DF4AFCBE38E049A4C987C91052603BD3DA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117722.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.5 Mod by srajawwal09 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117723.jpg" />
 </div>
 
 
@@ -475,7 +550,7 @@ magnet:?xt=urn:btih:F2FCE972D160E570FAEA7FD583B4265BA8F58F90
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117724.jpg" />
 </div>
 
 
@@ -499,7 +574,7 @@ HopToDesk 1.41.6 Portable +Install [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117725.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ Shuumatsu no Walkure II | Shuumatsu no Walkure II | Повесть о конце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117726.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ magnet:?xt=urn:btih:A2EC37B486CF47FF8750E833B5254D2DD11DFDE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117727.jpg" />
 </div>
 
 
@@ -558,80 +633,6 @@ magnet:?xt=urn:btih:A2EC37B486CF47FF8750E833B5254D2DD11DFDE6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AB89DDDBA07AD3010A3F863C38D312B7559099
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691358   (117728) от 14.02.2024
-
-Откройте, полиция! / Les Ripoux & Ripoux contre ripoux & Ripoux 3 (1984/1989/2003) BDRip [H.264/1080p] [Handmade] [Трилогия]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Циничная комедия о коррупции, грязи и настоящей дружбе. «Откройте, полиция» оказался довольно веселый, грустный и сильный фильм. Веселый, потому что он про дружбу. Грустный, потому что он про дружбу людей, купающихся в грязи из-за принятия аморальных ценностей. И сильный, потому что эта «грязная» дружба прошла серьезные испытания и не распалась.Производство: Франция / Films 7, GaumontЖанр: комедия, криминалРежиссер: Клод ЗидиАктеры: Филипп Нуаре, Тьерри Лермитт, Режин, Грейс Де Капитани, Клод Броссе, Ги Маршан, Жан-Пьер Кастальди, Лин Рено, Мишель Омон, Лоран Дойч, Хлоя Флипо, Жан-Люк БидоПеревод: Дублированный (R5), многоголосый профессиональный (CP Digital, ОРТ)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:46:38 / 01:45:58 / 01:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F2476202501CD2D1D0B10C77F83B9C92E78E1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699724   (117729) от 14.02.2024
-
-Хоккей. НХЛ 2023-2024. Колорадо Эвеланш - Вашингтон Кэпиталз (13.02.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117729.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 февраля 2024, среда. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 17 878 зрителей (96% при вместимости 18 573)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Томми Хьюз (Лондон, Канада); Линейный: Марк Шевчук (Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01314592111E60A51CE2747F7C8B2907A11AD185
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285739   (117730) от 14.02.2024
-
-Гюстав Флобер | Воспитание чувств [2012) [MP3, Светлана Репина]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гюстав Флобер (1821–1880) – французский романист, глава реалистической школы во Франции.
-Роман Гюстав Флобера «Воспитание чувств» (1869) насыщен социальными проблемами. В частности в романе описываются европейские события 1848 года (2 февраля с французского престола свергнут последний король из рода Бурбонов Луи-Филипп и 22 февраля – начало революции во Франции). (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 17:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748F6E4ABC72D16D9599106BD37CD7F2DA8B268F
 ```
 
 

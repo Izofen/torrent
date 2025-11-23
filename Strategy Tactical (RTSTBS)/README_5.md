@@ -6,7 +6,7 @@ Toy Tactics (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42982.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dicefolk (2024) [Ru/Multi] (Build 15263970/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43285.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.2.3/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44043.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dark Deity (2021) [Multi] (1.58/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44234.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44273.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44463.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44665.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.0) Scene FAiRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44877.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Campaign Series: Vietnam (2022) [En] (1.00.00) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44973.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.5.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44985.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Master of Magic (2022) [Multi] (1.09.17/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44996.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wargame: Red Dragon (2014) [Ru/Multi] (130278/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45201.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dicefolk (2024) [Ru/Multi] (20240819) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45789.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Combat Mission: Battle for Normandy (2023) [En] (Battle Pack 2/dlc) Scene Skidro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45811.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Warriors of the Nile 2 (2022) [Multi] (1.2030) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45860.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Warriors of the Nile (2020) [Multi] (1.0310) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45875.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Capes (2024) [Ru/Multi] (1.2.0.0/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46058.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Arco (2024) [En] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46421.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46529.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Troop (2023) [Multi] (Build 15201092) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47488.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48451.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48463.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Classified: France '44 (2024) [Multi] (20240718/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49447.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Anomaly Collapse (2024) [Ru/Multi] (1.0.14117.737) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50014.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Shrot (2024) [Multi] (1.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50614.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Scythe (2018) [Ru/Multi] (2.1.0/dlc) License GOG [Digital Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50728.jpg" />
 </div>
 
 

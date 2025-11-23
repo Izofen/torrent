@@ -1,3 +1,81 @@
+###  Публикация: 1680941   (133225) от 01.12.2023
+
+Дамир Халилов | AI профессионал (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не «Курс по разглядыванию красивых слайдов в PowerPoint» и уж точно не «Набор эффектных трюков».
+В рамках курса мы строим системный навык на твeрдой основе. Каждый модуль включает в себя:
+✅Теоретические занятия. Изучаем матчасть, промты, лучшие практики, функционал нейросетей.
+✅Воркшопы. Дамир в формате мастер-класса показывает, как применять полученные (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 31:12:49Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 223435   (133227) от 01.12.2023
+
+Д.В.Сивухин | Общий курс физики (5 томов) (2002-2005) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс физики в 5 томах, широко известный у нас в стране и за рубежом. Книги написаны на основе лекций, которые в течение ряда лет читались автором студентам Московского физико-технического института. Основное внимание уделено выяснению физического смысла и содержания основных законов и понятий физики, развитию у студентов навыков физического мышления и умения ставить (   Читать дальше...   )Жанр: Научная литература, физикаЯзык: РусскийФормат: DJVUКачество: Обработанный скан с OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE91B56B45FCFDD2B7687129AFE1F82C65EAF8D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408513   (133228) от 27.12.2012
+
+VA - Jazzy Market (2010) [MP3|320 kbps] <Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damcase - Sunset Blvd (Tsiridis Post Accademy Mix) (06:41)
+02. Drehwerk - Mecca Calling (08:55)
+03. Echonomist - The All Together (06:48)
+04. Eddie Zarook - Bang Bang (06:41)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389280BB12E6D844D4BF56EC4F89874A8F62D11A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680938   (133229) от 01.12.2023
 
 Необъяснимые скачки во времени / Time Addicts (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
@@ -6,7 +84,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133229.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.021s/dlc) Repack Other
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133231.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:027D7DD0712E3537EF1944A38402BF9161EF2C97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133233.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133235.jpg" />
 </div>
 
 
@@ -102,7 +180,7 @@ Adobe Photoshop 2024 25.2.0.196 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133236.jpg" />
 </div>
 
 
@@ -126,7 +204,7 @@ magnet:?xt=urn:btih:6D333922DC9E9A9527F84E3C24A92F9073EDD000
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133237.jpg" />
 </div>
 
 
@@ -150,7 +228,7 @@ magnet:?xt=urn:btih:C06199F37A12884D7CD95B571D5AE52897FCC5CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133238.jpg" />
 </div>
 
 
@@ -174,7 +252,7 @@ magnet:?xt=urn:btih:10F85339DC6F2F017ABEFF7A6261FC3537187260
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133239.jpg" />
 </div>
 
 
@@ -198,7 +276,7 @@ magnet:?xt=urn:btih:3C42E86363013B0C1CF262A1735ABF7897AED242
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133240.jpg" />
 </div>
 
 
@@ -225,7 +303,7 @@ magnet:?xt=urn:btih:CCC099EAB713041C7AF60FB7C716B70168575FD0
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133242.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ SUMo 3.4.15.190 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133245.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133246.jpg" />
 </div>
 
 
@@ -308,7 +386,7 @@ magnet:?xt=urn:btih:692F398EBDA796D11BCA2B7CFA75F4D011733677
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133248.jpg" />
 </div>
 
 
@@ -332,7 +410,7 @@ magnet:?xt=urn:btih:3A43017BF88B1A52D14F36041F8317674549D01A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133250.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ magnet:?xt=urn:btih:CC634BA2509F6E8BBF42BE7838FC8CF971C0D722
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133252.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ magnet:?xt=urn:btih:951889CF905E8D36D142C1AAAC591A917C22029D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133254.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ magnet:?xt=urn:btih:951889CF905E8D36D142C1AAAC591A917C22029D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133256.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ magnet:?xt=urn:btih:90B80C3ED559972EC2D8C8C357D11E23E9F1AA81
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133258.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133259.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Axxis - 2CD (2006-2007) [WavPack|Lossless]<Power / Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133261.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ Axxis - 2CD (2006-2007) [WavPack|Lossless]<Power / Heavy Metal>
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133262.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ magnet:?xt=urn:btih:0F27B2FED8C6435E40D1BCF279F3CED20F954998
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133264.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ Logic Pro X 10.8.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133266.jpg" />
 </div>
 
 
@@ -569,79 +647,6 @@ Logic Pro X — самая совершенная версия Logic. Мощны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5FE95A208AA65646E87B4BE882596279B9468EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679026   (133268) от 01.12.2023
-
-Соседка (2023) WEBRip [H.264/720p] (сезон 1, серии 1-12 из 12)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцатипятилетний Фёдор Садовский — скромный директор клининговой компании, в чьей жизни давно нет места ни новым людям, ни уж тем более подвигам. Последние несколько лет его единственные развлечения — работа и шахматные турниры с лучшим другом Борей. При этом на доме, в котором проживает Фёдор, висит мемориальная доска в память об его отце — знаменитом советском (   Читать дальше...   )Производство: Россия | «Good Story Media», «ТНТ»Жанр: Лирическая комедияРежиссер: Байбулат БатуллаАктеры: Егор Корешков, Юлия Хлынина, Дмитрий Лысенков, Алексей Чадов, Елена Валюшкина, Дарья Пицик, Анастасия Светлова, Мария Шумакова, Игорь Чернявый, Игорь ХрипуновПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1873B2ADC6518B70A8E4D156037B10BDF2AAB348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681043   (133270) от 01.12.2023
-
-Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Тампа-Бэй Лайтнинг (30.11.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133270.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 декабря 2023, пятница. 03:00 МСК. Стадион: Амали-Арена (Тампа, США), 19 092 зрителя (100% при вместимости 19 092)
-Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада)Телекомпания: BSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728EDFEAD0FFF9EF585254DA4DF7554C8127CB0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681078   (133272) от 01.12.2023
-
-Skinwalker Hunt (2022) [Ru/Multi] (1.011) Repack Other s
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skinwalker Hunt — это симулятор охоты, смешанный с хоррором, от создателя игры Witch Hunt. Основными особенностями игры является фокус на исследовании, нелинейности и атмосфере. Вам предстоит играть за коренного американца, который занимается охотой на монстров. Вас ждет охота на легендарное существо под названием cкинуокер, охота на которое будет происходить в различных (   Читать дальше...   )Тип издания: RepackРазработчик: GuaЖанр: Simulator, Horror, 1st Person, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B60A0E514BE039F3467FE7D27E1533F5A7EBBE2
 ```
 
 

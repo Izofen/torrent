@@ -1,3 +1,77 @@
+###  Публикация: 1699587   (117832) от 13.02.2024
+
+NVIDIA GeForce Desktop Game Ready 551.52 WHQL + DCH [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117832.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1288EF3B6EBAE636934D297F59A38C01BF5A9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699562   (117833) от 13.02.2024
+
+AVS Video Software 13.9.6.3 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117833.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVS Video Software представляет собой комплект из трёх программ для обработки видео файлов от AVS4YOU: AVS Video Editor, AVS Video Converter и AVS Video ReMaker.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458F302AEC19C483CA6BA4967FBB307488768B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699481   (117834) от 13.02.2024
+
+Карстен Бренсинг | Скрытая цивилизация. О сексе, культуре, чувствах и зависимостях животных в дикой природе (2023) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В головы всех представителей рода человеческого глубоко вбито убеждение, что homo sapiens — венец творения и царь природы.
+Но эта, несомненно, приятная мысль в корне неверна: ведь горбатые киты сочиняют песни, орангутаны мастерят игрушки, культура косаток насчитывает более 700 000 лет, а собаки обижаются на ложь, но могут простить, если перед ними извинятся.
+Карстен (   Читать дальше...   )Жанр: Биология, биофизика, биохимия , Природа и животныеПеревод: Маргарита А. СилаеваИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F097B4632848978821E5ADF8779CC56ED94D0BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699527   (117835) от 13.02.2024
 
 Моя прекрасная свадьба / Beautiful Wedding (2023) WEBRip [H.264/1080p] [звук с ТS] [AD]
@@ -6,7 +80,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117835.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117836.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:496164FB4EAFBD5DCF336E3DC9DDEA85E8BA0E92
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117837.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ FabFilter Total Bundle v.13.02.2024 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117838.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:BA097249A2E258094B12128F04AEEB2CE1FF2DEE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117839.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ ClassicDesktopClock 5.53 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117840.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Viber 22.0.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117841.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ magnet:?xt=urn:btih:57EA6538A1E908AC02DA625AA13732B6087DBF11
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117842.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ GPU Caps Viewer 1.63.0 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117843.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ magnet:?xt=urn:btih:9B8535904C842B73DD18A97EF5CFF6BE863880CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117844.jpg" />
 </div>
 
 
@@ -250,7 +324,7 @@ Process Lasso Pro 12.5.0.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117845.jpg" />
 </div>
 
 
@@ -274,7 +348,7 @@ magnet:?xt=urn:btih:ED106A43D7D21159D0F0506CD1CAA1B84715536E
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117846.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ GPU Shark 0.32.0 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117847.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ magnet:?xt=urn:btih:EE4BDBB989B6DC2D870B4CAC0552942EF0751016
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117848.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ magnet:?xt=urn:btih:D9EB393C579B8012CDA5C78CADF46C2AD7BA8D3B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117849.jpg" />
 </div>
 
 
@@ -371,7 +445,7 @@ magnet:?xt=urn:btih:6EC99862F69F3E37B19B6FDC3C92573FF38510DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117850.jpg" />
 </div>
 
 
@@ -395,7 +469,7 @@ magnet:?xt=urn:btih:9ED28D0C3B7BF061428A15C20931ECA57E22193F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117851.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ magnet:?xt=urn:btih:38858EA8260D5FE3FC8B4921362ADD774ACCA9DD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117852.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ magnet:?xt=urn:btih:CC9A2D2FE78A0AA145B7F02FC1C25593473C1E99
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117853.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ magnet:?xt=urn:btih:4ABD75D2A765A6AC436F7E1FAF00B55DD9E2C85A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117854.jpg" />
 </div>
 
 
@@ -494,7 +568,7 @@ magnet:?xt=urn:btih:080CD5F620126E30760D53299AC830F55B732177
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117855.jpg" />
 </div>
 
 
@@ -518,7 +592,7 @@ magnet:?xt=urn:btih:080CD5F620126E30760D53299AC830F55B732177
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117856.jpg" />
 </div>
 
 
@@ -542,7 +616,7 @@ magnet:?xt=urn:btih:96D9C77AC2804727DDCA9F5764BFED0DDBDA4766
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117857.jpg" />
 </div>
 
 
@@ -555,78 +629,6 @@ magnet:?xt=urn:btih:96D9C77AC2804727DDCA9F5764BFED0DDBDA4766
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E584C45AAD7BC9E85BA7C698B225E5EC5AA207D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699381   (117858) от 13.02.2024
-
-Slot Shots Pinball (2024) [En] (1.0) Repack FitGirl [Ultimate Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцать великолепных столов для игры в пинбол и совместимая с Steam Deck со скоростью 60 кадров в секунду. Новые столы имеют более крупные игровые поля, лучшую физику, лучшую графику, лучшие спецэффекты, лучшие ракурсы камеры, более длинные саундтреки, полную поддержку контроллеров, онлайн-таблицы лидеров и больше снимков на игровых автоматах!Тип издания: RepackРазработчик: Pinblend StudiosЖанр: Казуальные игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB776AC44772B828A6511AC60D7B79E24AFB1A35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699405   (117859) от 13.02.2024
-
-Ирина Логвиненко, Валентин Шишкин | Альфа код. Невербальный язык телодвижений высшего статуса (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами глубокое и ценное знание о возможностях человеческого тела. Наши инстинкты владеют этим с рождения. Невербально мы считываем с человека всё: его социальный и материальный статус, уровень воспитания, реализации, уверенности в себе. Эта книга переводит подсказки интуиции в доступные всем знания и навыки. Вы сможете изменить свою невербалику и превзойти себя, (   Читать дальше...   )Жанр: ПсихологияИздательство: СамиздатФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF24EA9717BDC2E3A0D10C6FDCA995115982EC92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699546   (117860) от 13.02.2024
-
-Wondershare UniConverter Ultimate 15.5.0.9 (х64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0180D841BDF0C261CB80BCA3D252D4EE91A591
 ```
 
 

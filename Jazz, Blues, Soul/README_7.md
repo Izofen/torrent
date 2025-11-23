@@ -6,7 +6,7 @@ Anthony Gomes - Praise The Loud (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20596.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20596.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jeff Libman - Feet Off the Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20696.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20696.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Clark Terry And His Orchestra - Featuring Paul Gonsalves (1959) 2001, Storyville
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20699.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20699.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris Connor - Chris Connor (1956) 1991, Atlantic [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21217.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21217.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Joe Bonamassa - Santiago - The South American Broadcast (2024) 2 x CD [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21226.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21226.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Eric Clapton, John Mayall & The Bluesbreakers - Blues Anthology, Vol. 3 (REMASTE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21762.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21762.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Phantom Alley Swing - Pineapple Parade (2025) [MP3|320 Kbps] <Jazz, Swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21944.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21944.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Vintage Jazz Ballads: Timeless Romantic Standards (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22156.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22156.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dudley Taft - 10 альбомов (2011 - 2025) [FLAC|Lossless|image + .cue, tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22455.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Juicy Lucy - Collection, 9 Albums (1969 - 2002) 11 CD [FLAC|Lossless|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22834.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Koko Taylor - 14 Albums (1969 - 2007) 16 CD [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22853.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Joe Bonamassa - Santiago (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22894.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Papik & Laura Lanzillo - La Gatta (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23543.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23543.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Greatest Blues Songs Of All Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23548.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23548.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Freddie Hubbard - Gleam (1975) 2CD, 2012, Wounded Bird Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23736.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Travelin' Light - Makin' Whoopee (1993) Telarc Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25000.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dean Zucchero - Song For The Sinners (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25105.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25105.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Pop International Hits Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25619.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25619.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Luther Allison - 22 Albums (1969 - 2009) 23 CD [FLAC|Lossless|image + .cue|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25792.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Johnny Winter - 55 Albums, 2 Box Set (1968 - 2016) 74 CD [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25806.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Dr. John - 42 Albums, 2 Box Set (1968 - 2024) 64 CD [FLAC|Lossless|image + .cue|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26541.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Trautner & Becker - The Tunes & Blues Art Band (Dark Is the Night) (2025) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27311.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27311.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Muddy Waters - 63 Albums, 3 Box Set (1955 - 2021) 91 CD [FLAC|Lossless|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27487.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Shemekia Copeland - 11 Albums (1998 - 2024) [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27562.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Taj Mahal - 39 Albums, 2 Box Set (1968 - 2024) 62 CD [FLAC|Lossless|tracks + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27803.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Arlee Leonard, Cleave Guyton & Igor Dmitriev Trio - Status Quo (2008) 2024, Apol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29379.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29379.jpg" />
 </div>
 
 

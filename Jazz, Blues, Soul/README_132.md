@@ -6,7 +6,7 @@ Willis Jackson - Soul Night Live! (1964) 2002, Prestige [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150569.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Horace Silver Quintet - Further Explorations (1958) 2005, Toshiba-EMI [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150571.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Papik, Laura Lanzillo & Claudio Fiori - Yes I Know My Way (A Tribute To Pino Dan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150697.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Caravan Palace - <I°_°I> (2015) 2025, 10th Anniversary Edition [FLAC 24/44.1|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150709.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Valery Ponomarev - Means Of Identification (1993) Reservoir[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150830.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rein De Graaff & Dick Vennik Quartet - Modal Soul (1977) Remaster, 2015, Solid R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150855.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Maxine Sullivan - Great Songs From The Cotton Club (1984) 1987, Sepan Milan [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150947.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ron Carter - Plays Bach (1991) Philips [FLAC|Lossless|tracks + .cue] <Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150991.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ William Gard Gaffney - You Can't Take it With You (2025) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151039.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jeff Liberman - Stream of Consciousness (2020) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151123.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kenny Wayne Shepherd - Dirt On My Diamonds, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151140.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ian Coldsteel Kenny - Coldsteel Blues, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151330.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Frederick (Freddie) Roach - All That's Good (1964) Remaster, 2014, Universal[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151357.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Grant Green - Feelin' The Spirit (1962) 1994, Toshiba-EMI [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151362.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Son Henry - Glenn Highway Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151384.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Willis Jackson - Keep On A Blowin' (1959 - 1962) 1999, Prestige [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151450.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lee Morgan - Dizzy Atmosphere (1957) 2008, Jazz Beat [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151501.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Barbora Swinx - Colors of Love (2015) [MP3|320 кб/с] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151516.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Bourbon Street Players - A Jazzy Christmas in New Orleans (1993) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151580.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Jeff Liberman - Celebrate The Day (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151604.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lionel Hampton & His Orchestra Featuring Sylvia Bennett - Sentimental Journey (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151609.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Erroll Garner - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151637.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Phil Woods Septet - Pairing Off (1956) Remaster, 2013, Universal[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151741.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Australian Jazz Quintet - In Free Style (1958) Remaster, 2014, Solid Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151751.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jeff Liberman - Solitude Within (1975) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151822.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Jerry Bergonzi - Spotlight On Standards (2016) Savant [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151869.jpg" />
 </div>
 
 

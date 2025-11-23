@@ -1,3 +1,152 @@
+###  Публикация: 1677854   (143428) от 22.11.2023
+
+Зази в метро / Zazie dans le metro (1960) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143428.jpg" />
+</div>
+
+
+###  Подробнее
+
+комедия по вышедшему в 1959 году одноимённому роману Раймона Кено... Зази приезжает в Париж вместе с матерью, которая сразу отправляется к своему другу, оставив дочь на попечение дяди Габриэля. Тот показывает девочке город и даже забирается с ней на Эйфелеву башню. Но Зази ничего не интересует, кроме метро, а оно, как назло, закрыто из-за забастовки. И тогда юная (   Читать дальше...   )Производство: Франция, Италия, Nouvelles Éditions de Films, LocafilmsЖанр: фэнтези, комедияРежиссер: Луи МалльАктеры: Катрин Демонжо, Филипп Нуаре, Юбер Дешам, Карла Марлье, Анна Фрателлини, Витторио Каприоли, Жак Дюфило, Ивон Клеш, Одетт Пике, Николя Батай, Антон Робло, Марк Делшниц, Жак Гёзи, Кристин Ховард, Луис ЛаЛэйннПеревод: профессиональный многоголосый, профессиональный одноголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E996DE86EBA29C0BBD851FF54FD6916852E05970
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969935   (143429) от 29.12.2015
+
+Shakra - The Best (2015) 2CD Compilation  [MP3|320 кб/с] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil In Me
+02. I Do It My Way
+03. Welcome Home Again
+04. And Life Begins(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BB01FF49DBCF367891761537DAAB56F18CE5A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590419   (143430) от 17.12.2012
+
+Gilrs Wallpaper (16.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF0016C7315115676DD29B0629D490E8AB14D34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435442   (143431) от 28.12.2020
+
+О.Г. Быковский и др. | Сварочное дело (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются основные способы сварки, резки и контроля качества сварных швов и соединений. Приводятся рекомендации относительно выбора материалов, технологии и техники сварки и резки, особенностей использования современного оборудования, мероприятий по организации и охране труда при этих видах металлообработки.
+Соответствует ФГОС СПО последнего поколения. Рекомендовано (   Читать дальше...   )Жанр: Материаловедение, технологии материаловФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957F2A6126808C012ACA80EDE3D0F7F85C8989B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520353   (143434) от 27.12.2021
+
+Nik Complete 4 Collection by DxO v4.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
+Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2021Разработчик: © DxOПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA50B516C81C76B8A4C3A22EFB68C37DD3F8480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348493   (143435) от 28.12.2019
+
+Наталия Антонова | Туфелька для призрака (2020) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143435.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новогодние праздники в дом к частному детективу Мирославе Волгиной приходит Андрей Лукин и требует отыскать… призрака! В далекой юности он провел ночь с девушкой Зинаидой и только после узнал, что она умерла, рожая его ребенка. Но теперь Андрей уверен, что на днях видел Зину на вечеринке. Приблизиться к ней ему не удалось – девушка сбежала, потеряв туфельку. Мирослава (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300EC150B4A8A6ED6361E78365A65AAF94162735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520160   (143436) от 27.12.2021
 
 KLS Backup 2021 Professional 11.0.0.5 [Ru/En]
@@ -6,7 +155,7 @@ KLS Backup 2021 Professional 11.0.0.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143436.jpg" />
 </div>
 
 
@@ -30,7 +179,7 @@ Schubert: Symphony no.8 'Unfinished' - Schumann: Symphony no.4 (Karl Bohm & Orch
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143438.jpg" />
 </div>
 
 
@@ -57,7 +206,7 @@ Slate Digital - Virtual Mix Rack Complete 2.5.2.1 VST, VST3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143439.jpg" />
 </div>
 
 
@@ -81,7 +230,7 @@ magnet:?xt=urn:btih:2A88128C7698D979C70FC109B00196756F9E73A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143441.jpg" />
 </div>
 
 
@@ -106,7 +255,7 @@ magnet:?xt=urn:btih:512D416D6DB398F3F5A7F5CC3AAB71703CD889E7
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143442.jpg" />
 </div>
 
 
@@ -130,7 +279,7 @@ Tehace - Zipped Noise From Hell (2006) [MP3|320 кб/с]<Technical Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143443.jpg" />
 </div>
 
 
@@ -163,7 +312,7 @@ magnet:?xt=urn:btih:3BAD4346468385D0B61CD2A06F04C118FAF1BF6D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143444.jpg" />
 </div>
 
 
@@ -187,7 +336,7 @@ magnet:?xt=urn:btih:1988E8F551ACE2A9EF1DE0AE444DB32AD7B6B87F
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143446.jpg" />
 </div>
 
 
@@ -211,7 +360,7 @@ magnet:?xt=urn:btih:CFFEA1CEEE0AFB0E961B6E7AECDA6E815327222B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143447.jpg" />
 </div>
 
 
@@ -235,7 +384,7 @@ Comedy Woman  (2015.12.18) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143448.jpg" />
 </div>
 
 
@@ -259,7 +408,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143449.jpg" />
 </div>
 
 
@@ -283,7 +432,7 @@ Sexy Girls Wallpapers (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143450.jpg" />
 </div>
 
 
@@ -307,7 +456,7 @@ magnet:?xt=urn:btih:B5E4229A75B2BFE01F0A41AB232398D6671E5BBA
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143451.jpg" />
 </div>
 
 
@@ -332,7 +481,7 @@ Sexy Girls Pack Wallpapers (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143453.jpg" />
 </div>
 
 
@@ -356,7 +505,7 @@ magnet:?xt=urn:btih:F0F49502320ADFF831652562E2BDAD48CBCD8CBE
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143454.jpg" />
 </div>
 
 
@@ -380,7 +529,7 @@ magnet:?xt=urn:btih:C806975C9A9554AABEAB3ED921056C40652160D1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143455.jpg" />
 </div>
 
 
@@ -405,7 +554,7 @@ magnet:?xt=urn:btih:903F3021720D1F65F8F9797D8B7C09BDE9565355
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143456.jpg" />
 </div>
 
 
@@ -429,7 +578,7 @@ magnet:?xt=urn:btih:2977A05DA9FD794F902574183D2634814AD6F155
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143457.jpg" />
 </div>
 
 
@@ -455,7 +604,7 @@ magnet:?xt=urn:btih:3A2283852208B4900F1C3F1264C90627D76ECB36
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143458.jpg" />
 </div>
 
 
@@ -479,7 +628,7 @@ magnet:?xt=urn:btih:7D00B98F701562B943C782288A871EAF5211777C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143459.jpg" />
 </div>
 
 
@@ -491,152 +640,6 @@ magnet:?xt=urn:btih:7D00B98F701562B943C782288A871EAF5211777C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D42D264F6BD47599B4343AB8FC2A057D7092E449
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348562   (143460) от 28.12.2019
-
-Tipard Blu-ray Converter 9.2.28 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard Blu-ray Converter - удобный и простой в работе конвертер DVD, с помощью которого их можно преобразовать в наиболее популярные форматы видео, как например TS, MP4, 3GP, AVI, WMV, MPEG, MKV, MOV, M4V, FLV, ASF, DivX, XviD, RMVB, а также извлекать с дисков аудиодорожки с последующим сохранением в MP3, MP2, AAC, AIFF, ALAC, FLAC и т.д.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073F771F6BDDBC1473234F11F5AE4D767F140370
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970283   (143461) от 29.12.2015
-
-Татьяна Эдел | Приключения кота Батона [сборник] (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки и рассказы, включенные в эту книгу, окрашены яркими эмоциями, подкупающей искренностью, юмором и правдой реальной жизни. Они увлекательны, волшебны, большей частью смешны и добры и уже потому нравоучительны без менторства.Жанр: Сказка, Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D897E1997B1E01B90EE236505D4726820A3ECC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195320   (143462) от 28.12.2017
-
-Проекты - Проект ProShow Producer - It's Rain [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект выполнен в PSP-9. Слайдшоу с эфектами дождя.
-Проект может быть использован в оригинальном исполнении, либо набором стилей и переходов для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью и саундтрек - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D6D9CB8DE9070D671BEE463FD20210C0208AC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520348   (143463) от 27.12.2021
-
-Софья Ковалевская (1956) SATRip  [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного спектакля Ленинградского государственного театра Комедии по пьесе братьев Тур о жизни замечательного русского ученого Софьи Ковалевской, первой в мире женщины-профессора, математика.Производство: СССР / ЛенфильмЖанр: Драма, Биография, ИсторияРежиссер: Иосиф ШапироАктеры: Елена Юнгер, Лев Колесов, Тамара Сезеневская, Владимир Усков, Бруно Фрейндлих, Ольга Волкова, Павел Суханов, Зинаида Афанасенко, Сергей Петров, Григорий ШмойловСубтитры: ОтсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA774F1EA0B367082E8BE665290485AA4FCAF2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435249   (143464) от 28.12.2020
-
-Новогодний "Голубой огонек" (1985) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1985 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947E0063B16C679F25AD548771C36808B2130A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272235   (143465) от 27.12.2018
-
-Stary (2018) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть - это неминуемое и логическое завершение жизни. Все люди, так или иначе, это понимают, но до конца отваживаются принять только единицы. Проживите долгую жизнь за короткой промежуток времени. Stary - история о старом путнике. Очнувшись в больнице после тяжелой операции, отправьтесь в долгую дорогу по опустевшим местам из памяти главного героя. Вам предстоит (   Читать дальше...   )Тип издания: LicenseРазработчик: YarsЖанр: Adventure, Action (Horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B43D86271F01403257DDCC6BF8F8C7C3C6D048
 ```
 
 

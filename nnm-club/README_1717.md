@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3EF58D374848FE83EA95C923BFAF1A8403406ACB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B3931514F8FBEF0A1AF3E2B9F280A92C027DA46A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44999.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DEDC7BFA552F048D588C9B49ADB9ED97F46F01BE
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45000.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9D8B5F2E28251C0681C91B0245B644F84970F196
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45001.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1770C0A8BA5ADB50C682DC2F969D847ADCCDED7A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45002.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Regiments (2022) [Ru/Multi] (1.4.5/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45003.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4CBFD9ED527907AEC1661309F2E8389419CD1CDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45004.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ JetBrains PyCharm Professional 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45005.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:CD40A58E7CDEB1DE7380AB5813C0E1D1C27689C4
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45006.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:9E04684AD0A8663726BFEEA77AE2A9F7BD381BB4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45007.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Far Cry: Far Cry Irina Go 2 (2022) [Ru/En] (1.0) Repack/Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45008.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Terminator Zero | Терминатор Зеро [2024, Web, 08 из 08] WEBRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45009.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ People Playground (2019) [En] (1.27.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45010.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:9C3AF24F7C35B6F03AE52DF38CE591EA0A88EA35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45011.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Vesperfin, Арина Веспер и др. | Личные финансы (2021)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45012.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NG: Покорители океана / OceanXplorers (2024) WEB-DL [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45013.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:9123CC46417AF2A5D7A6E579BDA947FD2B20E741
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45014.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 7 (2024) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45015.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:65B9586E31AC98A668547DB88993A3482D4910FF
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45016.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:2FCE44EC41AB7D6989C21F17A8B8A6DDA21BA16B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45017.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ YT Downloader 9.10.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45018.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ HomeBank 5.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45019.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:4B251982BB0A4701A11CB8933ECCD68746EE0F10
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45020.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Bryan Adams - War Machine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45021.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:C09C89B91587C2DC94FD56895C20067A93B5AE0A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45022.jpg" />
 </div>
 
 

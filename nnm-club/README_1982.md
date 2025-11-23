@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51896.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:896BD4D472328149DB72A2F380A7CD62443023F5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51897.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:13019AA333EE35A8892AB23A62CC1F2CF5D3FE7E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51898.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B6C44582165460E672FFFD0D40EF80AB5629DC68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51899.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1D43AA17E145E0062161A69CB9B61CD0B0DA484B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51900.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ OpenShot Video Editor 3.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51901.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ReLens - Фокус и размытие DSLR 3.3.3 Mod by AjeethK [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51902.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ OfficeSuite Pro + PDF 14.5.52368 Lite-Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51903.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:52B38B6AA21D7A73E1BC90E099A39BA1858091F2
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51904.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Music News vol.393 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51905.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:85CC2CDF6DF646F259CDC9356960205D1CF20AD6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51906.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:77261A811C796C18BF14502B59C5C142C8758B86
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51907.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ WinToUSB Technician 8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51908.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Speedtest от Ookla 5.4.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51909.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:2EF8EE2F5E9F47DD292CCD801102E386C77B95AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51910.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C5DE6DA31FC1C12D4D57631F756E192AFEFFD2BF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51911.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Vivaldi 6.8.3381.46 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51912.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.1 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51913.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:19973C202065B89DC9B006BC931297414360FAA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51914.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ IObit Uninstaller Pro 13.6.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51915.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:84C0D4FA2F15B7F938DABFC528618896BB33A683
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51916.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:EBC7077ABDD84B38E34480E7E672B171D08F5431
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51917.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:EBC7077ABDD84B38E34480E7E672B171D08F5431
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51918.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:34541BF5E048BF91BD43509B3AD4E08632E67C80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51919.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:F33FA4B6B151A375F232DC19B9170A37A2E25D9E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51920.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:635573E4FD8773474227E47A52064B89BFDDFBFB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51921.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1695919   (119912) от 01.02.2024
+
+Самой передовой стране Европы срочно требуются спецы по MS-DOS и Windows 3.11. На них работает железнодорожная сеть.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_119912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германия остро нуждается в системных администраторах, владеющих MS-DOS и Windows 3.11. Эти операционные системы морально устарели 30 лет назад, но все еще используются в работе немецкой сети железных дорог. Поиск специалистов осложняется тем, что многие современные администраторы еще не родились, когда Windows 3.11 и тем более MS-DOS были в ходу. Те, кто умеет с (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 398473   (119913) от 01.02.2024
+
+Lynch Mob - 12 Albums, 3 EP (1990 - 2023) 18 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lynch Mob - хард-рок группа из США, образованная в 1989 году бывшим участником легендарного хард-рок коллектива Dokken гитаристом Джорджем Линчем (George Lynch). Джордж Линч, известный и талантливый гитарист, отличавшийся своеобразной техникой игры, пришел в Dokken в 1979 году. С ним группа записала ряд успешных “платиновых” альбомов, таких как Under Lock and Key, (   Читать дальше...   )Список альбомов:
+Wicked Sensation (1990)
+Lynch Mob (1992)
+Syzygy (1998)Жанр: Hard RockПродолжительность: 16:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01C78B16CE0AE3056C90CDF6B1F932C57590C2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663101   (119914) от 01.02.2024
+
+Маскарад / Mascarade (2022) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адриен, танцор, прервал карьеру из-за аварии. С этого момента он праздно проводит время на Лазурном берегу, используя поддержку бывшей киноактрисы Марты. Жизнь Адриена меняется после встречи с Марго — красивой девушкой, добывающей деньги с помощью мошенничеств и связей с богатыми мужчинами. Молодые люди придумывают дьявольский план, чтобы обеспечить себя.Производство: Франция / Les Films du Kiosque, Pathé, Orange StudioЖанр: Драма, криминалРежиссер: Николя БедосАктеры: Пьер Нинэ, Изабель Аджани, Франсуа Клюзе, Марина Вакт, Эммануэль Дево, Лаура Моранте, Шарль Берлен, Джеймс Уилби, Николя Бриансон, Мари ФабрПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, французскийСубтитры: Русские, английские, французскиеПродолжительность: 02:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEA9B0864042179F472AADA89178EF64BCB487E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648201   (119915) от 01.02.2024
 
 One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
@@ -6,7 +81,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.26/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119915.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ CopyQueue Evaluation for Mac 3.1E [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119916.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ JvlKvlt - Worshipping Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119917.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Sergio Rowles & The Cinnamon Souls - Sergio Rowles & The Cinnamon Souls (2024) [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119918.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Dato 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119919.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ Sound Siphon 3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119920.jpg" />
 </div>
 
 
@@ -157,7 +232,7 @@ EdgeView 4.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119921.jpg" />
 </div>
 
 
@@ -181,7 +256,7 @@ magnet:?xt=urn:btih:20A85324F27ED37BF1DB445822C1A2F50F0DFCE5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119922.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ VA - Fusion Jazz Funk Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119923.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ Break the Curse - Trial and Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119924.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ magnet:?xt=urn:btih:FA26C148EACA986AC1E03338DF545EA48C4F1CE8
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119925.jpg" />
 </div>
 
 
@@ -286,7 +361,7 @@ magnet:?xt=urn:btih:D892C9F747D3FF0465BA3EB5CE31E36D7D02C192
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119926.jpg" />
 </div>
 
 
@@ -310,7 +385,7 @@ magnet:?xt=urn:btih:F50C26BDF4064BD1AA706DA35C60666B6FA3F991
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119927.jpg" />
 </div>
 
 
@@ -334,7 +409,7 @@ Wondershare UniConverter for Mac 15.5.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119928.jpg" />
 </div>
 
 
@@ -359,7 +434,7 @@ VA - Jazz Lounge Relaxation Intimate Moments Instrumentals (2024) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119929.jpg" />
 </div>
 
 
@@ -386,7 +461,7 @@ VA - Easy Listening Soothing Jazz After Dark (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119930.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ magnet:?xt=urn:btih:E4A0E41FEB0210BCD79D402A3EBF9DC39757153E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119931.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ Edge - Latency, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119932.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ magnet:?xt=urn:btih:4CA9500EC0601270D5184D6E8E3BA656924E5536
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119933.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ Toshiyuki Miyama & New Herd - 90th Anniversary Concert (2012) 2CD, Little Beat [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119934.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ Aron Scharfegger - Metal Face (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119935.jpg" />
 </div>
 
 
@@ -544,7 +619,7 @@ VA - Jazz Tunes Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119936.jpg" />
 </div>
 
 
@@ -571,7 +646,7 @@ The Christopher Dean Band - Need a Friend (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119937.jpg" />
 </div>
 
 
@@ -585,84 +660,6 @@ The Christopher Dean Band - Need a Friend (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A817E8282D517CC8D02C2E978FE8CCCF8150A905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695712   (119938) от 31.01.2024
-
-Andy Lindquist - Balderdash Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Suited Man (4:14)
-02. Unfollow (2:55)
-03. Second Best (3:52)
-04. Can't Go Back (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B680F9A59252A847D126AD510BC4405839C5F6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695923   (119939) от 31.01.2024
-
-Michel Petrucciani - Estate (1982) 2005, TDM [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pasolini [5:31]
-02. Very Early [4:58]
-03. Estate [5:48]
-04. Maybe Yes [3:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F056921F6CB3C904292D481CEBA0E34E3AF87E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696017   (119940) от 31.01.2024
-
-SponsorBlock for YouTube 5.5.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119940.jpg" />
-</div>
-
-
-###  Подробнее
-
-SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE07D50C3837BEEE2A7DAA2ACC5CF6C309C1454
 ```
 
 

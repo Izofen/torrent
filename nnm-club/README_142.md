@@ -6,7 +6,7 @@ VA - Twist and Shout: Rock 'n' Roll Party Hits (2025) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3742.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Auslogics Registry Defrag 15.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3743.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Music News For Forum vol.133 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3744.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C93F25E8E61C9765DC5A030610269AEEED9F82C8
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3745.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:5D86A284F6EB1796F2D50F2E6477CCAE5ED43EDD
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3746.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8D050CA1D07B41D1C0B6A149ECFE55F7696929C0
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3747.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:FB1C42D22C7697BC4CDC40F573772E8198D98A1A
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3748.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:12F947F5422BFE66B90396EFEE215DEDD80A865B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3749.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:14E594A1F908FC7319804A34B656DA1AA000A084
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3750.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:31BA726DA1425D0460C97A2745D9D3034E522048
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3751.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:A12D7666278065627514FC3F36AACB8319E44759
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3752.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ priPrinter Professional 7.0.0.2608 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3753.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ EZ CD Audio Converter 12.2.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3754.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:871B460A81CFBBD355F6502F367BB1E979B188F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3755.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B3B3FA092217756C85BBD9F329E18A09F21DDCD6
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3756.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:5D535C5510706A9378972F8ED13F837B505E250E
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3757.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AAE1D48FC6CD908ED6C7B96C3459C22D20868C4E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3758.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Balabolka 2.15.0.905 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3759.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3760.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:DD030B5606CF6F87FE0D34D8A58C19F0D27DC69D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3761.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AIMP 5.40.2694 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3762.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:2959EE7536632EF4005B5B8F3C66942AB1AB3197
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3763.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ HandBrake 1.10.2 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3764.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Dashcam Viewer 4.0.7 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3765.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ FL Studio Producer Edition 25.1.5.4976 - All Plugins Edition + Addons [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3766.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:9332F7D82F1FB3DDDF5F936B31DADB5FF0AC181A
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3767.jpg" />
 </div>
 
 

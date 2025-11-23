@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24231.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dungeon Tycoon (2024) [Ru/Multi] (1.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24232.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B8F737BA2F6A6370ABB0B59EEA0CC7C58C06F4A6
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24233.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24233.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:86744592D6DBDEE5F5FDC7F9DC1136BBFFDAFD0B
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24234.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B639EE5BF0AD5B9411E47A031545ED438FF12993
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24235.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24235.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Windows 11 PRO 24H2 26100.3476 Update 13 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24236.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24236.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:660FA206669FDDF96E8F882DD8B65958B3466746
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24237.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24237.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VMware Workstation 17 Pro 17.6.3-24583834 [x64] (bundle)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24238.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24238.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:60B758530ABABFF917D6D198925D8F953B1206C6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24239.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Chernobylite Complete Edition (2019) [Ru/Multi] (50563/dlc) Repack Let'sРlay [P
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24240.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24241.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24241.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Microsoft Windows 11 [10.0.22631.5039], Version 23H2 (Updated March 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24242.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24242.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 14.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24243.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:08C826EB86100E562E7139A114FDF3DD0BA9A94B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24244.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24244.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WinTools.net Premium 25.3.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24245.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:CA5682A90EB7A13C0C3D15B72A474B45DF4DC68A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24246.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24246.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Музыкальный калейдоскоп (10   выпусков) (1964
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24247.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Candy & Toys Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24248.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24248.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7C933929B7D8E6278E7EF4E09E5B2C2B272A7CA5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24249.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24249.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tanya Lapointe | Артбук по фильму Бегущий по лезвию
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24250.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24250.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:C97045811B977E6A2C2B16E6277D03DE4C5B7928
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24251.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24251.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ ExtraDisks 25.3.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24252.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24252.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Roland Kelts | Артбук по мультсериалу Бегущий по л
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24253.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24253.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:DA54A25396C7347B9A866EC70D9033F9B6CBAEF5
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24254.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:62277D16BC25388058B5EDF460E0123B5A69E345
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24255.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:6F789EF52175F4235E4947D8FF85E1DB6D43D93E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24256.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24256.jpg" />
 </div>
 
 

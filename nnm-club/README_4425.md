@@ -1,3 +1,77 @@
+###  Публикация: 1824923   (136909) от 16.10.2025
+
+Шрифты - YouWorkForThem - Monoxide Font - T28400 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь с Monoxide — жирным шрифтом с заглавными буквами, разработанным для того, чтобы ваши творческие проекты стали ещё привлекательнее. Благодаря шести уникальным вариантам высоты этот шрифт привносит яркую индивидуальность и энергичный ритм в заголовки, плакаты и логотипы. Его чистый, но лаконичный стиль гарантирует, что каждый дизайн будет не только привлекающим (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBB7CE03F73F3B7B13220E2B32529741DAC25C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824899   (136910) от 16.10.2025
+
+Сусанна Сёберг | Плавание в холодной воде (2022) [MP3,  Людмила Шаулина]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Датский ученый Сусанна Сёберг написала книгу о пользе купания в холодной воде: увлекательное, доступное и красивое руководство, основанное на научных исследованиях.
+Купание в холодное время года — простой и интересный способ оставаться активным и бодрым. Главное — решимость окунуться в холодную воду и остаться там на какое-то время.
+Контакт с холодной водой помогает (   Читать дальше...   )Жанр: ЗдоровьеИздательство: МИФПродолжительность: 06:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53740B0C0570714E3B66AE223F7ABB89B3263C20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824922   (136911) от 16.10.2025
+
+Последний рубеж / The Last Frontier (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-2 из 10) LostFilm, TVShows, NewComers, HDrezka Studio, Red Head Sound, ...
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Ремник, федеральный маршал США в Аляске, защищает вверенную ему территорию после крушения тюремного транспортного самолёта, которое освободило десятки опасных заключённых. Фрэнк расследует катастрофу и вскоре начинает подозревать, что крушение не было случайным.Производство: США, Apple Studios, Pickpocket EntertainmentЖанр: боевик, триллер, драмаРежиссер: Джон Кёрран, Дэнни Гордон, Джессика ЛориАктеры: Симона Кэссел, Хейли Беннетт, Джейсон Кларк, Доминик Купер, Элфри Вудард, Даллас Голдтут, Тейт Блум, Джош Круддас, Kya Rose, Сара СуайрПеревод: Многоголосый (LostFilm, TVShows, NewComers, HDrezka Studio, Red Head Sound, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full, SDH), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542603CC2E25532EE371A37560773975B12D222D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824902   (136912) от 16.10.2025
 
 Александр Кондратьев | Русы против Ящеров (2025) [MP3, Сергей Майский]
@@ -6,7 +80,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136912.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:813D7ED78B81650E3CCA62B43D9E260F806A037C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136913.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:5329A5AEE20E38EB995231002E25CF538FF2885D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136914.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136914.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ magnet:?xt=urn:btih:5329A5AEE20E38EB995231002E25CF538FF2885D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136915.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136916.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ Allavsoft Video Downloader Converter 3.28.4.9413 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136917.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ Windows Manager 2.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136918.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Nexus - The Jupiter Incident (2004) [Ru/Multi] (1.03) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136919.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ Internet Download Manager 6.42 Build 51 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136920.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ Total War: THREE KINGDOMS (2019) [Ru/En] (1.7.1/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136921.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ magnet:?xt=urn:btih:113EC2D076954D421B9015BF544F2FC91A290187
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136922.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ magnet:?xt=urn:btih:B2EEDAB7DD3973C4B0A57711484FDD059F0E8B76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136923.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ magnet:?xt=urn:btih:553029CFB76F11CFCF6AA80942805098963D8DC5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136924.jpg" />
 </div>
 
 
@@ -320,7 +394,7 @@ Baby Steps (2025) [Ru/Multi] (HotFix 2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136925.jpg" />
 </div>
 
 
@@ -344,7 +418,7 @@ magnet:?xt=urn:btih:714DCE0C1839B44A0276F2F5670B5317F44DE3D3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136926.jpg" />
 </div>
 
 
@@ -368,7 +442,7 @@ magnet:?xt=urn:btih:F3CDFC8A97DC2D7FA2D12079D05E4234C821F322
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136927.jpg" />
 </div>
 
 
@@ -392,7 +466,7 @@ Resident Evil 3 (2020) [Ru/Multi] (11960962/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136928.jpg" />
 </div>
 
 
@@ -416,7 +490,7 @@ magnet:?xt=urn:btih:945781889B5FBA859D6D57765E1A1E04C29DFA9A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136929.jpg" />
 </div>
 
 
@@ -440,7 +514,7 @@ magnet:?xt=urn:btih:ED46E5181AF12B6E73BF63F62894A9AE63ED5379
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136930.jpg" />
 </div>
 
 
@@ -464,7 +538,7 @@ magnet:?xt=urn:btih:B1DD9EB4B6E2A31078C080A7B0940E9EB9A0420A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136931.jpg" />
 </div>
 
 
@@ -488,7 +562,7 @@ magnet:?xt=urn:btih:5DAC58FD093B6A57D9B8210D5028796BEC68015F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136932.jpg" />
 </div>
 
 
@@ -512,7 +586,7 @@ Kdenlive 25.08.2 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136933.jpg" />
 </div>
 
 
@@ -536,7 +610,7 @@ magnet:?xt=urn:btih:76AED72370BC82C817FC8CD5582D4F660F287111
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136934.jpg" />
 </div>
 
 
@@ -548,78 +622,6 @@ magnet:?xt=urn:btih:76AED72370BC82C817FC8CD5582D4F660F287111
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47076E779936DCAFC667F49B5346EC2C015B2F32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824776   (136935) от 16.10.2025
-
-Грань будущего / Edge of Tomorrow (2014) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136935.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалёком будущем раса инопланетян вторгается на Землю. Никакая армия в мире не может противостоять им. Майор Уильям Кейдж умирает в бою, но случается невозможное — он оказывается во временной петле. Раз за разом он попадает в один и тот же бой, сражается и умирает снова и снова. И каждое повторяющееся сражение приближает его к разгадке того, как победить врага.Производство: США, Канада / Warner Bros. Pictures, Village Roadshow Pictures, Arts EntertainmentЖанр: фантастика, боевик, приключения, военныйРежиссер: Даг ЛайманАктеры: Джейсон Хоффс, Грегори Джейкобс, Том Лассалли Актеры: Том Круз, Эмили Блант, Билл Пэкстон, Брендан Глисон, Ноа Тейлор, Джонас Армстронг, Тони Вэй, Кик Гарри, Франц Драмех, Драгомир Мрсич, Шарлотта РайлиПеревод: Дублированный (Лицензия)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (SDH)Продолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CED866A22C3DA95C07F8D86CBE8ED7A81B2432E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824871   (136936) от 16.10.2025
-
-На Дерибасовской хорошая погода, или На Брайтон Бич опять идут дожди (1992) DVDRip [H.264/2160p] [4K, SDR] [Hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Намечено проведение важных переговоров между президентами двух великих держав - СССР и США. Однако русская мафия, пустившая корни в Америке, ставит проведение столь важного саммита под угрозу. Тогда, временно объединившись в борьбе с преступными элементами, спецслужбы обоих государств - КГБ и ЦРУ - отправляют своих лучших агентов Федора Соколова и Мэри Стар на Брайтон-Бич. (   Читать дальше...   )Производство: Россия, США, Мосфильм, Союзкино, Уникомбанк, MMO IngeokomЖанр: комедия, боевик, криминалРежиссер: Леонид ГайдайАктеры: Дмитрий Харатьян, Келли МакГрилл, Андрей Мягков, Михаил Кокшенов, Юрий Волынцев, Эммануил Виторган, Армен Джигарханян, Мамука Кикалейшвили, Евгений Весник, Наталья Крачковская и др.Субтитры: отсутствуютПродолжительность: 01:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D0B70028B7795017D5C3B1326216707825210A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824869   (136937) от 16.10.2025
-
-Все возрасты покорны (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Татьяны сложно назвать счастливой. После 10 лет гражданского брака муж Борис уходит к молодой Алине. Татьяна решает посвятить себя помощи одиноким пожилым людям, совмещая эту деятельность с работой массажистки. Однажды ее пожилая пациентка Вера предлагает Татьяне отправиться вместе в санаторий, и она соглашается на поездку. В это же время в санаторий приезжает (   Читать дальше...   )Производство: Россия | Продюсерский центр "ТВИН"Жанр: МелодрамаРежиссер: Дмитрий СорокинАктеры: Елена Лагута, Максим Линников, Андрей Сипин, Светлана Потанина, Дмитрий Сафронов, Аня Павлова, Наталья Шевцова, Александр Кондрашин, Артём Большунов, Михаил НевскийСубтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6452464B6D4B27A8069F59F9284F1A0406B87750
 ```
 
 

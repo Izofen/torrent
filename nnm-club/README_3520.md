@@ -1,3 +1,75 @@
+###  Публикация: 1717507   (111202) от 20.04.2024
+
+Fishing Knots Pro / Рыбацкие узлы Pro v8.5.32 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111202.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Рыбацкие узлы" - это программа, показывающая как надо вязать узлы. Среди множества узлов рыбаку необходимо выбрать и использовать правильный. В каждом случае - он свой. Как сильно конкретный узел ослабляет леску? Какие узлы использовать для тонких рыболовных лесок, а какие - для толстых? Какие узлы вязать на плетенках? В справочнике собраны узлы для: связывания (   Читать дальше...   )Тип издания: Paid / FullРелиз состоялся: 19.04.2024Разработчик: MP FishПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47344FC4E299B088A55C84E3815716A633F2076
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717462   (111203) от 20.04.2024
+
+Самоучитель на бас-гитаре / Bass Guitar Tutor Pro ver.Improved Help and Support (163) [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bass Guitar Tutor Pro - приложение, с помощью которого вы будете учится играть на бас-гитаре! В приложении содержится более 150 песен, а также гибкие настройки бас-гитары под вас. Для начала используйте тренажер для новичков, отрегулируйте высоту грифа и ширину. Освойте шаблоны - регги, хард-рок и пр. Изучайте гаммы и пробуйте импровизировать в любой тональности.Тип издания: Pro / PaidРелиз состоялся: 07.02.2024Разработчик: Learn To MasterПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A2238738CF6F6462ADA25E0B6ED12386255A98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717484   (111204) от 20.04.2024
+
+Icecream Screen Recorder Pro 7.40 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519A6E13D5F4D318AA8C9CC9E70A454950793020
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717433   (111205) от 20.04.2024
 
 Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <Saxophone, Easy Listening, Instrumental>
@@ -6,7 +78,7 @@ Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111205.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ It Happened Here 3: A Storm is Brewing (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111206.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Perfectly Clear WorkBench 4.6.0.2655 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111207.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:90A3DE61BB8D13995A28D59D1FEF4AC489F55AD7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111208.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Nitro Pro 14.23.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111209.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ PREQUEL: Редактор фото и видео v1.76.0 Mod by youarefinished [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111210.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ ByClick Downloader Premium 2.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111211.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:869DAE96C996964AAA6E60DF05BE49385F547771
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111212.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ ToonMe v0.7.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111213.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ VA - Feel Good Soul & Funk (2024) [MP3|320 Kbps] <Pop, Soul, Funk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111214.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ WinTools.net Premium 24.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111215.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:2044891418B0F593FBDC49513D7BAC6DFA25CBB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111216.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:B3D3E21193761B2EC0FAE9FE568FBB3113A72B16
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111217.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:4CDBB06308D990AAE77BB14EAE17CEEF055E8202
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111218.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ DiskDigger 2.0.1.3907 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111219.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ magnet:?xt=urn:btih:814679403AC17242DD3623C6EEF2C8F1FC70B931
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111220.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ magnet:?xt=urn:btih:120B09F64D6A3B56ACA637CC94398FA7A8446705
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111221.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ VA - Red Nation (Native American Music) (2024) [MP3|320 Kbps] <Native American, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111222.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ Belmont - Liminal (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111223.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ In Vain - Solemn (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death-Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111224.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ Attacker - The God Particle (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111225.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ Paul Motian And The Electric Bebop Band - Flight Of The Blue Jay (1997) Winter &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111226.jpg" />
 </div>
 
 
@@ -562,7 +634,7 @@ Atoll - Fallout Frenzy (2017) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111227.jpg" />
 </div>
 
 
@@ -576,87 +648,6 @@ Atoll - Fallout Frenzy (2017) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3C4C05B0805C85A1AEEC0D15AB6DC7D73831F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717235   (111228) от 19.04.2024
-
-Pat Martino - Starbright (1976) 2008, Warner Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starbright [3:42]
-02. Eyes [2:41]
-03. Law [3:38]
-04. Fall [2:07](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC38836120658612B309AB418F31F02F7A1B76C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717233   (111229) от 19.04.2024
-
-Elvin Jones - Earth Jones (1982) 2003, Quicksilver [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Card Molly [8:04]
-02. Is Seeing Believing? [7:58]
-03. The Top of the Middle [3:57]
-04. Earth Jones [7:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF39AC9FD0C01BDE90499C45DD4DDD646D062D04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717137   (111230) от 19.04.2024
-
-Atoll - Inhuman Implants (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autonomic Autosarcophagy (03:03)
-02. Vomit Altar (03:14)
-03. Gay For God (04:06)
-04. Berdella Of Blood (03:26)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84400E97C8F2F9B8155AA3A7B7B951C17B3AC337
 ```
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 1629034   (199232) от 26.04.2023
+
+FATAL FRAME: Mask of the Lunar Eclipse (2023) [PS4] [ASIA] 5.05 [HEN] [License] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199232.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROJECT ZERO: Mask of the Lunar Eclipse была выпущена в Японии в 2008 году. Это четвертая игра серииТип издания: LicenseРазработчик: Koei Tecmo GamesЖанр: Survival horrorЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Японский и другиеЯзык интерфейса: Русский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9610E0056B3865A1E629603E1540564C2A5CB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622659   (200202) от 06.04.2023
+
+Metal Gear Solid HD Edition (2011) [PS3] [JAP] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License / 01.01] [Jp/En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_200202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metal Gear Solid 3: Snake Eater — одна из самых популярных игр шпионского сериала. События ее разворачиваются в 1964 году — эру холодной войны. Американский спецагент Нейкед Снейк заброшен на территорию СССР с заданием разыскать и вывезти в Штаты гениального русского ученого, который занимается разработкой уникального оружия невероятной разрушительной силы.Тип издания: LicenseРазработчик: Kojima ProductionsЖанр: Tactical Espionage Action, StealthЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3F6C8F58EB95E4DDA1FA8EFD22C616F315FFDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620380   (200975) от 22.03.2023
 
 Get Up And Dance (2011) [PS3] [USA] 3.55 [License] [En] [Move]
@@ -6,7 +54,7 @@ Get Up And Dance (2011) [PS3] [USA] 3.55 [License] [En] [Move]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200975.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_200975.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Injustice 2 Legendary Edition (2018) [PS4] [EUR] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201547.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201547.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Max Payne 3 (2012) [PS3] [EUR] 4.11 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201576.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201576.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ PixelJunk Monsters 2 (2018) [PS4] [USA] [PSN] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201618.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ The Legend of Zelda: Tears of the Kingdom (2023) [Switch] [USA] 16.0.3 [NSP] [Li
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202204.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202204.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ New Tales from the Borderlands (2022) [Switch] [EUR] 14.1.2 [eShop] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204707.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204707.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ TUNIC (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204712.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204712.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Splatoon 3 (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204721.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204721.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ ACE COMBAT 7: SKIES UNKNOWN (2019) [PS4] [EUR] 5.05 [HEN] [License / 2.20 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205090.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205090.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ WWE 2K22 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.18 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205145.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205145.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [PS4] [USA] 5.05 [HEN] [Repack / 1.07 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205413.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205413.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ F1 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205802.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205802.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ The Dark Pictures Anthology Little Hope (2020) [PS4] [EUR] 5.05 [HEN] [License /
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206222.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206222.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Ultra Age (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206680.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206680.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Kena: Bridge of Spirits (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206917.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206917.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ Saints Row (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.06 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207275.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207275.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ In Nightmare (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208131.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208131.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Worms Collection (2012) [PS3] [EUR] 4.21+ [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208185.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208185.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Remnant From The Ashes (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.24 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208478.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208478.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ DiRt Rally 2.0 (2019) [USA] 5.05 [HEN] [License / 1.26 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209626.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209626.jpg" />
 </div>
 
 
@@ -487,7 +535,7 @@ Fullmetal Alchemist and the Broken Angel (2005) [PS2] [NTSC] [Unofficial] [Ru/En
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209667.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209667.jpg" />
 </div>
 
 
@@ -511,7 +559,7 @@ Tiny Tina's Wonderlands (2022) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209765.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209765.jpg" />
 </div>
 
 
@@ -535,7 +583,7 @@ Nickelodeon All-Star Brawl (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.15 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209915.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209915.jpg" />
 </div>
 
 
@@ -559,7 +607,7 @@ Bus Simulator 21 (2021) [PS4] [USA] 5.05 [HEN] [License / 2.21 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209925.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209925.jpg" />
 </div>
 
 
@@ -570,54 +618,6 @@ Bus Simulator 21 (2021) [PS4] [USA] 5.05 [HEN] [License / 2.21 / DLC] [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF607C46E88A8250CD812F3E8D4B2458660147AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570759   (210185) от 19.08.2022
-
-The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [PS4] [EUR] 6.72 [HEN] [License / 1.62 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьмак 3: Дикая Охота» – ролевая игра нового поколения, действие которой разворачивается в удивительном фэнтезийном мире, где необходимо принимать сложные решения и отвечать за их последствия. Мир охвачен войной. Армия империи Нильфгаард стирает все на своем пути, стремясь добраться до самого сердца Северных королевств. Движимый глубоко личными мотивами знаменитый (   Читать дальше...   )Тип издания: LicenseРазработчик: CD Projekt REDЖанр: RPG, AdventureЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0323B6D8068776E0E010AB735DCDAFD0217889C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568897   (210327) от 18.08.2022
-
-Manhunt [Uncensored] (2004) [Xbox360] [PAL] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шокирующая жестокость и откровенные сцены насилия сделали эту игру одним из самых скандальных проектов в истории индустрии развлечений и вызвали небывалый общественный резонанс. Америка полна мрачных индустриальных городков, где царит вседозволенность. В Карцер-Сити ценят только острые ощущения, самое сильное из которых – игра с человеческой жизнью. Нет ничего более (   Читать дальше...   )Тип издания: LicenseРазработчик: Rockstar NorthЖанр: Stealth, Action-adventure, Survival horrorЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AE380EC21AC58D7BBE388F66029933AD59CD35
 ```
 
 

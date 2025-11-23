@@ -6,7 +6,7 @@ Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160950.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mob Psycho 100 III | Моб Психо 100 [ТВ-3] [2022, TV, 12 эп.] WEB-DL 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161015.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Air Master | Воздушный мастер [2003, TV, 27] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161049.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161067.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161074.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161085.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161096.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Nanamaru Sanbatsu | Fastest Finger First | Семь – верно, три – �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161146.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161176.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Shiroi Suna no Aquatope / Auatrope of White Sand / Акватоп белого �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161244.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Shinobi no Ittoki | Время ниндзя [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161648.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161953.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162186.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:184E1070FD6642699F5DCC2E2351FF9A998C1AE1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162549.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Nagagutsu o Haita Neko: 80 Nichikan Sekai Isshuu | Puss 'n Boots: Travels Around
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162819.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162877.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162902.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162949.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162984.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Pop Team Epic (2022) | Попсовый эпос [ТВ-2] [2022, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163822.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ie Naki Ko Remi | Remi, Nobody's Girl | Бездомная девочка Рем
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164066.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jaja-uma Quartet | Wild Cardz | Crown Knights | Дикие карты [1997, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164074.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164092.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164362.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164775.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165007.jpg" />
 </div>
 
 

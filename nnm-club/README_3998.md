@@ -1,3 +1,81 @@
+###  Публикация: 1690957   (123630) от 09.01.2024
+
+Благовест | Акафист святителю Нектарию Пентапольскому, Эгинскому чудотворцу (2015) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафист посвящен святителю Нектарию (1846–1920) – одному из самых почитаемых в Греции святых. Родившись на территории Оттоманской Турции в Селимбрии, Нектарий уехал в Грецию, где принял монашеский постриг (Хиос) и прошел обучение в Афинском университете. В статусе митрополита Пентапольского служил два года в Египте, но подвергшись опале и клевете, был вынужден вернуться (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFCA2035939712B27C3E9F5000890ACDF0F690A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690758   (123631) от 09.01.2024
+
+Proteos - Эпитафия (2023) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:02:12]
+02. Ад внутри [00:03:32]
+03. 16:10 (album mix) [00:03:40]
+04. Атом в нас [00:04:04](   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B7FD7F8324E3516296CE833A710352294ED98D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690850   (123632) от 09.01.2024
+
+Rat Mass - Time Pulls the Trigger (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding Me Down [00:03:59]
+02. Epic [00:04:26]
+03. Fallout [00:04:59]
+04. Consequences [00:05:09](   Читать дальше...   )Жанр: Drone MetalПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FFF47F1BA7A638C42DF3C9EBD08E30C7641B90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690865   (123633) от 09.01.2024
 
 Andrew W. Boss - Strength (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap-Metal, Alt.Metal>
@@ -6,7 +84,7 @@ Andrew W. Boss - Strength (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap-Metal, Alt.M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123633.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ K-Lite Codec Pack Update 18.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123634.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Brian Simpson - Soul Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123635.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Opera GX 105.0.4970.76 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123636.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Golden Apes - Our Ashes At The End Of The Day (2024) [FLAC|Lossless|WEB-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123637.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Paradise Lost - Icon 30 (2023) [FLAC|Lossless|image + .cue] <Doom, Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123638.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ magnet:?xt=urn:btih:4F6053068B43B94BAA6D9705FB7232B6EC3E0C2C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123639.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ magnet:?xt=urn:btih:5239ED7E8E53AD41EE0AB0488716DBC239819E20
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123640.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Steve Thorne - Malice In Plunderland (2023) [FLAC|Lossless|tracks + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123641.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ magnet:?xt=urn:btih:0A6DA466B02CAF18C2CAAA6623EBAABCC9F5FBA2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123642.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Mountain Gators Band - Lemmings (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123643.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Crucifer - Hell Is for the Hopeful (2024) [MP3|320 Kbps] <Thrash Metal, Hard Roc
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123644.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ magnet:?xt=urn:btih:DA772FAAF4DF7AA41D4E5FBC0297ADB599B3ECCC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123645.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Hauntologist - Hollow (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123646.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Cobra Kraft - The Baptism of Pedro del Zorro (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123647.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Red tail - Back And Forth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123648.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ Corey James - Axtone House Party (2024-01-08) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123649.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ magnet:?xt=urn:btih:91BFB3DA1CD0A3A5A8C16586C8414FCD848A05CA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123650.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ Ryan Adams - Sword and Stone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123651.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ magnet:?xt=urn:btih:926A44346D8D81F1C64169CCB99CFED9BDDA2463
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123652.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ magnet:?xt=urn:btih:09B97581845830AB5C87B482AF79E006135EFEDF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123653.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ magnet:?xt=urn:btih:BD16B9ED45E8663079354ED60AB2289ED4F8E037
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123654.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ magnet:?xt=urn:btih:23BCB2696D05600AB62B783477F4A4C0303E98AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123655.jpg" />
 </div>
 
 
@@ -592,80 +670,6 @@ magnet:?xt=urn:btih:23BCB2696D05600AB62B783477F4A4C0303E98AC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25CF1ED0019FCDF57BA4A086D84032E95631E68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690804   (123656) от 09.01.2024
-
-Findroid | Владыка металла (Книга 2) (2023) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123656.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Владыка металла» – роман, вторая книга одноименного цикла, жанр боевое фэнтези, темное фэнтези, РеалРПГ.
-
-Дрейк Арс всю свою жизнь прожил в небольшом городке, мечтая однажды отправиться в столицу и вступить в один из кланов. Но мечта исполнилась совсем не так как он воображал. Странная находка втягивает юношу в круговорот смертей, предательств и заговоров. Теперь, (   Читать дальше...   )Жанр: Боевое фэнтези, РеалРПГ, Темное фэнтезиИздательство: ИДДКПродолжительность: 08:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DD25E4ED176466CAB9EB9172BE7C5B7EFFAB27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690927   (123657) от 09.01.2024
-
-FreeFileSync 13.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123657.jpg" />
-</div>
-
-
-###  Подробнее
-
-FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A9FED6D600D4A8F63F2F0AD9000042C40B4922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690933   (123658) от 09.01.2024
-
-Роберт Шекли | Предварительный просмотр (2023) [MP3, Олег Булдаков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утром Питер Гонориус получил уведомление от местного Отдела родственных уз, в котором требовалось, чтобы он обязательно заключил брак. Теперь ему необходимо найти себе жену как можно быстрее, чтобы избежать тюремного заключения за неисполнение этого.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF479A5C2137F389F0009B3E2A3BC456D346D23B
 ```
 
 

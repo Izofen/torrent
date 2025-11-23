@@ -1,3 +1,173 @@
+###  Публикация: 1345807   (165453) от 16.12.2019
+
+Nero Burning ROM 2020 22.0.1008 Final [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nero Burning ROM 2020 - позволяет записывать диски CD, DVD и Blu-Ray. Программа отличается надежностью и помогает копировать и записывать диски CD, DVD и Blu-Ray с сохранением высокого качества. В приложении Nero Burning ROM содержатся дополнительные возможности: с помощью технологии SecurDisc можно обеспечить надежную защиту и читаемость данных.
+Решение осуществляет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4FD5719FB55B7E1D9DD628A5801C6710033919
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673396   (165454) от 01.11.2023
+
+Icecream Screen Recorder Pro 7.31 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22ADE2D8F35B76A760CDF4234BBBD7C015334D46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432063   (165455) от 16.12.2020
+
+iTrash 5 v5.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165455.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTrash - утилита для удаления приложений с вашего Mac, которая использует специальный алгоритм поиска (расстояние Левенштейна), чтобы найти все связанные файлы для последующего удаленияТип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: OSXBytesПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F91177F10B80178AD53F92463CB726B3B33BAC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597523   (165456) от 15.12.2022
+
+Любовники (2022) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаясь наладить личную жизнь, Саша, Лёша и Паша идут на групповую терапию для мужчин, пострадавших от женщин. Случайная встреча оборачивается гениальным планом — друзья решают помогать товарищам по несчастью, выводя коварных любовниц на чистую воду. Вот только они те ещё гуру отношений и понятия не имеют, как помочь даже самим себе.Производство: Россия / Революция ФильмЖанр: комедияРежиссер: Елена ХазановаАктеры: Павел Прилучный, Роман Курцын, Алексей Золотовицкий, Максим Виторган, Алёна Бабенко, Любовь Толкалина, Елена Муравьева, Наталья Чистякова-Ионова, Дарья Румянцева, Игорь ЯшанинПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA75098824B6390073CA952D17C936A663F872BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345016   (165457) от 16.12.2019
+
+Во всё тяжкое / The Professor (2018) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор колледжа решает жить на полную катушку после того, как ему ставят серьезный диагноз. Отныне все запреты сняты, а тайные желания могут наконец осуществиться!Производство: США / Global Road Entertainment, Automatik, Leeding MediaЖанр: Драма, комедияРежиссер: Уэйн РобертсАктеры: Джонни Депп, Розмари ДеУитт, Одесса Янг, Дэнни Хьюстон, Зои Дойч, Девон Террелл, Рон Ливингстон, Линда Эмонд, Матрея Скаррвинер, Шиван ФэллонПеревод: Дублированный (iTunes), профессиональный многоголосый  (HDrezka Studio)Субтитры: Русские (Full)Продолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA4600A5F48B450948DB9B451E9987BC6F0FBF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432185   (165458) от 16.12.2020
+
+Scrutiny 9 v9.14.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB6830BF0B70EE4F12574687A7C7F3FB7ECC001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597680   (165459) от 15.12.2022
+
+kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ ПО VUE 3.  ‌ЧАСТЬ 1" (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый исчерпывающий интенсив на 6,5 часов по работе с Vue 3. Интенсив сфокусирован именно на библиотеке с детальным разбором не только того, как сделать приложение на Vue, но и как работает сама библиотека. Подходит для JS программистов уровня Junior + и выше.Производство: kobezzza.channelЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:20:42Реклама: Ватермарки на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E27EDAF4D55E2323A45CF83F237F15F3D55ED1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673357   (165460) от 01.11.2023
 
 Bruce Hornsby - Spirit Trail (1998) 25th Anniversary Edition, 2023, Zappo Productions [MP3|320 Kbps] <Rock, Singer & Songwriter>
@@ -6,7 +176,7 @@ Bruce Hornsby - Spirit Trail (1998) 25th Anniversary Edition, 2023, Zappo Produc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165460.jpg" />
 </div>
 
 
@@ -33,7 +203,7 @@ Yesterday / Yesterday (2019) DVD5 [Custom]
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165461.jpg" />
 </div>
 
 
@@ -57,7 +227,7 @@ EazyDraw 10.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165462.jpg" />
 </div>
 
 
@@ -81,7 +251,7 @@ magnet:?xt=urn:btih:6625BFF3A1786AF8829C029D6821E5755BD4DC83
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165463.jpg" />
 </div>
 
 
@@ -105,7 +275,7 @@ Hallmark Card Studio for Mac 22.0.07 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165464.jpg" />
 </div>
 
 
@@ -130,7 +300,7 @@ magnet:?xt=urn:btih:0007BC7E00D02085C205841CE58A995EA48F4603
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165465.jpg" />
 </div>
 
 
@@ -154,7 +324,7 @@ Wattagio 1.12 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165466.jpg" />
 </div>
 
 
@@ -178,7 +348,7 @@ Winamp 5.9.1 RC4 Build 10027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165467.jpg" />
 </div>
 
 
@@ -202,7 +372,7 @@ magnet:?xt=urn:btih:3A877F1B3FF577239565EA3F80F92A7D5253CEC5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165468.jpg" />
 </div>
 
 
@@ -226,7 +396,7 @@ magnet:?xt=urn:btih:8B8A05D86EADEDB5FE275AB0F7A3C2FC3BA1CF2F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165469.jpg" />
 </div>
 
 
@@ -250,7 +420,7 @@ Smooze 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165470.jpg" />
 </div>
 
 
@@ -274,7 +444,7 @@ Brothers in Arms: Hell's Highway (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165471.jpg" />
 </div>
 
 
@@ -298,7 +468,7 @@ ADB AppControl 1.7.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165472.jpg" />
 </div>
 
 
@@ -323,7 +493,7 @@ MacCleanse 9.0.5 Pre-Release [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165473.jpg" />
 </div>
 
 
@@ -347,7 +517,7 @@ magnet:?xt=urn:btih:955DAB1D533BDD12A7277A9AE9A8D77A77325AF5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165474.jpg" />
 </div>
 
 
@@ -373,7 +543,7 @@ VA - Nu Cool Covers 2: Pop Classics ReStyled (2018) [AAC|~323 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165475.jpg" />
 </div>
 
 
@@ -400,7 +570,7 @@ magnet:?xt=urn:btih:B8722280916950A5D18F791B88908D76C06323A8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165476.jpg" />
 </div>
 
 
@@ -424,7 +594,7 @@ magnet:?xt=urn:btih:FDB5B4799270385499287BE98C3B67DD7CB53A4E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165477.jpg" />
 </div>
 
 
@@ -448,7 +618,7 @@ magnet:?xt=urn:btih:705683E72417B6D3DA988BD75BCF6E4D72A41BE3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165478.jpg" />
 </div>
 
 
@@ -461,183 +631,6 @@ magnet:?xt=urn:btih:705683E72417B6D3DA988BD75BCF6E4D72A41BE3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E4EBA6B59ACA76EFDC2917DDEE7837FE7DABA2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597489   (165479) от 15.12.2022
-
-The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Lighting Fundamentals (2022) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unreal Engine 5 значительно улучшил качество освещения в реальном времени благодаря реализации глобального освещения в реальном времени с помощью нового механизма освещения Lumen. Тем не менее, остается множество инструментов, методов и рабочих процессов освещения, которые необходимо хорошо понимать, чтобы максимально использовать свой опыт проектирования и оптимизации (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Unreal Engine, ОсвещениеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E5A8D6402154CB533FF2249D2907F07C02A59F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516656   (165480) от 12.12.2021
-
-Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djangology [3:25]
-02. I'm Coming Virginia [3:03]
-03. Misty [3:46]
-04. Shine [3:37](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Violin JazzПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303FC41317923FE7B1338BB98DB29FA75A25DF9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345541   (165481) от 16.12.2019
-
-Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165481.jpg" />
-</div>
-
-
-###  Подробнее
-
-После шестилетнего перерыва Милен Фармер триумфально вернулась на сцену, дав серию концертов в знаменитом парижском La Defense Arena — самом большом зале Европы. В программу вошли как уже любимые публикой хиты, так и песни из нового альбома.Производство: Франция / Stuffed Monkey, Sony MusicЖанр: Pop, КонцертРежиссер: Франсуа АнссСубтитры: ОтсутствуютПродолжительность: 02:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B92D114A46C16DA189EC7CB615AE07EA6F6B2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516756   (165482) от 12.12.2021
-
-MyGrain - MyGrain (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Into the Parallel Universe
-02.Shadow People
-03.Dust Devils and Cosmic Storms
-04.Of Immortal Aeons(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142B9881989DC73688E9906E3439995209DA171E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597493   (165483) от 15.12.2022
-
-Кутёж 2: Этот чудесный запой / The Binge 2: It's A Wonderful Binge (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздник выпивки Бингл на этот раз совпал с Рождеством. Зрители увидят новые невероятные приключения, услышат музыкальные хиты и посмеются над выходками участников праздника, который прошел в американском городе Сиракузы. В фильме показано вымышленное ближайшее будущее. Алкоголь и наркотики находятся под полным запретом. Лишь один раз в году можно их употреблять. (   Читать дальше...   )Производство: США / American High, Liddell EntertainmentЖанр: комедияРежиссер: Jordan VanDinaАктеры: Кэйтлин Олсон, Дэнни Трехо, Пэтти Гуггенхайм, Пол Шир, Эдуардо Франко, Ник Свардсон, Тим Медоуз, Тони Кавалеро, Карен Маруяма, Конни СолтцмэнПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D39BBCD9DE4034F6ED0ED7983FD1BE85996563E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673232   (165484) от 01.11.2023
-
-Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/Occult>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satan's War [00:04:03]
-02. Demon [00:03:30]
-03. Burning Water [00:03:15]
-04. When You Were Dead [00:03:23](   Читать дальше...   )Жанр: Psych, Stoner, Doom, OccultПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C249F250338993B7BF692C0AC3140C9CA75576E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345878   (165485) от 16.12.2019
-
-В сердце моря / In the Heart of the Sea (2015) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165485.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание посреди океана…Производство: США, Австралия, Испания / Warner Bros., Village Roadshow Pictures, RatPac-Dune EntertainmentЖанр: боевик, триллер, драма, приключения, биография, историяРежиссер: Рон ХовардАктеры: Крис Хемсворт, Бенджамин Уокер, Киллиан Мёрфи, Брендан Глисон, Бен Уишоу, Мишель Фэйрли, Том Холланд (II), Пол Андерсон, Фрэнк Диллэйн, Джозеф МоулПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835BE03C38093E2C21D33CCCE2AD95F731BE5D80
 ```
 
 

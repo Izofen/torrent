@@ -1,3 +1,81 @@
+###  Публикация: 1693162   (121992) от 19.01.2024
+
+Реформаторы / The Reformers (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так называемая "Лига гражданской чистоты" выдвигает одного дяденьку в мэры. Вот он и, чтобы оправдать доверие, начинает активно реформировать общество, бороться за чистоту рядов, так сказать. Ну, то есть - пиво это плохо, легкомысленные отношения плохо, танцульки плохо. В общем дело-то хорошее, может излишне усердно он это делал. Но не зря второе название (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Чарльз Хилл Майлз, Дженни Ли, Роберт Херрон, Мэй Марш, Кейт Брюс, Уолтер Миллер, Гертруда Бембрик, Кэтлин Батлер, Уильям Дж. Батлер, William CourtrightПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74437230CD9453443516C5EB1621E5E58EE1001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693045   (121993) от 19.01.2024
+
+Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Special [3:41]
+02. My Mother's Eye [5:27]
+03. Stitt in Time [4:14]
+04. Blue Skies [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26361D6AB4F9D3B82B35C5FC920CE1C9272D7A34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693182   (121994) от 19.01.2024
+
+Good Mood Music Academy - Sunny Winter Jazz Instrumental December Good Mood and Positive Vibes  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last December (3:39)
+02. Play Me Like a Guitar (3:16)
+03. Her Hazle Eyes (3:29)
+04. Morning Fun Jazz (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4594B593688397CE6FCA2DC502F086F71FC4A2EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693121   (121995) от 19.01.2024
 
 Алексей Симуков, Юрий Энтин | Летучий корабль (Союзмультфильм) (2002) [MP3, Анатолий Папанов, Михаил Боярский и др.]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121995.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ VA - Black Hole House Music 01-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121996.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Revolution Saints - Against The Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121997.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ Autumn's Child - Tellus Timeline (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121998.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ The Crowsroads - Spaceship (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Blues, Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121999.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122000.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ Lazarus Dream - Imaginary Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122001.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ Richard Santos - Playing the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122002.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ Dred Buffalo - The Dark Age (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122003.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ Wonderful Bluffer - Torn By Reflection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122004.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ Aasymar - Corona de Escamas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122005.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ Master - Saints Dispelled (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122006.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ Revolution Saints - Against The Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122007.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ ASP - Horrors  A Collection of Gothic Novellas (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122008.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ magnet:?xt=urn:btih:1FB57F361791B79823C50908845388CF78A2CF82
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122009.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ Food For Fish - Ещё не старый (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122010.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ Craig Soderberg - Are You OK?! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122011.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ Catfish John Tisdell - Sinkin' Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122012.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ CobraKill - Serpent’s Kiss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122013.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ Dolly Parton - Rockstar (Deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122014.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ magnet:?xt=urn:btih:A7232AD7F8FFE72537ADB3F6E871CFAEBE87ED4C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122015.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ magnet:?xt=urn:btih:33AB83C512E9DEE626B322E3236716E321B421C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122016.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ FanControl V179 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122017.jpg" />
 </div>
 
 
@@ -605,79 +683,6 @@ FanControl – свободно распространяемый продукт,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D5ED55D725AF07C7F21613277E74B97329E8F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693135   (122018) от 19.01.2024
-
-VidCoder 9.18 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122018.jpg" />
-</div>
-
-
-###  Подробнее
-
-VidCoder - небольшая утилита, с помощью которой можно извлекать видео с DVD/Blu-ray-дисков, а также осуществлять транскодирование видеороликов. В качестве инструмента кодирования используется HandBrake.Присутствует пакетная обработка файлов, возможность добавлять субтитры к видео в формате SRT, настраивать параметры кодирования (обрезка изображения, настройка разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F9F0B0DC4233D90F6AFD77FEA0443800B705E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693051   (122019) от 19.01.2024
-
-Beyond Compare 5 for Mac 5.0 beta [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальность цифровых файлов - они копятся. И у пользователей, как правило, скапливаются одни и те же файлы снова и снова. Так как же вы узнаете, что два огромных файла действительно одинаковые, прежде чем удалить один из них?
-Есть один инструмент, который поможет вам устранять дубликаты, объединять изменения из нескольких источников и поддерживать синхронизацию каталогов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2024Разработчик: © 2021 Scooter Software, Inc.Поддерживаемая ОС: Mac OS X 10.11 или вышеЯзык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E8188F0A0948E245308CB8EFE9DF18805F0EA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693095   (122020) от 19.01.2024
-
-Клуб / El Club / The Club (2015) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо католических священников на пенсии живут в уединённом доме на окраине небольшого чилийского пляжного городка под присмотром бдительной смотрительницы. Им не разрешается общаться с горожанами, и выходить на улицу разрешается только ранним утром и поздней ночью. Их единственное хобби - разводить скаковых собак и участвовать в соревнованиях... Их распорядок (   Читать дальше...   )Производство: Чили / FabulaЖанр: драма, детективРежиссер: Пабло ЛарраинАктеры: Альфредо Кастро, Роберто Фариас, Антония Сехерс, Марсело Алонсо, Хайме Вадель, Алехандро Гойк, Алехандро Сивекинг, Хосе Соза, Франсиско Рейес, Диего МуньосПеревод: любительский одноголосыйЯзык озвучки: русский, испанскийСубтитры: русские (creo140), английскиеПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7E821CF22F035504DB0DA5749B2B5AAC525438
 ```
 
 

@@ -6,7 +6,7 @@ Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34908.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34990.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35001.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35002.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35005.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35007.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35020.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35025.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35027.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35033.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:FCFD891C18EF4F16E6EAF73A0C91B1265C41B962
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35072.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35126.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:436C61EA894EC84C8E74CE64E100E6865A824E62
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35178.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:87BE79AC52CAD8CEA095FA43E1DD3BD3E209D1CF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36240.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:955D46A079564ABBF423BF234091740DF9BE1F6A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36441.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Paul Van Dyk. Video collection (1994 - 2024) DVDRip, WEBRip [H.264/1080p] [handm
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36784.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:B4F7642C7CB5183687329C745DE3D4CFE53D26A4
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36955.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E95AD6B477C7E83F599E6E48975DF2852C93357C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37436.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:395E5FC78CDE7EE1E0A6647749D94910C5B22F1E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37662.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:ADD0BD74752277CC418BF42B71A11D30ACDD858C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38367.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:A1EBA160C096B5774FEE44FBFF11F5FA69CEBC23
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38369.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:0B584B7A2A8FB43BFAB724CDDDA84065918AADAE
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39150.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:F37905061A7B78FFD83BBBD9ED828F800369E74C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39730.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:DC7B4E37A6E1EDAC2F3D6D3126CDA03FCF03192B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39840.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:C02202692C2DE264C937BF9FDBC32F8AE5EF996C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40013.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:BF3EEE03C9DF61113AAF05C845B07E2D0E635E5E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40038.jpg" />
 </div>
 
 

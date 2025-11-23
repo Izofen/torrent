@@ -6,7 +6,7 @@ Topaz Gigapixel AI 7.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107664.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ PrivaZer Pro 4.0.87 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107690.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ FanControl V194 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107702.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Chromium 126.0.6478.115 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107703.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Topaz Gigapixel AI 7.2.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107714.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Beyblade X | Бейблэйд Икс [2023, TV, 2 из 52] WebRip 1080p raw+rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107718.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Icecream PDF Editor Pro 3.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107730.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Firefox Browser 127.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107767.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Google Chrome 126.0.6478.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107811.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ PrivaZer 4.0.87 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107812.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Speedtest от Ookla 5.4.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107844.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Speedtest от Ookla 5.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107851.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Speedtest от Ookla 5.4.2 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107861.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Brave Browser 1.67.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107871.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Opera GX 109.0.5097.130 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107966.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ PhotoRoom 5.0.2 (b1448) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107970.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Photo Studio PRO 2.7.5.2705 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108043.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Opera GX 109.0.5097.126 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108048.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Firefox Browser 127.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108049.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Draw.io 24.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108058.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ventusky: Прогноз погоды v35.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108061.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ XYplorer 26.10.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108064.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ NetLimiter 5.3.14.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108065.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ O&O DiskImage Professional 19.1 Build 144 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108069.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Chasys Draw IES 5.31.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108070.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ File & Image Uploader 8.4.3 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108071.jpg" />
 </div>
 
 

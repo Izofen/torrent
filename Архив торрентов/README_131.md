@@ -6,7 +6,7 @@ Notepad++ 8.7.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33062.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Youtube Downloader HD 5.9.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33067.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Skylum Aperty 1.1.0.761 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33068.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ O&O DiskImage Professional 20.1 Build 324 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33077.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Luminar Neo 1.22.1.14175 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33087.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ R-Studio Network 9.4 Build 191420 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33088.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:FD6048DB387B5218CDDAD940A4F8125F981A4562
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33093.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ IObit Uninstaller Pro 14.1.0.2 RePack (& Portable) by elchupacabra (25.12.2024) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33094.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ OneCommander Pro 3.94.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33147.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ TapinRadio 2.16.001 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33148.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Opera One 115.0.5322.119 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33170.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:C8D9A8D4A717AB4F3E67713579179014C1C3375C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33176.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Multi Commander Full Edition 14.5 Build 3054 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33178.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Tablacus Explorer 24.12.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33182.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Imagine 1.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33183.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ClipAngel 2.15 & portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33184.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.2 Build 3 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33200.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VideoProc Converter AI 7.9 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33203.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ WinCatalog 2024.9.0.1223 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33256.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Winxvideo AI 3.9 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33271.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ RadioMaximus 2.33.00 (23.12.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33277.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Stellarium 24.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33282.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Aiseesoft Screen Recorder 3.1.6 RePack (& Portable) by elchupacabra (x64) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33285.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ StartAllBack 3.9.0 build 5220 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33288.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ StartAllBack 3.9.0 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33291.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Volume2 1.1.9.468 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33300.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1680407   (134184) от 29.11.2023
+
+Луи де Бройль | Электромагнитные волны в волноводах и полых резонаторах (1948) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного французского физика-теоретика содержит изложение основных вопросов теории волноводов и полых резонаторов, которые находят широкое применение в такой важной области техники, как радиолокация. Отличаясь простотой и ясностью изложения, книга, несомненно, будет полезна для физиков и инженеров, работающих в области ультракоротких волн.Жанр: ФизикаИздательство: Государственное издательство иностранной литературыФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B2E56C9CBFC3A778C8E6F5EFDEB97117B2BD94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680332   (134185) от 29.11.2023
+
+VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxing>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estragur - North Wind [05:06]
+02. Magmatunes - You [05:17]
+03. Ludwig A.F. - Glass [04:34]
+04. The Big Port - Another World [04:40](   Читать дальше...   )Жанр: Chillout, Lounge, RelaxingПродолжительность: 03:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680553   (134186) от 29.11.2023
+
+BitComet 2.05 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134186.jpg" />
+</div>
+
+
+###  Подробнее
+
+BitComet - это функциональный, быстрый и простой в освоении клиент, который позволяет работать со ссылками формата Bittorrent. Он поддерживает одновременное скачивание нескольких файлов с возможностью установления приоритета загрузки, может создавать очередность загрузки, имеет возможность быстрой остановки/возобновления закачки файлов. Работает с прокси-сервером, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF962F5D33DF8069ADDDCC635B0C4B3E34DC453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594012   (134187) от 25.12.2012
 
 HQ Wallpapers for a desktop (24.12.12) [Wallpapers]
@@ -6,7 +81,7 @@ HQ Wallpapers for a desktop (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134187.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:1F45ADC7F2B148AAC4DB966FDE007CDFEE63B247
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134189.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Computer Desktop Wallpapers Collection (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134192.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:0B5AF0937FC293867507C77B91EAFBDBABD6384D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134193.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Hard Rain - Два альбома (1997 - 1999) [MP3|320 кб/с]<Melodic Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134194.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:3FF4F08433568583FA6CA9FE1BA6B2700701B66E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134195.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ Topaz Video AI 4.0.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134197.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:927B60538ED2F4ECEDEF768D4EA1AEFCAFCAD5E4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134198.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ Sorcerer - Reign Of The Reaper (2023) 2 x CD [FLAC|Lossless|image + .cue] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134199.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ VA - До 18 и старше №40 Зима (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134200.jpg" />
 </div>
 
 
@@ -267,7 +342,7 @@ magnet:?xt=urn:btih:8E9E9A4E9DDCFEE8AD93C8F400DF3A356EF45640
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134201.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ Google Chrome 119.0.6045.200 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134202.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ Ashampoo Photo Optimizer 10.0.0.19 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134205.jpg" />
 </div>
 
 
@@ -339,7 +414,7 @@ Dag Arnesen Trio - Norwegian Song 3 (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134206.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134207.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ magnet:?xt=urn:btih:D21262AB5F1F6425EE985BA8DEFF9D540381C3BC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134208.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ Cal Tjader - Several Shades Of Jade & Breeze From The East (1963) 1997, Verve [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134209.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ GeoGebra 4.2.12 + Portable [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134210.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ GeoGebra — свободно распространяемая (GPL) динам�
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134211.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ magnet:?xt=urn:btih:92D048E8B38EEB543FBD97773BEC3E642FA1227D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134212.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ Pale Moon 32.5.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134213.jpg" />
 </div>
 
 
@@ -549,7 +624,7 @@ Best HD Wallpapers Pack (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134214.jpg" />
 </div>
 
 
@@ -573,7 +648,7 @@ magnet:?xt=urn:btih:9C0A83A5F633A59CCD28E2D35D47D269822FC068
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134215.jpg" />
 </div>
 
 
@@ -585,86 +660,6 @@ magnet:?xt=urn:btih:9C0A83A5F633A59CCD28E2D35D47D269822FC068
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C7B85A846502C234E84D902622D7E0647D4A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680379   (134217) от 29.11.2023
-
-VA - Music News vol.319 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134217.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aleksia - Свет Внутри (02:08)
- 002. 22 Region - Так и Живём (03:01)
- 003. Akila - Наглая (02:38)
- 004. Akoma - Следуй За Мной (02:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA5897E9AFF762C4E2B2DA0B760E65EC98EC22E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594199   (134218) от 25.12.2012
-
-New Blues Underground - Whiskey Straight (2012) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop These Blues
-02. What I Say
-03. Whiskey Straight
-04. Slo-Burn
-05. No Matter
-06. Outta SoulЖанр: Blues-RockПродолжительность: 00:24:31
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680578   (134219) от 29.11.2023
-
-Garden Planner 3.8.53 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garden Planner - удобное приложение для проектирования сада Вашей мечты или ландшафта для вашей фазенды. Расположите растения, деревья, постройки и объекты, используя удобный 'drag and drop' интерфейс. Используйте различные инструменты, чтобы быстро создать мощение, дорожки и заборы. Цвет листвы можно изменять. План легко масштабируется. В завершение, вы можете произвести (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2023 Artifact InteractiveПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92061836757C01C322F887B253D2EA5D7A96B3CE
 ```
 
 

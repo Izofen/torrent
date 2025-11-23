@@ -6,7 +6,7 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144983.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) Repack R.G. Revenants
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144992.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144997.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ My Train Arrives (2019) [Ru/Multi] (20231030/dlc) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145029.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Witches' Legacy 7: Awakening Darkness (2015) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145443.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145572.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145577.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145605.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Call of Duty: Black Ops (2010) [Ru/Multi] (0.305-05.125430.1/dlc) License PLAZA 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145616.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145630.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145640.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145793.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145884.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145967.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Deadfall Adventures (2013) [Ru/En] (1.0.0.16352/dlc/tr) Repack =nemos= [Digital 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146102.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Command & Conquer Generals Zero Hour: World War II (2013) [Ru/En] (0.27) Repack/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146107.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ BioShock Remastered (2016) [Multi] (1.0.122872) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146116.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146157.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146187.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.03.00) Repack R.G. Catalyst
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146215.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.47) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146339.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Death's Gambit (2018) [Multi] (1.2) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146369.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Boiling Point: Road to Hell (2023) [Multi] (130759) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146379.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146547.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Eternal Magic (2017) [Ru] (20.12.2019-0.5.23.ru) License Russian OBT
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146571.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146587.jpg" />
 </div>
 
 

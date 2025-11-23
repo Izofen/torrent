@@ -1,3 +1,77 @@
+###  Публикация: 1623818   (242706) от 03.04.2023
+
+Dual Monitor Auto Mouse Lock 1.0.0.8 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_242706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dual Monitor Auto Mouse Lock - это инструмент, который помогает вам использовать два монитора и несколько мониторов. Программное обеспечение автоматически фиксирует указатель мыши на экране в соответствии с вашими настройками.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEE61F034E8C857F30FB44CA4A1CF8BE55AFD7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623749   (243104) от 03.04.2023
+
+LogViewPlus 3.0.16 [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243104.jpg" />
+</div>
+
+
+###  Подробнее
+
+LogViewPlus - мощная программа, которая предназначена для просмотра и анализа лог файлов приложений или системы. Она предоставляет ряд инструментов предназначенных для работы с лог файлами, и удобный пользовательский интерфейс с поддержкой тем оформления.
+LogViewPlus значительно облегчает просмотр записей лог-файла. В программе есть функция фильтрации информации (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F13BA8C4E23641A596F82E7DB8CA72A0AC2AD94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623964   (243139) от 03.04.2023
+
+HitPaw Screen Recorder 2.3.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243139.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Screen Recorder — популярная программа, разработанная для записи экранных действий. Эта крошечная программа позволяет вам записывать игры, экраны, веб-камеры и видео «картинка в картинке» за несколько простых шагов. Интерфейс программы прост и удобен в использовании, и любой может с легкостью освоить его.
+Кроме того, он также предоставляет новейшие инструменты (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405E1501DE5B7F82DA8F60C708BBD10C83DFB79B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542849   (243258) от 08.04.2022
 
 Windows 11 PC Health Check 3.5.220404001-s2 [Ru]
@@ -6,7 +80,7 @@ Windows 11 PC Health Check 3.5.220404001-s2 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243258.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243258.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Transcend Elite Data Management 4.11 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244187.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244187.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ Tipard Screen Capture 2.0.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244742.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244742.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ R.saver 9.5 [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245347.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245347.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ MDaemon mail server 21.5.2 x64 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245460.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245460.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ BrowsingHistoryView 2.55 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245630.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245630.jpg" />
 </div>
 
 
@@ -154,7 +228,7 @@ magnet:?xt=urn:btih:AF63B8E4A463CD0CE9D81E59BBBBD11EDC581EB9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246123.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246123.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ AnyDesk 9.6.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246135.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246135.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ O&O Defrag Professional 30.0 Build 1073 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246140.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246140.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ O&O DiskImage Professional 21.2.200 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246146.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246146.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ WinRAR 7.20 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246157.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246157.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ WinDjView Extended 4.1.0 Portable [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246158.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246158.jpg" />
 </div>
 
 
@@ -300,7 +374,7 @@ DBF Converter 7.65 RePack (& Portable) by elchupacabra [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246164.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246164.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ SupRemo 4.11.6.2928 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246167.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246167.jpg" />
 </div>
 
 
@@ -352,7 +426,7 @@ DBF Viewer 2000 8.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246175.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246175.jpg" />
 </div>
 
 
@@ -379,7 +453,7 @@ Ashampoo WinOptimizer 28.00.20 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246181.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246181.jpg" />
 </div>
 
 
@@ -403,7 +477,7 @@ Ekahau AI Pro 11.8.7 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246186.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246186.jpg" />
 </div>
 
 
@@ -427,7 +501,7 @@ Alfa eBooks Manager 9.4.8.1 Pro & Web [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246195.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246195.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ WinRAR 7.20 Beta 1 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246198.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246198.jpg" />
 </div>
 
 
@@ -475,7 +549,7 @@ Flyoobe 1.42 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246199.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246199.jpg" />
 </div>
 
 
@@ -500,7 +574,7 @@ DISMTools 0.7.1.25103 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246219.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246219.jpg" />
 </div>
 
 
@@ -524,7 +598,7 @@ magnet:?xt=urn:btih:F15A47BFE31D9DDD977A88CF6616F716DCE44282
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246220.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246220.jpg" />
 </div>
 
 
@@ -548,7 +622,7 @@ magnet:?xt=urn:btih:D7DB4CD554C2DECF7DD8E147E9BB7F61A6FFB9B0
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246244.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246244.jpg" />
 </div>
 
 
@@ -559,78 +633,6 @@ magnet:?xt=urn:btih:D7DB4CD554C2DECF7DD8E147E9BB7F61A6FFB9B0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:508BB1110DF49B31128E0250F056D1A5322F9055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833195   (246254) от 01.11.2025
-
-Beyond Compare Pro 5.1.6.31527 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond Compare — мощнейшая программа для сравнения файлов и папок. Так же с её помощью можно синхронизировать архивы, сайты FTP, обновлять веб-сайты, управлять исходным кодом, находить отличия между двумя текстовыми файлами и т.д. Beyond Compare может сохранять образцы структуры выбранных папок и в заданное время сравнивать их с теми копиями, которые находятся у (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C5AC927E86EC56910E0D1613D73DDCC818F52A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833193   (246255) от 01.11.2025
-
-Allavsoft Video Downloader Converter 3.28.5.9427 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter - это мощный видео загрузчик с поддержкой скачивания фильмов, музыкальных клипов, плейлистов, видео, уроков с видеохостингов, таких, как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft также может скачивать и конвертировать скачанное видео в популярные видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04007E6629E984FE494DD3AE2AE55690E3F806D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833192   (246256) от 01.11.2025
-
-Revo Registry Cleaner Pro 2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Revo Registry Cleaner Pro - это мощное и эффективное программное обеспечение для очистки и оптимизации реестра Windows. Программа разработана для удаления устаревших, поврежденных и ненужных записей реестра, которые могут замедлять работу системы, вызывать ошибки и снижать производительность компьютера. Благодаря интеллектуальному анализу и безопасным методам очистки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85049611BF5AB4123EFA713B0B85CD3E10C6655
 ```
 
 

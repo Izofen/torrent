@@ -1,3 +1,84 @@
+###  Публикация: 1633096   (234618) от 13.05.2023
+
+Moby - Resound NYC (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Heart (feat. Gregory Porter)
+02. Extreme Ways (feat. Dougy Mandagi)
+03. South Side (fat. Ricky Wilson)
+04. Flower (Find My Baby) (feat. Amythyst Kiah)(   Читать дальше...   )Жанр: Pop, Electronic, AmbientПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8C8C863739149B60BD75432E82ECE6E6FE2DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576860   (234851) от 16.09.2022
+
+VA - Best 80s Pop 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - The Winner Takes It All (04:55)
+02. M.C. Hammer - U Can't Touch This (04:17)
+03. Salt-N-Pepa - Push It (04:28)
+04. Cameo - Word Up (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8025C939DB61502C2E1B4379FA401F42B73144F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632787   (235103) от 11.05.2023
+
+Belinda Carlisle - Kismet (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_235103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Big Love
+02. If U Go
+03. Deeper Into You
+04. I Couldn't Do That To Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA51F5B154854D5B8E3EEC5B08603BE86848B7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642044   (235195) от 25.06.2023
 
 Katy Perry - One Of The Boys (2008) 15th Anniversary Edition, 2023, Capitol Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -6,7 +87,7 @@ Katy Perry - One Of The Boys (2008) 15th Anniversary Edition, 2023, Capitol Reco
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235195.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235195.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 1) (2023) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235615.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235615.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Marshmello - Mellokillaz (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronique, Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235779.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235779.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Bebe Rexha - Bebe (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236387.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236387.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ VA - Soft Rock Sunset Easy Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236565.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236565.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Petite Noir - MotherFather (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237145.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237145.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ a-ha - Headlines and Deadlines (The Hits Of a-ha) (1991) [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237837.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237837.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Savage Garden - Savage Garden (1997) Original Version, 2023, Sony Music Entertai
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238466.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238466.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Alexander Rier - Zwischen dir und mir (2012) [FLAC|Lossless|image + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238575.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238575.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Jake Shears - Last Man Dancing (2023) [FLAC|Lossless|image + .cue] <Dance-pop, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238785.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238785.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Madonna - Best Of... (2002) All Stars Presents Series, Unofficial Release [APE|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238843.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238843.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ VA - 100 Radio Hits - The Sound Of My Life (2020) [5CD Box Set] [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239576.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239576.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239714.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239714.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ Joe Dassin - Golden Disc (2005) Compilation [FLAC|Lossless|image + .cue] <Pop, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239760.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239760.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ Ann-Margret - Born To Be Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Fe
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239876.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239876.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ The Jordan - Nowhere Near The Sky (2023) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239907.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_239907.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ VA - 00's Super Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240700.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240700.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ VA - String Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241307.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241307.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ Gwen Stefani - Love.Angel.Music.Baby. (2004) 15th Anniversary Edition, 2020, Int
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241315.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241315.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ VA - Soul Hit Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Funk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241459.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241459.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Ellie Goulding - Higher Than Heaven (2023) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241517.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241517.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ P!nk (Pink) - TRUSTFALL (2023) Japan [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241576.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241576.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242074.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242074.jpg" />
 </div>
 
 
@@ -614,87 +695,6 @@ Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75F4C225206C658BAA36F3D1C620145F87E44AC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624976   (242098) от 08.04.2023
-
-Ellie Goulding - Higher Than Heaven (2023) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Dreams (3:12)
-02. Cure For Love (2:57)
-03. By The End Of The Night (3:08)
-04. Like A Saviour (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99CF33D84AE25F83510F6940DE5C951D95E5F7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624889   (242131) от 08.04.2023
-
-Bananarama - Masquerade (2022) 2CD, The Unmasked Edition, 2023, IN SYNK [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running With The Night (Almighty Remix Edit) [00:03:25]
-02. Forever Young (Lamentis Remix Edit) [00:03:53]
-03. Favourite (Shanghai Surprize Remix Edit) [00:02:54]
-04. Masquerade (Cahill & DTAG Remix Edit) [00:03:29](   Читать дальше...   )Жанр: PopПродолжительность: 2CD, 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05FE409186AD8A11236A9E1C7223F5A54C1C3C72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628327   (242202) от 22.04.2023
-
-Everything But The Girl - Fuse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Left To Lose (3:45)
- 02. Run A Red Light (3:39)
- 03. Caution To The Wind (4:07)
- 04. When You Mess Up (3:48)(   Читать дальше...   )Жанр: Pop, House, DowntempoПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8270FD8FF9716B9B3C4AAFDB7590C5FDC6238793
 ```
 
 

@@ -6,7 +6,7 @@ Sodom - Genesis XIX (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167311.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Beyond Shadows - Beyond Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167313.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Live in New York - Live (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167334.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cirith Ungol - Dark Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <epic heavy, doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167341.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:CDD5522A2D8664C9239A9EAE896538F36E522C1F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167343.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Slade - All The World Is A Stage (2022) 5xCD, Box Set, Compilation, CD1,CD2,CD5,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167348.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Posthumous Blasphemer - Exhumation of Sacred Impunity (2014) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167355.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Posthumous Blasphemer - Fracture The Worship (2008) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167360.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Viogression - Passage (1992) [WavPack|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167402.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:8E824222B3C555B451870E11993CBA440AC2464E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167427.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Bee Gees - Brilliant From Birth (1998) 2 CD, Compilation, Remastered, Spin [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167453.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Prism - 8 Studio Albums (1977-2008) Collection [MP3|320 Kbps] <Pop Rock, Classic
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167464.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Act Of God - The Place Of Worship (2005) [FLAC|Lossless|image + .cue] <Black Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167563.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Deftones - White Pony (2000) 20th Anniversary Deluxe Edition, 2020, Reprise Reco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167581.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Sodom - Genesis XIX (2020) Japanese Edition, Special Edition, 2021 [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167588.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Rock Summer 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167596.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Cave Blind - Return Of Iron And Steel (2022) [MP3|320 Kbps] <Heavy, Black, Speed
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167636.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ ZOAHR - Apraxia (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167670.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Spektrvm - Blood for Heaven (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167693.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Not Now Norman - It's Not This One (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167698.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Saharok - Отчаяние Падающих Звёзд (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167701.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Sellouts - Sellouts (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167709.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Leander Kills - Verkeringo (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mode
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167718.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Isafjord - Hjartastjaki (2022) Related [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167743.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Mozergush - 2 Albums (2007-2008) [FLAC|Lossless|image + .cue] <Stoner, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167765.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:1674D63693245475ABD8B2EB06A2FB737351B924
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167772.jpg" />
 </div>
 
 

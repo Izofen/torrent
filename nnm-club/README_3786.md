@@ -1,3 +1,82 @@
+###  Публикация: 1699067   (118118) от 11.02.2024
+
+А.К. Толстой, Николай Лесков, Сергей Аксаков | Рассказы (2009) [MP3, Георгий Корольчук]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из фонда радио «Град Петров».
+1.Жанр: Русская литература, классика, рассказИздательство: Град ПетровПродолжительность: 05:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57EF61DA048588F0705A10DC7A8BF6397B2DB2AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698995   (118119) от 11.02.2024
+
+Norah Jones - Visionary Jones (Curated by Don Was) (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running
+02. After The Fall
+03. Hurts To Be Alone
+04. It Was You(   Читать дальше...   )Жанр: Contemporary Jazz, PopПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66ADE9F3024A7341C3D477700C6628CF3FBA06F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699013   (118120) от 11.02.2024
+
+группа Американка - Медвежонок (2002) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Централка
+02. Котенок и паровоз
+03. Тишина немая, только ветер свищет
+04. Океан(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2E28016CE7E5145058CAE6DF71B8DA4501929F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699116   (118121) от 11.02.2024
 
 В.А. Масливец, H.H. Здесенко | Интенсивное использование земли в рисовых севооборотах (2008) [PDF]
@@ -6,7 +85,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118121.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:F5BECEB54D93C0FFA477D41280F049968B4C7B61
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118122.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:BAF8FDAD8A572A21530980AD8626D5BDA4FB2045
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118123.jpg" />
 </div>
 
 
@@ -82,7 +161,7 @@ Wondershare Recoverit for Mac 12.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118124.jpg" />
 </div>
 
 
@@ -107,7 +186,7 @@ magnet:?xt=urn:btih:D1DD22EE041DA8CE88BD2E47FEA16E0E9F8C9992
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118125.jpg" />
 </div>
 
 
@@ -132,7 +211,7 @@ magnet:?xt=urn:btih:F6E7FEE663B5C0E1F2659A48A2C286D7E6DAF250
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118126.jpg" />
 </div>
 
 
@@ -156,7 +235,7 @@ Fifth Note - Here We Are (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118127.jpg" />
 </div>
 
 
@@ -183,7 +262,7 @@ magnet:?xt=urn:btih:97C22BE2DDC16815A26A2F95E6EEA9F64359F5F5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118128.jpg" />
 </div>
 
 
@@ -207,7 +286,7 @@ VA - Митьковские песни. На море танки грохота�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118129.jpg" />
 </div>
 
 
@@ -234,7 +313,7 @@ VA - Compilation Electronic part 54 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118130.jpg" />
 </div>
 
 
@@ -261,7 +340,7 @@ magnet:?xt=urn:btih:787C1222FD01A425596F518262B4463E0BA7F779
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118131.jpg" />
 </div>
 
 
@@ -285,7 +364,7 @@ magnet:?xt=urn:btih:AD81402C87C62D3BE6B88AC4EF3D7AA81091B39D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118132.jpg" />
 </div>
 
 
@@ -309,7 +388,7 @@ magnet:?xt=urn:btih:281BD559DE8F6E55D746A0C95079BE0BF0C0F467
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118133.jpg" />
 </div>
 
 
@@ -336,7 +415,7 @@ magnet:?xt=urn:btih:FBE8FD99798FE7B0E62A21D1E014DB5D4BA0431A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118134.jpg" />
 </div>
 
 
@@ -361,7 +440,7 @@ VA - Music News vol.340 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118135.jpg" />
 </div>
 
 
@@ -388,7 +467,7 @@ magnet:?xt=urn:btih:E9D2FD4FEFF3DA618D39055F85C5E0B40BE3FDDF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118136.jpg" />
 </div>
 
 
@@ -412,7 +491,7 @@ magnet:?xt=urn:btih:E9D2FD4FEFF3DA618D39055F85C5E0B40BE3FDDF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118137.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ magnet:?xt=urn:btih:406632AFC115ADEEA4A69E0F7888B6991F7ACB97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118138.jpg" />
 </div>
 
 
@@ -460,7 +539,7 @@ K-Lite Codec Pack Update 18.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118139.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ Wondershare Repairit 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118140.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ VidCoder 9.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118141.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ magnet:?xt=urn:btih:D4A1B674BD90793A9B1AC40BA3A1E36855387D0B
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118142.jpg" />
 </div>
 
 
@@ -560,7 +639,7 @@ Usher - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk, R&B, Soul>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118143.jpg" />
 </div>
 
 
@@ -574,82 +653,6 @@ Usher - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB29F03CDA94C4CE66F9783E66BA8305B63CF278
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699119   (118144) от 11.02.2024
-
-А. Ф. Сафонов, А. М. Гатаулин и др. | Системы земледелия (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены теоретические, методологические и технологические основы систем земледелия. Даны агроэкономическое и агроэкологическое обосно­вания структуры посевных площадей, оценка системы севооборотов. Пока­зана почвозащитная ресурсосберегающая направленность системы обра­ботки почвы. Рассмотрена система обустройства природных кормовых уго­дий.
-Для студентов вузов, (   Читать дальше...   )Жанр: УчебникИздательство: КолосСФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3552AD195CAB39BB66343E04D6528C489B5540
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699094   (118145) от 11.02.2024
-
-PeaZip 9.7.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118145.jpg" />
-</div>
-
-
-###  Подробнее
-
-PeaZip — бесплатный архиватор и графическая оболочка для других архиваторов. С помощью PeaZip можно осуществлять шифрование данных, создание многотомных архивов, работу с несколькими архивами одновременно, экспорт задания в виде командной строки, установку фильтров на содержимое архива. PeaZip поддерживает собственный формат архивов Pea (с поддержкой сжатия, многотомных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5280B17AA583425879552462E776EEA1B90907
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698867   (118146) от 11.02.2024
-
-My Dying Bride - A Mortal Binding (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Her Dominion
-02. Thornwyck Hymn
-03. The 2nd of Three Bells
-04. Unthroned Creed(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:3654:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D98F92AA9CA927F905F7DEA146FD0471959B28
 ```
 
 

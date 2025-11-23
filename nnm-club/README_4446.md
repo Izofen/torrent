@@ -1,3 +1,75 @@
+###  Публикация: 1679377   (137470) от 25.11.2023
+
+Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите Three.js, создавая собственные проекты. Этот курс охватывает всё от начальных до продвинутых тем. Если вы JavaScript-разработчик, который серьезно нацелен на повышение навыков программирования и развитие карьеры, создавая потрясающие интерактивные 3D-проекты непосредственно в веб-браузере, то этот курс именно для вас.Производство: Zero To Mastery Academy (ZTM)Жанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 17:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D42DE48BA87FFE52075F4A2708BD749BD78FE3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436372   (137471) от 31.12.2020
+
+Растровый клипарт - Fotolia - Sushi with ginger and soy sauce stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суши с имбирем и соевым соусом с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 8000x5355
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CA4278E32EF7D54F6D6AA4EF947C80312D8F96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976527   (137472) от 31.12.2016
+
+Wallz Pro 1.3.1 [Ru] - Обои
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая коллекция красивых обоев различной тематики с популярных фото-сервисов. Фото-обои берутся с таких сервисов как: Flickr, 500px, Pixabay, Google+, BING gallery, а также различных OEM-ресурсов.Тип издания: ПираткаРелиз состоялся: 31.12.16Разработчик: The Lockdown TeamПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220884E1FEE2C949B27BC2D29492BF2AF92B6FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349167   (137473) от 31.12.2019
 
 VA - Свежий Русский Хит от ALEXnROCK часть 5 (2019) [MP3|320 Kbps] <Pop>
@@ -6,7 +78,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 5 (2019) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137473.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:45ABB217286A636E06FF39F5841C0898D6920914
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137474.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Hoshiai no Sora | Stars Align | Небо, где встретились звёз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137475.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:DD79153D693BCE43AD4D148DDBF897BB25463798
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137476.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Comedy Woman (31.12.2018) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137477.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ EssentialPIM Pro 11.2 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137478.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:11DA9E5580EE2A19E30DC37EB74B2DFA4B878CB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137479.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:DB715E3C56FD69D24DEAA1DB4D6735D3B7F27051
 >>23
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137480.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:C5AF2A90ED5F121A054F0D5D570277CB9C2601FE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137481.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:7A52C104AF9AFB74B975B5F488F8A16FBA750074
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137482.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:FA63D2E940B88676B74460CEB695C2DA7F0F53AF
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137483.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:1F9EFCE66ED3C84AC765FB94DBC9C1028F9E5563
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137484.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:F62370B5A726622039E7A80CE9F422D449A7452E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137485.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ magnet:?xt=urn:btih:69B86BC014F80B1EC8E80A471B0A48D575694D86
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137487.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ magnet:?xt=urn:btih:26DB40BFF0F048A032A83BAACF0A4CD43D7E80C4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137488.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:ABC775263764278BAD3D3ACFA19641A7D12C27D2
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137489.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:10FB2A657FCB0AB049A8DE33A1D8275DD4CF97FD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137490.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ magnet:?xt=urn:btih:47703E6073C82EFB98100DF4A8D52179F2EA103D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137491.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:F4395C39CC8FFAEEEDB86C1A89CDC166DDD582AB
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137493.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:DB610FE4C28D2C28A5BD8C88E5152081D84EA0DC
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137494.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ Army Of Lovers - Sexodus (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137495.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Native Instruments - Kontakt 6.0.3 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137496.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ PTE AV Studio Pro 11.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137497.jpg" />
 </div>
 
 
@@ -559,80 +631,6 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B64714AAE6181E5AEFD5CE7F85E00B5D333E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349196   (137498) от 31.12.2019
-
-Sitni Sati FumeFX 5.0 for Cinema 4D [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137498.jpg" />
-</div>
-
-
-###  Подробнее
-
-FumeFX - это мощный плагин гидродинамики газов для Maxon Cinema 4D, предназначенный для моделирования и рендеринга реалистичного огня, дыма, взрывов и других газообразных явлений. Непревзойденная в своей способности улавливать тонкость и сложность поведения распространения газа, она пользуется популярностью среди художников по визуальным эффектам, разработчиков игр, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C145944B6B28235F8F7BC58710765F600A98987D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273311   (137499) от 31.12.2018
-
-Сергей Савинов, Антон Емельянов | Карты Судьбы. Повелитель Металла (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137499.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашем мире начинают периодически появляться таинственные карты, с их помощью можно использовать заклинания, призывать монстров, оружие. За победы и достижения дают опыт и уровни в реальном мире, они позволяют использовать более сильные карты. Открылись демонические разломы. Мир поменялся, но государствам удалось удержать порядок, и многие встали на защиты привычного (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A07D3062B552517ECDD7BA7EA7C0F3156D2B5E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349176   (137500) от 31.12.2019
-
-Эдуард Суровый. Слезы Брайтона (2019) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137500.jpg" />
-</div>
-
-
-###  Подробнее
-
-ТНТ раскрыло шокирующие подробности советского шоу-бизнеса в документальном фильме «Эдуард Суровый. Слезы Брайтона» с Гариком Харламовым!
-
-Мало, кто знает, что советский бард Эдуард Суровый, одно из альтер эго Гарика Харламова в Comedy Club, действительно существовал и даже представлял Россию на главном музыкальном конкурсе Европы 1974 года. Все подробности этой (   Читать дальше...   )Телекомпания: Россия, ТНТЖанр: ДокументальныйРежиссер: Роман НовиковПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08078FB5EDCD74375A117A62187707B3EFE29A1
 ```
 
 

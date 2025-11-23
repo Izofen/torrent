@@ -1,3 +1,29 @@
+###  Публикация: 1520340   (143486) от 27.12.2021
+
+Acoustic samples - VHorns Brass Section for 1.0 (UVI Falcon) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acousticsamples объявила о выпуске VHorns латунный профиль. Реалистичная и простая в использовании библиотека рупорных инструментов для бесплатного программного обеспечения UVI для рабочих станций.
+
+Для работы с банком требуется семплер UVI FalconЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345C238560F2C310053A7B14C428775EB06DFBAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969823   (144768) от 28.12.2015
 
 iDeer Blu-ray Player 1.11.7.2128 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
@@ -6,7 +32,7 @@ iDeer Blu-ray Player 1.11.7.2128 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144768.jpg" />
 </div>
 
 
@@ -30,7 +56,7 @@ ThunderSoft GIF Converter 2.7.0.0 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144854.jpg" />
 </div>
 
 
@@ -54,7 +80,7 @@ WinX VideoProc Converter 6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145028.jpg" />
 </div>
 
 
@@ -78,7 +104,7 @@ BluffTitler Ultimate 16.4.0.3 RePack (& Portable) by elchupacabra + Content [Mul
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145061.jpg" />
 </div>
 
 
@@ -102,7 +128,7 @@ Acoustica Premium Edition 7.5.5 (x64) RePack (& Portable) by elchupacabra [Ru/En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145312.jpg" />
 </div>
 
 
@@ -126,7 +152,7 @@ ADSR Sample Manager 1.7.4 STANDALONE, VSTi, VSTi3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145378.jpg" />
 </div>
 
 
@@ -151,7 +177,7 @@ u-he - Zebra2 2.8.0.7730 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145590.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ ArtIcons Pro 5.49 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146050.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ MP4Box 0.5.2 rev 1110 Nightly [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146804.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Ample Sound - Ample Guitar LP III 3.0.0 VSTi, VSTi3, AAX (x64) + Library [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146857.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Oeksound - Spiff 1.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146942.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ magnet:?xt=urn:btih:B23157AFBF31C72A19D6CB1EEBF4D7142C9397B7
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147311.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ RasterStitch 3.40 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148441.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ GiliSoft Audio Toolbox Suite 2018 7.1.0 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148477.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Luminar Neo 1.16.0.12503 (x64) Portable by conservator [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148536.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ magnet:?xt=urn:btih:B279297A7A959F7C350F8E83722C1C4F820153EA
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149025.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ ValhallaDSP Bundle 2020.11 VST, VST3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149256.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Rob Papen - RP-VERB 2 1.0.0d VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149961.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Rob Papen - RP-Delay 1.0.2c VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150117.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Rob Papen - RP-AMod 1.0.0h VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150130.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ Zoner Photo Studio X 19.2309.2.507 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150539.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ Acon Digital Acoustica Premium 7.5.5 (X64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150650.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ Sonible - Learn Bundle 2.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150726.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ W.A. Production - Instacomposer 3 3.0.0.251014 VSTi, VSTi 3, AAX RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150727.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Scaler Music - Scaler 3 3.1.3 Standalone, VSTi, VSTi 3, AAX (x64) + Sounds [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150728.jpg" />
 </div>
 
 
@@ -606,30 +632,6 @@ Scaler 3 это уникальный и вдохновляющий MIDI-проц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A978A662F7B9ADB9A8F9E15B868E293783B72C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825926   (150729) от 18.10.2025
-
-Cytomic Effects Bundle 2025.10 VST, VST 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор эффект плагинов от Cytomic для работы со звуком.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E05E9FC8DD79945BB883B2A66CF066AEB60F7CA
 ```
 
 

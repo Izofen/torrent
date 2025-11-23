@@ -6,7 +6,7 @@ Lucky Patcher 11.2.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111695.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Speedtest от Ookla 5.3.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111696.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Busuu - изучение языков 31.19.1(984656) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111697.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Soul Browser 1.4.14 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111700.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Microsoft .NET 7.0.18 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111702.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Microsoft .NET 6.0.29 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111704.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ QuickTextPaste 8.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111707.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Viber 22.4.0.3 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111709.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Wavesequencer - Hyperion 1.51 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111734.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Wavesequencer - Theia 1.08 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111741.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ HDCleaner 2.069 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111762.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ OfficeSuite Pro + PDF 14.4.51651 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111765.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ iZotope - Trash 1.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111768.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Advanced Renamer 3.95 release 3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111769.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ RegCool 2.000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111772.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Telegram Desktop 4.16.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111802.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Brave Browser 1.64.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111810.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ StaxRip 2.37.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111816.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Balabolka 2.15.0.868 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111825.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ SQL Dynamite 2.5.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111839.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Attribute Changer 11.30b + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111844.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ GPS АнтиРадар v42.0 Mod by 0x7d [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111847.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Chromium 123.0.6312.107 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111855.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Strava: бег, велоезда, хайкинг v354.7 Mod by ReVanced Team [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111873.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ FireAlpaca 2.11.18 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111902.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ XYplorer 25.80.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111927.jpg" />
 </div>
 
 

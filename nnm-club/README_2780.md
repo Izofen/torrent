@@ -1,3 +1,80 @@
+###  Публикация: 223267   (78019) от 23.02.2012
+
+Люди и манекены (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78019.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Он рассказывает о жизни своих современников то остро сатирически, то с мягким юмором» — таковы были рецензии на эту режиссерско-актерскую работу Аркадия Райкина. В фильм вошли лучшие сатирические миниатюры: «Холостяк», «Маски», «Смеяться, право, не грешно» и т. д. Аркадий Исаакович никогда не стремился к обязательной узнаваемости образа, гораздо интереснее было (   Читать дальше...   )Жанр: комедияРежиссер: Виктор Храмов, Аркадий РайкинВ ролях: Аркадий Райкин, Ольга Малоземнова, Виктория Горшенина, Людмила Гвоздикова, Владимир Ляховицкий, Татьяна Рогозина, Александр КарповПродолжительность: 01:15:53 + 01:15:19 + 01:04:30 + 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F1E3A8006671091EC3E57454E441F1DE91BD69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456896   (78021) от 23.02.2012
+
+[Xbox360] Hasbro Family Game Night 4 (PAL) [ENG] [KINECT] (2011)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика никогда не стареет. Четвертая часть уникального сборника понятных, доступных, а главное — известных и любимых игр Hasbro Family Game Night выходит в свет, чтобы продолжить радовать любителей провести время весело.
+  Hasbro Family Game Night 4 - это универсальное развлечение для игроков всех возрастов, а также отличный способ самовыражения. Вместе со знаменитым мистером Картофельная Голова в качестве наставника вы сможете создать персональную комнату заядлого «игромана». Выбирайте варианты обстановки и украшайте свои владения честно заработанными в различных аттракционах трофеями. Скучно не будет!
+  Hasbro Family Game Night 4 включает в себя следующие мини игры — Connect 4 Basketball, Yatzhee! Bowling, Scrabble Flash, Bop-It Boptagon, Sorry! Sliders.
+  И, естественно, весь сборник рассчитан на поддержку сенсора KINECT для мультиплеера.2011Жанр: Fun/Family GameЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F806BB39458AF1DAB5595E9A7E45377347DBBA7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456697   (78024) от 23.02.2012
+
+[AppStore] Samorost 2 [Native] [Eng]
+
+>>Игры для macOS
+>>Quests, Adventure, Arcade для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Samorost 2 – продолжение игры от Якуба Дворского. Смешная и добрая игра про гнома, который жил на своей маленькой планетке с любимой собакой. Но идиллию разрушили инопланетяне – натоптали на лужайке и похитили собаку… Вперед, в ракету и в погоню!
+
+«Саморост 2» — образцовый сиквел. Серьезные изменения его не затронули, а все хорошее, что было в Samorost, доработано и приведено в порядок. К «растительно-каменным» снимкам автор примешал изображения железок — на сей раз герою придется лазить по ржавым переходам на вражеской летучей фабрике. Жаль, прелесть сюрреалистических пейзажей и обаяние безмолвных жителей, в которых кроется первый секрет адвенчуры, не описать словами. Второй же секрет — в хороших задачках. Дворский не повторил ошибку многих разработчиков и не привязал игровой процесс к странной вселенной. Решения выстроены на логике конкретных ситуаций, способных существовать в отрыве от окружения. Ломать голову над тем, как отодвинуть холодильник с крышки люка, заправить такси или разбудить храпящего капитана, (   Читать дальше...   )Жанр: Adventure (Puzzle)Язык интерфейса: Eng
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1DC1D6C7A247D4631B1B046F9AAC389ABBB88A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456909   (78028) от 23.02.2012
 
 Хранитель времени / Hugo (2011) [1080p] BDRemux
@@ -6,7 +83,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78028.jpg" />
 </div>
 
 
@@ -31,7 +108,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78041.jpg" />
 </div>
 
 
@@ -55,7 +132,7 @@ Xilisoft Video Converter Ultimate 7.1.0 build 20120222 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78049.jpg" />
 </div>
 
 
@@ -79,7 +156,7 @@ Saw: The Video Game [Cider] [Rus + Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78052.jpg" />
 </div>
 
 
@@ -105,7 +182,7 @@ The Last Story [Wii] [PAL] [Multi 5] (2012)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78059.jpg" />
 </div>
 
 
@@ -130,7 +207,7 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78060.jpg" />
 </div>
 
 
@@ -154,7 +231,7 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78063.jpg" />
 </div>
 
 
@@ -178,7 +255,7 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78065.jpg" />
 </div>
 
 
@@ -203,7 +280,7 @@ magnet:?xt=urn:btih:26D05B34B0B32450A051E20562868E8C6D115FFF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78066.jpg" />
 </div>
 
 
@@ -227,7 +304,7 @@ Sinclair MacOSX Linux Build v.20120217 [x86] (1xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78067.jpg" />
 </div>
 
 
@@ -251,7 +328,7 @@ magnet:?xt=urn:btih:AC8033CC3B9A6B41C4E5BC395AFA1E800F0D2D3E
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78068.jpg" />
 </div>
 
 
@@ -275,7 +352,7 @@ magnet:?xt=urn:btih:5320F08A9A3A83FBB1C6AAA953C0EA6AE0820E2D
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78070.jpg" />
 </div>
 
 
@@ -301,7 +378,7 @@ Serious Sam: The Second Encounter [Wineskin] [Rus]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78073.jpg" />
 </div>
 
 
@@ -326,7 +403,7 @@ VA - Playboy Jazz - In a Smooth Groove (2004) [FLAC|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78078.jpg" />
 </div>
 
 
@@ -359,7 +436,7 @@ VA - Goa Culture Vol. 5 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78093.jpg" />
 </div>
 
 
@@ -392,7 +469,7 @@ magnet:?xt=urn:btih:D4E504BAD290A3B1B13A7DD4E88FE2702DBD2CEC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78101.jpg" />
 </div>
 
 
@@ -416,7 +493,7 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78105.jpg" />
 </div>
 
 
@@ -440,7 +517,7 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78117.jpg" />
 </div>
 
 
@@ -464,7 +541,7 @@ magnet:?xt=urn:btih:133FB05B88F5BDB7A4104E7AB66755765663C17B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78120.jpg" />
 </div>
 
 
@@ -488,7 +565,7 @@ Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78124.jpg" />
 </div>
 
 
@@ -516,7 +593,7 @@ Kiss - 5 Albums (1978-1982) [FLAC|Lossless]<Hard Rock, Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78128.jpg" />
 </div>
 
 
@@ -550,7 +627,7 @@ Rod Stewart - 3 альбома (1996-2010) [APE|Lossless]<Hard Rock, Classic Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78131.jpg" />
 </div>
 
 
@@ -583,7 +660,7 @@ Rod Stewart - 3 альбома (1996-2010) [APE|Lossless]<Hard Rock, Classic Roc
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78139.jpg" />
 </div>
 
 
@@ -594,82 +671,6 @@ Rod Stewart - 3 альбома (1996-2010) [APE|Lossless]<Hard Rock, Classic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464EEE63E16DCA02CDDD222F23706437153602A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454630   (78140) от 24.02.2012
-
-Korn, Ozzy Osbourne - Live at OZZFEST 2010 (2010) HDTV
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись с телеканала MTVNHD (НТВ+) - мировая сцена MTV.
-Программа разрезана на две части:
-Korn - продолжительностью 00:08:16
-Ozzy Osbourne - 00:30:26
-Видео и звук - исходные (не кодировались)Жанр: MetalПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457164   (78153) от 24.02.2012
-
-Дикая банда / Кровавая банда / The Wild Bunch (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит не в эпоху завоевания Дикого Запада, как это было положено в каноне, а в начале ХХ века, во времена мексиканской революции. Банда стареющих грабителей решает провернуть последнее дело перед тем, как уйти на покой «доживать» награбленное где-нибудь на мексиканском побережье Тихого океана. Но при ограблении банка в маленьком техасском городке бандиты попадают в засаду, которой руководит бывший член их сообщества, арестованный властями и поставленный перед выбором: петля или сдача подельников. После ураганной перестрелки большинству «диких» удается уйти. Теперь у них единственный шанс осуществить задуманное и прорваться в Мексику – ограбить поезд с оружием и продать его одному из мятежных революционных генералов.Жанр: Боевик, ВестернРежиссер: Сэм ПекинпаАктеры: Уильям Холден, Эрнест Боргнайн, Роберт Райан, Эдмонд О`Брайэн, Уоррен Оутс, Джейм Санчез, Бен Джонсон, Эмилио Фернандез, Стротер Мартин, Л.К. Джонс, Альберт Деккер, Бо Хопкинс, Даб ТейлорПеревод: Mноголосый закадровыйПродолжительность: 02:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7862649348D2AC1981767984B3E5CC479C46A3D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457241   (78156) от 24.02.2012
-
-Ледяная внучка (1980) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полюбился Снегурке деревенский гончар - да так сильно, что захотела она стать обыкновенной девушкой и выйти за него замуж. Но красота ее приглянулась коварному князю. Обманом и наветами он разлучает влюбленных - и сердце Снегурки снова становится ледяным. Только вера и любовь суженого смогут его отогреть...Жанр: Детский, ФэнтезиРежиссер: Борис РыцаревАктеры: Светлана Орлова, Андрей Градов, Людмила Шагалова, Борис Сабуров, Альберт Филозов, Валерий Долженков, Ольга Григорьева, Владимир Никитин, Владимир ДружниковПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFE8289437A22086B293D87F00327F8EE650A0C
 ```
 
 

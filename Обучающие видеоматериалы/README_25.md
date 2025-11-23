@@ -6,7 +6,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Продв
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55550.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Базов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55552.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:62C16E9D9914DBD39A630A715B16CD8E7C8B0C80
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55866.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:2DEF4FFD06A583A738D7B38E606390F9502BC1E0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56088.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E6470160B9676D7929A3BF67637D1E5DFF49281D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56182.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Stepik | Терминал Linux. Основы работы в командной
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56192.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Udemy, Colt Steele | HTML & CSS Bootcamp - 2023 Edition (2023) WEB-DL [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56197.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Nizamov.School, Илья Низамов | Telegram Web App 1С (2024) WEB-DL [AD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56198.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:419EB9A7B79186E61CC95EB37AC4378BFD354F41
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56342.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:692700F7B30E672813E1625FB09AF2FA251ABB7A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56357.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Zemskurs, Алексей Земсков | Замер и оцифровка кв�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56382.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:40F6BE736035D0168742B4BBDB8737265D2DE6E4
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56391.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:B2B76830894ED5B1DF5A146F27209B3150A1B3D8
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56400.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ EngExpert, Диана Семенычева | Как в 10 раз эффекти�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56403.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Zemskurs, Алексей Земсков | Замер и оцифровка кв�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56405.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:C4BA99096BDCF3D8A652876974DE02615B404FC7
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56502.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Guitardo, Данил Чечеткин | Гитара 30 за 30 (2024) WEB-DL [A
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56522.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ ITVDN, Руслан Ларионенко | Qt Framework (2019) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56595.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:CB15C623342BECC11568E455AB2C0AF8D6C91CF1
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56620.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ ITVDN, Владимир Виноградов, Кирилл Чернега | C++ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56625.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:5398E760C4F05DD93B7FA7B19D755A11708718AA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56635.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:8B58B0ED4BD28BEF98F7BFDD214E332E6E091E9A
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56647.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:F7800478EA0C10837B9DDCF9CCD6CFDA62B6F3C3
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56730.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:09B96A58F25EEE794D937EDDEE932B43C142AC34
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56848.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ George Vondriska | Деревообработка: основы отделки (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56920.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ GeekBrains | Факультет дизайна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56926.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Thenighttimeproject - Studio Albums (2 releases) (2016-2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65904.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Illdisposed - In Chambers Of Sonic Disgust (2024) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65905.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:916CA83EE47BF97D1620E31862A63B0FEF160582
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65906.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5FF7B021CF70ACE2844C6FCBA2F09A7ABDD2626A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:667BB0C95909DCB72E8A7BDC9103851A03867FCB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65908.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:0393E61AC2B7F344AD4C671AE8877138FAA5507F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65909.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:570B17D437311C7DD0EC4979AAE8BD19055F82F6
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65910.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:756733FEA08C1470EB9782753988CB2372D61BDC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65911.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kiss - Asylum (1985) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65912.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Sea Breeze & Papik - Go Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65913.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Alestorm - The Thunderfist Chronicles (2025) Deluxe Version, 3CD, Napalm Records
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65914.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Kiss - Animalize (1984) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65915.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Wizzo - Place of the Chosen Lords (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65916.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Black Majesty - Oceans Of Black (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65917.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:F2B6F0B42A726151CBDD238AD1B9083054F711EE
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65918.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:3FA390FB90F0135E505EFC4349C5B16B8BBCE30D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65919.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:0C089F7F150261220A929EAD12E02B82E53A2134
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65920.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:EEB964F38FF14169EC80BC5B1747A6DD05F9B2CE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65921.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ SanMinor - Изоляция (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65922.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Cryptopsy - An Insatiable Violence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65923.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cocojoey - STARS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <hyperpop, bitpop, c
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65924.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Onslaught - Origins Of Aggression (2025) 2 x CD [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65925.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sander van Doorn - Punk'd (2004) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65926.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Septulchu - Post Fata Non Resurgam (2025) [MP3|320 Kbps] <Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65927.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:299293067262B5A9836751372A51AADFDEB478C5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65928.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:0FE2D80588FB3730BA8B409D10BDA0B4A03C7177
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65929.jpg" />
 </div>
 
 

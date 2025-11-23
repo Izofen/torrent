@@ -1,3 +1,99 @@
+###  Публикация: 1668083   (175087) от 10.10.2023
+
+Macrorit Partition Expert 8.0.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B67B46E3BCFA67D3663737F84FA83291105F30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429968   (175088) от 08.12.2020
+
+Microsoft Edge 87.0.664.57 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_175088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F415893B228F9129FE09A347C4826027703307D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667966   (175090) от 10.10.2023
+
+Auslogics Driver Updater 1.26.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Driver Updater – программа представляющая собой очень простой, удобный и в тоже время эффективный инструмент для обновления драйверов операционной системы Windows. Она просканирует ваш компьютер и после сканирования Вашего компьютера на присутствие драйверов ко всем устройствам, она составит список устройств которые требуют установки драйверов и предложит (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD73045FE11E0959F8A297A9086AE8711278D70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430027   (175092) от 08.12.2020
+
+Vivaldi 3.5.2115.73 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_175092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CA4A33E6B77CC0C0E5B9A8CE31F157F5E5F5A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668078   (175094) от 10.10.2023
 
 VSDC Video Editor Pro 8.3.1.482 (x64) Portable by 7997 [Multi/Ru]
@@ -6,7 +102,7 @@ VSDC Video Editor Pro 8.3.1.482 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175094.jpg" />
 </div>
 
 
@@ -31,7 +127,7 @@ Zoc Terminal 8.01.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175096.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175096.jpg" />
 </div>
 
 
@@ -55,7 +151,7 @@ Balabolka 2.15.0.761 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175099.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175099.jpg" />
 </div>
 
 
@@ -81,7 +177,7 @@ Firefox Browser 118.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175128.jpg" />
 </div>
 
 
@@ -105,7 +201,7 @@ Adobe InCopy 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175131.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175131.jpg" />
 </div>
 
 
@@ -130,7 +226,7 @@ Macrorit Disk Scanner 6.6.8 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175135.jpg" />
 </div>
 
 
@@ -154,7 +250,7 @@ Macrorit Partition Extender 2.3.1 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175139.jpg" />
 </div>
 
 
@@ -178,7 +274,7 @@ Master PDF Editor 5.9.70 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175143.jpg" />
 </div>
 
 
@@ -202,7 +298,7 @@ Opera One 103.0.4928.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175146.jpg" />
 </div>
 
 
@@ -226,7 +322,7 @@ magnet:?xt=urn:btih:ED795B0E29BE612F6B622D37D45E9A3BF8F804EB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175151.jpg" />
 </div>
 
 
@@ -250,7 +346,7 @@ Dark Reader for Safari 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175152.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175152.jpg" />
 </div>
 
 
@@ -275,7 +371,7 @@ AYVY 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175162.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175162.jpg" />
 </div>
 
 
@@ -299,7 +395,7 @@ Opera One 103.0.4928.26 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175169.jpg" />
 </div>
 
 
@@ -323,7 +419,7 @@ Twinkle Tray 1.15.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175185.jpg" />
 </div>
 
 
@@ -347,7 +443,7 @@ ISO Workshop 12.3 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175188.jpg" />
 </div>
 
 
@@ -371,7 +467,7 @@ OneCommander Pro 3.54.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175193.jpg" />
 </div>
 
 
@@ -396,7 +492,7 @@ Vidmore Video Converter 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175194.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175194.jpg" />
 </div>
 
 
@@ -421,7 +517,7 @@ Exposure Software Snap Art 4 v4.1.3.351 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175200.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175200.jpg" />
 </div>
 
 
@@ -445,7 +541,7 @@ CrossOver 23.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175205.jpg" />
 </div>
 
 
@@ -470,7 +566,7 @@ Auslogics BoostSpeed 13.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175208.jpg" />
 </div>
 
 
@@ -494,7 +590,7 @@ Vidmore Player 1.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175209.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175209.jpg" />
 </div>
 
 
@@ -519,7 +615,7 @@ Whisk 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175212.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175212.jpg" />
 </div>
 
 
@@ -530,104 +626,6 @@ Whisk - это легкий редактор HTML и PHP с предварите
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A7E9F3E2770C5AC2DEA8EA2F2B55065BD8EECE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668048   (175213) от 10.10.2023
-
-RadioMaximus 2.32.1 RePack (& Portable) by TryRooM[Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11BE4EFFAF9CB34B2847C8BC02C09E15B90255E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668024   (175217) от 10.10.2023
-
-Auslogics Duplicate File Finder 10.0.0.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Duplicate File Finder поможет Вам избавиться от ненужных дубликатов. С помощью этой бесплатной программы Вы сможете очистить до 50% дополнительного пространства на жестком диске! Сколько абсолютно одинаковых файлов хранится на Вашем компьютере? Вы, возможно, удивитесь, как много места они занимают. Файлы-дубликаты могут накапливаться вследствие повседневного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC44C0CBF9DB905136D6D76988321DED3A3A4A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667971   (175220) от 10.10.2023
-
-App Cleaner & Uninstaller Pro 8.2.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175220.jpg" />
-</div>
-
-
-###  Подробнее
-
-App Cleaner - это приложение для просмотра установленных приложений и деинсталлирования пакета файлов для полного удаления.
-App Cleaner - лучшее приложение для удаления файлов приложения службы на macOS X и деинсталляции приложений.
-Удалить служебные файлы приложения. Убедитесь, что они не съедают драгоценное пространство на вашем Mac с этим полезным приложением, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AF10ADF8A0D58A6EFF398B1E947F5B601CFD70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667949   (175224) от 10.10.2023
-
-Auslogics Disk Defrag Pro 11.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2A8D0BA8EBD163B421132800ED5766E3D05D4A
 ```
 
 

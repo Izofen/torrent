@@ -1,3 +1,78 @@
+###  Публикация: 1701521   (116324) от 21.02.2024
+
+Ataraxy - Curse of the Requiem Mass (2010) EP [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Breaking Wheel (04:38)
+02. Curse of the Requiem Mass (04:35)
+03. The Last Stare (03:20)
+04. Bleed to Death (03:32)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1509CB3568FEC32FC8BFF670F3824C7C0BB2EB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701551   (116325) от 21.02.2024
+
+Западня / The Decoy (1914) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальная история про семейную пару, промышлявшую шулерством. А чтобы привлекать богатеньких лохов, они приветили в семью дальнюю родственницу, молоденькую симпатичную провинциалку. Лохи, они же клюют на молоденьких. Причем, использовали втемную, наивная барышня и не подозревала, что она просто приманка.Производство: США, Thanhouser Film CorporationЖанр: короткометражный, драма, криминал, немое киноРежиссер: Карл ГрегориАктеры: Чарльз Хоран, Marie Rainford, Вирджиния Вейт, Мюриэл Остриш, Морган Джонс, Бойд Маршалл, Джон РейнхартПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1A3DEFD9D68DD01E6EDBEE281627DC81EC54F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701524   (116326) от 21.02.2024
+
+Журнал | Домашний №3 (641) (февраль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашний - это журнал для всей семьи! В каждом номере — секреты красоты и здоровья, домашнего уюта, кулинарные советы, рекомендации астролога, уход за домашними питомцами, семейная психология, юридическая консультация, житейские истории и многое-многое другое. Также на страницах журнала вас ждут интересные интервью с любимыми звездами шоу-бизнеса и кино, где они (   Читать дальше...   )Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E639C20649DDE4012FE93B1CCE509DC4EC73B4D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701339   (116327) от 21.02.2024
 
 Grin - Hush (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom, Psych, Stoner, Occult>
@@ -6,7 +81,7 @@ Grin - Hush (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom, Psych, Stoner, Oc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116327.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ DirEqual 5.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116328.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ Texifier 1.9.25 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116329.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ Alan Broadbent Trio - Trio In Motion (2020) Savant Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116330.jpg" />
 </div>
 
 
@@ -109,7 +184,7 @@ My Darkest Time - The Last (2016) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116331.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ Blue Mitchell - Big 6 (1958) 2007, Universal [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116332.jpg" />
 </div>
 
 
@@ -163,7 +238,7 @@ Ataraxy - Where All Hope Fades (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116333.jpg" />
 </div>
 
 
@@ -190,7 +265,7 @@ Ataraxy - Revelations of the Ethereal (2012) Reissue, 2020, Dark Descent Records
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116334.jpg" />
 </div>
 
 
@@ -217,7 +292,7 @@ magnet:?xt=urn:btih:B9BF3AA7C8AC2FD5E696128C31594F7F312907F0
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116335.jpg" />
 </div>
 
 
@@ -241,7 +316,7 @@ magnet:?xt=urn:btih:754EC7B2300B38BD796B1360EC9DF6A81E7AD458
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116336.jpg" />
 </div>
 
 
@@ -265,7 +340,7 @@ magnet:?xt=urn:btih:0F21C7AEAB1B06B15F361F266A581C45A70805CC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116337.jpg" />
 </div>
 
 
@@ -289,7 +364,7 @@ magnet:?xt=urn:btih:9AF74A38FFBF03273941A39D544884CE5DEC9724
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116338.jpg" />
 </div>
 
 
@@ -313,7 +388,7 @@ magnet:?xt=urn:btih:21E280E84F6F1312B5A6264BE81F5E689FEA7DC7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116339.jpg" />
 </div>
 
 
@@ -337,7 +412,7 @@ magnet:?xt=urn:btih:D679C53E05EEE91224E9E208CD426617629D2904
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116340.jpg" />
 </div>
 
 
@@ -361,7 +436,7 @@ magnet:?xt=urn:btih:C3186DB996B9A9432F45D7E68DB017E6D544FED3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116341.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ Blackberry Smoke - Be Right Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116342.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ magnet:?xt=urn:btih:CE86C703631F3CF7400E8E995F09DA3F9D0E27CA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116343.jpg" />
 </div>
 
 
@@ -441,7 +516,7 @@ magnet:?xt=urn:btih:7C7A72FACAE522B95DD7B5C363E1B9B88C53C34E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116344.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ Eight Seconds - Almacantar (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116345.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ magnet:?xt=urn:btih:9EAE7214EB0144F88A439CC7A306FCDC7CEC4C55
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116346.jpg" />
 </div>
 
 
@@ -520,7 +595,7 @@ VA - Jazz Bass - Virtuosity - Electric & Upright (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116347.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ magnet:?xt=urn:btih:283F34019D2014F967D4C4A9E180038193D83D45
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116348.jpg" />
 </div>
 
 
@@ -571,7 +646,7 @@ magnet:?xt=urn:btih:7A88ED5FB015E8CB4CA039EF432A4332661A9A0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116349.jpg" />
 </div>
 
 
@@ -582,84 +657,6 @@ magnet:?xt=urn:btih:7A88ED5FB015E8CB4CA039EF432A4332661A9A0C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246EE7D0E4D78FFFE22887658DBF4E3BEAAC949A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701421   (116350) от 21.02.2024
-
-Благовест | Святитель Николай Чудотворец (2011) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Святитель Николай Чудотворец» повествует о личности и чудесах великого угодника Божия, святителя Николая Чудотворца, и его почитании в России. Она рассчитана на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31E9E17F6F5AA75072E7F33690171F47EA2E609
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701458   (116351) от 21.02.2024
-
-VA - Tranceparent Vol. 1 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter 47 - Eternity (Original Mix) [6:12]
-02. ELSI-X - Dream (Original Mix) [4:38]
-03. Pietro Palascino - Law Of Attraction (Original Mix) [5:42]
-04. Last Child Left - The Mirror (Original Mix) [7:48](   Читать дальше...   )Жанр: TranceПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C52B77B0923F9BAF520DD09F62EF12A6580E78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701628   (116352) от 21.02.2024
-
-Eight Seconds - Big Houses (1990) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Progressive Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Stood Troy (06:34)
-02. No Picasso (05:05)
-03. Tell Diane (04:45)
-04. Chopin's Heart (04:52)(   Читать дальше...   )Жанр: New Wave, Progressive PopПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BF3EF5A7FF82015C2CFE1DC73323AC2F61F081
 ```
 
 

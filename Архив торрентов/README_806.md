@@ -1,3 +1,79 @@
+###  Публикация: 1346493   (163780) от 19.12.2019
+
+PTE AV Studio Pro 10.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163780.jpg" />
+</div>
+
+
+###  Подробнее
+
+PTE AV Studio Pro - дальнейшее развитие программы PicturesToExe Deluxe.
+Используя PTE AV Studio вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск.
+К каждому слайду можно добавить текстовый и звуковой комментарий (wav, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA0541C0B04CB5A7174D52E2930DCB23C3ADCD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346289   (163784) от 19.12.2019
+
+Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Калгари Флэймз (17.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163784.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 декабря 2019 года, среда 05:00 МСК
+Стадион: Скотиабанк Саддлдом (Калгари, Канада), 18 412 зрителей (95 % при вместимости 19 289)
+Главный судья: Гарретт Рэнк (Канада); Главный судья: Кайл Реман (Стеттлер, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5080702001768A9DF9D4EB3F9B4D6BB4DADF38E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517164   (163796) от 14.12.2021
+
+Sublime Merge Dev Build 2065 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Merge - клиент системы контроля версий, который сочетает в себе знакомый интерфейс редактора кода и функции Git, например: возможность контролировать слияние версий, искать выбранные коммиты или просматривать историю изменений.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 Sublime HQПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C710E15F237FC10BC5B01DD7FC2BE0138A8487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517224   (163800) от 14.12.2021
 
 NeoOffice 2017.31 [Multi/Ru]
@@ -6,7 +82,7 @@ NeoOffice 2017.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163800.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ URL Manager Pro 5.8.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163804.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ FileAssistant 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163807.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ FreeCommander XE Build 880 (2022 donor x64 & 2023 public x86) + Portable [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163811.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ UctoX 2 v2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163814.jpg" />
 </div>
 
 
@@ -134,7 +210,7 @@ DoYourData AppUninser Pro 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163816.jpg" />
 </div>
 
 
@@ -158,7 +234,7 @@ Multi Commander Full Edition 10.2 Build 2745 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163817.jpg" />
 </div>
 
 
@@ -183,7 +259,7 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163818.jpg" />
 </div>
 
 
@@ -207,7 +283,7 @@ File List Export 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163824.jpg" />
 </div>
 
 
@@ -231,7 +307,7 @@ Calendar 366 II v2.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163825.jpg" />
 </div>
 
 
@@ -257,7 +333,7 @@ DoYourData File Eraser Pro 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163826.jpg" />
 </div>
 
 
@@ -281,7 +357,7 @@ MyDraw 5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163838.jpg" />
 </div>
 
 
@@ -305,7 +381,7 @@ Vivaldi 2.10.1745.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163853.jpg" />
 </div>
 
 
@@ -329,7 +405,7 @@ Hosts File Editor+ 1.5.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163890.jpg" />
 </div>
 
 
@@ -354,7 +430,7 @@ Boku no Hero Academia 6 | My Hero Academia Season 6 | Моя геройская 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163905.jpg" />
 </div>
 
 
@@ -378,7 +454,7 @@ WinToHDD 6.2 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163906.jpg" />
 </div>
 
 
@@ -402,7 +478,7 @@ Allavsoft Video Downloader Converter 3.22.0.7290 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163914.jpg" />
 </div>
 
 
@@ -426,7 +502,7 @@ DupeZap 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163924.jpg" />
 </div>
 
 
@@ -453,7 +529,7 @@ Qbserve 1.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163936.jpg" />
 </div>
 
 
@@ -480,7 +556,7 @@ LibreWolf 108.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163942.jpg" />
 </div>
 
 
@@ -506,7 +582,7 @@ IObit Driver Booster Pro 8.2.0.305  RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163945.jpg" />
 </div>
 
 
@@ -530,7 +606,7 @@ Joplin 2.9.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163947.jpg" />
 </div>
 
 
@@ -555,7 +631,7 @@ MP3jam 1.1.6.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163969.jpg" />
 </div>
 
 
@@ -566,78 +642,6 @@ MP3jam - это программа, с помощью которой вы смо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E93CA6B00FC3DE3FDAAF04AC0723502A9CBF7520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346350   (163979) от 18.12.2019
-
-Джокер / Joker (2019) WEB-DL [H.264/1080p-LQ] [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада / BRON Studios, Creative Wealth Media Finance, DC ComicsЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Фрэнсис Конрой, Бретт Каллен, Шей Уигэм, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (Чистый звук)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, full), английскиеПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28BE14649EDFB9EE319A3E53FF9CAC58E59A68D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432388   (163985) от 17.12.2020
-
-Pepakura Designer 4.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет программ, адресованных моделистам, которые изготавливают свои модели из бумаги. Программы предназначены для просмотра, создания и редактирования выкроек (разверток) бумажных моделей. Выкройки генерируются на основе готовых моделей, ранее созданных в программах трехмерного моделирования. Поддерживаются многие популярные форматы: 3DS, DXF, MQO, LWO, OBJ, STL, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A06DF1555F06193BEA49C31730EC2567BBD113A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346088   (163986) от 18.12.2019
-
-Red Giant Magic Bullet Suite 13.0.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Bullet Suite представляет собой набор из семи инструментов финальной редакторской обработки, используемые для профессиональной цветокоррекции, улучшения и производства фильмов в Adobe After Effects, Adobe Premiere Pro, Apple Final Cut Pro X, Apple Motion, Davinci Resolve и Avid Media Composer.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Red Giant LLCПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816C6B92B3419AA03CE6A7594696471EA06EE0DE
 ```
 
 

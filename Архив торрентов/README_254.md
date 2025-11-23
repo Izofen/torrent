@@ -6,7 +6,7 @@ Enigma Virtual Box 10.60 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57596.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Foxit PDF Editor Pro 2024.2.0.25138 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57604.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ GoldWave 6.80 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57610.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ R-Studio Technician 9.4 Build 191310 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57617.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5A6E23318503F9F289C4E3D29993339FD0B6DC41
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57623.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ AIMP 5.30 Build 2549 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57626.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ ZBrush 2024.0.3 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57640.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:72AA64B30F8E868AE816A1DDF811A61EB8C2C9EE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57648.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Wi-Fi Scanner 22.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57653.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.6 Build 7 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57655.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Steinberg Cubase Pro 13.0.30.226 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57699.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Optimizer 16.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57700.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ IceCream Ebook Reader Pro 6.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57701.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Topaz Video AI 5.0.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57703.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.91 (0503) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57705.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Animate 2024 24.0.3.19 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57706.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ WinScan2PDF 8.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57708.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ R-Wipe & Clean 20.0.2455 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57709.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Serif Affinity Designer 2.4.2.2371 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57710.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Topaz Gigapixel AI 7.1.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57711.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ K-Lite Codec Pack Update 18.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57712.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ reaConverter Pro 7.808 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57713.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ MediaHuman YouTube Downloader 3.9.9.91 (0503) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57715.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ TreeSize Professional 9.1.4.1881 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57717.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Serif Affinity Photo 2.4.2.2371 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57718.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Viber 22.6.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57719.jpg" />
 </div>
 
 

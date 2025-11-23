@@ -6,7 +6,7 @@ The Twin Souls - Family & Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117397.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anthony Phillips - Private Parts & Pieces IX-XI (2018) 4CD [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117398.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F6DA4990578D015F0595EBAD68D0E9F5EBE22467
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117403.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Achilles - There Will Be Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117406.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A69BB3F1D2C2C6034EE91CAC5E196A0A30DA3427
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117407.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Paul Rodgers - Midnight Rose (2023) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117410.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Honeymoon Suite - Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117416.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:DC08A391AD787E32235AFE7965550361D0F28BDB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117420.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ UFO - The Misdemeanor Tour - Live At The Oxford Apollo (1985) Reissue, 2025, HNE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117537.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Voight Kampff - Substance rêve (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117551.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Voight Kampff - More Human than Human (2012) [FLAC|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117559.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Mean Mistreater - Razor Wire (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117575.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Witherfall - What Have You Done? (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117585.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Honeyblood - Serpentine Patterns (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117586.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Misanthrope - Misanthrope Immortel (2000) 20th Anniversary Edition, 2021, Remast
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117592.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Trivax - Eloah Burns Out (2023) [MP3|320 Kbps] <Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117620.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ LASCALA - Play-Off (2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117629.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:10C67DA370AB868AD50B76B1402314B924FD75E0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117632.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ TattooIN - Звёзды и руны (2025) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117634.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:70AC9032B54007FB706E9115A5075B3253C0B8D0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117635.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Bernie Torme - Die Pretty Die Young (1987) Remaster, 2024, Cherry Red Records [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117658.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Witchflame - Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117661.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Bear Ghost - Jiminy (2023) [MP3|320 Kbps] <Alternative Rock, Art Rock, Progressi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117674.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Black Sabbath - Vienna 1989 (2020) 2 x CD, Japanese Edition, Remastered [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117680.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:63FA2323658087F641CDF986795E0E015EBA5E3E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117689.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ The Funeral Procession - In Still Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117767.jpg" />
 </div>
 
 

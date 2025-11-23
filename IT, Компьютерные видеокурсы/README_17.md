@@ -6,7 +6,7 @@ HTML Academy | Профессиональный онлайн-курс JavaScript
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138589.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C1B164914F1B2AB471C99CBC800EA111A0CADFA7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138617.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy| Создание административной панели на React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138645.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MonsterLessons | React Hooks - Пишем Реальный Проект с Ну�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138834.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ itgid | React. Lite Level (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138856.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Swiftbook, Кирилл Леонов | Профессия Middle iOS-разра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138875.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Udemy, Mumshad Mannambeth | Linux Foundation Certified Systems Administrator - L
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139002.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ TalkPython, Christopher Trudeau | HTMX + Django: Modern Python Web Apps, Hold th
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139116.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ HTML Academy | Интенсивный онлайн-курс «Базовый Jav
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139240.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Infostart | Tech Event (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139313.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ JUG Ru Group | VideoTech 2023. Конференция по технология�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139466.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Udemy, Hussein Nasser | Discovering Backend Bottlenecks: Unlocking Peak Performa
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139484.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ FrontendMasters, Erik Reinert | Enterprise Cloud Infrastructure (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139592.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ OTUS, Алексей Воронец | Scala-разработчик (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139839.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ CodeWithMosh, Mosh Hamedani | Complete Python Mastery (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139892.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:B0F7B4C409BB422C2A08F306C69B8AE954C553E0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139989.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Geekbrains | Frontend-разработчик. Часть 3 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140078.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Udemy, Brad Traversy и др. | 50 проектов за 50 дней - HTML, CSS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140261.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Udemy | Настройка и управление Windows Server 2016 S2D (2018
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140428.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Udemy | Администрирование Azure Active Directory (2019) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140608.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Udemy, Dmitry Soshnikov | Алгоритмы Синтаксического Ан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140803.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Udemy | Поиск и устранение неисправностей Exchange
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140858.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Udemy, Dmytro Mezhenskyi | Производительный бэкэнд GraphQL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140951.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Udemy | Высокая доступность Exchange Server (2017) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140999.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:E37A5A29E4C4882975515A2E0DE90190A9D97552
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141209.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ JUG Ru Group | PiterPy 2023. Конференция для тех, кто пиш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141237.jpg" />
 </div>
 
 

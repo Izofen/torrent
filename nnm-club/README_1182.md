@@ -6,7 +6,7 @@ Wondershare UniConverter 16.1.1.120 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31085.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8C246DFEE59EDFB616D7799A46B9879A81BDE9EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31086.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31087.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31087.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:771B3D14B64F8B6819F2E61DBF29703513E7A55E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31088.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31088.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Karing 1.0.38.512 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31089.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31090.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0C8B55C61489B3824719F4B8677584E222692451
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31091.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31091.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C3297E9B8F65884348C14CB821C72892FA6DFE24
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31092.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9376C3693E5145BDD20F65D4097530FA56950E50
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31093.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31093.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9376C3693E5145BDD20F65D4097530FA56950E50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31094.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31094.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Bloodstained Ritual of the Night (2019) [Ru/Multi] (1.06/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31095.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:FDB5E0CA3EB70259EAB7AEE97DCA8170F8753E08
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31096.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31096.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:8C2C05A09103AABED5C8A73943E552CE49C08015
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31097.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31097.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B1D443869880A41E417258D2E30C68CA4CF2584F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31098.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31098.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VideoProc Converter AI 7.9 (x64) RePack (& Portable) by elchupacabra (DC 09.01.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31099.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31099.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:266724B00954AD2AA701B30194AE6CDA8F4DE728
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31100.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31100.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Paper Lace - First Edition (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31101.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:3D08FB8E2A8620390BEB7EEFFBBF9EAADC9A8F62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31102.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31102.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:3F3829D15E624A1A0C0F620C3119F12964B2D8C6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31103.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31103.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VMware Workstation Pro for Personal Use 17.6.2 Build 24409262 (.bundle) [En]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31104.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31104.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:CB6BFD359B5DCDB4712F1CD5851462ED0206CA99
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31105.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31105.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:F745B38BB249A56BBB51725D84A9FF4FDCB0A097
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31106.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31106.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Jixipix Premium Pack 1.2.16 Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31107.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:EF9E24A1059B477BB1A353E599383F310E9DF2A4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31108.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31108.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ PowerISO 9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31109.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31109.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31110.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31110.jpg" />
 </div>
 
 

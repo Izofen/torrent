@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32359.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ADD48E2C3AF0FD2C0AB85459D0C228FBF43A6008
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32360.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7537DDB78E596211D375FF8FABE836457265F550
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32361.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Stars In The Trash (2024) [Ru/Multi] (Build 20241208) Repack FitGirl [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32362.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Penny Blood: Hellbound (2024) [Multi] (1.0.00628) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32363.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E3739F0CD0E03C02ABAE6D5554AB93249B583E3E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32364.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Лучшие песни Европа Плюс за 2024 год (2025) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32365.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ MediEvil: Trilogy (1998-2005) [Ru/Multi] (1.0.0.2/1.0.0.2/1.0.0.0) Repack Ma2012
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32366.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:5D82D6D28D6FC50DB13865E1261178B4A73DD2FC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32367.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:DD33DF7BAC3ADA4D1D0C161DE9E4B523A5C424CA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32368.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9CCD4D41FC7ECD577C594E78D2BB421ACEDECF4A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32369.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:A4A904F47955343B676B0BAAD375932DD7806A96
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32370.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:03ECADEBD9E5E1744BA830EBC61437198D8D86D6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32371.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:EECE1FDF4CA38EB79EA3723DFC765F03922FF69E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32372.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:3361DC70D3E6323C8E6875111030397B968E2233
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32373.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8561D6F7E3AF3F2917187317673F785064AEFEE6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32374.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:47FC688C762AB5376A3204D0B60D18AF856BED51
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32375.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32376.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:9F40FCA5A9CF4F539992E9177B04C2412D40FD0A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32377.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Wanterlude [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32378.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:832E59415E7F027BA568516409AC7841C543E0C3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32379.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:16078F489A523537FE70F6A0AB83A222F4DD3EB0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32380.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ StableDif, Олег Конюков | Курс по ComfyUI. От основ, д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32381.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:566A9419C113733AEB6E86C3E11B2B0EC62D3C05
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32382.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:C108E572FC35A37669FE160D0F7BC6A7DD3215D8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32383.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:EA1F670A096963149266F9DDD517E018BBEEC2A6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32384.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1695717   (120198) от 30.01.2024
+
+Keka 1.3.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архиватор для macOS. Как Unarchiver и другие приложения, Вы можете выбрать Keka в качестве приложения по умолчанию, что позволит распаковывать архивы двойным щелчком мыши. Кроме того, распаковать архив можно путем перетаскивания его на значок приложения в Dock. Это позволит автоматически разархивировать содержимое. То же самое можно проделать и обратным процессом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2009 - 2024 aONeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CE098ECC73540095D143F3F184C2020409058C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357716   (120199) от 30.01.2024
+
+Карло Гольдони | Бабьи сплетни (Радиоспектакль) [2003] [MP3, Юрий Яковлев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Всемирная аудиобиблиотека
+Блистательная комедия Карло Гольдони, полная юмора и сарказма, в очередной раз доказывает правоту устоявшихся мнений, что «женщины, безусловно, умеют хранить тайну, но сообща» и, «что дружба двух женщин – всегда заговор против третьей»…
+
+Запись 1957 года из архива «Гостелерадиофонда».Жанр: Классика, комедияВ ролях: Юрий Яковлев, Николай Светловидов, Ростислав Плятт, Ольга Якунина, Борис Иванов, Ангелина СтепановаИздательство: ИД «Союз»Продолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F91B2ED06017A4C14F15710A5C9516DC157887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695678   (120200) от 30.01.2024
+
+Windows 10 Debloater 2.6.7 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Debloater – небольшая утилита для тонкой настройки Windows 10. С ее помощью можно отключить различные службы (в том числе и телеметрию), удалить встроенные приложения, скрыть различные иконки, настроить контекстное меню и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6197CC6F60E067587CB2A782381214914ED684
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695454   (120201) от 30.01.2024
 
 Фрейзер / Frasier (2023) WEB-DLRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -6,7 +81,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120201.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120202.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:F7A1D428AD3A26DEC8129A79E62D60D344C6896A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120203.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Solid Factory, Антон Ильин | SolidWorks. Базовый курс (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120204.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Adobe Illustrator 2024 28.2.0.532 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120205.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:53BA8B82ADF272EA13665E885F983DC4FFE6CA08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120206.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ Udemy, Daren Perincic | 2024 Blender Beginner Course - Create Cinematic Scenes (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120207.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ magnet:?xt=urn:btih:96CE1342EC8AD917EE6266D3E7E4D11ACE590641
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120208.jpg" />
 </div>
 
 
@@ -200,7 +275,7 @@ magnet:?xt=urn:btih:F256BB507CFAD1954752542EF8C3EC90E5E6D39C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120209.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120209.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ AnyDesk 8.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120210.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ magnet:?xt=urn:btih:2A5D446D135C426E0314977103545D408B9086A8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120211.jpg" />
 </div>
 
 
@@ -272,7 +347,7 @@ magnet:?xt=urn:btih:A41BCCB227944BC37A6FFF28038E7D9863E75282
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120212.jpg" />
 </div>
 
 
@@ -296,7 +371,7 @@ magnet:?xt=urn:btih:11BB82628D96DF6FCC4257ED5B4A17E00052B447
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120213.jpg" />
 </div>
 
 
@@ -320,7 +395,7 @@ magnet:?xt=urn:btih:9942C3F74791FE204E500A5F42B8CF7D371174E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120214.jpg" />
 </div>
 
 
@@ -344,7 +419,7 @@ magnet:?xt=urn:btih:7F7A54CDDC707843D6109917DC4F80722B696436
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120215.jpg" />
 </div>
 
 
@@ -368,7 +443,7 @@ magnet:?xt=urn:btih:C27FB6F84CE6012392D4BC489E53463FBCED3952
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120216.jpg" />
 </div>
 
 
@@ -393,7 +468,7 @@ magnet:?xt=urn:btih:DE347AF5503DEAB66BF15E1122F2F11E3045711B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120217.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ Ripple Training, Steve Martin | DaVinci Resolve 18/18.5 Core Training (2023) WEB
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120218.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:2217B489D9B33170449CFD434526665EF526B0C8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120219.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120220.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ magnet:?xt=urn:btih:4D87D002FF66E0204E15896EBFC59A23076D0CDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120221.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ magnet:?xt=urn:btih:2B51E6BD15B4B96D636D909E3EAB1C5CA2545185
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120222.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:6B40BF3A9848BD05A1807576323C4B432192E2A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120223.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120223.jpg" />
 </div>
 
 
@@ -553,79 +628,6 @@ magnet:?xt=urn:btih:6B40BF3A9848BD05A1807576323C4B432192E2A1
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 56639   (120224) от 30.01.2024
-
-Осторожно, модерн! (1998) DVDRip (серий 56 из 94)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда Дмитрий Нагиев и Сергей Рост еще не стали суперпопулярными трансформерами…
-Было время, когда ОНИ были простыми гениями перевоплощений и обыкновенными всемирно известными комиками… Было время, когда ИХ герои еще не остепенились и не обзавелись семьями… Было время, когда ОНИ появлялись то здесь, то там - мылись в банях, пили на свадьбах, делили наследства, (   Читать дальше...   )Производство: ООО "3-ТВ", ООО "ТО "Мега"Жанр: ЮморРежиссер: Анна Пармас, Андрей БалашовАктеры: Дмитрий Нагиев, Сергей ростПродолжительность: серии по ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C8FDBB4F1B9F02DEEEA2E05B3FC8419A9C9575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674022   (120225) от 30.01.2024
-
-Гостья / The Host (2013) BDRip [1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля — в опасности! Наше место скоро займут Души — лишенные плотской оболочки пришельцы, вытесняющие из человеческих тел разум и замещающие его разумом собственным. Большая часть человечества уже погибла. Немногие выжившие скрываются в жалкой попытке отсрочить неизбежное… Теперь Душа пытается захватить тело юной Мелани. Однако происходит неожиданное: Мелани и ее (   Читать дальше...   )Производство: США | Chockstone Pictures, Nick Wechsler Productions, Silver ReelЖанр: Фантастика, Драма, МелодрамаРежиссер: Эндрю НикколАктеры: Сирша Ронан, Джейк Абель, Макс Айронс, Дайан Крюгер, Фрэнсис Фишер, Уильям Хёрт, Боким Вудбайн, Бойд Холбрук, Маркус Лайл Браун, Чандлер Кентербери, Андреа Франкл, Скотт Лоуренс, Дж. Д. Эвермор, Фил Остин ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-COLORED), Французский (Full)Продолжительность: 02:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FEAA5150FBF4E75D2DB3972A7CF0267A8FC6AB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695384   (120226) от 30.01.2024
-
-Охотники с пустоши / Пустоши / Hwangya / Badland Hunters (2024) WEB-DLRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три года назад мощное землетрясение превратило Сеул в развалины. Засуха и отсутствие чистой воды делают и без того непростое существование практически невыносимым — правда, ходят слухи, что где-то посреди руин стоит целехонький дом, где люди живут в достатке и даже принимают душ. Здоровяка Нам-сана не особо интересовали эти россказни, пока 18-летнюю Су-на, в которую (   Читать дальше...   )Производство: Южная Корея, Big Punch Pictures, Climax Studio, Nova FilmЖанр: боевик, фантастикаРежиссер: Хо Мён ХэнАктеры: Ма Дон Сок, Ли Джун Ён, Ли Джун Хи, Но Джон И, Ан Джи Хе, Пак Чи Хун, Чан Ён Нам, Пак Хё Чжун, Сон Бён Сук, Чжон Ён ДжуПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, корейскийСубтитры: Русcкие, английские (Full, SDH), корейские (Forced, SDH)Продолжительность: 01:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A915E07EDEC13DFF18C2D4E1106D668F90ED036F
 ```
 
 

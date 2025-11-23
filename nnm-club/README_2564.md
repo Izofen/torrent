@@ -6,7 +6,7 @@ Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67412.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:21C1B5449B9176EF79ED55DB61B6E5471B823333
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67413.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:43C85B94006F5C82A1CCFD1CBAD143E887C8AC02
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67414.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A76439569730CDC9C9E0F326843CB8E18B96D220
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67415.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Techno Club Vol. 74 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67416.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67417.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:3597CDAEC372BAF30AB49E4AEE6DCE4727776EA1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67418.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ TuneIn Radio Pro v38.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67419.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4CF7FC1CD4EC58AF8720F627D08DC525E2325340
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67420.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Organica (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67421.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ No King - Roadside Rhythms - No King - Roadside Rhythms (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67422.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Philipp Fankhauser - Ain't That Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67423.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:6E5EE1E90A65FBFC3241FA745CAEA20C3F434613
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67424.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:16CFCC155DDE1503950EE858E1AB0E40246166BB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67425.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E4CC7D1CFFE835823A7C144BB3CF1388B233D982
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67426.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:3B5508FD4A9770C593B02C6A59852A6F9E0F844D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67427.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:870634F6E97CBFEC0675E529EE8B3EC47F7AC082
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67428.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Outlaw Patriots Blues and Chicago Blues Collective - The Hollow Road Sessions (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67429.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Sign Of The Wolf - Sign Of The Wolf (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67430.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:A43B15C8C3250B6CEB1E00AF3C189881E173456C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67431.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Deserted Fear - Veins Of Fire (2025) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67432.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ MotoGP. Этап 05 из 22. Гран-при Испании. Спринт (26.04
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67433.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ MotoGP. Этап 05 из 22. Гран-при Испании. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67434.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Jeff Linsky - California (1996) Concord [FLAC|Lossless|tracks + .cue] <Latin Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67435.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:2BBF2B5C3D5184B75A16798C0AA97D0C44391ED9
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67436.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Orlndo - The Vintage of Own Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67437.jpg" />
 </div>
 
 

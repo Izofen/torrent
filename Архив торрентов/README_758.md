@@ -1,3 +1,76 @@
+###  Публикация: 1433672   (156719) от 21.12.2020
+
+Pixelmator Pro 2.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про-инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338B5941BD1A36C1C5008FA12E7590CFCF08EABB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853487   (156721) от 27.12.2014
+
+Экспресс: История легенды спорта Эрни Дэвиса / The Express (2008) BDRip [720p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156721.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Эрни Дэвиса, родившегося в бедных кварталах Нью-Йорка и, несмотря на казалось бы на непреодолимые препятствия, ставшего первым темнокожим игроком, победившим в чемпионате университета по американскому футболу.Производство: США / Davis Entertainment, IDEA Filmproduktions, Relativity MediaЖанр: Биография, Драма, СпортРежиссер: Гэри ФледерАктеры: Роб Браун, Деннис Куэйд, Дэррин Девитт Хенсон, Омар Бенсон Миллер, Нелсан Эллис, Чарльз С. Даттон, Джастин Мартин, Джастин Джонс, Онжаню ЭллисПеревод: Профессиональный (многоголосый)Продолжительность: 02:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEACE537FEC1772E8A5EB42D78680AD3D0FA172
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676553   (156722) от 13.11.2023
+
+NirLauncher Package 1.30.7 Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156722.jpg" />
+</div>
+
+
+###  Подробнее
+
+NirLauncher Package - универсальный пакет из более чем 200 портативных, небольших утилит, которые можно использовать ежедневно для различных целей на компьютере. Данное приложение предложит вам инструменты для редактирования контекстного меню проводника (к примеру удалять ненужные Вам пункты или добавлять какие-нибудь новые), инструменты для работы с сетью, поможет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71BD20CC293F39D949DDF70C41931F057737145
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085864   (156726) от 22.12.2016
 
 Butler 4.1.23 [En]
@@ -6,7 +79,7 @@ Butler 4.1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156726.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ Skype 8.67.0.97 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156730.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Native Instruments - Kontakt 6.2.1 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156760.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Grave Defense HD 1.10 [Игра] (Андроид 1.6+)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156761.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156761.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ AOMEI Partition Assistant Technician Edition 8.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156765.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Corporate Templates - Business Stationery 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156766.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ Kiwi for Gmail 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156777.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ DSP pack 1.32 (Winamp/Aimp3) RePack by elchupacabra [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156781.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156781.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ Windows 10 Manager 2.3.9 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156782.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ Spotify 1.2.24.756  (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156784.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ IM+ All-in-One Mobile Messenger 6.4.3 Pro [Программа] (Android 2.1+)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156791.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156791.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ Downie 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156794.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ Windows 11 21H2 (22000.376) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156798.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ magnet:?xt=urn:btih:7BA313B068B3F7354624107BBD3BD2D31651C284
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156809.jpg" />
 </div>
 
 
@@ -360,7 +433,7 @@ OBS Studio 30.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156817.jpg" />
 </div>
 
 
@@ -386,7 +459,7 @@ CoolUtils Total Movie Converter 4.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156823.jpg" />
 </div>
 
 
@@ -410,7 +483,7 @@ Glary Tracks Eraser 5.0.1.195 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156832.jpg" />
 </div>
 
 
@@ -434,7 +507,7 @@ magnet:?xt=urn:btih:947FA917A5CC39E5217FE9601592F6E277240C06
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156836.jpg" />
 </div>
 
 
@@ -458,7 +531,7 @@ Mozilla Firefox 44.0 beta 2 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156838.jpg" />
 </div>
 
 
@@ -482,7 +555,7 @@ CCleaner 5.88.9346 Professional / Business / Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156839.jpg" />
 </div>
 
 
@@ -506,7 +579,7 @@ IObit Uninstaller Pro 9.2.0.16 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156842.jpg" />
 </div>
 
 
@@ -530,7 +603,7 @@ HWiNFO 7.66 Build 5270 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156850.jpg" />
 </div>
 
 
@@ -554,7 +627,7 @@ magnet:?xt=urn:btih:C0814390B37644E1A9455263BDDC05AF52E2B0CA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156860.jpg" />
 </div>
 
 
@@ -565,78 +638,6 @@ magnet:?xt=urn:btih:C0814390B37644E1A9455263BDDC05AF52E2B0CA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A722CD43F2D895F5275B22ACA541C223642721A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600519   (156864) от 27.12.2022
-
-WinX VideoProc Converter 5.3 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156864.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinX VideoProc Converter - усовершенствованная версия, WinX HD Video Converter Deluxe, мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B09D6B02FE02D7281DCC4FBD0B8E84B3E21B19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676549   (156865) от 13.11.2023
-
-TreeSize Free 4.7.1.525 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита TreeSize Free показывает размер папок и файлов, помогая определить куда делось свободное дисковое пространство на ваших дисках. Программа поддерживает сканирование подключенных к ПК мобильных устройств, сетевых носителей и облачных хранилищ. Полностью бесплатная программа TreeSize Free может быть запущена из контекстного меню папки или диска и показывает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D105F35134D7CF4D999871006A5A809336A28E1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518213   (156876) от 18.12.2021
-
-StartAllBack 3.2.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156876.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4C775ED7E115AFB2A87DB37EB7616A0546BD35
 ```
 
 

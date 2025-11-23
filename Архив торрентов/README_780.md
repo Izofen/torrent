@@ -1,3 +1,76 @@
+###  Публикация: 1675443   (160161) от 09.11.2023
+
+TweakPower 2.047 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160161.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33D274B87EDB181DF6BC83E44147459F26372B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675588   (160163) от 09.11.2023
+
+FotoJet Photo Editor 1.1.7 RePack (& Portable) by elchupacabra [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160163.jpg" />
+</div>
+
+
+###  Подробнее
+
+FotoJet Photo Editor - позволяет каждому стать экспертом по редактированию фотографий в кратчайшие сроки. Программа позволяет вам не только редактировать фотографии и легко применять удивительные фильтры, но также добавлять наложения, рамки, текст, клипарты и т.д., чтобы легко подправить ваши изображения.
+Являетесь ли вы новичком или профессионалом, FotoJet Photo (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F1E23270F3FE07E8D18C531855F04AD6DAECC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675613   (160164) от 09.11.2023
+
+Topaz Video AI 4.0.3 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489033A1B4AA8E49E7E79DFA9E8AB4BB34CE7CA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675573   (160166) от 09.11.2023
 
 Media Player Classic Home Cinema (MPC-HC) 2.1.2 + Portable (unofficial) [Multi/Ru]
@@ -6,7 +79,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.2 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160166.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ FotoJet Designer 1.2.9 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160168.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ DiskDigger 1.83.67.3467 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160175.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ OnlySwitch 2.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160176.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ VideoProc Converter 4K 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160181.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ OmniFocus Pro 3.14.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160184.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ TunesKit Screen Recorder 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160185.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Windows Update Viewer 0.5.25.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160186.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ iStatistica 6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160187.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160189.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ Topaz Video AI 4.0.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160190.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ iCalamus 2 v.2.3 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160191.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ R-Wipe & Clean 20.0.2429 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160192.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ Wise Memory Optimizer 4.2.0.123 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160196.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ TunesKit AceMovi Video Editor 4.9.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160200.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ O&O DiskImage Professional 18.5 Build 342 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160202.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ VueScan Pro for Mac 9.8.21 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160206.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ Amadeus Pro 2.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160207.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ Aiseesoft Mac Blu-ray Player 6.6.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160208.jpg" />
 </div>
 
 
@@ -467,7 +540,7 @@ FastFlix 5.6.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160214.jpg" />
 </div>
 
 
@@ -491,7 +564,7 @@ Aiseesoft Audio Converter for Mac 9.2.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160220.jpg" />
 </div>
 
 
@@ -515,7 +588,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160222.jpg" />
 </div>
 
 
@@ -539,7 +612,7 @@ Default Folder X 5.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160224.jpg" />
 </div>
 
 
@@ -550,78 +623,6 @@ Default Folder X - Расширяет функциональные возмож�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7019EB37D3E1E91AF8985183D7A4D7836885FF3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599172   (160227) от 22.12.2022
-
-Aiseesoft AnyCoord for Mac 1.0.16 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как лучшее средство смены местоположения, Aiseesoft AnyCoord может позволить вам изменить свое местоположение GPS на любое другое местоположение одним щелчком мыши. Вы можете использовать этот продукт, если хотите прекратить делиться своим местоположением с другими в Instagram, Facebook и т. д. AnyCoord также можно использовать, когда вы играете в видеоигры с дополненной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6FEE3E2EF22EF64FAA098CF3AD2303F5640A2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675518   (160228) от 09.11.2023
-
-Apeaksoft iOS Unlocker 1.0.50 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экран iPhone заблокирован? Удалите пароль за считанные секунды. iPhone много раз отключался из-за неправильного ввода пароля? Экран iPhone заблокирован из-за разбитого экрана? Не беспокойтесь: Apeaksoft iOS Unlocker безопасно сотрет пароль на iPhone, iPad и iPod и получит доступ к данным вашего iPhone за считанные секунды.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD8A9E6C80887253C61958825F5CEF1ED16EB28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599225   (160229) от 22.12.2022
-
-GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160229.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DFB1A5BC932B8CDFA36A3D719356DAFA65A0F4
 ```
 
 

@@ -6,7 +6,7 @@ Sunza Chief - Follow Me To Coolangatta (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104931.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tab Benoit - I Hear Thunder (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104932.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vasti Jackson - Royal American Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104938.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Overwound - Attitudes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104946.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Antonio Vergara - The Fury (2024) [APE|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104948.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Duke Robillard - Roll With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104955.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Deadbeat Cousins - Get By (With Me) (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104959.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ V.A. - Italian Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104964.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kenny Drew & Hank Jones Great Jazz Trio - New York Stories (1990) Alfa Jazz [Wav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104970.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Conte Candoli - Powerhouse Trumpet (1955) 1999, Bethlehem [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104973.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Omar and The Howlers - Aggressive Country (2024) [MP3|320 Kbps] <Blues Rock, Cou
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104976.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Joe Pass - Whitestone (1985) 1987, Pablo [APE|Lossless|image + .cue] <Jazz Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105011.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105017.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Piper and The Hard Times - Revelation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105029.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chet Baker - Chet's Choice (1985) Criss Cross [APE|Lossless|image + .cue] <Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105030.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105157.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bob Dylan - Good As I Been To You (1992) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105202.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Devon Allman - Miami Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105264.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Charlie Mariano - Boston All Stars (1951 - 1953) 1990, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105311.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Claus Ogerman - Featuring Michael Brecker (1991) GRP [APE|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105319.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bill Barron - Quintet & Sextet (1961 - 1962) 2CD, 2012, Fresh Sound [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105365.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Maria Aurigema - Kindred Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105372.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mick Clarke - Rock and Roll, Hoochie Koo the Collection (2024) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105375.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mick Clarke - West Coast Connection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105377.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Frank Sinatra - Sinatra Session (1999) 2CD, Castle Pie [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105387.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Nat King Cole - More Historical Recordings (1990) Conquistador [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105399.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ HDRezka TV v1.2.2 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29057.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skillbox, А. Гончаренко, А. Слуцкер, Н. Смерницкий
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29058.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Princess&Blade (2021) [Multi] (0.95.6) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29059.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29059.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A39A8BD93E2929826563CAC0FAA9FD49D89CCDEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29060.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B6E3C82573FA6E5F626F71A4AA04EC533CAE49D4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29061.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29061.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:89A6FDF7F90A260025DBA4EAF8CCABE1B5FD2971
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29062.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Eternal Strands (2025) [Multi] (1.0.12.8195) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29063.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Rock Star Life Simulator (2024) [Ru/Multi] (1.0) RePack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29064.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29064.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29065.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29066.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A016D791C47E0FB7C253F70BE4DBCCA8198BAA2C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29067.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:A016D791C47E0FB7C253F70BE4DBCCA8198BAA2C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29068.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Deworker Pro, Дмитрий Елисеев | Стрим про безопасн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29069.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:26AF201A5F81C90BCDE58BDD6E0E08723AE1BC2D
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29070.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:1B840287411B4A511AAB2664E5EF9DD98C6D0156
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29071.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29071.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:CF835DE4B42282F030DB31335ED462BF62DD768A
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29072.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29072.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:5A7BD538D02AA9404B465B10CB6ED7742A425038
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29073.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29073.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:1E1B4E1094F86DC6A9D56A398AC0968078E26C1F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29074.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:C226C82981D9D430D0F4935DC462441768F787A7
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29075.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29075.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:3F9A4CDB3FA3A15D9FF6DF97B504AD895F6C439F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29076.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29076.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:0D0518ADCA6C4F608D89D6E57DBCA5559B668F1C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29077.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29077.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:FB9ABDD3B56A5F8B3BAC916114F10F4C064B38A6
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29078.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29078.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Screenpresso Pro 2.1.39 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29079.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:F7FC1CF96DC6C34694F41330E7228A74CA22BA47
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29080.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29080.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Aiseesoft Screen Recorder 3.1.36 RePack (& Portable) by elchupacabra (x64) [Mult
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29081.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29081.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:8AECC1AD2213F8DC4014C44974175EC146E02A87
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29082.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29082.jpg" />
 </div>
 
 

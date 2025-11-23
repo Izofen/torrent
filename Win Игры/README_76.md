@@ -6,7 +6,7 @@ Astrea Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22082.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22082.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0E2347AD339587FA407BEE4A87D229C2C146F63D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22109.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22109.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sledders (2023) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22193.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22193.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Trials of Innocence (2025) [Multi] (1.2.0.506) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22204.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22204.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Flight Catastrophe (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22207.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22207.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Commander Quest (2025) [Ru/Multi] (1.0.25.704) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22224.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22224.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vagrus: The Riven Realms (2021) [Ru/Multi] (1.2.00.0402Q/dlc) Repack FitGirl [Ce
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22245.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Darkest Files (2025) [Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22293.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22293.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dark Deity 2 (2025) [En] (1.0.1) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22298.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Master Key (2024) [Ru/Multi] (1.7.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22317.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22320.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22329.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22345.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22349.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22349.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Kun'tewiktuk: A Mi'kmaw Adventure (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22386.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22386.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Pull Stay (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22396.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22396.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Yasuke Simulator (2025) [En] (1.0/dlc) Repack FitGirl [Digital Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22398.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22398.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Wild Explorer (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22403.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fluffy Sailors (2025) [Multi] (1.1308) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22406.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Spirited Thief (2023) [Multi] (1.0.0.10) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22408.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ I Am Your Beast (2024) [En] (March 20 Minor Update) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22417.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (1.01 patch 2) Licen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22420.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22433.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22433.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22436.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22436.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22440.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Werewolf: The Apocalypse (2020-2024) [En] (1.0.13.2010191537/1.1.13.2504011817) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22443.jpg" />
 </div>
 
 

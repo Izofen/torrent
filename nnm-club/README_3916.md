@@ -1,3 +1,75 @@
+###  Публикация: 1823105   (121498) от 10.10.2025
+
+Журнал | Российское военное обозрение №07 (253) (2025) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121498.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Российское военное обозрение» — ежемесячное информационно-аналитическое издание Министерства обороны Российской Федерации. Эксклюзивная информация Министерства обороны и других силовых структур государства. Интервью с высшими военачальниками, аналитические статьи и экспертные оценки развития Вооруженных сил.Жанр: Информационно-аналитическое изданиеИздательство: Агентство "Военинформ" МО РФФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28D73DE809F86C3F04085121B6C1C68D1EF3B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823133   (121499) от 10.10.2025
+
+Журнал | Тайны ХХ века №40 (1186) (сентябрь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121499.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFBA3FC9E151076189B4541E47ADC7C471F053E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823136   (121500) от 10.10.2025
+
+Журнал | Тайны ХХ века №41 (1187) (октябрь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121500.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE90563D81C062854254DE5389BE729B1F216AC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823156   (121501) от 10.10.2025
 
 Анураг Шривастава | Elasticsearch для разработчиков (2025) [PDF] [2-е издание]
@@ -6,7 +78,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121501.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ VA - This Is Bass 2023 (2023) [MP3|320 Kbps] <Breaks, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121502.jpg" />
 </div>
 
 
@@ -59,7 +131,7 @@ RogueKiller Anti-Malware 15.14.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121503.jpg" />
 </div>
 
 
@@ -83,7 +155,7 @@ VA - Compilation Electronic part 44 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121504.jpg" />
 </div>
 
 
@@ -110,7 +182,7 @@ magnet:?xt=urn:btih:5298203CDEBC312EC2D6ADF6F1C8D73466D7B0FF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121505.jpg" />
 </div>
 
 
@@ -134,7 +206,7 @@ Femme Fatale - Femme Fatale (1988) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121506.jpg" />
 </div>
 
 
@@ -161,7 +233,7 @@ magnet:?xt=urn:btih:0787563183C0056A9BD2768155B702D77F3C8C78
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121507.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:0FC073477A31402086F5C876E8D559C0BD95DCE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121508.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121508.jpg" />
 </div>
 
 
@@ -209,7 +281,7 @@ VueScan Pro for Mac 9.8.26 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121509.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ RegCool 1.360 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121510.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ VA - Compilation Part 199 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121511.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ Zampolit | Касик (Книга 2). Команданте (2023) [MP3, Игор
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121512.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ VA - VA - Compilation Part 200 Electronic, Vocal (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121513.jpg" />
 </div>
 
 
@@ -337,7 +409,7 @@ magnet:?xt=urn:btih:0145F0302F8B42B7823689CCDD31CDD2642B745E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121514.jpg" />
 </div>
 
 
@@ -361,7 +433,7 @@ VA - Musical kaleidoscope part 57 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121515.jpg" />
 </div>
 
 
@@ -388,7 +460,7 @@ magnet:?xt=urn:btih:D0FAC27D7F96CEFBAABBDCF355EDBFDDA9382E25
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121516.jpg" />
 </div>
 
 
@@ -412,7 +484,7 @@ Neil Young - Neil Young Archives Vol. III 1976 - 1987 (2025) Box Set [FLAC 24/19
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121517.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ magnet:?xt=urn:btih:1F2705BDA712B6A1D91E2E280AE30B6B732B97DD
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121518.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ Karfagen - Messages From Afar Second Nature (2024) [MP3|320 Kbps] <Symphonic Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121519.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:FC5F1C7637C0ADD02B82BE5D64D2E951EEF3E502
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121520.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:AB7A7E2AFB537F0F4186ABE543E1FA2E28AFBF51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121521.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:9572E7DF961D8E3FD8AA95F8270E42C4109A53D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121522.jpg" />
 </div>
 
 
@@ -562,7 +634,7 @@ magnet:?xt=urn:btih:4A43A7D1CA2F621996454DFCBFC96DD7563653D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121523.jpg" />
 </div>
 
 
@@ -574,78 +646,6 @@ magnet:?xt=urn:btih:4A43A7D1CA2F621996454DFCBFC96DD7563653D5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D574277D1307EF34E35800C6FC029AFE3ADD0259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693754   (121524) от 22.01.2024
-
-Дорога в один конец / Bring Him to Me (2023) WEBRip [H.264/1080p] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Водитель должен отвезти ничего не подозревающего пассажира в место, где ему грозит смерть. По пути он борется с муками совести, пытаясь найти правильное решение в этой безвыходной ситуации.Производство: Австралия | Sparke FilmsЖанр: триллер, криминалРежиссер: Люк СпаркАктеры: Барри Пеппер, Джэми Коста, Сэм Нил, Рэйчел Гриффитс, Лиам Макинтайр, Захари Гарред, Эллисон Бойд, Харли Бронвин, Дженнингс Броуэр, Алекс ФлериПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:12Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823250   (121525) от 10.10.2025
-
-Обитатели холмов / Watership Down (2018) WEBRip [AV1/1080p-LQ] (сезон 1, серии 1-4 из 4) [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о семействе кроликов, который ищут себе новый дом после того, как одному из них приснился кошмарный сон о приближающейся катастрофе.Производство: Ирландия, Великобритания, США / Biscuit Ent., ITV Studios, BBCЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Ноам МурроАктеры: Джеймс Макэвой, Николас Холт, Джон Бойега, Бен Кингсли, Том Уилкинсон, Джемма Артертон, Питер Капальди, Оливия Колман, Макензи Крук, Энн-Мэри ДаффПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: ~ 00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7038818F79B270EB3E891DB75D47BA61B3AE95B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693761   (121526) от 22.01.2024
-
-Большая гонка. Ауди против Лянчи / Race for Glory: Audi vs. Lancia (2024) WEBRip [H.264] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121526.jpg" />
-</div>
-
-
-###  Подробнее
-
-История знаменитого противостояния итальянской «Лянчи» и немецкой «Ауди». Битва двух концернов, двух философий и двух легендарных машин, за рулём которых сидели лучшие в мире пилоты. 20 трасс в 12 странах: дождь, снег, горные серпантины и узкие улочки средневековых городов. В ход идут все уловки — ни одна из команд не думает отступать. Победитель (   Читать дальше...   )Производство: Италия, Великобритания, Ирландия | Lebowski, HanWay Films, Recorded Picture Company (RPC)Жанр: спорт, драма, биографияРежиссер: Стефано МординиАктеры: Хейли Беннетт, Даниэль Брюль, Риккардо Скамарчо, Кэти Кларксон-Хилл, Фолькер Брух, Эстер Гаррель, Карлотта Верни, Брюно Гуэри, Якопо Рампини, Кай ПортманПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:14Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
 ```
 
 

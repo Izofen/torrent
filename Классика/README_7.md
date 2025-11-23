@@ -6,7 +6,7 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147865.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelb
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150817.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:25046305E7F726B678CA9DE708D73BF5F6A065CE
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151396.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:9CB04903CC707EBF5DC22D59055C1FD3FE5BE698
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151422.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Katherine Jenkins - This Is Christmas (2012) [FLAC|Lossless|tracks + .cue] <Clas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152443.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Piano Guys - Live! (2015) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152508.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152890.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154136.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154315.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Corelli - The Complete Works
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154844.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Andre Rieu And His Johann Strauss Orchestra - The Christmas I Love (2011) [FLAC|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155097.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Serj Tankian - Invocations (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Classical,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158915.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Peter Jablonski - Chopin: Complete Mazurkas, Vol.1 (2022) [FLAC|Lossless|image +
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159618.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Handel - The Masterworks (2004) 40CD Box [FLAC|Lossless|image + .cue] <Classic>
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160489.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Johannes Brahms Complete Edition (1996) 46CD Box Set [APE|Lossless|image + .cue]
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160490.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Cl
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160493.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Orchestre National De France - Georges Bizet: Carmen (1984) 3CD [FLAC|Lossless|i
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160587.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165838.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:8E305D9952A5204A603BA3D297129F7E75FDF65D
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166061.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ PALLADIUM Electric Band - Love Planet (2014) [MP3|320 Kbps] <Instrumental, Class
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167357.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Maria Callas - DIVINA : Maria Callas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169011.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Ensemble Labyrinthus - Carmina de morte (2014) [MP3|320 Kbps] <classical, chambe
 >>Камерная
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169826.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Sofiane Pamart - Noche (2023) [FLAC|Lossless|image + .cue] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171008.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022)
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174467.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174467.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175804.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175804.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176580.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176580.jpg" />
 </div>
 
 

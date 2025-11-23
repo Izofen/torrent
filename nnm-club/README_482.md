@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12783.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:482BB27096C7B326BC740217B512BAEA3EF30201
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12784.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:75368CB375AB5F77252FB1FF68B0C7ACE7C3F57C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12785.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BCC3E5970F044D6FCB5415292BAF56D7A4E713C4
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12786.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B5688C0B4FCE0C15293E57A4A22981A282A7BC96
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12787.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:85892A88A96B2F195C646BBD80C3054E3E52138E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12788.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Google Chrome 138.0.7204.97 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12789.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:EC89BE338F6167486480A65A7F04F19554BC508B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12790.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Sleep as Android: отличный сон v20250620 Mod by Alex.Strannik [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12791.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Honkai: Star Rail (Animated Short) | Хонкай: Звёздный рельс
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12792.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:048E7C33B5950F061C38B24C7CAC1E513FC71CBB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12793.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12794.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:755B76B4AB4B85B761C54E424DF88DF06FE5936F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12795.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:755B76B4AB4B85B761C54E424DF88DF06FE5936F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12796.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:53DF56D14635B5D32E1A082BB62A15D232850DF9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12797.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:EB22A24DDDF09D99581809926FF8A18ED79B5D23
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12798.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ qBittorrent 5.1.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12799.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:96913DD278A5D73E385814F844012E801A9D5BD8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12800.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Proton VPN 5.12.26.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12802.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ ByeByeDPI v1.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12803.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:98866B541B291B232B77F7ABE116E736FD049354
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12804.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12805.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Post-Apo Builder (2025) [Ru/Multi] (1.0001) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12806.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Pocket Bravery (2023) [Multi] (2.05/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12807.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bulk Crap Uninstaller 5.9.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12808.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:B32D18E439CA87B9D4DC55F2269D83DF846CC57C
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12809.jpg" />
 </div>
 
 

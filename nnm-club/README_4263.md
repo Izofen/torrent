@@ -1,3 +1,75 @@
+###  Публикация: 1682657   (131064) от 08.12.2023
+
+Christmas Stories 12: The Legend of Toymakers (2023) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в волшебную страну рождественских эльфов! Юный Физзи достаточно повзрослел, чтобы мастерить игрушки в мастерской Санты. И у него есть волшебный молоток, передаваемый в его семье из поколения в поколение! Ему не терпится приступить к работе, но несчастный случай выпускает на волю пару дьявольских кукол, стремящихся заморозить магазин и разрушить рождественский (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A07DA622B14483324FACA58088575F0CC4B521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670694   (131066) от 08.12.2023
+
+Взрыв будет в пять / Vybuch bude v pet (1984) DVD5 [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм про неутомимого шестиклассника, который просто ни минуты не сидит на месте. Его исследования и опыты порой даже пугают родителей. Если у человека в голове бродят всевозможные идеи, и он способен организовать что угодно - от него всего можно ожидать. Даже взрыва посреди ближайшего озера ровно в пять часов вечера...Производство: Чехословакия / Filmové Studio GottwaldovЖанр: комедия, семейныйРежиссер: Йозеф ПинкаваАктеры: Иржи Галек, Лубор Токош, Вацлав Бабка, Зденек Блажек, Roman Pravec, Дэниэл Дите, Alice Hlobílková, Магулена Бочанова, Здена Гадрболцова, Robert NesporПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, чешскийСубтитры: русские, чешскиеПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CE401402F65FE1E3CFBD6CD9E1D08A93B169B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682826   (131067) от 08.12.2023
+
+Журнал | 5 Колесо №12 (362) (декабрь 2023) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131067.jpg" />
+</div>
+
+
+###  Подробнее
+
+"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей. В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналИздательство: ООО «5К»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88F9A5F173EF3F803E8E9DF614FCD808F4FF8A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597021   (131068) от 31.12.2012
 
 Nature Wallpapers (31.12.12) [Wallpapers]
@@ -6,7 +78,7 @@ Nature Wallpapers (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131068.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:E03364138CF1BDCCC45FD349305E238BC94D43C1
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131069.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:9AB3E52B75D46E41FB3419D9E06A55774E1C2AC2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131070.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:6D0A4E4AC1590CBDEBC81B3AAC07BFB61395908E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131071.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ HWiNFO 7.67 Build 5285 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131072.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:8FE8F47206D26C298DFB3FCA8A4D9EAAA90366E2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131073.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:B82DF38639B53AD4A32BF3A0551A2F2F39AE71A1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131074.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131076.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ The Killers - Rebel Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131078.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ Dr. Hector & The Groove Injectors - Bad Connection (1998) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131079.jpg" />
 </div>
 
 
@@ -265,7 +337,7 @@ Dr. Hector & The Groove Injectors - Bad Connection (1998) [APE|Lossless]<Blues>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131080.jpg" />
 </div>
 
 
@@ -290,7 +362,7 @@ magnet:?xt=urn:btih:129CAD0F5D3B6FAB22CAAFF3C5CEAE7EBFF44E43
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131081.jpg" />
 </div>
 
 
@@ -314,7 +386,7 @@ magnet:?xt=urn:btih:863EA44B4E37F9F07D726B11CB76A64B21D026D0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131082.jpg" />
 </div>
 
 
@@ -338,7 +410,7 @@ magnet:?xt=urn:btih:FABAAB24818BC00216868B51802290BE5D86574F
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131083.jpg" />
 </div>
 
 
@@ -364,7 +436,7 @@ Dave Fields - Detonation (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131084.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Dave Fields - Detonation (2010) [FLAC|Lossless]<Blues>
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131085.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:7095D20725BB10B464388F4173251DFA05D0B0CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131086.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ Speedtest от Ookla 5.2.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131089.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ Neil Young - Before and After (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131091.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Lagooshkee - Live in London Club (2011) [MP3|320 кб/с]<Avant-Punk, Freak-Pop,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131092.jpg" />
 </div>
 
 
@@ -529,7 +601,7 @@ Kameleon - Kameleon (1981) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131093.jpg" />
 </div>
 
 
@@ -556,7 +628,7 @@ magnet:?xt=urn:btih:9CCC0388F554B23F3E9910EB3546D6E7534BB681
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131094.jpg" />
 </div>
 
 
@@ -580,7 +652,7 @@ magnet:?xt=urn:btih:8553D9FEAB2532DC0BA07B4AAA7F829CA0482E48
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131095.jpg" />
 </div>
 
 
@@ -591,87 +663,6 @@ magnet:?xt=urn:btih:8553D9FEAB2532DC0BA07B4AAA7F829CA0482E48
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CA54B6CD1D26614CF377C5E2F51E827F69A9AD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596976   (131096) от 31.12.2012
-
-Sexy Girls Pack Wallpapers (30.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09C09A874A5BC18F19113DDE978AE5B6690850D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596261   (131098) от 31.12.2012
-
-VA - Подарок! (2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Изя Листин - Новогодняя
-02. Jean Roch - Music Saved My Life
-03. Alex Avenue - Sugar Baby Love (Alex Avenue & Min3 Mix)
-04. Sia - Clap Your Hands
-05. Rajaton - Voulez_Vous
-06. !DelaDap - Gipsy Kicks
-07. Иван Дорн - Стыцамэн (DJ Karabaev & DJ Agamirov Remix)
-08. Asaf Avidan & The Mojos - One Day (DJ Matuya, DJ Stuff & DJ Lupin Remix)
-09. Jolly - Hey (Tune Brothers Mix)
-10. Артур Пирожков - Я не умею танцевать(   Читать дальше...   )Жанр: DanceПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E7898FEF530E76A5887D81C29027E6E93C38DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596978   (131099) от 31.12.2012
-
-HQ Wallpapers Perfect Women (30.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12612A6BDE748A9B36BAB49D24838C4C9FF51343
 ```
 
 

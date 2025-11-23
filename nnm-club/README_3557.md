@@ -1,3 +1,84 @@
+###  Публикация: 1712507   (112164) от 02.04.2024
+
+The Disco Biscuits - Revolution in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shocked! [00:03:50]
+02. The Wormhole [00:06:12]
+03. Twisted in the Road [00:04:35]
+04. Another Plan of Attack [00:06:33](   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D0889C65E4DEEA1FA6A46E2601DCD5D8DE5350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712228   (112165) от 02.04.2024
+
+Grover Washington, Jr. - Time Out Of Mind (1989) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grover Washington Jr. (12.12.1943 – 17.12.1999) был американским саксофонистом в стиле джаз-фанк и соул-джаз. Наряду с Wes Montgomery и George Benson многие считают его одним из основателей жанра smooth jazz. И хотя музыкальное производство фактически превратило smooth jazz в поджанр, который по сути лишил инструменты жизненной силы, тем не менее, эта музыка по своей (   Читать дальше...   )01. Jamaica (4:44)
+02. Gramercy Park (3:57)
+03. Sacred Kind of Love (5:41)
+04. Brand New Age (5:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69903602145820D78F04219E5780D95D330DA681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712480   (112166) от 02.04.2024
+
+HJirok - HJirok (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Sanandaj
+02 – HJirok Rock
+03 – Yahu
+04 – Jin Bo Chie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92EC125340D01C94F7DFD75276E3BC3B01414059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712447   (112167) от 02.04.2024
 
 Рудольф Распэ | Приключения барона Мюнхаузена (2004) [MP3, Кирилл Гребенщиков]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112167.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ magnet:?xt=urn:btih:A7916DD7CF04FB1F01068502A0054A735B4A7985
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112168.jpg" />
 </div>
 
 
@@ -56,7 +137,7 @@ Torchia - Arcane Magicae (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112169.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ Ben Webster - Live! Providence, Rhode Island (1963) 1994, Storyville Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112170.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ Fort Romeau - Romantic Gestures Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112171.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ Isle of the Cross - Excelsis (2020) [FLAC|Lossless|image + .cue] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112172.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ magnet:?xt=urn:btih:EBAC814714058FB2C0B80BCA50BAA6C7CD2B9B79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112173.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112173.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ Lesson In Violence - No Need For Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112174.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ Timeless Haunt - Dark for Life (2021) [FLAC|Lossless|image + .cue] <Heavy, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112175.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ Sleeping Well - Wisdom Of The Ages (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112176.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ DragonForce - Warp Speed Warriors (2024) [FLAC|Lossless|tracks + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112177.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ magnet:?xt=urn:btih:3963E8B982C3734286E942C5B4CB21477FC9639C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112178.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ magnet:?xt=urn:btih:FFBC6F2064D0A81218EEE8BAB06F7623F9A41B52
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112179.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ Lovebites: Daughters Of The Dawn (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112180.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ Privacy Eraser Free 6.5.4 Build 4886 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112181.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ magnet:?xt=urn:btih:063453AAD0008AA125CC4FDBE3816A88C5F19C45
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112182.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ magnet:?xt=urn:btih:DCC75A54EF7213BFD726E1964060EE05E955644E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112183.jpg" />
 </div>
 
 
@@ -441,7 +522,7 @@ magnet:?xt=urn:btih:862267C1D73E3058ABBD1B89C81EDED4322B5446
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112184.jpg" />
 </div>
 
 
@@ -468,7 +549,7 @@ magnet:?xt=urn:btih:BB38D1300B9645F30486D8B49DFF889C1273D612
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112185.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ Mannequin Pussy - I Got Heaven (2024) [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112186.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ magnet:?xt=urn:btih:F4B1CECCEBCC718E1346B485D532747F5908FAC0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112187.jpg" />
 </div>
 
 
@@ -543,7 +624,7 @@ GeoGebra 6.0.836.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112188.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ magnet:?xt=urn:btih:FB79AFC180340B29725F724EB541AF03A6E008CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112189.jpg" />
 </div>
 
 
@@ -578,81 +659,6 @@ magnet:?xt=urn:btih:FB79AFC180340B29725F724EB541AF03A6E008CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66C6C8DB2BDC148A94DCF4474EF6C397151F8158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712449   (112190) от 02.04.2024
-
-Рудольф Распэ, Эрнст Теодор Амадей Гофман и др. | Сказки немецких писателей. Барон Мюнхгаузен (2013) [MP3, Татьяна Телегина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детям.
-Послушайте замечательные сказки Рудольфа Распэ, Новалиса, Эрнста Теодора Амадея Гофмана, Братьев Гримм, Вильгельма Гауфа и других немецких писателей.
-В оформлении использована музыка средневековья и раннего барокко.
-Издается без сокращений.(   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, рассказИздательство: Студия «АРДИС»Продолжительность: 08:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B436DF8C8F0539F57B84D7D509822C695E964CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712485   (112191) от 02.04.2024
-
-PowerDirector – Video Editor v13.4.0 b2404021 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.04.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F0B5CCAC1856751C50605F74A084AFB8FA998A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712204   (112192) от 02.04.2024
-
-Вкус греха / A Taste of Sin (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вера, прощение, искупление и надежда. Два пастора, полярно отличающиеся друг от друга, борются с соблазнами: одного искушают деньги, а другого - страсть.Производство: Гана, Dominion TV, Sami's MediaЖанр: драмаРежиссер: Фрэнк Раджа АрасеАктеры: Такиваа Дансо Аджей, Кофи Аджорлоло, Акосуа Агьепонг, Марк Йебоа Акото, Абена Акуаба, Джеки Аппиа, Пол Аца, Блэкмор Айвор, Кейшейра Баффо, Экоу БланксонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: РусскийПродолжительность: 02:01:33Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C2C5514C754B000ED2825B5B82AD6D11AE1D51
 ```
 
 

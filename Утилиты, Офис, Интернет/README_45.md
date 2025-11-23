@@ -6,7 +6,7 @@ OBS (Open Broadcaster Software) 0.657 Beta Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142242.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Password Recovery Bundle 2019 Enterprise Edition 5.2 RePack (& Portable) by elch
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142386.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Office 2016 Professional/ProPlus + Visio Standard/Pro + Project Standa
 >>Оригинальные версии Office
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142649.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Coolmuster Word to PDF Converter 2.1.7 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143277.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Coolmuster PDF Creator Pro 2.1.20 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143286.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ MiniTool Partition Wizard Technician 12.3 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143336.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2C9F2FE11551B442B4CA845A794A061A01945006
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143533.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Coolmuster PDF Converter Pro 2.1.22 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143904.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Stellar Phoenix Windows Data Recovery Pro 9.0.0.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144042.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Microsoft Office 2019 Professional/ProPlus + Visio Standard/Pro + Project Standa
 >>Оригинальные версии Office
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144133.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ PROMT for Microsoft Office 11 Build 9.0.556 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144299.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ CHM Editor 3.0.8 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146337.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WakeupOnStandBy 1.7.20.6 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146700.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ R-Studio Emergency Network GUI TUI 8.8.0670 (BootCD) [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149178.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Wise Game Booster 1.5.3.77 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149370.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ TrayButton for WhatsApp 1.0.83 [Ru/En] [Авторская раздача]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149904.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Discord 0.0.309 b73806 Stable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150231.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Windows 11 Media Creation Tool 10.0.22621.2714 [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150594.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rambox v. 2.2.2 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150621.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ YT Downloader 9.17.9 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150702.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ R-Wipe & Clean 20.0.2530 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150704.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ YT Downloader 9.17.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150716.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Firefox Browser ESR 140.4.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150722.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:38F05B5F85BBB7B42B1FF70B50436BA0022D4883
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150723.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Firefox Browser ESR 115.29.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150724.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Calibre 8.13.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150735.jpg" />
 </div>
 
 

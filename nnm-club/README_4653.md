@@ -1,3 +1,150 @@
+###  Публикация: 1348327   (144212) от 27.12.2019
+
+Cinema Grade Pro 1.1.3 (build 486) [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinema Grade - это современное программное обеспечение для цветовой градации, которое работает как плагин внутри Premiere Pro, DaVinci Resolve и Final Cut Pro X на Mac. С Cinema Grade цветовая градация сразу становится проще и быстрее, благодаря прямой цветовой градации экрана, профессиональному руководству колориста и более 90 встроенных цветов в голливудском стиле (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Color Grading LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B2F5AEB95DD33615FC85FF1077504A56F54C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195326   (144213) от 28.12.2017
+
+Студия Союз (2017.12.28) SATRip (выпуск 21: Дайджест)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:12Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49217830D3F4C2DF437A8BC723927A820F8CF4A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348206   (144214) от 27.12.2019
+
+VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NILETTO - Любимка 3:40
+002. Tones And I - Dance Monkey 3:30
+003. Carla Morrison - Disfruto (Audioiko Remix) 3:18
+004. Trevor Daniel - Falling 2:39(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2B8F1D82BAD510E19413DEA9D4117EB63D872E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678683   (144215) от 22.11.2023
+
+Nevercenter CameraBag Pro 2024.0.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144215.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2123728878D8E0BD93B6454D5F126123AC194196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272257   (144216) от 27.12.2018
+
+Л. А. Леонтьев | Начальный курс политической экономии [2-е изд.] (1962) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как показывает название этой книги, она призвана служить начальным пособием для ознакомления с основами экономической науки. Имея в виду начальное руководство по политической экономии, В. И. Ленин указывал, что в таком пособии следует излагать содержание этой науки в форме характеристики последовательных периодов экономического развития, дать изучающему основные (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D48F7662359D14601262784851479D738F61E6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435460   (144217) от 28.12.2020
+
+JRiver Media Center 27.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144217.jpg" />
+</div>
+
+
+###  Подробнее
+
+JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF78C15F43E8863E49BFADEBA9A4B506187B090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969724   (144219) от 28.12.2015
 
 Rufus 2.6 (Build 818) Final Portable by PortableApps [Multi/Ru]
@@ -6,7 +153,7 @@ Rufus 2.6 (Build 818) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144219.jpg" />
 </div>
 
 
@@ -30,7 +177,7 @@ magnet:?xt=urn:btih:A7151ACFD6B09CD4FCC6B4EF8E0C0F043ECFDACB
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144220.jpg" />
 </div>
 
 
@@ -54,7 +201,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144221.jpg" />
 </div>
 
 
@@ -81,7 +228,7 @@ magnet:?xt=urn:btih:356B24100A106AD0CB3A5CC98E29778EB7C5A20F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144222.jpg" />
 </div>
 
 
@@ -108,7 +255,7 @@ magnet:?xt=urn:btih:E1716CF541FC7C73C2231D943182C700CFE2E252
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144223.jpg" />
 </div>
 
 
@@ -133,7 +280,7 @@ magnet:?xt=urn:btih:7A6BE28E073BFD7B3A21374C510F5F63C75E1D08
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144224.jpg" />
 </div>
 
 
@@ -157,7 +304,7 @@ magnet:?xt=urn:btih:1F090C3888729E921EF6C1CFC14E317AF4A2C437
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144226.jpg" />
 </div>
 
 
@@ -181,7 +328,7 @@ Winter Stars (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144227.jpg" />
 </div>
 
 
@@ -205,7 +352,7 @@ Bad Boys Blue - Video Collection от ALEXnROCK (2018) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144228.jpg" />
 </div>
 
 
@@ -232,7 +379,7 @@ FoneDog Toolkit for Android on Mac 2.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144229.jpg" />
 </div>
 
 
@@ -256,7 +403,7 @@ Stan Getz - Quartets (1950) 1991, Original Jazz Classics [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144230.jpg" />
 </div>
 
 
@@ -283,7 +430,7 @@ magnet:?xt=urn:btih:6408401D246BA80F91847E5D32579C0C4BA82484
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144231.jpg" />
 </div>
 
 
@@ -307,7 +454,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144232.jpg" />
 </div>
 
 
@@ -334,7 +481,7 @@ magnet:?xt=urn:btih:D9847791A3552F36EC0D2D7EBCBE5B8A17EAC60F
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144233.jpg" />
 </div>
 
 
@@ -358,7 +505,7 @@ magnet:?xt=urn:btih:0592C021DAADF9C697F030FF86292B44B6FD5DB5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144234.jpg" />
 </div>
 
 
@@ -383,7 +530,7 @@ PROMT Home 11 Build 9.0.556 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144235.jpg" />
 </div>
 
 
@@ -407,7 +554,7 @@ magnet:?xt=urn:btih:08018D1CFFD6E3B540FC50F836130834596390D7
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144236.jpg" />
 </div>
 
 
@@ -431,7 +578,7 @@ magnet:?xt=urn:btih:41E9F0C141EED4D6AAD4C7218EC2E6F2ABC5AB09
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144238.jpg" />
 </div>
 
 
@@ -456,7 +603,7 @@ magnet:?xt=urn:btih:817E7E15386DB7CFC1BE4858461C1A9E68666B9F
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144239.jpg" />
 </div>
 
 
@@ -480,7 +627,7 @@ Animatronix - Echotone (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144240.jpg" />
 </div>
 
 
@@ -494,154 +641,6 @@ Animatronix - Echotone (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E66DF26F81B7507DB2AEACB0A75146CE6CC65D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087818   (144241) от 28.12.2016
-
-Ренуар. Последняя любовь / Renoir (2012) HDTV [H.264/1080i-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лазурный берег, 1915 год. Седовласый Огюст Ренуар получает известие о том, что любимый сын Жан ранен на фронте. Единственное, что скрашивает горькое отшельничество художника, — присутствие рядом молодой рыжеволосой натурщицы. Ослепительная Андре становится последней музой мастера и наполняет его мир новыми красками. Не удивительно, что вернувшийся с фронта Жан страстно (   Читать дальше...   )Производство: Франция / Fidélité Films, Wild Bunch, Mars FilmsЖанр: МелодрамаРежиссер: Жиль БурдоАктеры: Мишель Буке, Криста Тере, Венсан Ротье, Тома Доре, Мишель Глейзер, Романа Боринже, Карло Брандт, Хелен Бабу, Стюарт Сеиде, Пол СпераПеревод: Многоголосый закадровый профессиональный (NovaMedia)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B70683120D9316F8E6EFB36833BB23C4A75FD69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123963   (144242) от 26.12.2021
-
-Thief™ Gold (1999) [En] (1.26ND) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя обучение в загадочной организации, известной как «Хранители», Гарретт выходит из нее и возвращается к воровской жизни на улицах города. Тот, кто уходит на дно, должен быть готов к последствиям. Вы не единственный, кто ищет там поживы. Прячьтесь в тени мрачного, опасного города. Исследуйте развалины и соборы с привидениями, проникайте в особняки богачей. Нейтрализуйте (   Читать дальше...   )Тип издания: LicenseРазработчик: Looking Glass StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561A324397E3C849E4A285FB1E0032240A343D1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678760   (144244) от 22.11.2023
-
-Katholik - Entropic Evolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chariot (04:58)
-02. Altered States (04:21)
-03. Entropic Evolution (04:12)
-04. Heliacal Rising (04:13)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3639DE57D13298B748FA2610CAB0F149E2C64F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969779   (144245) от 28.12.2015
-
-Марсианин / The Martian (2015) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
-Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, Великобритания / Twentieth Century Fox Film Corporation, TSG Entertainment, Scott Free Productions, Genre Films, International Traders, Mid Atlantic FilmsЖанр: Фантастика, ПриключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: ДублированныйЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635BF607DA1192C4DF76020D61FF0A1998694834
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969836   (144246) от 28.12.2015
-
-Topaz Photography Suite 2015 Plugin Portable by PortableWares (28.12.2015) [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор плагинов от известной компании Topaz Labs для Adobe Photoshop, а также для Photoshop Elements. Плагины предназначены для регулирования программного расширения, имитации рисования маслом и акварелью, снижения шумов, отделения объекта от фона и объединения с другим изображением, увеличения резкости и многого другого.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798A71FC49CCF2AD75C80292D1A79E7EE5E5DD45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087773   (144247) от 28.12.2016
-
-Призраки / Wind Chill (2007) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара студентов, поехав домой на каникулы, решает воспользоваться дорогой, явно не пользующейся большой популярностью. Увы, слишком поздно герои вспоминают, что не следует доверять коротким, но заброшенным путям.Производство: США, Великобритания / Blueprint Pictures, TriStar PicturesЖанр: Ужасы, Триллер, ДрамаРежиссер: Грегори ДжейкобсАктеры: Эмили Блант, Эштон Холмс, Мартин Донован, Нед Беллами, Йен А. Уоллес, Донни Джеймс Лукас, Челан Симмонс, Даррен Мур, Линден Бэнкс, Каз Один ДаркоПеревод: Профессиональный (многоголосый, закадровый)Субтитры: АнглийскиеПродолжительность: 01:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD669653E529F8C2DBD19554518D44EADCE98F57
 ```
 
 

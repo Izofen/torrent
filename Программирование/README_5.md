@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118216.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nanik Tolaram | Software Development with Go (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118331.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ August Lilleaas | Pro Kotlin Web Apps from Scratch (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118349.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6579BD7AE089F0B1B72FF28B27C1D6CA645E5468
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118390.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119045.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1BF366739D829498789F367486F94F84F2E97296
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120396.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:FBBDD8C5E5DC410CCB168FBD5FE7A74B13E6DADC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121501.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A4590777DA1523849F689EB0CCD3B5832CF2899D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124441.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:46E508E0BFE0890644348EA77E26166126863AFF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124739.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BA1D83A9EBE5584904CDD3F4A0449C9C303DF9E1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124987.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F25D363BDB5F8F5B58BF53F4B7C0BACA4C977DFB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125762.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:6A1AF8E65C35267F8F2F5E6CF1E584F66B3B42E7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126326.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:ADF164E2BC881AE1A1FD25F522109F23F2020505
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127135.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Elizabeth Noble | Pro T-SQL 2022, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127449.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Colleen M. Farrelly, Yae Ulrich Gaba | The Shape of Data (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127457.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Aditya Iyengar | Build Your Own Web Framework in Elixir (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127499.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Harsh Bhasin PhD | Python Programming Using Problem Solving (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127664.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Deven Joshi | Building Cross-Platform Apps with Flutter and Dart (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127689.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8408305603D8C0988554C4F57E84D76630FE5A31
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128299.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:BD65EB445F3B909F9BFC04AA81C1374D365C331D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129631.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129955.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ James Gough, Daniel Bryant, Matthew Auburn | Mastering API Architecture (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129989.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130201.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Ivor Horton, Peter Van Weert | Beginning C++23, 7th ed. Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130802.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:000F0F10BF6EFCB6DE6B08723F1D347085B99E7E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131776.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:000F0F10BF6EFCB6DE6B08723F1D347085B99E7E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131964.jpg" />
 </div>
 
 

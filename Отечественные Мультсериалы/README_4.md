@@ -6,7 +6,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236048.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236048.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5413B59C6739546597013417A6A60305CEAA2158
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236243.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236243.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8D8CDAD1F837A7ED2FB44F5B76B38BA1B9D4DA0E
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236289.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236289.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8B8BCB4E3CFDEE8F9D056A26F80A009F43DB7584
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237913.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237913.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6C5A61AF828271526E57CE758BE7A4FF55F85AFF
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241902.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241902.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:92096F70B6B2C8AADEDAF5AEE64976FF7210D483
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242040.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242040.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:91497B0749741FC60E0FF0ED2DCC21BEC162F8A7
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243098.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243098.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:130B95FB8A8D4BD8AC56DE270876AC6CA1793FB0
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245980.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245980.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:FD27758A7BF1F349E35B4E2EF592A7E7A259200B
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247692.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247692.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:DD05FD1D2CBA13A393B5D0C8FCC9396DBBF422EB
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250733.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250733.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:6CF3C04A6F6227AF75611B48050EAF531CBD977F
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254929.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254929.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:C4605B3499A393E9BB41D373534EB38B6EAE0363
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255891.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255891.jpg" />
 </div>
 
 

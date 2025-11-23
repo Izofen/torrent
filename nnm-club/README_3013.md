@@ -1,3 +1,75 @@
+###  Публикация: 1821921   (91195) от 04.10.2025
+
+Dawesome - Kontrast 1.01 VSTi 3 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже более десяти лет таблично-волновые синтезаторы избегают рискованных решений. KONTRAST идёт другим путём. Он не просто сканирует таблицу — он позволяет вам её исследовать. Звук становится ландшафтом, и каждый поворот пути открывает новые цвета, текстуры и движение.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3D7C9BAC0CED1838F9C04B3B0D8283C2C514E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821920   (91196) от 04.10.2025
+
+Ульяновск: авиационная столица России и паэлья с волжским судаком | «Поедем, поедим» (04.10.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди отправился в Ульяновск, где нашел позвоночник динозавра, попробовал съедобное яйцо Фаберже, приготовил с испанским шеф-поваром паэлью с волжским судаком и установил рекорд по вместимости людей в «Буханку»!Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9F41F75792B35EF4BECCC614173635E3445A88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821895   (91197) от 04.10.2025
+
+Стив / Steve (2025) WEB-DLRip [H.264] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в середине 1990-х годов в Великобритании. В центре сюжета — Стив, директор колледжа для мальчиков с поведенческими и социальными проблемами. Ему предстоит бороться за выживание школы, находящейся под угрозой закрытия, и одновременно справляться с собственными психическими трудностями. Параллельно разворачивается история Шая, проблемного (   Читать дальше...   )Производство: Ирландия, Великобритания / Big Things FilmsЖанр: драма, комедияРежиссер: Тим МилантсАктеры: Роджер Аллам, Люк Эйрес, Джошуа Барри, Чарльз Бивен, Лиэнн Эверитт, Арчи Фишер, Маркус Гарви, Лоис Хайдар, Ахмед Исмаил, Юссеф КеркурПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D21A42466A8EB63099B99B57A716FCDFF21A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821875   (91198) от 04.10.2025
 
 Рождество в Норвегии / My Norwegian Holiday (2023) WEBRip [H.264] [MVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91198.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:DBE9F0AFF3F9CC7C4579AD488D0E9BF3B810AC2E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91199.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:45D69DC5F638B4FEBDB5D4FC781874B3994CAA66
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91200.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Othe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91201.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Dece
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91202.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0/dlc) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91203.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:EBE3FFFBDE8488695154E3A9B24C9BD2C2214E14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91204.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:4B1828012C794F86494679ABE56CA453AB847C14
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91205.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:6849017DDA3193544E6BCF458C58A55AB7DB7A4A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91206.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:227EE8F9BB3575EC26AC2642AD3070355D1A51C5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91207.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ Notification Dots v1.2.79 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91208.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ AIMP 5.40 Build 2695 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91209.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91210.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:5CDFB85409E6B4103654633E9A360A381FEB5100
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91211.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:B93DAF3123FDFEB8EBD6B3CB68709A878E44B9B1
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91212.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:1E0E82A0C80304B52666C5550625117AC7F9D2DB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91213.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:6683A8B03A71CACC9249F34D00AEBFCDC75DD645
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91214.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ Archicad 29 build 3000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91215.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:F0F25BB4F908F14132A42C4FFCA0F5822B4AD939
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91216.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:2863D4BE1D11ACA8BE26FC5EA319AFC96B73011D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91217.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:B6EE830A9744091603F6BE29DAD013755C60B748
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91218.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ Mireille Mathieu - Mon credo (Best Of) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91219.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91220.jpg" />
 </div>
 
 
@@ -556,78 +628,6 @@ magnet:?xt=urn:btih:3C532A8DF5505679ED3E74C05FED6E3C4FE05191
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A4CF13A093B0ABFC8FF665BC0CDD496E04FE5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821876   (91221) от 04.10.2025
-
-Футажи - ActionVFX - Bleeding Wounds [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91221.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 элементов кровоточащих ран от порезов, пулевых и других ранений.Формат: MOVРазрешение файлов: 2048x1080 - 4096x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD28642C3777227976C16AC514D2D6D1B4F846D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821779   (91222) от 04.10.2025
-
-Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) Repack Let'sРlay [Soundtrack Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте своего собственного хоббита, отправляясь в Байуотер. Хотя Хоббитон пока не получил статус официальной деревни, внесите свой вклад в процветание этого очаровательного городка. Встречайте уют у порога, украшая свою хоббитскую нору, ухаживая за садом, ловя рыбу в чистых прудах, собирая дикие фрукты и травы или торгуя с горожанами. Готовьте домашние блюда, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Wētā WorkshopЖанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD15EAE784E010FEC18961448A02EC3DC450F83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821874   (91223) от 04.10.2025
-
-Пресеты - Ted Forbes Preset Pack 01 [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет пресетов от Теда Форбса для ваших творческих задач.Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6284D852F1933F55C39D2E270DD7FCD86954A96F
 ```
 
 

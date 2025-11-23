@@ -6,7 +6,7 @@ VueScan Pro 9.8.44 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29629.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29629.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D5EB18E554F2ECFFE96C3E0FB89BF01D443DE3C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29630.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29630.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6554459FBE3773C0E62AD9FCA5515F6E7ED50AA6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29631.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29631.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SigmaPlot 15.0.0.13 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29632.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29632.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D9FA8FC5E2803DC52B4921E8737D42B37233C528
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29633.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29633.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:8653D7DFB2E51217E55D45EFBFA9839DEFD18BCA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29634.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2C8600D75DE7A33306A6C10B6B5DF181C67B6752
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29635.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B4E26FA1ECC1708E0D1C9E3810B78779DCA54175
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29636.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29636.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:12635DC77801723EDE24FA837B1F6F07ECD209F7
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29637.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:962B130C41AF7AD3C83ABD322C3C29E41400A8E9
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29638.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) BDRemux [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29639.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:70E809106F6719C945BBB85B454342EA7513D990
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29640.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29640.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:65EC784F197D6CDE89079C976AC248C2433C614E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29641.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29641.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC. Отвага и предательство: Столетняя война /
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29642.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1.A.24.1208.9439/dlc) Repack Let'sРlay [
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29643.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:C811A0EA6E22534FA38D413AC8EA5D7E9D82E050
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29644.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:C811A0EA6E22534FA38D413AC8EA5D7E9D82E050
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29645.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29646.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29646.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Movavi Video Editor 25.2.0 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29647.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29647.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:96B4E68B6889623063D34AB5048090391133BD49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29648.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29648.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1E9943388F42D68163F7251AD2C5F642B91D71E7
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29649.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29649.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:209155708D311A3B96B71B9F310CFC23F42CC005
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29650.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29650.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Helskate (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29651.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29651.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:BED520938F3E23A644ACBD9B3CC4D08D54B4F0F4
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29652.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29652.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:07A16461B0F9D37486AC4288D571E72998E7C53A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29653.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Uriah Heep - 26 Studio Albums, 8 Live, 27 Compilations (1970 - 2023) 167 CD [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29654.jpg" />
 </div>
 
 

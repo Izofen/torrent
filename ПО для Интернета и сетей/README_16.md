@@ -1,3 +1,27 @@
+###  Публикация: 1833273   (246220) от 01.11.2025
+
+Яндекс Браузер  25.10.0.2474 (x64) [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яндекс Браузер с новыми нейросетевыми возможностями и улучшениями существующих функций. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, перевод и озвучивание видео с нескольких языков, интегрированный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DB4CD554C2DECF7DD8E147E9BB7F61A6FFB9B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833210   (246244) от 01.11.2025
 
 4K Video Downloader+ 25.4.0.0248 (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +30,7 @@
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246244.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246244.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Allavsoft Video Downloader Converter 3.28.5.9427 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246255.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246255.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ BitTorrent Pro 7.11.0.46823 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247384.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247384.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ MyLanViewer 6.6.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247747.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247747.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ Any Video Downloader Pro 9.6.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247753.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247753.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ iDownerGo Video Downloader 10.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247769.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247769.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ Firefox Browser 144.0.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247772.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247772.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ Firefox Browser 144.0.2 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247773.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247773.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:4D588DF1496298D92FAE03FBBB140C8034AE66FB
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249034.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249034.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ MyLanViewer 6.6.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250371.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250371.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ ArrowDL 4.2.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250460.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250460.jpg" />
 </div>
 
 
@@ -271,7 +295,7 @@ Karing 1.2.5.882 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250473.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250473.jpg" />
 </div>
 
 
@@ -298,7 +322,7 @@ DLNow Video Downloader 1.54.2025.11.01 RePack (& Portable) by elchupacabra [Mult
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250500.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250500.jpg" />
 </div>
 
 
@@ -322,7 +346,7 @@ Chromium 142.0.7444.60 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250501.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250501.jpg" />
 </div>
 
 
@@ -346,7 +370,7 @@ YT Downloader 9.17.17 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250567.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250567.jpg" />
 </div>
 
 
@@ -370,7 +394,7 @@ magnet:?xt=urn:btih:E67B633B7A587FACFB64B57EAD7C9F2550F6B2E9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250577.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250577.jpg" />
 </div>
 
 
@@ -394,7 +418,7 @@ YT Downloader 9.17.17 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250596.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250596.jpg" />
 </div>
 
 
@@ -418,7 +442,7 @@ Opera One 123.0.5669.47 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250640.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250640.jpg" />
 </div>
 
 
@@ -442,7 +466,7 @@ AmoyShare AnyVid 10.9.5 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250728.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250728.jpg" />
 </div>
 
 
@@ -468,7 +492,7 @@ Social Media Downloader 7.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250742.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250742.jpg" />
 </div>
 
 
@@ -493,7 +517,7 @@ Google Chrome 142.0.7444.135 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250747.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250747.jpg" />
 </div>
 
 
@@ -517,7 +541,7 @@ Chromium 142.0.7444.135 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250815.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250815.jpg" />
 </div>
 
 
@@ -541,7 +565,7 @@ Apple Safari 5.1.7 Final [Русский]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251048.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251048.jpg" />
 </div>
 
 
@@ -565,7 +589,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 29.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251228.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251228.jpg" />
 </div>
 
 
@@ -589,7 +613,7 @@ YT Downloader 9.18.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251692.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251692.jpg" />
 </div>
 
 
@@ -600,30 +624,6 @@ YTDownloader – простая в использовании программа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAFB753C28DAD10DE1EECBDC61C4AE336FD43027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835647   (251710) от 07.11.2025
-
-YT Downloader 9.18.0 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251710.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAB450F93E154F65350102068FCC411FBD11F4D
 ```
 
 

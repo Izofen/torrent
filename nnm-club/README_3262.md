@@ -1,3 +1,75 @@
+###  Публикация: 1822882   (104494) от 08.10.2025
+
+Уловки разума (2025) WEBRip [H.264] (сезон 2, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104494.jpg" />
+</div>
+
+
+###  Подробнее
+
+В доме владельцев градообразующего предприятия братьев Панкратовых убита горничная. Выясняется, что девушка была невестой Панкратова-старшего. Семья была против такого мезальянса – и вот теперь свадьбы точно не будет: невеста мертва, а жених сядет в тюрьму, поскольку девушка была убита из его пистолета в запертой комнате, где никого, кроме них двоих, не было. Казалось (   Читать дальше...   )Производство: Россия | «Magic Factory»Жанр: ДетективРежиссер: Мурад АлиевАктеры: Елена Лотова, Всеволод Болдин, Анна Ещенко, Владимир Роганов, Кирилл Мелехов, Александр Дзюба, Татьяна Тимакова, Варвара Фролова, Екатерина Петрилина, Серафим Долбунов и др.Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C1D6D7D29F82FE92ABB8FC0091592389829EDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822877   (104495) от 08.10.2025
+
+Кузнецовы ТВ (2025) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 16) (обновляемая)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семье Кузнецовых предлагают поучаствовать в реалити-шоу, в финале которого их ждёт квартира мечты от спонсора. Ради жилплощади с многочисленными удобствами терпеть телекамеры двадцать четыре часа в сутки готовы: маникюрщица Вера, её четверо детей от трёх браков, муж Витя, он же водитель городской знаменитости, бабушка Люда, в прошлом лидер танцевального коллектива, (   Читать дальше...   )Производство: Россия | Студия «ВАМ»Жанр: КомедияРежиссер: Кирилл ВасильевАктеры: Юрий Стоянов, Михаил Трухин, Ольга Медынич, Юлианна Михневич, Александра Бабаскина, Никита Конкин, Фёдор Скальский, Арина Постникова, Таисия Захарова, Анна ГуляренкоСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4EB6189CBE3FAE4DCBF037E09A4B8C6F45B61C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822879   (104496) от 08.10.2025
+
+Кузнецовы ТВ (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 16) (обновляемая)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семье Кузнецовых предлагают поучаствовать в реалити-шоу, в финале которого их ждёт квартира мечты от спонсора. Ради жилплощади с многочисленными удобствами терпеть телекамеры двадцать четыре часа в сутки готовы: маникюрщица Вера, её четверо детей от трёх браков, муж Витя, он же водитель городской знаменитости, бабушка Люда, в прошлом лидер танцевального коллектива, (   Читать дальше...   )Производство: Россия | Студия «ВАМ»Жанр: КомедияРежиссер: Кирилл ВасильевАктеры: Юрий Стоянов, Михаил Трухин, Ольга Медынич, Юлианна Михневич, Александра Бабаскина, Никита Конкин, Фёдор Скальский, Арина Постникова, Таисия Захарова, Анна ГуляренкоСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AC2B5616FAFCDE0B34B8051C7213057C5A65B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822797   (104497) от 08.10.2025
 
 AFI - Silver Bleeds the Black Sun... (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -6,7 +78,7 @@ AFI - Silver Bleeds the Black Sun... (2025) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104497.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:A176C8D9C9DABFCAAD8615AA6616B91A680FCC7C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104498.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ magnet:?xt=urn:btih:93D30ABC19A3D57262D7B6096743E82AF05ED11B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104499.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:A3B0441B6817A174753F66C750CB299B080AF1B0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104500.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ magnet:?xt=urn:btih:9224815DA790858D39F44CE6DBF34B7F3C2CF41F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104501.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ magnet:?xt=urn:btih:1DD11932460DB49B434EEC9A017505F36C74851B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104502.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ Photo Supreme 2025.3.3.8106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104503.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:9325F10B0D4085A0783243D87D7D79B9D7ED8180
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104504.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:E512AE2B8C967CD5836FBBF1C99AE38051914FEC
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104505.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:E22EF86C621E1FC7C9223A7DBB0AC6FA4D5AF47C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104506.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:73967C4D95462FD3AD71EB75E907FAA117C2E3F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104507.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Terry Stafford - Suspicion (1994) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104508.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ magnet:?xt=urn:btih:BFB62F2EB23C50E0D632EB7066FE0384FA9C4BC2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104509.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ magnet:?xt=urn:btih:D6A178B3DC37595B4E43752970503C4F541B1371
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104510.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ The Red Jumpsuit Apparatus - X’s For Eyes (2025) [MP3|320 Kbps] <Alt. Rock, Ma
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104511.jpg" />
 </div>
 
 
@@ -381,7 +453,7 @@ magnet:?xt=urn:btih:14C7CD7210D4BD349ED81CB4907A5813D722F681
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104512.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ magnet:?xt=urn:btih:2AF3D2EAA79C45AF3C5C79672F7BA2453D629B7E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104513.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ magnet:?xt=urn:btih:EAB1594886A0B20BFE2159B0C0D3E231A2392306
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104514.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ magnet:?xt=urn:btih:0AC1500BBDFE925AECED5114529510495FA8B3B8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104515.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ GRANDpolitics | Кто такой бог (2025) [PDF]
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104516.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ magnet:?xt=urn:btih:5ED3F550B63277ECAAC32A00E70E6DBDD931AE70
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104517.jpg" />
 </div>
 
 
@@ -529,7 +601,7 @@ magnet:?xt=urn:btih:0E26B77609B7F04175DB723C32F7D352A31D31BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104518.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ Stryper - When We Were Kings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104519.jpg" />
 </div>
 
 
@@ -567,87 +639,6 @@ Stryper - When We Were Kings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFC025EE938329F300C3C3E0C8D5F59B9D6ED811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749330   (104520) от 13.09.2024
-
-Solitude Aeturnus - Through The Darkest Hour, Downfall (1994-1996) Compilation, Reissue, 2021, Back On Black [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Through The Darkest Hour:
-1. Falling 04:07
-2. Haunting the Obscure 05:32
-3. The 8th Day: Mourning 06:07(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065D1CF6036605A6207A597DA0250438DD27619B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749109   (104521) от 13.09.2024
-
-VA - Soulful Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan Henlich - Yellow Moon (4:21)
-02. Kim Levien - All My Love (4:10)
-03. Robin Flam - When Eyes Meet (4:10)
-04. Don Leviev - Black and Blue (3:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E524DEFEF3F8BE9CE56821E216887A56814D1CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749170   (104522) от 13.09.2024
-
-London Grammar - The Greatest Love (2024) [MP3|320 Kbps] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - House [3:11]
-02 - Fakest Bitch [4:20]
-03 - You And I [5:01]
-04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DF294D122F7B2C93C736B8AC3D63E67E83DAF5
 ```
 
 

@@ -6,7 +6,7 @@ Udemy, Sergio Miller | Норвежский язык "с нуля" до А2 (202
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171670.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1445D530FBA1C0F5BFC733B71FAB63A05F5577B2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171833.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SovaFilm, Алексей Кузьмин | Эффективная самообо�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171840.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mark Schoen | Увлекательный секс: Продвинутая сек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172151.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Marc Sommerfeld | Изготовление шкафов с выдвижными 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172166.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Marc Sommerfeld | Изготовление шкафов с выдвижными 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172169.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Gary Katz | Работа на торцовочной пиле Бош. Две с�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172176.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Discovery: Ванильное мороженое в домашних услов�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172181.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:9485693533034CF93C543ED93103CBBD8F1F36D3
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172217.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Marc Sommerfeld | Изготовление стола для фрезера. [20
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172376.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:313E5303EA2EDCD1FC8A03BBBD731E66A64C7D5E
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172529.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:675C1FE2A9A371A04E72857381D314F154A8A046
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172536.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ SovaFilm, Игорь Пелинский | Худеем с умом! Меню д�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172558.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:11A0DBC67A73738381AF748628CC065D96D6F4F2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172695.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:879D9723DC682988DF62FE9DE956092F37BF1AA5
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172706.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Patricia Llewellyn | Жить Вкусно с Джейми Оливером / Ja
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172712.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:977412D1CC3AA0E16903F4BAE0994D2EA6A96126
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172717.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:12BEBAFE1D18324A17DF1491868A5CC64C606AD0
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172882.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:741AD1F7A023DE24A2CBC60321B5E3BC5D71CFE5
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172893.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:CFFA6AFAA2CC5E09E413CE51C944F611652EB2F9
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172911.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:103E0297CC3330D76345F59BEEEE27BCBAE3AFA2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172912.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:8C98849F9E44F1C2950C0D5400266C9F269F2459
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172926.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:C064310E483EE35454618C4778E343E6E8BF3191
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172929.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:375B8A1630E5B1731CCFE0F193CA58FD29F34C93
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172930.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3309228D34292BCEC675B5E5EA213B7251CDE5C5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172942.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:D34013BDDAF2DF3BB9838B4C0A61234D6A8A9E36
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173064.jpg" />
 </div>
 
 

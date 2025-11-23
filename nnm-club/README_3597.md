@@ -1,3 +1,78 @@
+###  Публикация: 1708158   (113204) от 19.03.2024
+
+Реинкарнация / Rinne / Reincarnation (2005) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начинающая актриса Нагиса Сугиура получает главную роль в фильме ужасов известного режиссёра. Картина основана на реальных событиях — резне в провинциальном отеле 35-летней давности — и девушке достаётся роль дочери спятившего профессора, который прикончил весь персонал, постояльцев, последними убил собственных детей и после покончил с собой. Во время подготовки (   Читать дальше...   )Производство: Япония / Entertainment Farm (EF), Geneon Entertainment, Mainichi Broadcasting System (MBS), Nikkatsu, Oz Company ,Toho Company, Tokyo Broadcasting System (TBS)Жанр: ужасыРежиссер: Такаси СимидзуАктеры: Юка, Карина, Киппэй Сина, Тэтта Сугимото, Сюн Огури, Марика Мацумото, Мантаро Коити, Ацуси Харута, Мики Сандзё, Мао СасакиПеревод: Дублированный ("Сонотэк")Язык озвучки: русский, японскийСубтитры: русскиеПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC641C57B76124056BBD1F4AA84DA291087FAD80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707995   (113205) от 19.03.2024
+
+Неприятности: Дублинская история / The Troubles: A Dublin Story (2022) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113205.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух молодых братьев из рабочего класса, выросших на севере Дублина в 1970-х и начале 80-х годов. Братья далеки от событий, происходящих в Северной Ирландии, но потрясены жестокостью, свидетелями которой они становятся по телевидению и это, в конечном итоге, затягивает молодых героев в неизбежность радикализма, бандитизма, в сложный мир противостояния и лицемерия.Производство: Ирландия / TinyJan ProductionsЖанр: драма, криминалРежиссер: Люк ХэнлонАктеры: Рэймонд Мэлоун, Адам Редмонд, Уэйн Бирн, Уильям Делани, Сара Вулверсон, София Адли, Пол Мерфи, Филлип Расселл, Люк Хэнлон, Пол ФицджералдПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D0DD5B54D6E0A3C70086D2237A8E93C7A43DF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708175   (113206) от 19.03.2024
+
+Depeche Mode - The Singles 81-85 (1985) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming Of Me (3:44)
+02. New Life (3:44)
+03. Just Can't Get Enough (3:37)
+04. See You (3:53)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318C57ADC31B82B717301C704F8B3CE0CC026E78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708153   (113207) от 19.03.2024
 
 Джон Бреддок | Думай как шпион: Как принимать решения в критических ситуациях (2018) [MP3, Александр Алехин]
@@ -6,7 +81,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113207.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113208.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113209.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Simply Piano: Learn Piano Fast v7.24 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113210.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Picsart AI Photo Editor, Video v24.5.4 Final Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113211.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:F3FC8B2434B04A51463A52703B694081EC4AE94F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113212.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:B70FEFF7B2C6CAFC83767B2B2576F9B8A7C81C7A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113213.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ Firefox Browser 124.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113214.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ magnet:?xt=urn:btih:60E440E51CD8C9AD7408FEA539D187A81618DF05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113215.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:28263CA6BC668A931E0945609FB991C87E473446
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113216.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ Firefox Browser ESR 115.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113217.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:A35E9310188B84F7702FEF36ECC140B3C6D53523
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113218.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ Depeche Mode - Construction Time Again (1983) 1st German Press [APE|Lossless|ima
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113219.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ Andres Olaegui - Siguiendo Mi Camino (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113220.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ Chet Baker - Riverside Profiles (1958, 1959) 2CD, 2006, Riverside Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113221.jpg" />
 </div>
 
 
@@ -381,7 +456,7 @@ magnet:?xt=urn:btih:9DD15102AAF701E1E825A17C13A3AE5F7877116E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113222.jpg" />
 </div>
 
 
@@ -406,7 +481,7 @@ Expiatoria - Shadows (2022) [FLAC|Lossless|image + .cue] <Gothic, Doom, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113223.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ magnet:?xt=urn:btih:590B6EF12403337E544149BADECA9C21C610C8A4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113224.jpg" />
 </div>
 
 
@@ -458,7 +533,7 @@ Phish - Sigma Oasis (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113225.jpg" />
 </div>
 
 
@@ -485,7 +560,7 @@ magnet:?xt=urn:btih:A1F8E8E198870A064883D7281C43E980F0CE7B1E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113226.jpg" />
 </div>
 
 
@@ -509,7 +584,7 @@ Navicat Charts Creator for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113227.jpg" />
 </div>
 
 
@@ -533,7 +608,7 @@ magnet:?xt=urn:btih:FEE4B6DBB120AFBD2D3DF6B7BA2CB6E5D0519A18
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113228.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ Guadalquivir & Friends - Ole Corea! (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113229.jpg" />
 </div>
 
 
@@ -574,87 +649,6 @@ Guadalquivir & Friends - Ole Corea! (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAD6C3DB943A48CE715E277C2161D76BD5D623B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707546   (113230) от 18.03.2024
-
-Coil - Moon's Milk (In Four Phases) (2002) 5CD Boxset, 2024, Dais Records[FLAC 24/96|Lossless|WEB-DL|tracks] <Experimental, Industrial, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DISC 01
-DISC 02
-DISC 03(   Читать дальше...   )Жанр: Experimental, Industrial, AmbientПродолжительность: 5CD, 02:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193A2D8F3029CDD2BC8589E2E830388FDEB792A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707802   (113231) от 18.03.2024
-
-Reza Khan - Mystical (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falcon (5:14)
-02. Mystical (5:04)
-03. Language of Love (5:04)
-04. Catalina's Dream (5:21)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4793475311D0B22123D7B6AE7118DE8A2152FF36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707800   (113232) от 18.03.2024
-
-Carlos Camilo - Love Affair (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black G String (4:06)
-02. Craving your touch tonight (4:30)
-03. Ecstasy (4:45)
-04. High Heels On (4:26)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB10EA6039E62EE31845AFD261432F867A24DB50
 ```
 
 

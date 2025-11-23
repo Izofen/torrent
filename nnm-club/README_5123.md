@@ -1,3 +1,177 @@
+###  Публикация: 773045   (158597) от 20.12.2015
+
+Джина Спадафори, Поль Д. Пайон | Кошки для чайников (2006) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158597.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы найдете много важной и полезной информации о кошках. Вы узнаете, где можно взять котенка, как правильно его выбрать и как установить с ним взаимоотношения, а также как выбрать различные "кошачьи" аксессуары. Большое внимание уделяется вопросам правильного кормления и рационального питания кошек. Вы узнаете, какие питательные вещества необходимы (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7D79ABE3829DBF0ADCE35D2FB73BB691D4CF78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967418   (158598) от 20.12.2015
+
+Декорации убийства (2015) SATRip (серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычное трио — следователи Анна и Вадим, а также театральный режиссёр Карманов — расследует загадочные преступления. Карманов убеждён, что все возможные сюжеты уже были описаны: в пьесах Шекспира, в произведениях Гоголя, в сказках… И чтобы найти убийцу, надо всего лишь понять, с каким из вечных сюжетов столкнулись сыщики. Поскольку Карманов — убеждённый домосед, (   Читать дальше...   )Производство: Россия / кинокомпания "Свэлл Фильм", "Золотые Русские Серии"Жанр: детективРежиссер: Евгений ЗвездаковАктеры: Сергей Барковский, Мария Луговая, Александр Пашков, Татьяна Ткач, Эрнест Тимерханов, Екатерина Шумакова, Диана Милютина и др.Продолжительность: ~ 00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009855B0D146250E0F65846AAD301BE3D89053A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967325   (158599) от 20.12.2015
+
+7+ Taskbar Tweaker 5.1.0.2 beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158599.jpg" />
+</div>
+
+
+###  Подробнее
+
+7+ Taskbar Tweaker это инструмент от разработчика Unchecky и Resource Hacker FX для настройки панели задач. Программа позволяет использовать большинство опций бывших в разных версиях windows и не попавшие в новые редакции, а так же добавляет настройки имеющиеся в других ос, но по каким то причинам ни когда не реализованные в windows. Большинство опций программы сосредаточены (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38B86C6E627F0CD7C668B7BC83355A48C92C555
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967290   (158600) от 20.12.2015
+
+VA - 100 Super Enigmatic (2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astropolis feat. Eirch von Däniken - World of Mysteries
+02. Cantara - Anima (Single Remix)
+03. David Thomas - Deep Blue Experience
+04. Indian '94 - Indian Groove (Convent-Mix)(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 08:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B877C794406D20C43F0CB862006FED557A3A18F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967155   (158601) от 20.12.2015
+
+V/A - Best of Chillout Moods (2005) [DTS 5.1|tracks (upmix)] <Blues, Electronic, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amarna - Night Rain (5:10)
+02. Christopher Franke - Black Garden View (4:53)
+03. Divine Works - Ancient Person Of My Heart (3:24)
+04. Dune - Who Wants To Live Forever (3:58)(   Читать дальше...   )Жанр: Blues, Electronic, JazzПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67028093889178F1D8A726D424A92E81C45797E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967468   (158602) от 20.12.2015
+
+Сэм Кин | Исчезающая ложка, или Удивительные истории из жизни периодической таблицы Менделеева (2015) [FB2, RTF, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158602.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Исчезающая ложка, или Удивительные истории из жизни периодической таблицы Менделеева» посвящена одному из величайших достижений науки – Периодической системе химических элементов, удивительно сложному человеческому изобретению. Вы познакомитесь с историей элементов, окунетесь в мир химии и удивительных превращений, узнаете тайны науки, которые тщательно скрывались (   Читать дальше...   )Жанр: Химия, Прочая образовательная литература, Зарубежная образовательная литератураФормат: FB2, RTF, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEEE848DD23518F733C18858650C2D465E380C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965267   (158603) от 20.12.2015
+
+Лонгфорд / Longford (2006) HDTV [H.264/1080i]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм-биография поведает нам историю одного из самых интересных политиков Британии Фрэнка Пакенхема — седьмого лорда Лонгфорда, и о его знаменитой кампании направленной на защиту известнейшей убийцы в Великобритании — женщины по имени Майра Хиндли. Майра вместе со своим любовником Иэном Брейди, которых Британская пресса окрестила как «Болотных убийц», была приговорена (   Читать дальше...   )Производство: Великобритания, США, Channel 4 Television Corporation, Granada Television, HBO FilmsЖанр: Драма, Криминал, БиографияРежиссер: Том ХуперАктеры: Джим Бродбент, Саманта Мортон, Энди Серкис, Ли Бордман, Там Дин Берн, Линдси Дункан, Кейт Майлз, Сара Кроуден, Роберт Пью, Кэролайн КлеггПеревод: Многоголосый закадровый, профессиональный (AMedia)Продолжительность: 01:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97171838C4C1D6A975095704FA787AF80B6CDB6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967164   (158604) от 20.12.2015
 
 Эдуард Успенский | Трое из Простоквашино (Дядя Фёдор, пёс и кот) (1977/2006) [WavPack]
@@ -6,7 +180,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158604.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ magnet:?xt=urn:btih:2D22772DBE5E04A18D68F675829218F9069DDFCD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158605.jpg" />
 </div>
 
 
@@ -59,7 +233,7 @@ magnet:?xt=urn:btih:6753F3EF308CC4B8CEDDB249E8B4C8058559719B
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158606.jpg" />
 </div>
 
 
@@ -84,7 +258,7 @@ Wise Memory Optimizer 3.42.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158607.jpg" />
 </div>
 
 
@@ -108,7 +282,7 @@ magnet:?xt=urn:btih:248218AEA331597C2EC641E72707F787E39C313E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158608.jpg" />
 </div>
 
 
@@ -134,7 +308,7 @@ magnet:?xt=urn:btih:FE04A1946B759B690F0C99A8336BE5D9DD3B60CA
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158609.jpg" />
 </div>
 
 
@@ -159,7 +333,7 @@ magnet:?xt=urn:btih:9AF008469E4B7A231A753E32A9C205630584C3D7
 >>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158610.jpg" />
 </div>
 
 
@@ -183,7 +357,7 @@ magnet:?xt=urn:btih:F409D3AEB17B1C5AF227CFA687940327FA7412D7
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158611.jpg" />
 </div>
 
 
@@ -207,7 +381,7 @@ VA - Pop Rock Hits! 100 Colours (2015) [MP3|320 кб/с] <Alternative, Indie, Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158612.jpg" />
 </div>
 
 
@@ -234,7 +408,7 @@ magnet:?xt=urn:btih:E336D97DF501DFF7E3CDAD00B0FA4A92DF102768
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158613.jpg" />
 </div>
 
 
@@ -259,7 +433,7 @@ magnet:?xt=urn:btih:02CB3794AECF390F883578949884F691612F1D2D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158614.jpg" />
 </div>
 
 
@@ -283,7 +457,7 @@ magnet:?xt=urn:btih:0FC232A8AE04E9167F83E9ED057BB30C1978B58B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158615.jpg" />
 </div>
 
 
@@ -307,7 +481,7 @@ magnet:?xt=urn:btih:F36FFAFB1316E835B7E356AA82AA11666347FE4E
 >>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158616.jpg" />
 </div>
 
 
@@ -331,7 +505,7 @@ magnet:?xt=urn:btih:BA49BCEF41B69FF4D80141C413C2ACBDB6725075
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158617.jpg" />
 </div>
 
 
@@ -355,7 +529,7 @@ Noiseless CK (Pro) 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158618.jpg" />
 </div>
 
 
@@ -380,7 +554,7 @@ magnet:?xt=urn:btih:EFF331700669851B8825CAA0257B7090A6A5D943
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158619.jpg" />
 </div>
 
 
@@ -406,7 +580,7 @@ magnet:?xt=urn:btih:B5154C68CABDF1A39C45A0018D23AEDD1EF771F1
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158620.jpg" />
 </div>
 
 
@@ -430,7 +604,7 @@ magnet:?xt=urn:btih:98169072FD21554999972CA8609A5B7A4BF45E81
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158621.jpg" />
 </div>
 
 
@@ -454,7 +628,7 @@ magnet:?xt=urn:btih:3848F3FE70580E6F621D91F5C5D78875136A4EA2
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158622.jpg" />
 </div>
 
 
@@ -465,182 +639,6 @@ magnet:?xt=urn:btih:3848F3FE70580E6F621D91F5C5D78875136A4EA2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73A23529138D9BE80609EFD486DCEEBA3CA2B79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967382   (158623) от 20.12.2015
-
-Animated Christmas Tree for Desktop 2015 1.0.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавьте свежие штрихи на рабочий стол с помощью набора анимированных сверкающих новогодних ёлок (более 30 шт.) от Drive Software Company. Опционально ёлки могут остаться "поверх всех окон", вы можете регулировать прозрачность, при наведении курсора мыши показывает, сколько дней осталось до католического Рождества (в Christmas Snow Ball - до Нового Года, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6FDF790E52F22F822CB10143210401892B3206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964649   (158624) от 20.12.2015
-
-Собачья жизнь / Vita da cani (1950) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Италии в первые послевоенные годы.
-Нино Мартони является директором захудалого театра-кабаре, в котором работают три главные героини фильма. В поисках лучшей жизни Франка оставила своего жениха, потому что её не прельщала жизнь с небогатым инженером Карло. Вера влюблена в Марио, сына богатого предпринимателя, но их разделяет социальное (   Читать дальше...   )Производство: ИталияЖанр: Драма, КомедияРежиссер: Марио Моничелли, СтеноАктеры: Альдо Фабрици, Джина Лоллобриджида, Делия Скала, Тамара Леес, Gianni Barrella, Бруно Корелли, Enzo Furlai, Энцо Маджо, Michele Malaspina, Паскуале Мисиано ...Перевод: Многоголосый закадровыйЯзык субтитров: Испанский, итальянскийПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45CA0FAE7954050F3133A413CBA3840128D8524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967157   (158625) от 20.12.2015
-
-Eraser 6.2.0.2970 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для безвозвратного удаления данных с жесткого диска. Встраивается в контекстное меню и позволяет удалять без возможности восстановления как отдельные файлы и папки, так и целые разделы. Eraser переписывает выбранную область данных с помощью различных матриц случайных данных. Работает с любыми приводами и файловыми системами FAT16, FAT32 и NTFS.Язык интерфейса: Английский, Нидерландский, Итальянский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B6F551C97D1DA337E849E65732AED78137CCA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966983   (158626) от 20.12.2015
-
-Taylor Swift - Fearless (2008) Reissue, Platinum Edition, 2010, BIG Machine Records [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump Then Fall (03:59)
-02. Untouchable (05:12)
-03. Forever & Always (Piano Version) (04:29)
-04. Come In With The Rain (03:59)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC2D789CAE736012B4F34DC16053374116675CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967525   (158627) от 20.12.2015
-
-Future - DS2 (Dirty Sprite 2) (2015) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Hip Hop, Trap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thought It Was a Drought (4:24)
-02. I Serve the Base (3:08)
-03. Where Ya At (feat. Drizzy) (3:27)
-04. Groupies (3:06)(   Читать дальше...   )Производство: Epic, Freebandz Entertainment – 88875127252Жанр: Hip Hop, TrapПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F541F1B739739CB9E3E1D4272A590BB9D1DC3A90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967432   (158628) от 20.12.2015
-
-Starus Word Recovery 2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент для восстановления текстовых документов с изображениями, таблицами, шрифтами, словарями, ссылками, диаграммами и другим содержимым. Также вернет текстовые документы, которые не удается восстановить при помощи встроенных средств восстановления Microsoft Office.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437E81A70F826AF53B3D9175355672F3BFB1222F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965450   (158629) от 20.12.2015
-
-Дьявол в голубом платье / Devil in a Blue Dress (1995) BDRip [H.264/720p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказывается, выжить на полях сражений гораздо легче, чем в послевоенном Лос — Анджелесе. Ветеран Второй мировой Изи Роулинс потерял работу и вскоре может лишиться и крыши над головой. Поэтому, когда ему предлагают выступить в роли частного детектива и найти таинственную красавицу, Изи сразу соглашается...
-100 долларов за такое простое дело — более чем выгодная сделка. (   Читать дальше...   )Производство: США / TriStar Pictures, Clinica Estetico, Mundy Lane EntertainmentЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Карл ФранклинАктеры: Дензел Вашингтон, Том Сайзмор, Дженнифер Билз, Дон Чидл, Мори Чайкин, Терри Кинни, Мел Уинклер, Альберт Холл, Лиза Николь Карсон, Джернард БурксПеревод: Профессиональный (многоголосый закадровый), профессиональный (двухголосый закадровый)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF5CD0354D5ECE6E84A43AE2D470EEDAF1A92B9
 ```
 
 

@@ -6,7 +6,7 @@ OCCT 13.1.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44009.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:606958D19197B80AC6D63CD23BF042CC765D71A2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44010.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9F05BC34FB45D34CA1B8422E349C9F4655531FD2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44011.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6DE856F6A6730B87461002A5743B7D9109676C16
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44012.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Duolingo: изучай языки 5.165.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44013.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:46FE5DC50E9B839124F0AA777F83017227866EA3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44014.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C036FDBB25416C47E9C61B2F10AC899468FA2F5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44015.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0010A550AEAB186ABA0EAA6D01CD41FD07ED8501
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44016.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C3856D4C17D527F5BB0652C2B61B205B33C89E6E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44017.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ R-Studio Network 9.4 Build 191354 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44018.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:C4C98A90A8684EB4A65234D9AA0601DB767F4697
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44019.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:474AEC913D16E9C0ED39C7AAC5A17B1D0E586523
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44020.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44021.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44022.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44023.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:6C8399C67402A8FC1A4B50B0A57BE8532B56F732
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44024.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:EA158900F176D2E4AE582EFDBAE609B1BF12E8A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44025.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Rising Star 2 (2020) [Multi] (2.98.342/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44026.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:EC89DAF7B6E2AC6FDAC07D58C39462916708855C
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44027.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:3AF7C6369AC803E06572FC130104A9B537A158F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44028.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:8F49F435FF76CEB4286D070DF29DA921B276ABE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44029.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:143EE47E835C1B0247BF4F40179087C7AF09DE89
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44030.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:441CB72609D91985AAEE449E1FD187C32166E638
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44031.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:CF720E413D359B57784B7D6342F11C933CD4F07B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44032.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:F0EC3825BB5D88D05295D0614B81484C6089C483
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44033.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:4E76FAF8F794DA60B742CD09268FF43CDDA76EF2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44034.jpg" />
 </div>
 
 

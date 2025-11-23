@@ -6,7 +6,7 @@ FabFilter Total Bundle v.2023.11.31 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160815.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Living Wallpaper HD & Weather 5.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160837.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BuhoCleaner for Mac 1.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160847.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Pasta Pro 1.3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160976.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PDF Reader X - Edit Adobe PDF Pro 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161029.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Smultron 12 v12.5.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161050.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Disk Analyzer Pro 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161116.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Photo Perspective Pro 1.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161122.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Affinity Publisher Beta 1.10.5.1224 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161168.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Caps Lock Tone v1.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161206.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Mirror Magnet 1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161227.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Disk Space Analyzer Pro 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161268.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ DMG Canvas 4.0.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161279.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ WidsMob Viewer Pro 2.19 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161312.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Color Wheel 4.9 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161325.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Super PhotoCut Pro 2.8.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161381.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ WidsMob Panorama 4.28 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161388.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WidsMob ImageConvert - JPG/PNG 3.25 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161393.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ FrameMagic - Collage Maker Pro 3.6.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161398.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ WidsMob Montage 2.26 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161416.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ WidsMob HDR 3.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161450.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ BackStory Wallpapers 2.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161457.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ PatterNodes 3 v.3.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161461.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Report Kit 1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161462.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Rogue Amoeba Farrago 2.0.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161465.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ KeyTrails 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161467.jpg" />
 </div>
 
 

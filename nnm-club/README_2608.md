@@ -6,7 +6,7 @@ The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ne
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68556.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ultimate Sunset Chillout Best Selections (2025) [MP3|320 Kbps] <Downtempo, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68557.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Duke Pearson - Four Classic Albums (1959 - 1962) 2CD, 2016, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68558.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DJ Elmoe - Battle Zone (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <djelmoe, fo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68559.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Einherjer - Norrøn (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68560.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Occult - 1992-1993 (2016) (Compilation) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68561.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:9FC02E8C804E3F74393D12EE84A6F8DC83C17676
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68562.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - The Sound of 2025, Chapter 3: London (Day Mix) (2025) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68563.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Markus Schulz - Global DJ Broadcast Miami Music Week Edition (2025-03-27) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68564.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A75C9A267F3AB594669B59A2144170EDFD5045D6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68565.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - I Love ZYX Italo Disco Collection 14 (2012) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68566.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Clueless - The Album (1998) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68567.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:336A1135E63D1A9E0F10030C24478DC94E74205A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68568.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Popa Chubby - I Love Freddie King (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68569.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:A861D0CFC067098A7CABCBE793706FDCECFB5C59
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68570.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:5EE40386A110EFC2C868EDCC09D1E292B1FF86B6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68571.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:6BA69177A65C17A923AEFB8364A3A699B874E689
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68572.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:57E2896E53A26CD3F30030C09DFF99DAD0F08662
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68573.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Nightwish - Century Child (2002) Released, 2015, Spinefarm Records [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68574.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:CD31883508A9DBDE2F31EA8BA8AD110031E65DFB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68575.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:7A71BF54F9D8B36E9576A500E5270C16AB0B2947
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68576.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Lane 8 - Spring 2025 Mixtape (2025-03-19) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68577.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Redux Selection, Vol. 4 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68578.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Maya Delilah - The Long Way Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68579.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:3BEB1CB3FFF76013C5320FBF77FD3B351E4021FB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68580.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Mechina - Bellum Interruptum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmos
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68581.jpg" />
 </div>
 
 

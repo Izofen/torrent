@@ -1,3 +1,80 @@
+###  Публикация: 1706981   (113516) от 14.03.2024
+
+Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB18D8E4F926A75DC4C7C8B9C284A82D09AA188A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706764   (113517) от 14.03.2024
+
+Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate Moments: Sexy Jazz for Erotic Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saxual Healing (Sex Saxophone & Piano) (3:49)
+02. Saxual Jazz Lounge (Sexy Sax & Piano) (3:36)
+03. Now Again (Sensual Instrumental Background) (2:37)
+04. Feel Like Making Love (3:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4460256A49F7C3AFB6AA660160795FB9F0AB825A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706978   (113518) от 14.03.2024
+
+Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8921AB60A3EE7D1351C7AA4AC0F8F7B7EEA38EAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706954   (113519) от 14.03.2024
 
 Microsoft Visual Studio 2022 Enterprise 17.9.3 (Offline Cache) [Ru/En]
@@ -6,7 +83,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113519.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Fun Fun - Double Fun (1987) Reissue, 2023, ESonCD [FLAC|Lossless|image + .cue] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113520.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ VA - Chillhop Essentials Spring (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113521.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113522.jpg" />
 </div>
 
 
@@ -109,7 +186,7 @@ magnet:?xt=urn:btih:D7312847B66281CAEC4A6D562CE5BA0427F26C8B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113523.jpg" />
 </div>
 
 
@@ -133,7 +210,7 @@ PDFCreator 5.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113524.jpg" />
 </div>
 
 
@@ -157,7 +234,7 @@ magnet:?xt=urn:btih:44EFCA2A280C6F8CC6BC56F71C13396444DB1085
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113525.jpg" />
 </div>
 
 
@@ -181,7 +258,7 @@ Musify for Mac 3.5.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113526.jpg" />
 </div>
 
 
@@ -205,7 +282,7 @@ Andy Lindquist - Unravel the Gravel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113527.jpg" />
 </div>
 
 
@@ -232,7 +309,7 @@ magnet:?xt=urn:btih:BD3B7F541A3C76808E1741D89C3E5EB2C38E5083
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113528.jpg" />
 </div>
 
 
@@ -258,7 +335,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113529.jpg" />
 </div>
 
 
@@ -282,7 +359,7 @@ magnet:?xt=urn:btih:DA3C6C8F97FB97331223D093F38350C9AFEF4B66
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113530.jpg" />
 </div>
 
 
@@ -309,7 +386,7 @@ Gene Harris Quartet - Another Night In London (1996) 2010, Resonance Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113531.jpg" />
 </div>
 
 
@@ -336,7 +413,7 @@ Sonny Stitt - No Greater Love (1981) 2001, TKO Magnum Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113532.jpg" />
 </div>
 
 
@@ -363,7 +440,7 @@ PullTube 1.8.5.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113533.jpg" />
 </div>
 
 
@@ -387,7 +464,7 @@ The Red Holloway / Clark Terry Sextet - Locksmith Blues (1989) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113534.jpg" />
 </div>
 
 
@@ -414,7 +491,7 @@ Sonny Stitt - Plays Jimmy Giuffre Arrangements (1959) 2010, American Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113535.jpg" />
 </div>
 
 
@@ -441,7 +518,7 @@ M.O.D - U.S.A. for M.O.D (1987) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113536.jpg" />
 </div>
 
 
@@ -468,7 +545,7 @@ Darkthrone - A Blaze in the Northern Sky (1992) Reissue, 2009, Peaceville [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113537.jpg" />
 </div>
 
 
@@ -495,7 +572,7 @@ magnet:?xt=urn:btih:680077D83BA132D0C3704C8609291041C7621546
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113538.jpg" />
 </div>
 
 
@@ -522,7 +599,7 @@ magnet:?xt=urn:btih:88C54D85C73C331C60B7BEA36C78556AFD1C28AC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113539.jpg" />
 </div>
 
 
@@ -546,7 +623,7 @@ Ben Hemming - Darkness Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113540.jpg" />
 </div>
 
 
@@ -573,7 +650,7 @@ Cosmic Promise - Navigator (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113541.jpg" />
 </div>
 
 
@@ -587,84 +664,6 @@ Cosmic Promise - Navigator (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3554E8C34C8D62A46FB6C34360519062ABAA9397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706509   (113542) от 13.03.2024
-
-Елена Счастная | Воин забвения (Книга 2). След бури (2024) [MP3, Ольга Андреянова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть трилогии. Через снегопады и суровые зимние бури княжеское войско отправляется в поход. С надеждой на победу, с желанием избавить народ от напасти под названием вельды. Млада, связанная с князем и вельдским мальчиком колдовством неизвестной силы, следует за дружиной, чтобы потребовать с жреца Зорена ответы о прошлом и настоящем. По её следам идёт посланный (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 13:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642E7838C62A1207583D507CAB1D0B86DBFDC495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706541   (113543) от 13.03.2024
-
-Skeewiff - Something Like That (2024) [FLAC|Lossless|WEB-DL|tracks] <Big Beat, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misirlou
-02. Exclusive Blend
-03. These Boots Are Made for Walking
-04. Soul Bossanova(   Читать дальше...   )Жанр: Big Beat, FunkПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4105213A68D53F9BBEBAFE22FDCFAF1073DDCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706603   (113544) от 13.03.2024
-
-Nine Below Zero - Denmark (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Story Of Nathan John (3:40)
-02. What's Going On (3:48)
-03. You Made Your Bed (So You Better Lie In It) (2:12)
-04. Ice Cream Man (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1AE68AF3A4F861F41D2D749BCE935A4A1BD31C
 ```
 
 

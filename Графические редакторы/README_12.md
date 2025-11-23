@@ -1,3 +1,27 @@
+###  Публикация: 1654900   (193943) от 23.08.2023
+
+SoftOrbits Sketch Drawer Pro 10.01 (акция Comss) [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch Drawer – это инструмент редактирования изображений, предназначен для преобразования фотографий в карандашные наброски. Программа позволяет пользователям создавать уникальные картинки в видео нарисованного наброска (черно-белого или цветного) из обычной фотографии. При создании карандашного наброска, вы можете выбрать предпочитаемые настройки и опции. Вы можете (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FB9FACB62DD2EA3140EED6B8606B0AE868609E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653283   (194334) от 15.08.2023
 
 Green Screen Wizard Professional 12.2 [En]
@@ -6,7 +30,7 @@ Green Screen Wizard Professional 12.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194334.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194334.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ PhotoInstrument 7.7 Build 1052 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194596.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194596.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ PhotoDiva Pro 5.0 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196459.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196459.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ PhotoDiva Pro 5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196584.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196584.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ PT Portrait 6.0.1 (x64) Studio Edition RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196803.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196803.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ PhotoDiva Pro 5.0 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197126.jpg" />
 </div>
 
 
@@ -152,7 +176,7 @@ magnet:?xt=urn:btih:F10623276068A9EF1E7828C20472BC126A3CC228
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197975.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197975.jpg" />
 </div>
 
 
@@ -176,7 +200,7 @@ Adobe Animate 2023 23.0.2.103 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198582.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198582.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ Franzis SHARPEN projects 4 professional 4.37.03697 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198598.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198598.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ CyberLink PhotoDirector Ultra 14.5.1627.1 (x64) RePack by PooShock [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198605.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198605.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ SoftColor PhotoEQ 10.10.2305 RePack by 78Sergey [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_198875.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_198875.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ Filter Forge Studio Edition 12.6.714 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199552.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199552.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ magnet:?xt=urn:btih:0AD87E42DB3C1B5A6E70D92C5DCCCAF073204DCD
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199652.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199652.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ reaConverter Pro 8.0.148 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199941.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199941.jpg" />
 </div>
 
 
@@ -345,7 +369,7 @@ Ashampoo Photo Commander 17.0.3 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201561.jpg" />
 </div>
 
 
@@ -370,7 +394,7 @@ Ashampoo Photo Commander 17.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201575.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201575.jpg" />
 </div>
 
 
@@ -395,7 +419,7 @@ Topaz DeNoise AI 3.7.2 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201743.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201743.jpg" />
 </div>
 
 
@@ -419,7 +443,7 @@ FireAlpaca 2.13.26 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201822.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201822.jpg" />
 </div>
 
 
@@ -443,7 +467,7 @@ Topaz DeNoise AI 3.7.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201963.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201963.jpg" />
 </div>
 
 
@@ -467,7 +491,7 @@ Paint Tool SAI 2 20230711 Technical Preview [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202180.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202180.jpg" />
 </div>
 
 
@@ -492,7 +516,7 @@ Perfectly Clear WorkBench 4.8.0.2871 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202212.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202212.jpg" />
 </div>
 
 
@@ -517,7 +541,7 @@ magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202348.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202348.jpg" />
 </div>
 
 
@@ -541,7 +565,7 @@ Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202495.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202495.jpg" />
 </div>
 
 
@@ -565,7 +589,7 @@ HitPaw Photo Enhancer 2.0.3.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202586.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202586.jpg" />
 </div>
 
 
@@ -589,7 +613,7 @@ Nik Collection by DxO 5.5.0.0 Portable by conservator [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202642.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202642.jpg" />
 </div>
 
 
@@ -600,31 +624,6 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:448F42885019628C3B39D9CAB064031E8117BF50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611805   (202732) от 13.02.2023
-
-ФотоВИНТАЖ 4.0 Portable by conservator [Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202732.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФотоВИНТАЖ — это мощный редактор, в котором можно восстановить старые фотографии. Нужно отреставрировать повреждённый снимок родственников или раскрасить чёрно-белое фото бабушки? В программе ФотоВИНТАЖ даже новички сделают это за 2 минуты!
-Вам больше не понадобятся услуги профессиональных реставраторов фото! В ФотоВИНТАЖЕ вы сможете самостоятельно убрать царапины (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
 ```
 
 

@@ -6,7 +6,7 @@ Lee Ritenour - Portrait (1987) GRP [FLAC|Lossless|tracks + .cue] <Crossover Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108569.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tim Warfield - One For Shirley (2008) Criss Cross Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108610.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ David Schumacher - Every Corner (1993) Amosaya Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108611.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mary Lou Williams - Zodiac Suite (1945) 1991, Vintage Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108614.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108631.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Don Carroll - Blues Organ (2008) [MP3|320 Kbps] <Hammond, Blues, Organ>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108643.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108672.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108673.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108676.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Allen Gilliland - Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108679.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108682.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108683.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108684.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Jazz Tempoe Doeloe (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108685.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Alluring Sweet Relaxing Chill Lounge Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108686.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kurt Flavin - Six String Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108687.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jeff Shirley - Contigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108688.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108689.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108692.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Eliza Neals - Colorcrimes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108694.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108696.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jesse Kramer - HWY 12 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108712.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108713.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Smooth Jazz House Music (Bar & Coffee Lounge) (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108718.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jennifer Lyn & The Groove Revival - Live from the Northern Plains (2024) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108726.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Phil Woods - Into The Woods: The Best of Phil Woods (1987 - 1995) 1996, Concord 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108734.jpg" />
 </div>
 
 

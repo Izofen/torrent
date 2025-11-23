@@ -6,7 +6,7 @@ Topaz Mask AI 1.3.9 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57552.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Marvelous Designer Personal 2024.0.125.47553 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57560.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DxO FilmPack 7.5.0 Build 513 Elite (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57598.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Blackmagic Design DaVinci Fusion Studio 18.6.6 Build 4 (x64) Portable by 7997 [M
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57600.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Apeaksoft Blu-ray Player 1.1.38 Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57611.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Apeaksoft Video Editor 1.0.50 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57613.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Acoustica Mixcraft Pro Studio 9 9.0 Build 470 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57631.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ AI Photo & Art Enhancer 1.6.00 (x64) Portable by zeka.k [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57652.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Nevercenter CameraBag Pro 2024.1.0 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57716.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ InPixio Eclipse HDR PRO 1.3.700.620 (x64) Portable by 7997 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57730.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cyberlink ColorDirector Ultra 12.1.3723.0 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57736.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PlayerFab 7.0.4.5 (x64) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57750.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MediaChance Dynamic Auto Painter Pro 8.0.0 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57751.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Prima Cartoonizer 5.2.6 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57966.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Substance 3D Designer 2024 13.1.2 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57989.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Adobe InDesign 2024 19.4.0.63 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58080.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Apowersoft Screen Capture Pro 1.5.4.3 RePack (& Portable) by elchupacabra [Multi
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58347.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ SIGERSHADERS XS Material Presets Studio 6.2.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58386.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Spine 2D Pro v3.8.75 x64 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58460.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ ACDSee Photo Studio Ultimate 2024 17.1.0.3778 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58474.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ashampoo Music Studio 10.0.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59082.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9A361E36DC506EF2B66B682D96044417E4AD8877
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59121.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:8998626FF152951E88B1864273DF9DE5337B393D
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59953.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:60AA12F69F6363DD3B1FF0B4D2968C2C6F8F6EEF
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60125.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:A5512EE7163DEDDA962B12B553DDC5FB05A9F381
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60139.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:5E2E39F07B76D05EB88BBF84B7732246B10C37B5
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60153.jpg" />
 </div>
 
 

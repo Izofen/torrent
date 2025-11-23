@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95908.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ magnet:?xt=urn:btih:4A4746BBE22A32A0CB4D7440EF0E2722198B15D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95909.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:3C2BBAD5649234C5008A12C33041E54365469869
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95910.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ magnet:?xt=urn:btih:4B49DBB5AFE3DB9A93EE7F2F10988ACD61F9403A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95913.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:CBB2E0EFAE5C24483DB952049CF6295CCE495C1B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95915.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:FBF01CF92CD44837ACC6C282189AD6E688CD1513
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95922.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:CB7FA8FD74A42DEB994631B876FD0B5B76BEE5A1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95925.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:99135FF33626C75F339E5A7147960FA0B5B9E1F4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95926.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:6E8BAAEA12C20E66C6F5C340DF84A4D538673F4D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95929.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:11E56A93776B579411C2FA71E72C8CAEF036E256
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95931.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:19EB4DDE9449400479ED527ECF94E4FCE818BB58
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95933.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:08F6C5AF7123544B584E9B139B783090E24F8FA6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95940.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:74AF2133761AA731314CCDAF921D26EE8A48D98D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95954.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:024F52F93CE3927D71A5A292B006D9978E1BF487
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95963.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:C104FE33B69B09221DEB39219FF7B95392A4DFD1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95965.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Devil In The Detail (2007) [MP3|320 Kbps]<Downtempo, Ambient, Psy Chill, Ps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95966.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Gabriel & Dresden - Live at Pacha, NYC (02-03-2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95968.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:F9685F9C55DC9B1E452D38CAB315C55B0DF16BDE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95977.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ DJ Tiesto - Club Life 257 (Swedish Special) (04.03.2012) [MP3|~224 кб/с ]<Pro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95981.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:B0DEE6A43050D6F3E0B7FB97BE50714F20026441
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95986.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:220240A7695E039EF2E5C35C3DA3E9CD30ED7C08
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95988.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ MKVToolnix 5.3.0.418 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95990.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95990.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Dynazty - Дискография (2009-2012) три альбома [MP3|320 kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95991.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Talamasca - Made In Trance (2004) [APE (image+.cue)|Lossless]<Psychedelic / Full
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95995.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Duotekk - Dunamis (2011) [MP3|320 кб/с]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96008.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ magnet:?xt=urn:btih:B6174FBDC9D4F61E875CA8817DF79A474B8B1EFB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96014.jpg" />
 </div>
 
 

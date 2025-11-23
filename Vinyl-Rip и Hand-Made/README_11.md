@@ -6,7 +6,7 @@ Ansamble «Vitamiin» - Ансамбль «Витамин II» (1984) [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46070.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rose Royce - Jump Street (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Disco, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46076.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Timo Tolkki's Avalon - Studio Albums (4 releases) (2013-2021) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46176.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Revolution Renaissance - Studio Albums (3 releases) (2008-2010) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46183.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Dark The Suns - Studio Albums (6 releases) (2007-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46196.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - MTV Hits vol. 23 (1994) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46488.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - Одинокий пастух. Два Альбома (1998, 2001) [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46712.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Social Distortion (Social D; SxDx) - Studio Albums (3 releases) (1996-2011) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47335.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ The Winery Dogs - Studio Albums (4 releases) (2014-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47438.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Остров Сокровищ. По Другому! от Arhangel Music (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47898.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Iced Earth - Studio Albums (16 releases) (1990-2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48267.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:9902A330F57B822CA44017B4021754B2ACD58542
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48429.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Powerwolf - Studio Albums (11 releases) (2005-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48685.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Imagine Dragons - Studio Albums (6 releases) (2012-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48884.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Kiss - Studio Albums (5 releases) (1992-2013) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48971.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49139.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50117.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50260.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51396.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51584.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51618.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51693.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51921.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52083.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52084.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Anthrax - Studio Albums (12 releases) (1983-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52614.jpg" />
 </div>
 
 

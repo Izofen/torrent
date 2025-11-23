@@ -6,7 +6,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18681.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18682.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5A33A6C683200B6A5FE323EA20BD8BB12DE1661D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18683.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C2928DADAB00DCB1B7720D5031AF938A940A7607
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18684.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:498EDA998478DB2B90280D9819CBA88925B48B62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18685.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:913DE929054B835CCE78711E0F9DF2EB0202C252
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18686.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Huawei избавится от Windows вслед за Android — предст�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18687.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14 20230201) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18688.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.7 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18689.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:ED6340B3DFF9E2F5E60772BB497C145B4D86D587
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18690.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18691.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4CAE8CC6E2D6D6F39DBB168BC0C79ACBC92D64FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18692.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Unavowed (2018) [En] (2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18693.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:AE3EDF3490471F8A1F18F571E2F98867671253DE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18694.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:AE3EDF3490471F8A1F18F571E2F98867671253DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18695.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:CCEC7499EEE5453F0BCC5D0C20029982A5EE60FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18696.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r26 Portable by Ratiborus [Multi/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18697.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E4566A894C3440F5E70DB41EEB9FC2390FC04CD4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18698.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D117168BD8219885F83730E229F9588EA3331083
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18699.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B05061ECBF807975CB6E8C2DF623647A60F65E5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18700.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A08C459DB2745DCA0AFD3DBF548853F17454E278
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18701.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:BD1A03F1CF898646D59C14A9B54AC89EA391A16D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18702.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Balabolka 2.15.0.895 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18703.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Forgive Me Father (2021) [Ru/Multi] (1.4.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18704.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:FC0E2C6E17A320D0814980A0B38D0295701274C3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18705.jpg" />
 </div>
 
 

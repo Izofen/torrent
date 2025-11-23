@@ -1,3 +1,75 @@
+###  Публикация: 1829191   (199815) от 25.10.2025
+
+PowerISO 9.2 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199815.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа, позволяющая создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E561F1A38D4DF9BE01F680BE8834F14DC65BEAE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625720   (199953) от 11.04.2023
+
+Advanced Uninstaller PRO 13.25.0.68 Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Uninstaller - идеальный инструмент для деинсталляции программ, ускорения работы компьютера и защиты вашей конфиденциальности.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B0AF3FD54B9991F28A41EC7C43B3D3C5162E12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828840   (199968) от 24.10.2025
+
+PowerISO 9.2 RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199968.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B00016A3B6E798A90C224594F047B7BDBBBA8CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828839   (199970) от 24.10.2025
 
 Reg Organizer 9.89 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +78,7 @@ Reg Organizer 9.89 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199970.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199970.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Nitro Pro 13.70.5.55 x64 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199973.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199973.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:E1EB37A961015F2B9B8096D82F19840A7801AC4B
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200033.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_200033.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ PopChar 8.7.0.3001 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200123.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200123.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ PDF Eraser Pro 1.9.8.2 Portable by Spirit Summer [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200135.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200135.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Aiseesoft PDF Converter Ultimate 3.3.58 RePack (& Portable) by TryRooM [Multi/Ru
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200139.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200139.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Reset Windows Update Tool 11.1.0 Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200220.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200220.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ HDDExpert + Portable 1.20.1.55 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200437.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200437.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Bootstrap Studio 6.4.0 RePack (& Portable) by xetrin [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200498.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200498.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ Extended GodMode 1.0.2.18 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200561.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Ashampoo Burning Studio 24.0.3.27 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200747.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200747.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Wise Data Recovery Pro 6.1.3.495 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201053.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201053.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ Wise Data Recovery Pro 6.1.3.495 Portable by FC Portables [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201101.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201101.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ Total Uninstall 7.3.1 Professional Portable by zeka.k [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201162.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201162.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:F377F637C516779DC51FC8813B35A3DB3C017D93
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201247.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201247.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ Removable Access Tool 1.4 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201253.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201253.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ MonitorInfoView 1.22 Portable [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201256.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201256.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ Driver Easy Pro 5.8.0.17776 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201295.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201295.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ Orpalis PDF Reducer Professional 4.0.8 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201337.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201337.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ Icecream PDF Converter Pro 2.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201601.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201601.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ CCEnhancer 4.5.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201684.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ MouseExtender 1.9.9.3 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201685.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201685.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ FileMenu Tools 8.6 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201753.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201753.jpg" />
 </div>
 
 
@@ -549,78 +621,6 @@ FileMenu Tools настраивает пункты контекстного ме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9EF297D5DE6765924B456C4BD74507EEE3C8E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830003   (201755) от 26.10.2025
-
-ScrollNavigator 5.16.1 RePack by KpoJIuK [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201755.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScrollNavigator - программа, которая поможет вам прокручивать по вертикали и по горизонтали ваши документы. С помощью этой утилиты достаточно зажать правую кнопку мыши в любом месте страницы и протянуть курсор в нужном направлении. Это поможет вам избежать позиционирование мыши над полосой прокрутки и позволит перемещаться в обоих направлениях одновременно. Программа (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A249811CBECA37D33FD72388EF91BE2C2D1C1B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829997   (201756) от 26.10.2025
-
-Any Video Downloader Pro 9.6.5 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFB0449106CF4C4E4B631FFABB17EB6D75B1ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829995   (201757) от 26.10.2025
-
-By Click Downloader Premium 2.4.27 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201757.jpg" />
-</div>
-
-
-###  Подробнее
-
-ByClick Downloader (бывший YouTube By Click) - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC405BCF88FD29E328982A96A01BB44AA1AD5515
 ```
 
 

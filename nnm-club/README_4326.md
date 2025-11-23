@@ -1,3 +1,87 @@
+###  Публикация: 594918   (133191) от 27.12.2012
+
+Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Holy Night [01:48]
+02. It Came Upon A Midnight Clear [03:20]
+03. Hark! The Herald Angel Sings [01:49]
+04. Away In A Manger [02:13]
+05. Joy To The World [01:40]
+06. The First Noel [01:50]
+07. Silent Night [02:51]
+08. O Come All Ye Faithful [02:45]
+09. Sleep, My Little Jesus [02:17]
+10. Angels We Have Heard On High [01:46](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:28:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592831   (133192) от 27.12.2012
+
+Morbid Silence - Дискография (10 релизов) (2010-2012) [MP3|320 кб/с]<Dark Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133192.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Morbid Silence - Малоохтинское Кладбище I
+2. Дом Вдовы - Малоохтинское Кладбище II
+3. Morbid Silence - Малоохтинское Кладбище III
+4. Дом Вдовы - Малоохтинское Кладбище IVMorbid Silence - единоличный dark-ambient проект Harakiri. Его музыку можно охарактеризовать как магически-мрачную с почти медитативными, трансовыми переходами между живыми или искаженными звуками природы и созданными искусственно с применением различных техник. По словам автора, каждая композиция непременно пронизана определенной, иногда почти невыражаемой словами, идеей. Тем самым любой трек непременно экстраполируется к теме альбома, обобщающей их общую составляющую. Что зачастую делает альбомы целостными и неделимыми произведениями автора. Все это переливчатое многообразие звуков, порождающее целостные образы, находит проявление через созерцание автором мира через призму собственного мировосприятия и древних идей: хаоса, Ницшеанского безумия и страхаЖанр: Dark AmbientПродолжительность: 06:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C64AAB36F5D65E208DABE529648DE16108DCF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594904   (133193) от 27.12.2012
+
+Журнал | 100 битв, которые изменили мир №100 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «100 битв, которые изменили мир» предлагает вам описание самых значительных сражений в мировой истории. В каждом выпуске журнала вы найдете рассказ об одной из самых известных битв, включая ярчайшее описание самого сражения, а также мнения экспертов о противоборствующих сторонах. В каждом номере - воспроизведение сражения; очерки о полководцах; детальное описание хода битвы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018ABD8065363FA9A902E84E1CA926A5BAAB978E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681183   (133194) от 02.12.2023
 
 John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
@@ -6,7 +90,7 @@ John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133194.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ Night In Gales - Sylphlike (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133195.jpg" />
 </div>
 
 
@@ -60,7 +144,7 @@ magnet:?xt=urn:btih:CACC1E09EFA535B8193737B0D5F32BC4A6BC60BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133196.jpg" />
 </div>
 
 
@@ -84,7 +168,7 @@ magnet:?xt=urn:btih:80F6895B647C2E32A2952833A38400286064AA94
 >>50
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133197.jpg" />
 </div>
 
 
@@ -109,7 +193,7 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133198.jpg" />
 </div>
 
 
@@ -142,7 +226,7 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133199.jpg" />
 </div>
 
 
@@ -166,7 +250,7 @@ magnet:?xt=urn:btih:D7F78B96300FA1381CE6E00916D37001CE292A04
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133200.jpg" />
 </div>
 
 
@@ -190,7 +274,7 @@ magnet:?xt=urn:btih:4D405C8CC59B9D8D7134118D82577B07DAB75D9C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133201.jpg" />
 </div>
 
 
@@ -214,7 +298,7 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133203.jpg" />
 </div>
 
 
@@ -238,7 +322,7 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133204.jpg" />
 </div>
 
 
@@ -265,7 +349,7 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133205.jpg" />
 </div>
 
 
@@ -289,7 +373,7 @@ magnet:?xt=urn:btih:5E99BEA474B2E72172CDD0C6DB0BA3E980CF6AB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133207.jpg" />
 </div>
 
 
@@ -313,7 +397,7 @@ magnet:?xt=urn:btih:65577B0315B76CCB30F4B96A0E1201F0C6EF3D13
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133209.jpg" />
 </div>
 
 
@@ -337,7 +421,7 @@ Final Cut Pro X 10.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133211.jpg" />
 </div>
 
 
@@ -362,7 +446,7 @@ magnet:?xt=urn:btih:9195CE343E39F38871FB68CE356705104092D945
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133213.jpg" />
 </div>
 
 
@@ -386,7 +470,7 @@ magnet:?xt=urn:btih:9195CE343E39F38871FB68CE356705104092D945
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133215.jpg" />
 </div>
 
 
@@ -410,7 +494,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133217.jpg" />
 </div>
 
 
@@ -435,7 +519,7 @@ Connie Evingson - 8 Альбомов (1995 - 2012) [MP3|320 кб/с]<Vocal Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133218.jpg" />
 </div>
 
 
@@ -467,7 +551,7 @@ Connie Evingson - 8 Альбомов (1995 - 2012) [MP3|320 кб/с]<Vocal Jazz>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133219.jpg" />
 </div>
 
 
@@ -491,7 +575,7 @@ magnet:?xt=urn:btih:F667CCE830751D37D86359AEF4EF9DF9D34B9B95
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133220.jpg" />
 </div>
 
 
@@ -515,7 +599,7 @@ magnet:?xt=urn:btih:9CD8DFBCBB103A33BB8C92BB01407727A6E400E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133221.jpg" />
 </div>
 
 
@@ -539,7 +623,7 @@ GoodbyeDPI 0.2.2 Launcher 6.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133223.jpg" />
 </div>
 
 
@@ -566,7 +650,7 @@ magnet:?xt=urn:btih:DFDD8B8F96F3D18BFAE4A6AE104217103DC2E959
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133224.jpg" />
 </div>
 
 
@@ -577,84 +661,6 @@ magnet:?xt=urn:btih:DFDD8B8F96F3D18BFAE4A6AE104217103DC2E959
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FD6E7908F06F0366D0C78697CA84C615E174237
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680941   (133225) от 01.12.2023
-
-Дамир Халилов | AI профессионал (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не «Курс по разглядыванию красивых слайдов в PowerPoint» и уж точно не «Набор эффектных трюков».
-В рамках курса мы строим системный навык на твeрдой основе. Каждый модуль включает в себя:
-✅Теоретические занятия. Изучаем матчасть, промты, лучшие практики, функционал нейросетей.
-✅Воркшопы. Дамир в формате мастер-класса показывает, как применять полученные (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 31:12:49Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223435   (133227) от 01.12.2023
-
-Д.В.Сивухин | Общий курс физики (5 томов) (2002-2005) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс физики в 5 томах, широко известный у нас в стране и за рубежом. Книги написаны на основе лекций, которые в течение ряда лет читались автором студентам Московского физико-технического института. Основное внимание уделено выяснению физического смысла и содержания основных законов и понятий физики, развитию у студентов навыков физического мышления и умения ставить (   Читать дальше...   )Жанр: Научная литература, физикаЯзык: РусскийФормат: DJVUКачество: Обработанный скан с OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE91B56B45FCFDD2B7687129AFE1F82C65EAF8D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408513   (133228) от 27.12.2012
-
-VA - Jazzy Market (2010) [MP3|320 kbps] <Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damcase - Sunset Blvd (Tsiridis Post Accademy Mix) (06:41)
-02. Drehwerk - Mecca Calling (08:55)
-03. Echonomist - The All Together (06:48)
-04. Eddie Zarook - Bang Bang (06:41)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389280BB12E6D844D4BF56EC4F89874A8F62D11A
 ```
 
 

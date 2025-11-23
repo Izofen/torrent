@@ -1,3 +1,75 @@
+###  Публикация: 1754988   (103635) от 13.10.2024
+
+Белый город | Акафистник православной матери (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103635.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике содержится восемь акафистов: пять – Богородице в честь чудотворных икон и три – святым. Надеемся, что они помогут родителям в их молитвенной заботе о детях. Перед Феодоровской иконой молятся о даровании детей. Названия икон Богородицы «Помощница в родах», «Млекопитательница», «Воспитание» «Прибавление ума» говорят сами за себя. Преподобному Сергию, игумену (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9B08B1FA264EB5EC84558F0B33122C8123A946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754979   (103636) от 13.10.2024
+
+Белый город | Акафистник. Исцели и помилуй (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103636.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике содержится восемь акафистов, которые помогут читателю в молитвенной заботе о своем здоровье и здоровье близких. Первые два акафиста посвящены Спасителю и Богородице (перед Ее иконой «Всецарица» молятся об исцелении от раковых заболеваний), шесть других – святым – свт. Нектарию (к нему также обращаются с просьбой об избавлении от рака), вмч. Пантелеимону, (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5BE20831B754EE7C7223756C375DC0033EA3D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754976   (103637) от 13.10.2024
+
+Белый город | Акафистник путешествующим (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103637.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике содержится девять акафистов, которые можно читать во время паломничества и любого путешествия. Первый посвящен Святой Троице, следующие три – Богородице Одигитрии, к помощи и заступничеству Которой мы постоянно прибегаем в своих молитвах, – это акафисты в честь икон Смоленской, Выдропусской и Тихвинской. Два акафиста обращены архангелу Рафаилу и Ангелу (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597ECB215861ADE4D87C29C3BDB93F02D1DD4A47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754902   (103638) от 13.10.2024
 
 Nightmare - Waiting For The Power: The Early Years (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
@@ -6,7 +78,7 @@ Nightmare - Waiting For The Power: The Early Years (2024) 3CD [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103638.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ RDS GP: Шинная борьба (2024) WEBRip [H.264/1080p] (сезон 3, с�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103639.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Keys - The Grand Seduction (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103640.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:F3123869205BF68C3C209244DCF86C4CF19F1F04
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103641.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Gabrielle De Val and The Dragonlords - Tiger (2024) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103642.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ RDS GP: Шинная борьба (2023) HDTV [H.264/1080p] (сезон 2, се�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103643.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:D373EDC265B4F544D9854B23EB0A73E639D9E14C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103644.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ magnet:?xt=urn:btih:953B1E245AC7C9AB9A28C8592BC5ECE1969D676E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103645.jpg" />
 </div>
 
 
@@ -213,7 +285,7 @@ Enchanted Duo - Werifesteria (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103646.jpg" />
 </div>
 
 
@@ -240,7 +312,7 @@ Ignitor - Horns and Hammers (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103647.jpg" />
 </div>
 
 
@@ -267,7 +339,7 @@ VA - Just Rock (Cool Badass Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103648.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:784EAA8CE460FEEB56D9D721D390CCA892D970E3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103649.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ VA - Just Jazz (Luxurious Smooth Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103650.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ VA - Just Rock (Cool Badass Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103651.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ magnet:?xt=urn:btih:264406310B56A3594897EA07DD72448B761A4AA1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103652.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ VA - Dinner Jazz Instrumentals_ The Ultimate Collection, Vol. 1 (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103653.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ VA - Just Jazz (Luxurious Smooth Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103654.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ VA - Funky Jazz Saxophone (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103655.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ VA - Funky Afro Jazz Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103656.jpg" />
 </div>
 
 
@@ -507,7 +579,7 @@ Pat Fulgoni - The Pat Fulgoni Blues Experience (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103657.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ VA - It's A Groovy Thing! Vol.5 (The Amazing Jazz Funk Afro Sound) (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103658.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:A72B2D5A65F74C09948B2EAA0060EEC01E92183D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103659.jpg" />
 </div>
 
 
@@ -585,7 +657,7 @@ VA - Nu Acid Jazz Party For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103660.jpg" />
 </div>
 
 
@@ -599,85 +671,6 @@ VA - Nu Acid Jazz Party For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98F6C5BF6FBD4C4B22ED5F2BB11CB555D12FB5C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754748   (103661) от 12.10.2024
-
-VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alixia Mistral - Run Away Or Face The Day (2:45)
-02. The Smoke Orchestra - Henrietta Leavitt and the cepheids variables (3:23)
-03. Anna Fondi - Nothing Better Than You (4:49)
-04. Giulio Campagnolo & The Jazz Funkers - Groove Giallo (5:17)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AABBD1CD7FD34A1933F67BCE0AEF1F4E5D43A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754823   (103662) от 12.10.2024
-
-Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus 1 [2:50]
-02. East of the Sun [3:23]
-03. Bakerloo Non-Stop [2:48]
-04. Donegal Cradle Song [2:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44652EC3936A741ADBA5D1B9CACB9C52FECD3179
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754791   (103663) от 12.10.2024
-
-Хоккей. НХЛ 2024-2025. Питтсбург Пингвинз - Детройт Ред Уингз (10.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103663.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 октября 2024, пятница. 03:00 МСК. Стадион: Литтл Сизарс-арена (Детройт, США), 17 916 зрителей (92% при вместимости 19 515)
-Главный судья: Крис Руни (Бостон, США); Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Томми Хьюз (Лондон, Канада)Телекомпания: SN-PITЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE813C7C2D7C74CA500B1E911FA00C2260641BA
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85303.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85309.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85314.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85318.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ OSGeo-Live 5.5 (Дистрибутив для географов, картогр
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85331.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:6CC5623FE115F3DA427C4DF4A50F81B802360ACE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85332.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6CC5623FE115F3DA427C4DF4A50F81B802360ACE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85355.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Organic Loops - Acoustic Blues Guitar (WAV,REX2,SAMPLER PATCHES)[английс�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85359.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ SAMPLER PATCHES(EXS24,HALION,KONTAKT,NNXT,SFZ)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85360.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D1B7C6202645D32319E82C24048C8C37A7DFE7B8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85365.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5 + NI-VISA 5.1.2 + Device Drivers 2012.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85375.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5 + NI-VISA 5.1.2 + Device Drivers 2012.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85376.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Vertigo Sound - VSC-2 v1.1.1 x86.x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85392.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VSC-2 - это первая программная эмуляция компре
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85398.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VSC-2 - это первая программная эмуляция компре
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85400.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VSC-2 - это первая программная эмуляция компре
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85403.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:2F2E546BC8637C7FA7F64F1B034A4E45167F69D8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85406.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Celemony - Melodyne Editor v.2.0.1.11 x86.x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85424.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Celemony - Melodyne Editor v.2.0.1.11 x86.x64 by ASSiGN [английский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85430.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Celemony - Melodyne Editor v.2.0.1.11 x86.x64 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85451.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ MS Office 2007 PreSP4 2012.03 - пакет обновлений для MS Office
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85462.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F83D309AB4A965C38252446810C1C9E838E90C68
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85469.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Orbital - Wonky (2012) [MP3|256 кб/с]<Techno, Big-Beat>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85472.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Frugalware Linux 1.6 [x86_64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85478.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:57A5D7880FFAA75E4881FF51111B1C4F04F3A3A3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85485.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:57A5D7880FFAA75E4881FF51111B1C4F04F3A3A3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85487.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hands Like Houses - Ground Dweller (2012) [MP3|~245 кб/с (V0)]<Post-Hardcore,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96445.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Dengue Fever - Cannibal Courtshop (2010) [MP3|320 кб/с]<Rock, Surf,  Rock Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96450.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Beyond The Bridge - The Old Man And The Spirit (2012) [FLAC|Lossless]<Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96483.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ I See Stars - Digital Renegade (2012) [MP3|320 кб/с]<Post-Hardcore, Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96488.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Diabulus In Musica - Secrets (2010) [APE|Lossless]<Gothic Metal,Power Metal,Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96558.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96558.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Exodus - Exhibit B: The Human Condition (2010) Japanese Edition /2011/ [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96745.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96745.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Mastercastle - Dangerous Diamonds (2011) [WavPack|Lossless]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96773.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96773.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Scarlet Haze - One Bad Bitch (2012) [MP3|~245 кб/с (V0)]<Gothic Metal,Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96911.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mortad - The Myth Of Purity (2012) [MP3|320 кб/с]<Melodic Death Metal / Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96945.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ H.e.a.t. - Address The Nation (2012) [MP3|320 кб/с]<AOR , Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96980.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - X 2010 Christian Rock Hits (2010) [MP3|258-310 кб/с]<Christian Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97008.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Opera Diabolicus - 1614 (2012) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97009.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Unheilig - Lichter der Stadt (Limited Deluxe Edition) (2012) [MP3|~245 кб/с (
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97018.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Children Of Nova - Impossible Landscape (2012) [FLAC|Lossless]<Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97023.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97023.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97115.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97240.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97240.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97247.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Cynic - The Portal Tapes (Compilation) (2012) [MP3|320 кб/с]<Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97372.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Cynic - The Portal Tapes (2012) [FLAC|Lossless]<Progressive Metal / Experimental
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97390.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97390.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Crossover - Pythagorized (2011) [MP3|320 кб/с]<Industrial/Sympho Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97423.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Sleipnir - Bloodbrothers (2010) [MP3|320 кб/с]<Epic Viking Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97425.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Dünedain (Dunedain) - Magica (2012) [FLAC|Lossless]<Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97426.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97426.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97435.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ Lullacry - Where Angels Fear (2012) [FLAC|Lossless]<Gothic Metal, Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97535.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97535.jpg" />
 </div>
 
 
@@ -795,7 +795,7 @@ At The Ruins - Death Earth Empire (2012) [MP3|320 кб/с]<Post-Hardcore / Elect
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97711.jpg" />
 </div>
 
 
@@ -825,7 +825,7 @@ Vespera - Desert Of The Real (2011) [MP3|320 кб/с]<Gothic / Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97724.jpg" />
 </div>
 
 

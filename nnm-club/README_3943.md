@@ -1,3 +1,76 @@
+###  Публикация: 1692817   (122200) от 18.01.2024
+
+Ноты любви (2017) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арина работает официанткой в ресторане, воспитывает чудесного сына Никиту и ухаживает за больной мамой. 12 лет назад она осталась одна с ребёнком на руках, и с тех пор не верит мужчинам и полагается только на себя. В её сердце по-прежнему живет мечта стать певицей, но она давно отказалась от своих амбиций ради заботы о близких. Вадим - успешный музыкальный продюсер. (   Читать дальше...   )Производство: Украина, Россия, Star MediaЖанр: мелодрамаРежиссер: Виктория МельниковаАктеры: Дарья Егоркина, Артемий Егоров, Яна Ковалева, Георгий Лещенко, Екатерина Гулякова, Светлана Зельбет, Анна Абраменок, Инна Мирошниченко, Артем Мяус, Наталья Калатай и др.Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2916FDEA7B91459C46BAB7AC586D0B457745E12D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692784   (122201) от 18.01.2024
+
+WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс "Протоколы WebRTC высшего уровня" предназначен для более глубокого изучения работы WebRTC. В некотором роде это продолжение нашего курса "Протоколы WebRTC низкого уровня" и рассчитан на то, чтобы пройти его после. Здесь мы погрузимся в протоколы, используемые поверх RTP и RTCP, которые служат для управления и организации доставки медиаконтента (   Читать дальше...   )Производство: WebRTCcourseЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 05:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7354DEC1F08F6BA4C2C9B9758E2A594676ED02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692756   (122202) от 18.01.2024
+
+FontLab 8.3.0.8766 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122202.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontLab 8 — это интегрированный редактор шрифтов для Mac и Windows, который помогает создавать шрифты от начала до конца, от простого дизайна до сложного проекта, и привносит искру волшебства в шрифтовой дизайн.
+С FontLab 8 вы можете создавать и редактировать шрифты OpenType, вариативные шрифты, цветные шрифты и веб-шрифты — для любой системы письма Unicode, от латиницы, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6896C8C61FDE506A1267E1B37170BF1745BBBA05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687017   (122203) от 18.01.2024
 
 Пламя островов / Flame of the Islands (1955) WEB-DLRip [H.264] [VO]
@@ -6,7 +79,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122203.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:A056F42C93776196C257B375B809D63B72360A60
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122204.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:953441E958F0166148D7F8BD2E42CF77C364D195
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122205.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Microsoft Windows 11 [10.0.22621.3007], Version 22H2 (Updated January 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122206.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:A293E601C25000A1EA6712622732A92A24C64AA3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122207.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ magnet:?xt=urn:btih:2A3637DADBBFE74F676BE17379A9E13AB68A3205
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122208.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ VA - Heart Beats (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122209.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ WiFi Explorer 3 Pro 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122210.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ VA - Just Dance 2023 / 2024 (The EDM Charts Playlist Compilation) (2024) [MP3|32
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122211.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ CPU-Z 2.09.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122212.jpg" />
 </div>
 
 
@@ -254,7 +327,7 @@ magnet:?xt=urn:btih:FACA61CD92F287E456D2AFCE3875A6F7969E6B3A
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122213.jpg" />
 </div>
 
 
@@ -278,7 +351,7 @@ magnet:?xt=urn:btih:8574C9DC0216744AA69847376E9C5A8360089D00
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122214.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ magnet:?xt=urn:btih:1AB292055185128D6D614F6AD04B60B445967E40
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122215.jpg" />
 </div>
 
 
@@ -328,7 +401,7 @@ RS Explorer / RS Проводник 2.0.9 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122216.jpg" />
 </div>
 
 
@@ -352,7 +425,7 @@ magnet:?xt=urn:btih:9628F8B948B4B07C4174D7D0C0B47250EE09AE3C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122217.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ magnet:?xt=urn:btih:67D67CD1C48D0FB99D8094CB96240F3E0052DA0E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122218.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ magnet:?xt=urn:btih:EBD80DA54D6D82C3FE5ADCE5831EF1DAE15F5ED4
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122219.jpg" />
 </div>
 
 
@@ -426,7 +499,7 @@ StemRoller 2.0.3 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122220.jpg" />
 </div>
 
 
@@ -451,7 +524,7 @@ magnet:?xt=urn:btih:013F58D6358B43D4D19A90DCAEBC5CE6AF533997
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122221.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ magnet:?xt=urn:btih:B04B3CBB85F1D03B0339D5B83EC9AEFBA025463C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122222.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122222.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ Microsoft .Net Packages AIO 09.01.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122223.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ magnet:?xt=urn:btih:668E40F506039F0F59E755131CE505046022957B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122224.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ Green Day - Saviors (2024) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122225.jpg" />
 </div>
 
 
@@ -561,78 +634,6 @@ Green Day - Saviors (2024) [MP3|320 Kbps] <Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3632A8C341F8F109AC08AA995EB0F1C9A14544E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691855   (122226) от 18.01.2024
-
-Владимир Леонченко | Электронный словарь Санскрита Saudāmanī v5.0 Beta Free (2023) [EXE]
-
->>Мультимедийные материалы
->>Иностранные языки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот уже пять лет как я работаю над электронным словарем Санскрита. Конечно, программа, написанная мной не является чем-то особенным - она одна из многих, хотя, конечно же, я старался добавить в нее нечто особенное. И вот, пятая версия. Как раз по версии за год. Буду рад, если кому-то она окажется полезной в учебе, работе или в собственных исследованиях.Жанр: Санскрит,  Словари электронные.Язык: РусскийФормат: EXE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD75D19401136D35378D9F0121A109875ACC95E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692844   (122227) от 18.01.2024
-
-NVIDIA GeForce Desktop Game Ready 546.65 WHQL + DCH [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122227.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB7EACED68D4E3593D163AEBE132C140253B526
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692716   (122228) от 18.01.2024
-
-Старые знакомые (1956) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деревянные игрушки-футболисты, снискавшие печальную славу своей грубой игрой, решают вновь померяться силами с командой СМИ (секция мягких игрушек). Лишённые за плохую игру права выступать на футбольном поле, деревянные игрушки перекрашиваются в другие цвета и под видом новой команды ватерполистов принимают участие в матче с командой ватерполистов СМИ...Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, детский, короткометражныйРежиссер: Мстислав Пащенко, Борис ДёжкинАктеры: Виктория Иванова, Юрий Хржановский, Юлия Юльская, Борис АндреевСубтитры: нетПродолжительность: 00:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7ACAB37025EF15EB1C3A83226A5BD5ED01DD4D
 ```
 
 

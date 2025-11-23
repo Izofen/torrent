@@ -1,3 +1,84 @@
+###  Публикация: 1746236   (104910) от 30.08.2024
+
+Sonny Gullage - Go Be Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Kiss Me, Baby (3:17)
+02. Go Be Free (4:15)
+03. Things I Can't Control (3:17)
+04. Separate Ways (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9005221B9B739410BDCC15CCFDD7F12918849D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746243   (104911) от 30.08.2024
+
+The Gerry Hundt Trio - GET HIP! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beer Run (2:49)
+02. Our Love Will Last (3:25)
+03. Blame It on the Blues (3:37)
+04. Coconut Curry Dance (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E3E2C82D123F74FB93DCDB201985CFC4D50917
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745878   (104912) от 30.08.2024
+
+Joji - Nectar (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop, Neo-Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ew [00:03:27]
+02. MODUS [00:03:27]
+03. Tick Tock [00:02:12]
+04. Daylight [00:02:43](   Читать дальше...   )Жанр: R'n'B, Hip-Hop, Neo-SoulПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74828FD701D4A05A428284431B0B0F6762FA946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746338   (104913) от 30.08.2024
 
 Super Sabre - Steel Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -6,7 +87,7 @@ Super Sabre - Steel Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104913.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ SWORN (2025) [Ru/Multi] (1.0.1.0.1018/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104914.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ Lamb of God - Ashes of the Wake (2004) 20th Anniversary Edition, 2024, Epic - Le
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104915.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104916.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ Blues Indelebile Band - Live in Studio (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104917.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ magnet:?xt=urn:btih:5DA6F12E08FB32303138AB24E20CC98035208250
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104918.jpg" />
 </div>
 
 
@@ -159,7 +240,7 @@ SouthSide Tone Kings - Roll All Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104919.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ Black Wings - Whispers of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104920.jpg" />
 </div>
 
 
@@ -213,7 +294,7 @@ magnet:?xt=urn:btih:EEA08F2FD630C56431E6D22BDD28ED431C55FE39
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104921.jpg" />
 </div>
 
 
@@ -237,7 +318,7 @@ Lazarus A.D. - Studio Albums (2 releases) (2009-2011) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104922.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ magnet:?xt=urn:btih:3C87E41B20A110DB4B29C14D6EFEC95C434D9EE1
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104923.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ magnet:?xt=urn:btih:65AD427E083EE5E472DCF7E2E9B1A76FC3F29C42
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104924.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ magnet:?xt=urn:btih:792783A8C0ED4914B3B06A6DA21411BEEB15040C
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104925.jpg" />
 </div>
 
 
@@ -335,7 +416,7 @@ Endrick & the Sandwiches - Straight Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104926.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ magnet:?xt=urn:btih:AAFD213A75C1CE1FF2FD8111D61BDD2C6FD77338
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104927.jpg" />
 </div>
 
 
@@ -386,7 +467,7 @@ Gordo - Diamante (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104928.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ Stan Getz - Scandinavian Days (1959) 1991, Fresh Sound [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104929.jpg" />
 </div>
 
 
@@ -440,7 +521,7 @@ Rezet - Rezet (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104930.jpg" />
 </div>
 
 
@@ -467,7 +548,7 @@ Sunza Chief - Follow Me To Coolangatta (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104931.jpg" />
 </div>
 
 
@@ -494,7 +575,7 @@ Tab Benoit - I Hear Thunder (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104932.jpg" />
 </div>
 
 
@@ -521,7 +602,7 @@ magnet:?xt=urn:btih:D8A386ED4549D3127EF0FCD7447AC61592BC27BE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104933.jpg" />
 </div>
 
 
@@ -545,7 +626,7 @@ magnet:?xt=urn:btih:1272C10EDD3EEFE1698C3A817EFDFFCA1C6D5326
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104934.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ magnet:?xt=urn:btih:B707528BF3018A12236E08C6511632197EDF8817
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104935.jpg" />
 </div>
 
 
@@ -583,87 +664,6 @@ magnet:?xt=urn:btih:B707528BF3018A12236E08C6511632197EDF8817
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68EF3A64E2F54CE593C72A5AEE0E0E29D512DEF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746321   (104936) от 30.08.2024
-
-Drakkar - Spread Your Wings (2024) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thunderhead (04:21)
- 02 - Spread Your Wings (04:44)
- 03 - Knife in the Dark (05:19)
- 04 - Ode to Polaris (04:18)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E0EFD3F38C9DA5230621F1B01FE26D44D73871
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746327   (104937) от 30.08.2024
-
-Mura Masa - Curve 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <electronic, future bass, house>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whenever I Want [00:04:29]
-02. gimme [00:06:38]
-03. We Are Making Out [00:02:50]
-04. SXC [00:03:58](   Читать дальше...   )Жанр: electronic, future bass, houseПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3FBFA14B369406F74A0B568D04170C821B1BE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746245   (104938) от 30.08.2024
-
-Vasti Jackson - Royal American Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo Boogie (3:09)
-02. My Sunshine My Rain (3:51)
-03. Hard Man (3:47)
-04. Online Love Affair (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63F26FA98C3E0105DD84B99C3D5D8E8BDDD9795
 ```
 
 

@@ -6,7 +6,7 @@ Das Geheimnis des Korsaren (L) [Ge] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85062.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shiver 2: Poltergeist Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85086.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85104.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Flux Family Secrets: The Ripple Effect / Секреты семьи Флакс. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85119.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hidden Mysteries: Royal Family Secrets (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85272.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tropico 4: Modern Times [Ru/En] (RePack/1.5) 2012 l z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85425.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85433.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [En] (P) 2011
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85568.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Criminal Minds / Мыслить как преступник (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85594.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86042.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ School house Shuffle (P) [En] 2008
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86102.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Sters (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86130.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Party Planner (P) [En] 2009
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86298.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Lone Survivor [En] (L) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86446.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86450.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Shannon Tweeds: Attack of the Groupies (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86532.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Legends of Atlantis: Exodus (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86596.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Warp [Ru] (RePack) 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86605.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86621.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86649.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86650.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Gobs of Fobs (P) [En] 2006
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86748.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Twisted Lands: Insomniac. Collector's Edition / Гиблые земли. Бес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86815.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Manhunt Дилогия (P) [Ru] 2004-2009
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86869.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86871.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86874.jpg" />
 </div>
 
 

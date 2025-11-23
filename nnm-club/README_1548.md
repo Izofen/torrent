@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40602.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40603.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8C330CD7E9DE26958D9B83AF6E9179E3DE9E5412
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40604.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:59E9E8E8C4CB99F91F3B386DBDDB9618F8D7C449
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40605.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:57599BFC3DCDE652D7E5F69DF99AD312E4DDEC2D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40606.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40607.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40608.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:59C19EBB8CA50C56B09EECD4EBC4EA6ED13F8ACA
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40609.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:2723A89D13C5AB42594862EF446AD39F08CC80C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40610.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:8EC1892639B2482118EE4FF60DD7701FEC0BEDFB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40611.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:2FF8C0E442E45C0B44E51EE86FDEC991988FD0B7
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40612.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EBF81159B90C5CD193C78A9D7C709661247EC748
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40613.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:08C5C468F324FCB242682ABA16BA47BCF01ED848
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40614.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ MiHome v9.8.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40615.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:D5F66F57F76194DBA72CAB73E4CBFA4548980D88
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40616.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:632684A19ADAD968017D8A653F0A1CB385D0D23F
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40617.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:4513636E991122D6B5ECCA76899CB6BC0B7D7873
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40618.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Marmoset Toolbag 5.00 (5007) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40619.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Olivia Newton-John - Physical (1981) Deluxe Edition, Remastered, 2021, Primary W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40620.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:05E1D895F4E7CA4EC7965721FD7C6C111A3378A6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40621.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:291849F89C40FF64E01943F5EDE3330F5708C8FE
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40622.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:291849F89C40FF64E01943F5EDE3330F5708C8FE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40623.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:47A778F9C81765F6797DC06F1F023F78A449E123
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40624.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:8DD3C035F41E4C20CF6058DE3B47866848E5C903
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40625.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:CA6FC38E9091A415B25BD8AED9351928A562F3DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40626.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Boku no Hero Academia Season 7 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40627.jpg" />
 </div>
 
 

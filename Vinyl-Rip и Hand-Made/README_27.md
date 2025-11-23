@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105577.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Textures - Studio Albums (5 releases) (2003-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105586.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Frozen Land - Studio Albums (2 releases) (2018-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105611.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105666.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105892.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105924.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105956.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Abyssphere - Studio Albums (5 releases) (2008-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106014.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Mammoth WVH - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106016.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпу�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106028.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Остров Сокровищ или В стиле Шансон часть 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106046.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ KK's Priest - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106077.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106160.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106315.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106330.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106397.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106419.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Santana - Santana's Greatest Hits (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106438.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Shokran - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106510.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106536.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Bay City Rollers - 2 Albums (1974, 1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106594.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ John Hiatt - Stolen Moments (1990) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106701.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106821.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:2DFC1969522EA9D7873EAFFDF3B52E02FE58BAA1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106911.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106951.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106952.jpg" />
 </div>
 
 

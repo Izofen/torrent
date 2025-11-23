@@ -1,3 +1,76 @@
+###  Публикация: 1435028   (148057) от 26.12.2020
+
+Mirillis Action! 4.14.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
+Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03EB3785A67E968D94F43730B0022862A391500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589859   (148066) от 15.12.2012
+
+Ведение договоров 5.0 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для учета и ведения договоров в организациях. Предоставляет возможности для ведения договоров любого количества фирм (с филиалами), имеет настройки правила формирования номера договора, оповещения по незакрытым договорам с истекающим сроком действия и т.д. Программа поддерживает сетевой режим работы.Название программы: Ведение договоровЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434881   (148067) от 26.12.2020
+
+Eon music player v5.3.8 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eon music player - это музыкальный проигрыватель для мобильного устройства. Простой в управлении и легконастраиваемый под любого пользователя. Имеет весь необходимый набор функций.Тип издания: Пиратка (Куплена)Релиз состоялся: 17 ноября 2020 г.Разработчик: qmsapplicationsПоддерживаемая ОС: Android 4.3 и вышеЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F30582F0403BB5C6A3067AA6CE1A6CA45BF7929
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087031   (148096) от 26.12.2016
 
 Давай будем плохими / Let's Be Evil  (2016) BDRip [H.264/720p] [EN]
@@ -6,7 +79,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148096.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Arturia Analog Lab V v5.0.0.1212 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148107.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ AOMEI Partition Assistant Standard Edition 9.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148129.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ AIMP 4.12 Build 1878 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148130.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:BD71BF724137E591E8E4D8DE309C452F3F650656
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148141.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Re-Loader Activator 2.0 RC 6  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148151.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ Adobe Dreamweaver CC 2019 19.0.0.11193 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148155.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Defender Tools 1.15 b08 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148172.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ MacX Video Converter Pro 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148185.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ reaConverter Pro 7.615 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148186.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ Mirror for LG TV 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148188.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ magnet:?xt=urn:btih:D6850699E6149683778382C53C8562B190AB0BDB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148191.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ PDF-XChange Editor Plus 8.0.335.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148203.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ Ritmo - Adventures (2016) [FLAC|Lossless|tracks + .cue] <Psy-Trance, Progressive
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148212.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ WinTools.net Premium 20.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148216.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ AIMP 5.01 Build 2357 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148217.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ USDownloader 1.3.5.9 Portable (26.12.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148227.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ AOMEI Backupper Technician Plus 5.5.0 DC 24.12.2019 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148228.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ FCPX Full Access - Ultimate Bundle 2021 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148238.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ VA - Healing Lights Vol.4 (Compiled by DJane Gaby)(2016) [FLAC|Lossless|tracks +
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148239.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ magnet:?xt=urn:btih:903AAC81D6A3E80DFAB9660A49304AF52E2645C8
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148256.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ Topaz DeNoise AI 3.4.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148281.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ Wondershare Filmora 9.0.3.3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148300.jpg" />
 </div>
 
 
@@ -556,79 +629,6 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAC6A0EA17AE4138550825F1C0A09118815D6C87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435008   (148309) от 26.12.2020
-
-MiniTube 3.6.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minitube - приложение для рабочего стола от Youtube, с помощью которого вы можете смотреть ролики с сайта Youtube, не используя браузер и без использования Flash Player, вместо которого используется QuickTime. Приложение не является клоном оригинального Web-интерфейса, а является самостоятельным приложением, с возможностью поиска и автоматическим промотром найденного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2020Разработчик: Flavio TordiniПоддерживаемая ОС: OS X 10.13 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4977E7112430A9ADE7782649C2F0E858F57E67CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519337   (148310) от 24.12.2021
-
-4K Video Downloader 4.19.2.4690 RePack (& Portable) elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148310.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
-Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFED7804B84FE4D769F1D3EE68D5F315652AFD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347725   (148314) от 24.12.2019
-
-Movavi Slideshow Maker 6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите титры и эффекты (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7DCDD2F78305EB27B04EF7853283A91B131177
 ```
 
 

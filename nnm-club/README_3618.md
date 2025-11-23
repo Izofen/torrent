@@ -1,3 +1,81 @@
+###  Публикация: 1705953   (113750) от 10.03.2024
+
+Ландыши - Командировочные (Акустика) (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113750.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. К бабам! (Акустика)
+2. Дачная (Акустика)
+3. За Павликом (Акустика)
+4. А в саду у меня тихо... (Акустика)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EB90BAE06389E543078CA6A23F8E8184B5A9B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705846   (113751) от 10.03.2024
+
+Имитация жизни / Imitation of Life (1959) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм на основе одноимённого романа Фанни Хёрст (1933)... Провинциальная актриса Лора Мередит, овдовев, отправляется покорять Бродвей. На пляже пути Лоры и её 6-летней дочери Сьюзи пересекаются с афроамериканкой Энни и её светлокожей дочерью Сарой-Джейн. Несмотря на собственное бедственное положение, Лора разрешает Энни поселиться в снимаемой ею квартирке, чтобы (   Читать дальше...   )Производство: США / Universal International PicturesЖанр: драмаРежиссер: Дуглас СиркАктеры: Лана Тёрнер, Джон Гэвин, Сандра Ди, Роберт Алда, Сьюзэн Кохнер, Дэн О`Херлихи, Хуанита Мур, Карин Дикер, Терри Бернэм, Ли Гудман, Энн Робинсон, Трой Донахью, Сандра Гулд, Джек Уэстон, Билли ХаусПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC91ADF0E8EFFCB54D80F242406906808222794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705829   (113752) от 10.03.2024
+
+Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossless|tracks] <Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Barcelona (F.Mercury – Moran) 5.38
+02. La Japonaise (F.Mercury – Moran) 4.49
+03. The fallen priest (F.Mercury – Moran – Rice) 5.45(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705915   (113753) от 10.03.2024
 
 Даниил Мордовцев | Великий раскол (2015) [MP3, Наталия Литвинова]
@@ -6,7 +84,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113753.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:D6F5D63971C0469260B9EEEAC177288CB0047EE3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113754.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:5153A135BEDCE23ABA17CA1FC06930A9C7B55BAE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113755.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ magnet:?xt=urn:btih:B1A0D3490E3E19C542F53FD373BE4D5E4E75201B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113756.jpg" />
 </div>
 
 
@@ -107,7 +185,7 @@ magnet:?xt=urn:btih:E164D288E68BE88036ED1064066F2E6CFB6B29A0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113757.jpg" />
 </div>
 
 
@@ -131,7 +209,7 @@ Jack Jezzro & Star City Symphony - Guitar at the Symphony (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113758.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113759.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113760.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113761.jpg" />
 </div>
 
 
@@ -239,7 +317,7 @@ Nils Hoffmann - Running In A Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtem
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113762.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ magnet:?xt=urn:btih:AB313DA556980B35B741FE9DBB1AE3DBE7CD3E38
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113763.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Ninja Sex Party - These Nuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113764.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113765.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113766.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113767.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113768.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113769.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113770.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113771.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113772.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113773.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113774.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113775.jpg" />
 </div>
 
 
@@ -604,87 +682,6 @@ Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EA3DA7A573FC24C079686F48D997CBB918F19EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705575   (113776) от 09.03.2024
-
-Madder Mortem - Deadlands (2002) Reissue, 2009, Peaceville [APE|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter
-02. Necropol Lit
-03. Omnivore
-04. Rust Cleansing(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0D954532F6166C73E9FB5178BD151B3CC2CEDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705558   (113777) от 09.03.2024
-
-Cedar Walton - Firm Roots (1972 - 1990) 2СD, 1999, Camden [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firm Roots [7:28]
-02. Shoulders [7:18]
-03. Young and Foolish [6:01]
-04. Meaning of the Blues [9:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 02:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971E141F06B31655FF924C99522AC0E4E588B915
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705525   (113778) от 09.03.2024
-
-Madder Mortem - All Flesh Is Grass (2001) [APE|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaker Of Words
-02. To Kill and Kill Again
-03. The Cluster Children
-04. Ruby Red(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3562C81294D39B23229521C1A82C87F7A83425
 ```
 
 

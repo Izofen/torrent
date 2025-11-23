@@ -6,7 +6,7 @@ Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153867.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Eric Clapton - Unplugged (1992) Reissue, Remastered, 2022, Mobile Fidelity Sound
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153959.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Pink Cream 69 - 18 альбомов Discography 20 CD (1989-2017) [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153992.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Thyrfing - Vanagandr (2021) [FLAC|Lossless|image + .cue] <Viking Metal, Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154019.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:7D30174B525181967AE8ECD15A838C779A3C491E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154023.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154056.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Badhoven - 4 альбома Discography (2001-2019) [MP3|320 Kbps] <Melodic Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154062.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Heartland - 13 альбомов Discography 14CD (1991-2011) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154072.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Lost Circus - Lost Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154135.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Skarlett Riot - Regenerate (2017) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154155.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Casablanca - 3 альбома Discography (2012-2015) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154199.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Emerald Rain - альбомов Discography (1997-2005) [MP3|320 Kbps] <Melodic 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154215.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Badhoven - 3 альбома Discography (2001-2013) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154224.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Gotthard - Firebirth (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154243.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The First Assembly - The Prolet Kult (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154245.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Degreed - 4 альбома Discography (2010-2017) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154253.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Mayhem - Wolf's Lair Abyss (1997) Reissue, 2019, Soulseller Records [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154260.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Autumn's Grief - Dead by the Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154271.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:C2ED7494842A2C47B69AFEAB640B09E653548764
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154274.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ THAL (The Heathens Are Loose) - Swarm the Mandala (2022) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154278.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Carved - Ares (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154284.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Borealis - Illusions (Orchestra Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154288.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ocean of Grief - 3 Albums, 2 Singles (2016-2022) [MP3|320 Kbps] <Doom, Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154300.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Emerald Rain - 6 альбомов Discography (1997-2005) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154319.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Skarlett Riot - Sentience (2016) EP [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154325.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Blackened Corvus - Until We Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154339.jpg" />
 </div>
 
 

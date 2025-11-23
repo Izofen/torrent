@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25333.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3449DD1260FA332F6AC0F83178F9C988B5EFF686
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25334.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3449DD1260FA332F6AC0F83178F9C988B5EFF686
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25335.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25335.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3155EA673729F88CDE20592B9A933B3B6A9B7851
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25336.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25336.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FA8C18F189FABF942B60F3672A62A918BCB1CEAC
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25337.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25338.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25338.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9885A626F7AF605FB0F3B48B0DB40E0BE7A0113D
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25339.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25339.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Devilated (2021) [Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25340.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A050732D6094D4D2E41A30ED9441261BE6C6FA84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25341.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:4075C4D65CFCC7918173BF32F02CC712DBAF2E75
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25342.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25342.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:AB3CADC560B4081A6BB1F5A85AC340479F6CC04F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25343.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:BABE632101573810E803E492CD4D291D2C12C9D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25344.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Screenshot touch v2.4.5 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25345.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Memory Lost (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25346.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25346.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:C44BF35616DB97995FE535533CCD85C3BE6436C4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25347.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25347.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:EBEA6E8AB12B0B337B3B0F0DC83EF019A106418D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25348.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25348.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:ABF7CEBCC8A765646979217A4C04C518EB501E70
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25349.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25349.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:C07903DD8D70F117F2AC216C536577E72AAD82BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25350.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25350.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Notepad++ 8.7.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25351.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25351.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:90B1A06D2A94536B7E405B14AEC0F6CA6022C2BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25352.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25352.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:D090E17D75862090C7A02E6B93EB0C9F96457F5D
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25353.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25353.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Domestika, Jonas Pfeiffer | Abstract Portrait Animation with Cinema 4D (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25354.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:853E93F87CA7C34AF166D3CB28880AB0F864ED32
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25355.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25355.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:32673CE1B0079017FAB536FF45583954DF560B30
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25356.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25356.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:AF02ADDCFD7B037DDCBB21732F445D2D1DD1ED52
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25357.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25357.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:20E6AC6C4DA9F2B12425440F9149B6C37EAE3CC3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25358.jpg" />
 </div>
 
 

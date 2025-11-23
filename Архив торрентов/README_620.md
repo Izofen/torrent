@@ -6,7 +6,7 @@ Remote Desktop Manager Enterprise 8.0.11.0 Final [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133057.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Remote Desktop Manager Enterprise – это приложение для кон�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133059.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Remote Desktop Manager Enterprise – это приложение для кон�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133063.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Emurasoft EmEditor Professional 23.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133064.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ PhotoRoom v4.7.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133075.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C0055F78825E5DCC4B8E9BE2C0E3D229116BDC96
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133086.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VLC Media Player 2.1.0-git-20121227-0003 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133088.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Winsent Messenger 2.3.25 + Portable [English/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133111.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ WinSent Messenger имеет простой но удобный интерфей
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133159.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:EFD42F5A338A7180E795E81A202297ABDDA19BB3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133170.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:CD8ACCE950488A1C74DC6EBC10089A0DBF7C4541
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133172.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ RonyaSoft Poster Designer 2.01.42.02 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133178.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ DropDMG 3.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133186.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Alex Ultrawox - YearMix 2012 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133188.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Morbid Silence - Дискография (10 релизов) (2010-2012) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133192.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:74C64AAB36F5D65E208DABE529648DE16108DCF8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133196.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:80F6895B647C2E32A2952833A38400286064AA94
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133200.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4D405C8CC59B9D8D7134118D82577B07DAB75D9C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133220.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.021s/dlc) Repack Other
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133231.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133235.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adobe Photoshop 2024 25.2.0.196 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133236.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ SUMo 3.4.15.190 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133245.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Axxis - 2CD (2006-2007) [WavPack|Lossless]<Power / Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133261.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Axxis - 2CD (2006-2007) [WavPack|Lossless]<Power / Heavy Metal>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133273.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:860141B9BCF8A75B8D1BF3DF18BD66199DB926C9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133282.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:16ECE8F93D6D6A9F0080B99D413F7E9E6239C971
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133289.jpg" />
 </div>
 
 

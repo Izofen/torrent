@@ -1,3 +1,176 @@
+###  Публикация: 1676913   (149833) от 18.11.2023
+
+Два, три, демон, приди! / Поговори со мной / Talk to Me (2022) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа подростков решает развлечься и во время вечеринки устраивает спиритический сеанс. Миа пытается установить контакт со сверхъестественной силой, преследующей её после смерти матери, но общение с духом оборачивается для всех участников сеанса настоящим кошмаром.Производство: Австралия, Великобритания / Causeway Films, Head Gear Films, Metrol TechnologyЖанр: ужасыРежиссер: Дэнни Филиппу, Майкл ФилиппуАктеры: Софи Уайлд, Александра Дженсен, Джо Бёрд, Миранда Отто, Отис Дханджи, Зои Теракс, Крис Алозио, Александрия Стеффенсон, Маркус Джонсон, Санни ДжонсонПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (full 18+)Продолжительность: 01:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1BEECCFCAE50886EE10E9B31EFF5426F2A5179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968867   (149835) от 25.12.2015
+
+Стив Джобс / Steve Jobs (2015) DVDScr
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149835.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни одного из самых выдающихся умов планеты, основателя компании Apple, Стива Джобса.Производство: США, Universal PicturesЖанр: Биография, ДрамаРежиссер: Дэнни БойлАктеры: Майкл Фассбендер, Сет Роген, Джефф Дэниелс, Кейт Уинслет, Майкл Стулбарг, Кэтрин Уотерстон, Перла Аней-Жардине, Рипли Собо, Макензи МоссПеревод: Любительский двухголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 02:02:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519329   (149836) от 23.12.2021
+
+Panorama 2.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Panorama - это профессиональный «сшиватель» изображений высокого качества для iOS и Mac. Panorama усовершенствовала технику сопоставления изображений, называемую гомографией, основное преимущество которой перед другими приложениями этого типа заключается в том, что она не деформирует горизонтальные края панорамы, что делает ее идеальной для фотографирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2020 Limit Point LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2095EA710A44CC1ABF87B58757293EA4C6627C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271564   (149837) от 23.12.2018
+
+WizFile 2.06 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149837.jpg" />
+</div>
+
+
+###  Подробнее
+
+WizFile простая в использовании программа для поиска файлов, которая также пригодится, чтобы выяснить, какие файлы и папки занимают больше всего места на диске, и навести порядок на жестком диске. Установка программы занимает считанные секунды. Плюс доступна портативная версия, которую не нужно устанавливать и можно использовать с внешнего носителя на разных компьютерах.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78F39108CE9DA626880C7EDC933307DE9E31125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677639   (149840) от 18.11.2023
+
+Straya (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шутер, действие которого происходит в Австралии, где все хочет тебя убить. Straya - это шутер от первого лица, действие которого происходит в Австралии примерно в конце 1960-х годов. Сосредоточившись на выживании среди множества опасных животных, населяющих землю, воздух и воду, игрок может выполнять работу, охотиться, собирать предметы и свободно перемещаться по (   Читать дальше...   )Тип издания: SceneРазработчик: AyrtechЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA0051378FF5B3516AFE1A7FA09A9CCF83D0264
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271522   (149841) от 23.12.2018
+
+Velvet - 2 Альбома (2006, 2009) [FLAC|Lossless|tracks + .cue] <Pop, Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+Finally - 2006
+The Queen - 2009Жанр: Pop, Eurodance, Euro-House |Продолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D51E111FB534771097BD86372F5B8938B066C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519257   (149843) от 23.12.2021
+
+Aborted - ManiaCult (2021) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verderf
+02. Maniacult
+03. Impetus Odi
+04. Portal To Vacuity(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE93AFA93BC656A8A18CC3CEEA471DFC399A7AF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519139   (149844) от 23.12.2021
 
 The United Jazz+Rock Ensemble - Highlights (1985) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Rock>
@@ -6,7 +179,7 @@ The United Jazz+Rock Ensemble - Highlights (1985) [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149844.jpg" />
 </div>
 
 
@@ -33,7 +206,7 @@ magnet:?xt=urn:btih:B99404706BBFD3D31F460419550A184772DAEE3F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149845.jpg" />
 </div>
 
 
@@ -57,7 +230,7 @@ magnet:?xt=urn:btih:2F77367C76B6AE1CB36DD863D3FE0CCBC9ABE79C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149846.jpg" />
 </div>
 
 
@@ -81,7 +254,7 @@ Craft The World (2014) [Ru/Multi] (1.2.003) Repack ARMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149847.jpg" />
 </div>
 
 
@@ -105,7 +278,7 @@ Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149848.jpg" />
 </div>
 
 
@@ -132,7 +305,7 @@ magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149849.jpg" />
 </div>
 
 
@@ -159,7 +332,7 @@ VA - Connecting The Dots (Denis Stockhausen) (2021) [AAC|~297 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149850.jpg" />
 </div>
 
 
@@ -186,7 +359,7 @@ magnet:?xt=urn:btih:7593988F3EDED27C522E14889DF4FB8F57717DE7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149852.jpg" />
 </div>
 
 
@@ -210,7 +383,7 @@ magnet:?xt=urn:btih:34421901244717EC87C2F395B3C579F360DA0EB5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149854.jpg" />
 </div>
 
 
@@ -234,7 +407,7 @@ magnet:?xt=urn:btih:6A88D5BD9161C9DD2D8BECF432AB6B3275C5EB03
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149855.jpg" />
 </div>
 
 
@@ -258,7 +431,7 @@ IP-TV Player 0.28.1.8842 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149856.jpg" />
 </div>
 
 
@@ -282,7 +455,7 @@ magnet:?xt=urn:btih:1393C899EC56A81D9B0155149638C4F5962129DB
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149857.jpg" />
 </div>
 
 
@@ -306,7 +479,7 @@ magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149858.jpg" />
 </div>
 
 
@@ -331,7 +504,7 @@ magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149859.jpg" />
 </div>
 
 
@@ -355,7 +528,7 @@ magnet:?xt=urn:btih:8391B78EC55FCDFA1A7F1B43874A94D4B9B15272
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149860.jpg" />
 </div>
 
 
@@ -379,7 +552,7 @@ magnet:?xt=urn:btih:5FF0F1FC6D6640E3CC9739CB49F3CBD3F869B9A6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149861.jpg" />
 </div>
 
 
@@ -403,7 +576,7 @@ magnet:?xt=urn:btih:44EBFFD61AE4A2EC50960AD715B09607EB8DFD27
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149863.jpg" />
 </div>
 
 
@@ -430,7 +603,7 @@ Jeff Liberman - Celebrate the Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149864.jpg" />
 </div>
 
 
@@ -457,7 +630,7 @@ magnet:?xt=urn:btih:82C8CB826DE657C5264675FC66E271B57A382888
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149865.jpg" />
 </div>
 
 
@@ -470,187 +643,6 @@ magnet:?xt=urn:btih:82C8CB826DE657C5264675FC66E271B57A382888
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBB8EF2DDCFB14AD3D96ACB4611C16F8C72B44F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969008   (149866) от 25.12.2015
-
-(Linux) Alien: Isolation (2015) [Ru/En] (1.0RC29.22738/dlc) SteamRip
-
->>*Nix Игры
->>Native *Nix Games
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие триллера Alien: Isolation разворачивается спустя пятнадцать лет после событий оригинальной кинокартины Ридли Скотта «Чужой». И теперь уже дочери Эллен Рипли, Аманде, предстоит столкнуться с ужасом из космических глубин в попытке выяснить всю правду об исчезновении матери.
-В роли Аманды вы повстречаетесь с ослепленными паникой, доведенными до крайней степени (   Читать дальше...   )Тип издания: SteamRipРазработчик: Free LivesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FF7611A74695481B8761CD14FE04EE93936849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434690   (149868) от 25.12.2020
-
-Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Голосом олова
-2. О людях
-3. Я за тобой
-4. Беларусы(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEF1FCF106D4E95263990BE09025FA5EFBD408F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086819   (149869) от 25.12.2016
-
-Расплата / The Accountant  (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: СШАЖанр: боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон Райт, Джейсон Дэвис, Роберт С. ТревилерПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанский, португальскийПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670A39F1D2796FF9CCDE2D820C754B0CB86E2DE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434278   (149870) от 25.12.2020
-
-MonsterTools - Renegade (2019) [MP3|320 Kbps] <Darkwave, Electro Industrial rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Renegade [00:03:45]
-02 - Kill My Memories [00:03:40]
-03 - Doberman [00:03:58]
-04 - Angels Vs Devils [00:03:32](   Читать дальше...   )Жанр: Darkwave, Electro Industrial rockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A9A53B13DF148B5360BFE67BFAB6053D13C518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086719   (149871) от 25.12.2016
-
-Europe - Best ballads (1995) Compilation [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Arena rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open your heart [4:08]
-02. Carrie [4:34]
-03. Dreamer [4:30]
-04. Words of wisdom [4:08](   Читать дальше...   )Жанр: Melodic Hard Rock, Arena rockПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7562E223732074B69C3578CF7ABEE79A216A87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086533   (149873) от 25.12.2016
-
-Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кайто Куроба — обыкновенный подросток, ученик старшей школы, чей отец умер при загадочных обстоятельствах 8 лет назад. Кайто узнаёт, что его отец был известен как международный преступник — вор Кайто Кид (1412), и что его отца Тоити убила таинственная организация после того, как тот отказался отдать им камень Пандоры. Камень Пандоры — волшебный камень, который прольет (   Читать дальше...   )Производство: Студия TMS / トムス・エンタテインメントЖанр: приключения, комедияРежиссер: Хирано ТосикиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A833806C81114EEB56711AAC1E83AA3AB45542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434477   (149874) от 25.12.2020
-
-Hate Forest - Hour of the Centaur (2020) [MP3|320 Kbps] <Black Metal, Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Occidental, Beware the Steppe (Intro) [00:00:26]
-02 - Those Who Worship the Sun Bring the Night [00:07:20]
-03 - No Stronghold Can Withstand This Malice [00:05:39]
-04 - To the North of Pontos Axeinos [00:04:43](   Читать дальше...   )Жанр: Black Metal, Death Metal, Doom MetalПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EC3118847443FD1122CF2B2B34C94F4184E724
 ```
 
 

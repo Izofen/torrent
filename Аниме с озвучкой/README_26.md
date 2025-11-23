@@ -1,3 +1,27 @@
+###  Публикация: 1564589   (212366) от 19.07.2022
+
+Остров гигантских насекомых (фильм) | Gekijouban Kyochuu Rettou [Movie] [2020, 01 из 01] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212366.jpg" />
+</div>
+
+
+###  Подробнее
+
+После крушения самолёта Орибэ Муцуми и её одноклассники, которые летели на школьную экскурсию, оказываются на острове, кажущемся необитаемым. Используя свои знания о дикой природе, Орибэ помогает выжившим в авиакатастрофе. Девушка ждёт, что их спасут в течение трёх дней, которые можно и перетерпеть. Но при расчётах она не могла учесть того ужасного факта, что хозяевами (   Читать дальше...   )Производство: Япония, студия Passione / パッショーネЖанр: приключения, фантастика, этти, ужасыРежиссер: Такахаси ТакэоЯзык озвучки: Русский закадровый, многоголосый (youmiteru); English - дублированный (Passione Kickstarter bd)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, PortuguêsПродолжительность: 75 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD1CBA89625140857DDAA04618567BB96D395E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564471   (212368) от 19.07.2022
 
 Makai Toshi Shinjuku | Demon City Shinjuku | Синдзюку - город-ад [1988, OVA, 1 эп.] BDRip 1080p rus
@@ -6,7 +30,7 @@ Makai Toshi Shinjuku | Demon City Shinjuku | Синдзюку - город-ад 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212368.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212368.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:DBB56409CCA3CE2CC1EB51E1A8BE0952FED5882F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212370.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212370.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ magnet:?xt=urn:btih:FFA04DEA0EFC029C79E83C17568AC72FD0C6B3B6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212381.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212381.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ Goku II: Midnight Eye | Гоку 2: Полуночный глаз [1989, OVA] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212450.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212450.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ Goku Midnight Eye | Гоку: Полуночный глаз [1989, OVA] DVDRip 5
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212532.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212532.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ magnet:?xt=urn:btih:3726ADAE8F6299FD9EA971C7CBB62AFD23BF9B71
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212542.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212542.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212543.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212543.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ magnet:?xt=urn:btih:A7BFC1BE4E3C835B01A33C1029EF4C8C9BD036C5
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212675.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212675.jpg" />
 </div>
 
 
@@ -203,7 +227,7 @@ magnet:?xt=urn:btih:983B23170351AEE337651CA7B6DFE873F50B1556
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212770.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212770.jpg" />
 </div>
 
 
@@ -231,7 +255,7 @@ magnet:?xt=urn:btih:A2A4332073E93F62065B039D2FE0FF40A3190D12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212926.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212926.jpg" />
 </div>
 
 
@@ -258,7 +282,7 @@ Spriggan | Спригган [2022, Web, 06 эп.] WEB-DL 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212981.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212981.jpg" />
 </div>
 
 
@@ -282,7 +306,7 @@ magnet:?xt=urn:btih:3C75F215456269666802C9E969AA3FC9099B5494
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212985.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212985.jpg" />
 </div>
 
 
@@ -307,7 +331,7 @@ magnet:?xt=urn:btih:DCE94442FD9702E080F6556270C203B87C9668C0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213002.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213002.jpg" />
 </div>
 
 
@@ -334,7 +358,7 @@ magnet:?xt=urn:btih:5D485A77AE362A3FAA6F6767F8CF088A5D2E50B2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213070.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213070.jpg" />
 </div>
 
 
@@ -358,7 +382,7 @@ One Piece Film: Gold | Ван-Пис: Фильм тринадцатый [2016, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213125.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213125.jpg" />
 </div>
 
 
@@ -382,7 +406,7 @@ Anne no Nikki | The Diary of Anne Frank | Дневник Анны Франк [19
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213163.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213163.jpg" />
 </div>
 
 
@@ -407,7 +431,7 @@ One Piece: Heart of Gold | Ван-Пис: Золотое сердце [2016, Spe
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213164.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213164.jpg" />
 </div>
 
 
@@ -431,7 +455,7 @@ magnet:?xt=urn:btih:A9DA86E1C9D1585229D437C1AD882E7F73F3A03A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213200.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213200.jpg" />
 </div>
 
 
@@ -456,7 +480,7 @@ Gekijouban One Piece: Stampede | Ван-Пис: Фильм четырнадца�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213259.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213259.jpg" />
 </div>
 
 
@@ -481,7 +505,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213267.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213267.jpg" />
 </div>
 
 
@@ -505,7 +529,7 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217165.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217165.jpg" />
 </div>
 
 
@@ -529,7 +553,7 @@ magnet:?xt=urn:btih:63A054745481B0929BC5B84BCBD7097E38A09D8E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220797.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220797.jpg" />
 </div>
 
 
@@ -553,7 +577,7 @@ Hadashi no Gen / Barefoot Gen / Босоногий Ген (1983) raw rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221456.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221456.jpg" />
 </div>
 
 
@@ -577,7 +601,7 @@ magnet:?xt=urn:btih:ADB3E885C752EA63B53A883A482D84497D4FE26D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221831.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221831.jpg" />
 </div>
 
 
@@ -602,7 +626,7 @@ magnet:?xt=urn:btih:D5A084725740762C67447312ED20E835B7BE406B
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221866.jpg" />
 </div>
 
 
@@ -613,30 +637,6 @@ magnet:?xt=urn:btih:D5A084725740762C67447312ED20E835B7BE406B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F8407C1718F6309F450C6591CD871E7BD3E682
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570729   (221867) от 21.10.2022
-
-Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221867.jpg" />
-</div>
-
-
-###  Подробнее
-
-У айдол-группы "TINGS" большие мечты, но только маленькие достижения, и они не очень популярны. Лучший менеджер в мире должен был стать их спасителем, но... "Мне не интересно быть вашим менеджером". Появляется человек, Наосе Хинаки, человек без мотивации. Однако у него есть особая сила...? Это история о вас и о девушках, которые ярко сияют, чтобы (   Читать дальше...   )Производство: Япония, студия Studio KaiЖанр: повседневность, музыкальныйРежиссер: Ойкава КэйЯзык озвучки: Русский закадровый (AniDub)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2495D7B6F8685EB4EBF59D5B24A57EC557E143
 ```
 
 

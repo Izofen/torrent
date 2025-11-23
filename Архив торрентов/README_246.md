@@ -6,7 +6,7 @@ Topaz Video AI 5.0.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56338.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ashampoo WinOptimizer 27.00.02 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56343.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PotPlayer 240509 (1.7.22232) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56344.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wondershare PDFelement 10.4.1.2755 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56345.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IsMyLcdOK 5.59 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56352.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CyberLink PhotoDirector Ultra 15.4.1706.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56353.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ WinCatalog 2024.7.0.515 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56356.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ NetLimiter 5.3.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56358.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Psiphon 3 build 183 (14.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56360.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Epic Pen Pro 3.12.148 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56364.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ZWCAD 2025 SP0 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56365.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Bridge 2024 14.1.0.257 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56366.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Duplicate File Detective 7.2.74 ENTERPRISE EDITION RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56367.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wireshark 4.2.5 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56368.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ AMD Radeon Software Adrenalin Edition 24.5.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56373.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Google Chrome 125.0.6422.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56374.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Capture One 23 Enterprise 16.4.1.2127 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56383.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ MAGIX Vegas Pro 21.0 Build 314 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56385.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ WinRAR 7.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56386.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ WinRAR 7.01 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56392.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Windows Manager 2.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56393.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VueScan Pro 9.8.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56396.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Guitar Pro 8.1.2 Build 37 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56397.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ WinRAR 7.01 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56424.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ WinRAR 7.01 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56436.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PotPlayer 240514 (1.7.22230) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56441.jpg" />
 </div>
 
 

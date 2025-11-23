@@ -6,7 +6,7 @@ Aiarty Image Enhancer 3.1 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30773.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30773.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Wise Care 365 Pro 7.1.1.694 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30777.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:835E504DBF029D82545A8272A06D358A93B50800
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30786.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Topaz Gigapixel AI 8.1.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30788.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ FastStone Capture 11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30796.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ qBittorrent 5.0.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30803.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30803.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Auslogics BoostSpeed 14.0.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30817.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30817.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Tor Browser Bundle 14.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30818.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30818.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ FastStone Capture 11.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30821.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30821.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30822.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30822.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wise Care 365 Pro 7.1.1.694 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30850.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30850.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Firefox Browser 134.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30859.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30859.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ OpenNumismat 1.9.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30861.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Google Chrome 132.0.6834.84 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30874.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30874.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ HiBit Uninstaller 3.2.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30877.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Kdenlive 24.12.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30883.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ DriverEasy 6.1.2.29728 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30898.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ SoftPerfect RAM Disk 4.4.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30904.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30910.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30910.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ System software for Windows v.3.6.5 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30916.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30916.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Google Earth Pro 7.3.6.10201 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30922.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adobe Illustrator 2025 29.2.1.116 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30924.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30924.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Movavi Video Editor 25.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30928.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30928.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.3 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30930.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30930.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30933.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30933.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ O&O DiskImage Professional 20.1 Build 331 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30940.jpg" />
 </div>
 
 

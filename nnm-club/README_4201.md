@@ -1,3 +1,75 @@
+###  Публикация: 1824436   (128913) от 15.10.2025
+
+О.С. Габриелян, И.Г. Остроумов, С.А. Сладков | Химия. Учебник для 8 класса (2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал учебника ориентирован на освоение учащимися первых научных понятий о неорганических веществах, их свойствах и превращениях, методах получения и практическом применении и основан на достижениях химии как области современного естествознания. Усвоению материала способствуют практическая направленность, схемы и иллюстрации, составляющие неотъемлемую часть авторской (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E80672EC7B3A27E8A25593A1B936A6CFA1795F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824437   (128914) от 15.10.2025
+
+О.С. Габриелян, И.Г. Остроумов, С.А. Сладков | Химия. Учебник для 10 класса (базовый уровень) (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник является первой частью линии учебников по химии базового уровня О.С. Габриеляна, И.Г. Остроумова и С.А. Сладкова для средней школы. Он знакомит старшеклассников с богатым миром органических веществ и реализует идею взаимосвязи химического строения этих веществ с их свойствами и применением.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD43232E68C07046FBCEB321AB7E80610082351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824175   (128915) от 15.10.2025
+
+Грань будущего / Edge of Tomorrow (2014) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128915.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем раса инопланетян вторгается на Землю. Никакая армия человечества не может им противостоять. Майор Уильям Кейдж умирает в бою, но случается невероятное — он оказывается во временной петле. Раз за разом Кейдж попадает в один и тот же бой, сражается и умирает снова и снова. И каждое повторяющееся сражение приближает его к разгадке того, как победить (   Читать дальше...   )Производство: США, Канада / 3 Arts Entertainment, Translux, Viz MediaЖанр: фантастика, боевик, приключенияРежиссер: Даг ЛайманАктеры: Том Круз, Эмили Блант, Билл Пэкстон, Брендан Глисон, Ноа Тейлор, Джонас Армстронг, Тони Вэй, Кик Гарри, Франц Драмех, Драгомир МрсичПеревод: Дублированный (Blu-Ray CEE)Язык озвучки: Русский, узбекский, английскийСубтитры: Русские (Full), английские (Forced, Full)Продолжительность: 01:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF50D93B6A4646287B81F9779644758E02709474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824215   (128916) от 15.10.2025
 
 Зеленый Фонарь / Green Lantern (2011) BDRip [H.264/720p]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128916.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:C5CD7EC75655BDD8C0165D2F860A16DC5DDEB744
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128917.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:F85BA84F6C5532792E47FB3F157D808FBF9AE4CB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128918.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:D9D38E291C492059A20EF0FBC83212E07E153122
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128919.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:4F3B23BAA35F4AEB5440870D89C9CC04A7959007
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128920.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:31F7B183401D956DD0B7698897764E6912A2D900
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128921.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ NVIDIA GeForce Desktop Studio 581.57 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128922.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:0A631ED3866CD0140B29E870FC2DA694AE23999B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128923.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:87712696466CA7746F7987541A83A5E1EB53C007
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128924.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:24B30A7C1ADC0F0FA6F78D94DD271BDC522F6A4B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128925.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:B7EF389B9CCF682AE12F4B41E424DC8424840EE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128926.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:8975518710DCFFD7F42B53E3202F817C8AFBB3F9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128927.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:DCF8D50B0E41086DFCCB09D72F6D2AD3CF0EFB70
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128928.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:FB0F30ED480369C1B6B82CBCA6D58EE6F5A480A8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128929.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Kevin the Persian - Southern Dissonance (2022) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128930.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:20AD43E3A6B5285D1EB2F6BB8335A8F2C8FAEE36
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128931.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128932.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ Reaper 7.48 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128933.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ Nailed to Obscurity - Generation of the Void (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128934.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ MAX Desktop 25.13.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128935.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ TapinRadio 2.16.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128936.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ BabyBus Kids: Мир видео и игр v3.1.10.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128938.jpg" />
 </div>
 
 
@@ -550,7 +622,7 @@ magnet:?xt=urn:btih:E2B0C49AFCDD68837B9700B60626362498DAB73B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128939.jpg" />
 </div>
 
 
@@ -561,81 +633,6 @@ magnet:?xt=urn:btih:E2B0C49AFCDD68837B9700B60626362498DAB73B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28C8665D584599291AD2D60A114C2D1AD1FBDC73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824296   (128940) от 14.10.2025
-
-VA - Yoga Breath - Relaxing Moments (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Evan Cortez - A Night in Rome (04:18)
- 02 - Lofi Village - Another Love (03:20)
- 03 - Ingo Herrmann - Nature View (02:41)
- 04 - Twen T4 - Dana's Hill (04:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1AA705E31AE8F3F257014D21867F17B86CCC88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488670   (128941) от 26.04.2012
-
-Звезды YouTube / Зірки YouTube. Выпуск №2 (2012) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C18C6EF104F66DDC8D893FC2C8EC1215431E4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824253   (128942) от 14.10.2025
-
-График смен v8.5.4 Mod by AlexStrannik [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128942.jpg" />
-</div>
-
-
-###  Подробнее
-
-График смен - удобный и простой календарь, позволяющий рассчитывать и просматривать рабочие смены.Тип издания: PremiumРелиз состоялся: 14.10.2025Разработчик: Lili PetrikПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A23DD6E89A14EEA76B346DD65EF73BDCFEADA47
 ```
 
 

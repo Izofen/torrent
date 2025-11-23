@@ -1,3 +1,76 @@
+###  Публикация: 1684418   (127743) от 16.12.2023
+
+Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 12.2023
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127743.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новой версии операционной системы Windows 10 Pro VL x86-x64 (22H2) от Microsoft с дополнительным материалом разных разрядностей (архитектуры) в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2DB8B91C95BC0D65E5307E2949C6843B04B27E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663427   (127744) от 16.12.2023
+
+Хищник / Predator (1987-2022) BDRip [H.265/1080p] [10-bit] [Коллекция]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-фантастический боевик, посвящённый инопланетной расе воинов с технологически продвинутым оружием, которые путешествуют на Землю, чтобы охотиться и собирать трофеи.Производство: США, Мексика, Чехия, Великобритания, Германия, Канада / 20th Century Fox Film Corporation, Amercent Films, American Entertainment Partners L.P., Davis Entertainment, Lawrence Gordon Productions, Silver Pictures, Brandywine Productions Ltd., Charenton Productions Limited, Impact Pictures, Inside Track Films, Zweite Babelsberg Film GmbH, Dune Entertainment, Troublemaker (   Читать дальше...   )Жанр: ужасы, боевик, фантастика, триллер, приключенияРежиссер: Джон Мактирнан, Стивен Хопкинс, Пол У. С. Андерсон, Колин Штраус, Грег Штраус, Нимрод Антал, Шейн Блэк, Дэн ТрахтенбергАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррильо, Билл Дьюк, Дэнни Гловер, Гэри Бьюзи, Рубен Бладес, Мария Кончита Алонсо, Билл Пэкстон, Санаа Лэтэн, Рауль Бова, Лэнс Хенриксен, Стивен Паскуале, Рейко Эйлсворт, Джон Ортис, Эдриан Броуди, Тофер Грейс, Бойд Холбрук, Треванте Роудс, Джейкоб Тремблей, Эмбер Мидфандер, Дакота Биверс, Дэйн ДиЛьегро, Сторми КиппПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:46:35 / 01:48:00 / 01:48:40 / 01:41:07 / 01:46:53 / 01:46:56 / 01:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2AA1A4B5ADFDD0212F411713C7194D3A4ED9C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348338   (127745) от 16.12.2023
+
+Елена Михалкова | Собрание сочинений [53 книги] (2007-2023) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Елена Ивановна Михалкова — российский автор детективных романов. Родилась в городе Горьком (Нижний Новгород). Получив юридическое образование, работала по специальности, в том числе в милиции. Одно время Михалкова писала сценарии для детских телевизионных передач. Замужем, имеет дочь. В настоящее время проживает с семьей в Москве.
+Свой первый детективный роман Елена (   Читать дальше...   )Жанр: Современные детективыИздательство: Эксмо, Сетевое изданиеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A623132E3E0A4D4A4B212CC04E0594CF7FB4CEAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684704   (127746) от 16.12.2023
 
 Семейный план / The Family Plan (2023) WEB-DLRip [H.264] [MVO]
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127746.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:C681B969D67C689D8E62F7FBB1B9C744A88F95B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127747.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:45DD75085CE67301FF8BA319027C729FBF870ED4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127748.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:71C0CF9F6F64AB7B578CAE66460EEF5A38760902
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127749.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127750.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.4 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127751.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:CD97EB238F7177DEAEA0B668F5E514AF84F37A70
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127752.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:5AC6761D2F5014A332899D21DA5AB7E0E64E5B01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127753.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:CEBB367AF91AD683151CE44A6809885ACFCB845E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127754.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:B746C2EB5367E86AB8134C681A79DD320A0568E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127755.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:3F97FC7EFAFB7D49E4BC3FA264CBC3567915A54A
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127756.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Adobe Photoshop 2024 25.3.1.241 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127757.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ magnet:?xt=urn:btih:20E7D83B04C48595BE2ED87CE4998481BAB9E402
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127758.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ Andreas Ezelius | Designing, Modeling, and Texturing an Aircraft (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127759.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ magnet:?xt=urn:btih:7657C7D7D4380EAD22FBB2AF4576F407ED98713E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127760.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ C-Clamp - Dream Backwards (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127761.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ magnet:?xt=urn:btih:4F75F98B6F1C507C7C0A6E6687A385CE9B5D45A6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127762.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ magnet:?xt=urn:btih:7E618D7389C6E3645499A345D1F112E5A614CCAC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127763.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127764.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ Riding with Killers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127765.jpg" />
 </div>
 
 
@@ -502,7 +575,7 @@ Toshiko Akiyoshi - Finesse (1978) 1990, Concord Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127766.jpg" />
 </div>
 
 
@@ -529,7 +602,7 @@ magnet:?xt=urn:btih:8E1B45C06B7D21B373AAEEAE43E23D6F018DADC2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127767.jpg" />
 </div>
 
 
@@ -553,7 +626,7 @@ magnet:?xt=urn:btih:736C07CA9B46AFC8ED9C81F3E6FA271543FC679F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127768.jpg" />
 </div>
 
 
@@ -567,84 +640,6 @@ magnet:?xt=urn:btih:736C07CA9B46AFC8ED9C81F3E6FA271543FC679F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C948AD9BB2DED6CD394B7D8A70B9892E5AEFF4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684391   (127769) от 15.12.2023
-
-Saverio Maccne - Southern Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One Does That Magic Like You (3:25)
-02. Ain't Got Nothing But My Sorrow (Bad Gambler) (5:15)
-03. Mysterious Love (5:08)
-04. Riding On My Mind (4:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A8E068C5BDEF4A22E337FD54B44F8FB2F82822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684388   (127770) от 15.12.2023
-
-Jorgen (Jørgen) Sandvik - The Overview (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Permanent Vacation (3:34)
-02. The Scandinavian Way (3:52)
-03. Regrets (3:49)
-04. Grov (6:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450108A57A6E5777DA15E7DE4A89244BA151F2D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684452   (127771) от 15.12.2023
-
-Искупление рыжего Руба / The Redemption of Red Rube (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная др-р-р-раматическая история про шерифа и беглого преступника. История в которой выясняется. что у рыжего Руба, конокрада и убийцы, еще сохранилось в душе что-то человеческое. А еще там есть индеец, злой индеец. Уже не в первом фильме той эпохи я вижу злого индейца. И у меня закрадывается страшное подозрение, что в американском кинематографе начала прошлого (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: Роллин С. СтарджонАктеры: Роберт Торнби, Джордж Стэнли, Энн Шефер, Эгил ЭйПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F298A76A79A2828712F6024C44A927741A67EBEF
 ```
 
 

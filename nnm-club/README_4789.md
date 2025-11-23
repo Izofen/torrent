@@ -1,3 +1,177 @@
+###  Публикация: 1434893   (148442) от 26.12.2020
+
+Gary Batchelor - I Am The Eye (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buried Treasure (03:43)
+ 02. I am the Eye (03:45)
+ 03. Endtimes (04:18)
+ 04. Fallout (06:54)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD195AB9850192E7B7A64F4F1456940CC57FD51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968943   (148443) от 26.12.2015
+
+Стажёр / The Intern (2015) AC3 5.1 [hand made]
+
+>>Остальное
+>>Звуковые дорожки и субтитры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148443.jpg" />
+</div>
+
+
+###  Подробнее
+
+70-летний вдовец Бен Уитакер обнаруживает, что выход на пенсию — ещё не конец. Пользуясь случаем, он становится старшим стажёром в интернет-магазине модной одежды под руководством Джулс Остин.Жанр: Мелодрама, КомедияПеревод: Дублированный(центральный канал line)Продолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5EF260E50FB8C24288C85EA290970A9FAE07B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271657   (148445) от 24.12.2018
+
+Ashampoo Burning Studio 20.0.2.7 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая Ashampoo Burning Studio 20 - это простое и удобное решение для записи Ваших данных на CD, DVD и Blu-ray, копирования дисков или для расширения Ваших мультимедиа способностей для создания Ваших слайд-шоу и дисков с видео с анимированными меню. Полностью автоматически конвертируйте музыкальные диски, создавайте резервные копии Ваших файлов за мгновение, а также (   Читать дальше...   )Язык интерфейса: Русский, Белорусский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAA831FFAB1D358C3EDE4972B3DDF6519B47106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434970   (148446) от 26.12.2020
+
+Зана Фрайон | Дом монстров. Тот, кто ждёт в глубине. Книга 3 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148446.jpg" />
+</div>
+
+
+###  Подробнее
+
+В школе «Дом монстров» время экзаменов! Джаспер и его друзья справились с первым испытанием (точнее, провалили его чуть менее позорно, чем остальные), и теперь их ждёт главное: настоящая охота! На настоящего дикого монстра в настоящем лесном озере. Ах да, этот монстр любит по вечерам нападать на купающихся… И Джаспер пока ещё не решил, что хуже: провалить экзамен (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Екатерина ПетроваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E42CC1D9ECC022A76B3D7EB43E62327DD6A51D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968008   (148448) от 26.12.2015
+
+Ада Быковская | Бизнес своими руками. Как превратить хобби в источник дохода (2013) [FB2, PDF, DOCX]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – для тех, кто чувствует порыв и готовность превратить свое увлечение в свое дело. Для тех, кто хочет заниматься творчеством и зарабатывать, а также для тех, у кого уже есть частная практика и, может быть, пока не очень много заказчиков, но зато множество вопросов. Что нужно знать, если хочется продавать сделанные своими руками украшения или игрушки? Как (   Читать дальше...   )Жанр: О бизнесе популярно, Малый бизнесФормат: FB2, PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8636D22B29692FD04092C8120914510B0CA7A86F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086738   (148450) от 26.12.2016
+
+VA - Big Love 20 от Love Radio (18.12.2016)  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye
+02. Макс Барских - Туманы
+03. Elvira T - Такси
+04. DJ Snake feat. Justin Bieber -Let Me Love You(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4922AF7875716A044A377DD59E45853F9B6B3683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434987   (148451) от 26.12.2020
+
+Зана Фрайон | Дом монстров. Тот, кто летит по пятам. Книга 4 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступил второй год обучения! Джаспер и его друзья знают – их ждут новые приключения. И те не заставляют себя ждать: в школу прилетает целый рой кошмарных монстров-жуков! И всё бы ничего (учителя в «Доме монстров» встречаются и пострашнее), но вот только Джасперу ни в коем случае нельзя охотиться на этих тварей. И всё потому, что Джаспер – заговорённый (он и сам (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Екатерина ПетроваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459EE3A39B2BC535102A66CFF9A113D1D900819C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519524   (148452) от 24.12.2021
 
 Movavi Screen Recorder 22.1.0 [Multi/Ru]
@@ -6,7 +180,7 @@ Movavi Screen Recorder 22.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148452.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:10E176A8E3B79F2E09BD369AE505E3ECB942C001
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148454.jpg" />
 </div>
 
 
@@ -55,7 +229,7 @@ magnet:?xt=urn:btih:FBDA31A5822AC2AD5FB615643A9F7F1AF1A940C8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148455.jpg" />
 </div>
 
 
@@ -79,7 +253,7 @@ magnet:?xt=urn:btih:F95BD94D261011C2CC62E42EF6EEC3A69E8CA788
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148457.jpg" />
 </div>
 
 
@@ -103,7 +277,7 @@ Duplicate Photos Fixer Pro 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148458.jpg" />
 </div>
 
 
@@ -128,7 +302,7 @@ magnet:?xt=urn:btih:2EA2847707F2A0769D4BE6825670DECF85355321
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148459.jpg" />
 </div>
 
 
@@ -155,7 +329,7 @@ magnet:?xt=urn:btih:44E751516A93A461B7796B3B2BB810EE2531A03C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148460.jpg" />
 </div>
 
 
@@ -179,7 +353,7 @@ magnet:?xt=urn:btih:09BD61F982719E8A80A61F242CBA44EB95800F74
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148462.jpg" />
 </div>
 
 
@@ -203,7 +377,7 @@ Expressions 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148463.jpg" />
 </div>
 
 
@@ -230,7 +404,7 @@ magnet:?xt=urn:btih:34C48E6022254B3F6B892AE2B46FA0CFD6F96525
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148464.jpg" />
 </div>
 
 
@@ -254,7 +428,7 @@ magnet:?xt=urn:btih:B58E321D3CC2BB60074F5B937D1D6B402BA1308F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148466.jpg" />
 </div>
 
 
@@ -280,7 +454,7 @@ magnet:?xt=urn:btih:8C8568111EF3C30843E0E0C6A06F5C820286AE7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148467.jpg" />
 </div>
 
 
@@ -305,7 +479,7 @@ magnet:?xt=urn:btih:11C81CEEAE1E5F08EACACFC228BAA72CDA001886
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148468.jpg" />
 </div>
 
 
@@ -329,7 +503,7 @@ VA - Rock in Auto Vol 4. (2017) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148469.jpg" />
 </div>
 
 
@@ -356,7 +530,7 @@ magnet:?xt=urn:btih:83A7C5999061B031079F1613EBC653D4C9171C42
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148471.jpg" />
 </div>
 
 
@@ -381,7 +555,7 @@ magnet:?xt=urn:btih:30DDB227235473F65D5C4E61DBEB4E1C633A88FD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148472.jpg" />
 </div>
 
 
@@ -405,7 +579,7 @@ magnet:?xt=urn:btih:88994E8E5656F088CB1E6E05C79666B5D19575B7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148474.jpg" />
 </div>
 
 
@@ -430,7 +604,7 @@ Network Kit 9.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148475.jpg" />
 </div>
 
 
@@ -454,7 +628,7 @@ The Order 1886 (2015) [PS4] [EUR] 5.05 [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148476.jpg" />
 </div>
 
 
@@ -465,181 +639,6 @@ The Order 1886 (2015) [PS4] [EUR] 5.05 [License] [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01140EF138EBAB31A6EF0D7852A060BB5753F0DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271653   (148477) от 24.12.2018
-
-GiliSoft Audio Toolbox Suite 2018 7.1.0 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148477.jpg" />
-</div>
-
-
-###  Подробнее
-
-GiliSoft Audio Toolbox Suite - универсальный, многофункциональный аудионабор все-в-одном, из 9 мощных и полезных утилит для работы с аудио, он включает Audio Recorder, Audio Cutter, Audio Joiner, Audio Converter, Video to Mp3,ID3 Tag Editor, Transfer to iTunes, CD Ripper, CD Burner.
-
-Этот набор может делать практически все: воспроизведение, конвертирование, запись (   Читать дальше...   )Язык интерфейса: Мультиязычный+Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE686F5FDB8B4919DF8BAA5EDF46662CB5F1BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347230   (148478) от 24.12.2019
-
-Джон Ширли| BioShock: Восторг (2011) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец Второй мировой. Новое соглашение Рузвельта предопределило собой всю американскую политику. Налоги еще никогда не были так высоки. Бомбежка Хиросимы и Нагасаки привнесла страх тотального уничтожения. С появлением новых секретных государственных агенств и санкций, многие опасаются за свой бизнес. "Американская свобода" заметно ослабела... И многие отчаянно (   Читать дальше...   )Жанр: Социальная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6D0F75062D2206906840FA1DB835BFB3AB2B3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969269   (148479) от 26.12.2015
-
-Кэйти Силкокс | Здоровая, счастливая, сексуальная. Мудрость аюрведы для современных женщин (2016) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – своего рода справочник по женскому здоровью: от сияющей кожи до полноценной сексуальной жизни. Автор, известный на Западе преподаватель йоги, собрала в ней упражнения, медитации, рецепты и древние ведические практики, которые нисколько не противоречат современной жизни и возвращают женщине покой и внутреннее равновесие.
-
-На русском языке публикуется впервые.Жанр: Здоровье, фитнес, диетыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1335A23E00DEEA2EDD6A2C99716ECFED398CB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087025   (148480) от 26.12.2016
-
-VA - Times Disco Fever Actions (2016) [MP3|317-320 Kbps] <Synth-pop, New Wave, Italo-Disco, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilly - For Your Love & For Your Love (Suite) 11:48
-02. Digital Emotion - Dance To The Music 05:17
-03. Dschinghis Khan - Machu Picchu 07:08
-04. Milli Vanilli - Girl You Know It's True 08:49(   Читать дальше...   )Жанр: Synth-pop, New Wave, Italo-Disco, EurodanceПродолжительность: 03:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50556DC802481B30115BAA1CFC16CFE414D32857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670586   (148481) от 19.11.2023
-
-Сознание / Осознание / Awareness (2023) WEBRip [H.264/1080p] [MVO] [handmade]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастический триллеp о молодом мошеннике по имени Йен, проживающем с отцом на окраине небольшого городка. Окружающие видят в нем простого юношу, мало чем отличающегося от сверстников. Однако никто даже не подозревает, что у главного героя есть сверхъестественная способность, благодаря которой он легко обдуривает любых людей. С самого рождения Йен умеет создавать (   Читать дальше...   )Производство: Испания, Federation Spain, Onirikal Studio, The Modern Cultural ProductionsЖанр: фантастика, боевик, триллерРежиссер: Даниель БенмайорАктеры: Карлос Шольц, Педро Алонсо, Мария Педраса, Оскар Хаэнада, Лила Лорен, Карина Колокольчикова, Энсо Кальеха, Хесус Кастельс, Виктор Сересуэла, Калоян Кала ЧавдаровПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, английский, испанскийСубтитры: русские, английскиеПродолжительность: 01:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F15A255DA69B7E7F1D28DDE02EA695512A3CF70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271719   (148482) от 24.12.2018
-
-Растровый клипарт - Design Cuts - Artwork Showcase Generator [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы с гордостью представляем наш проект для всех, кто создает произведения искусства. Много уникальных антикварных предметов и рамок в составе.Формат: PSDРазрешение файлов: 2325x1693-9805x5377
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FF58D7B44041F07A809C100A91837BBF7683B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519339   (148483) от 24.12.2021
-
-VueScan Pro 9.7.71 (DC 23.12.2021) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148483.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1A4A91D6DFF9C6AAD93B2CC6E371A1B7176CC6
 ```
 
 

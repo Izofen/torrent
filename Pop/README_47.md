@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113957.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113979.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E4631B12E2379F7DCC8B4FD46EBB7DC916385C3E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114000.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cars & Brides - The 1st Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114039.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Steve Lawrence & Eydie Gorme - The Original Hits (2024) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114488.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|image + .cue] <El
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114517.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chris Norman - Junction 55 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114532.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:68D947233CDF1234E89E155A233423766DEE45C7
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114609.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Martin Stevens - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114659.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:80B3C0F346A63837245C61B1470E2E03E6B7F238
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114731.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ledisi - Good Life (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114795.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Beatrice Egli - Alles in Balance - Leise (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114814.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:706E31C4F6C06669ACB3865DC7DF443711A6767A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114847.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:35630D4E87C4E3E8105146C751D8061733F73E72
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114890.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:3DEF2A5B02B58253F194E61000DA4E61F8A0E7F3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114958.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115018.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ornella Vanoni - Collection (1961-1973) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115030.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115164.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Al Corley - Riot of Color (1986) Expanded Edition, 2023, Mercury [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115167.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Celine Dion - Courage (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115726.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:DA1A009248BDD02D7730B317A4983E339CFE61C4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115868.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:EB927B103FC81D3FF16AB5E8F02D599F98537BE8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115874.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:A4E5CE4EF74C493D1E79AF67259D43720D6160A6
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115876.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:CED2AC5EBD7478C9EDD1BE2929CC15A26DD26816
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115999.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:76558602654603E9CB02DD5944C2E6FACF766C2A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116001.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116005.jpg" />
 </div>
 
 

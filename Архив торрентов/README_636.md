@@ -6,7 +6,7 @@ Aiseesoft Total Media Converter Platinum 6.3.28 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135250.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135250.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Calendar 366 II 2.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135251.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Photo Studio PRO v2.7.1.2156 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135255.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Live Wallpaper & Themes 4K Pro for Mac 18.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135263.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8B76FEDF2936D6B663436199C740E88C5F6D2C5F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135270.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ USB Disk Security 6.2.0.30 DC 23.12.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135272.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135272.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ PowerDirector – Video Editor v12.7.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135275.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C7FF733F0BAA3CBB68A9CBB3335DD4FFE340ED22
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135280.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ MediaRescue Pro 6.9 Build 947 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135284.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135284.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MediaRescue - программа для восстановления удале�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135292.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:EFF6C0741644240D2C7E976A3019F4A10B719B15
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135297.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:6408AAE5F12E02B9F24C0F95B18E417AC6083766
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135298.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135298.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ ObjectRescue Pro 6.9 Build 947 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135312.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135312.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ObjectRescue Pro - универсальное решение для восста
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135314.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ iCompta 6.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135371.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:8F3D670245E27F469EB3E497A907C7683D6E574B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135379.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135392.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135400.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:82D225A0F1E950D3C5F0E4F78225E330A1D0F572
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135407.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:E05EE687D45A2CD068FA711013A6B465B9E7EA9B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135411.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Christmas in St. Moritz (Chilled Tunes For Relaxed X-Mas Days) (2012) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135416.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Softany WinCHM Pro 4.31 RePack by loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135418.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135418.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Necronomicon - The Queen Of Death (2012) [FLAC|Lossless]<Doom Metal / Psychedeli
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135419.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135419.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VSO Downloader Ultimate 2.9.14.7 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135421.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135421.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Scribus 1.4.1 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135422.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135422.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ SUMo 3.4.14.189 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135424.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135424.jpg" />
 </div>
 
 

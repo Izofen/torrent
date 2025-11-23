@@ -1,3 +1,84 @@
+###  Публикация: 1761828   (103037) от 22.11.2024
+
+Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop, Blues, Singer-Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103037.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. 25 Kisses (3:05)
+• 02. Someone Else (3:15)
+• 03. Irresistible (3:18)
+• 04. I'm Not Moving (3:37)(   Читать дальше...   )Жанр: Rock, Pop, Blues, Singer-SongwriterПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C65F129D7F36BD526E115F6CEF5A9587FFAEBD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761864   (103038) от 22.11.2024
+
+Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Link of Chain (3:56)
+02. No Love Today (4:56)
+03. Love You Like a Man (3:08)
+04. Mail Order Mystics (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E515D01FB854F5B9C4B2EF00A365BD140F20AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761782   (103039) от 22.11.2024
+
+Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Street (4:14)
+02. Any Other Heart (3:52)
+03. Singing with the King (3:18)
+04. Strength to Stay (3:23)(   Читать дальше...   )Жанр: Аlternative Rock, Pop RockПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D6AA53BCF1DE1A2EFB4189B90444BBFFDC725C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761833   (103040) от 22.11.2024
 
 Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
@@ -6,7 +87,7 @@ Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103040.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103041.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Silent Winter - Utopia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103042.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Staples Jr. Singers - Searching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103043.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ The San Pedro Allstars feat. Reed Turchi, Austin White, Marlon Patton & Eric Bur
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103044.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Wako - Evig liv, perfekt orden (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103045.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Marco Grompi & Michele Fortis - WINTERFLOWERS (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103046.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103047.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Juan Raul Rosero - Everything is Possible (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103048.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ magnet:?xt=urn:btih:E9DDC0DD71B609B6221C27DB8B91B54F9C85113A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103049.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ Sylvaine - Silent Chamber, Noisy Heart (2014) Remasteredб 2024, Eisenwald [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103050.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ Suat Ernur Bilge - Troubled Sadness (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103051.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alte
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103052.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ About Us - Take A Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103053.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103054.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103055.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103056.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ Wes Jeans - One Day at a Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103057.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103058.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103059.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ Joe Grushecky & The Houserockers - Can't Outrun A Memory (2024) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103060.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ magnet:?xt=urn:btih:14F74BB02B0F9B43A68BE9B309D8997566EAC732
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103061.jpg" />
 </div>
 
 
@@ -591,7 +672,7 @@ Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103062.jpg" />
 </div>
 
 
@@ -605,87 +686,6 @@ Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96C315838AA9207546388B465A60BA56EEDB17B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761273   (103063) от 19.11.2024
-
-Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Forget to Live 5:40
-02. Feel Invincible 4:08
-03. Stay Away... Last Warning 4:34
-04. Pyramids and Mystery 7:39(   Читать дальше...   )Жанр: Heavy-MetalПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5EF0181B55CBE777D55186EFE992B9559038FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761362   (103064) от 19.11.2024
-
-Dreamscapes - Lost and Found (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Time for Forgiveness (3:04)
-02. Shattered Vows (3:29)
-03. Lost in This Sadness (2:12)
-04. Emotions on Hold (2:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E7335EE00861C2F5D6FE701CF53E493CE89CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761297   (103065) от 19.11.2024
-
-Kreator - Live in Chile (April 2023) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergio Corbucci is Dead (Live) (1:00)
-02. Hate Über Alles (Live) (4:03)
-03. People of the Lie (Live) (5:44)
-04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D48B918FAD7B4EE9C974F90FD5AC81272D9A5C0
 ```
 
 

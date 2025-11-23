@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52937.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E53BA3B433F50F923C7020CB704B289AE233379C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52938.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2DAC053A580F1BA27ACEB4CA4510690ED4C7AA76
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52939.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:2DAC053A580F1BA27ACEB4CA4510690ED4C7AA76
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52940.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Microsoft Windows 11 [10.0.22631.3737], Version 23H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52941.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Windows Server [10.0.25398.950], version 23H2 (Updated June 2024) - Оригин
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52942.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Microsoft Windows 10 [10.0.19045.4529], Version 22H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52943.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:596E834EB86238BCA93D1AD571FC3FBD6F194B8C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52944.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:96C6C9D1A085B07E28F12D0994CF9CB40D7B169C
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52945.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A5A02DF881196CBD078B4C9EB97B72E4FB9BCE30
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52946.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ AIMP 5.30 Build 2555 RePack (& Portable) by elchupacabra (Extended + Standard) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52947.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ JetBrains PyCharm Professional 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52948.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:6E5EB239941218FD3A19A86C9AA053A09BCC7F67
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52949.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0B6C0EBB58A9358BC316EE4784280C54E221657A
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52950.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1CC05D8C6F8943F4B0BD72D13669FC5672D0CAA0
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52951.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:0098D5E2BB7C764B70087DC55BF0A4DF7290E96D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52952.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NewPipe Sponsor Block 0.27.0 Mod by N3k1t4_1996 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52953.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:2666DDED9A499B7292EF418A762E0B7DA9C1975B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52954.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Microsoft Windows 11 [10.0.22621.3737], Version 22H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52955.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Redout II (2) (2022) [Ru/Multi] (1.3.1/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52956.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:822674B1DEC040787556F77EC2C103AEEB8703B9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52957.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:7FEB37545728E5CA57E2A5312460FFE6975974BA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52958.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52959.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:82F4D003B3673CE1C8ACFDFBA7112C6E2A9BC025
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52960.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:9A84A9FBA800D622D2540F448DA75CA38D5204AE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52961.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DCC05867F21F454CE6E0520F0EA88FEAE4E5382A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52962.jpg" />
 </div>
 
 

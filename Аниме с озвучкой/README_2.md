@@ -6,7 +6,7 @@ Chi. Chikyuu no Undou ni Tsuite | Orb: On the Movements of the Earth | О дви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18424.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oshi no Ko 2 | Ребёнок идола | Звёздное дитя [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18599.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18600.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:29C96F522C8868EF6A1B66B86B57F6B3141CA4ED
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18641.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Inazuma Eleven GO | Одиннадцать молний: Только вперё
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19386.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19767.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19767.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Houkago Shounen Hanako-kun II | After-School Hanako-kun II | Ханако пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19772.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 3 Bonus Stage | Да благословя
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20084.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:DC9E0FEDC46486F0A8E9A7AEE122BADD070CAE5E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20200.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20200.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Super Lovers | Больше, чем возлюбленные [2016, TV, 10 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20371.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20371.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:7CA01836A7817144D3100B832A0996012C8D019F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20655.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:6020371DB0B7F57517AD5CFC209E6C7FE9D2B2C0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21087.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ NieR:Automata Ver1.1a 2 | Ниер: Автомата [ТВ-2] [2024, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21132.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21132.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:9CF0A7B1343899A6F1E540339C30BC3120D00F55
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21466.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21466.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:68C67BBDB59F3E8B55291FB879DA60EC14AD80F9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21557.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21557.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22277.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22277.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 3 | Жизнь в альтернативн
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22339.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Ore dake Level Up na Ken: Arise from the Shadow | Solo Leveling: Arise from the 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22401.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22401.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:4F68687E8550B191E397A24E071278675E7B04BF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22404.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22424.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Juusenki L-Gaim | Heavy Metal L-Gaim | Тяжёлая артиллерия Л-Г
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22458.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22458.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 | Сто деву
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22522.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22522.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22569.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22569.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:D120B57DD277BFF1CC3C27E851B844FEAF1BD2D6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22923.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22944.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sentai Red Isekai de Boukensha ni Naru | Крaсный рeйнджeр стaнoв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22954.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22954.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1196021   (137937) от 31.12.2017
+
+Комбат Найтов | Над Канадой небо синее... (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Оружейник».
+
+Герои «Оружейника» – Святослав и Татьяна – ворвались в неспешный и мрачный мир позднего Средневековья со знаниями и умениями конца XX – начала XXI веков. Привыкшие жить в совсем другом ритме, они отчаянно нуждались в последователях, так как невозможно построить новую империю вдвоем. Жизнь человеческая хрупка, как прутик, но если из (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8513F4DE7771F036A5247B060E8C40FA3DA20C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740068   (137938) от 31.12.2013
+
+Ведьмы из Сугаррамурди / Las brujas de Zugarramurdi (2013) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое незадачливых воришек попадают в заколдованный город, где на протяжении веков правят бал коварные ведьмы. Задача героев проста - унести ноги из страшного места. Для этого надо постараться не влюбиться в обитательниц этого гиблого места… Сюжет основан на подлинной истории, которая случилась здесь в начале XVII века, когда одна из жительниц деревни заявила, что (   Читать дальше...   )Производство: Испания, Франция, Enrique Cerezo Producciones Cinematográficas S.A., La Ferme! ProductionsЖанр: комедия, приключения, фэнтезиРежиссер: Алекс де ла ИглесиаАктеры: Марио Касас, Уго Силва, Хавьер Ботет, Сантьяго Сегура, Каролина Банг, Кармен Маура, Карлос Аресес, Секун де ла Роса, Макарена Гомес, Пепон НиэтоПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A47581CA7E16FDB0B628CF75B6665835EDAB52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349215   (137939) от 31.12.2019
+
+ABViewer Enterprise 14.1.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137939.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABViewer 14 - программный продукт для просмотра графических файлов с функционалом профессионального векторного редактора. Поддерживает более 50-ти растровых и векторных форматов файлов и форматов 3D изображений. Позволяет выполнять создание и редактирование чертежей с дальнейшим их сохранением в формат AutoCAD DXF и ряд других векторных и растровых форматов. Обладает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41FE0CD25786582CD8E7968A89CF0FCE2C8732E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970777   (137940) от 31.12.2015
 
 Антиганг / Antigang (2015) BDRip [576p] iPad
@@ -6,7 +80,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137940.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Drive by Wire - Spellbound (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137941.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:116841A0EBC9653CEF504B407BB37CC493FDDF6D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137943.jpg" />
 </div>
 
 
@@ -83,7 +157,7 @@ VA - 55 Hits 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137944.jpg" />
 </div>
 
 
@@ -110,7 +184,7 @@ magnet:?xt=urn:btih:D6E05675D1B15623E7EC57FBC3719386DB298E7A
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137945.jpg" />
 </div>
 
 
@@ -134,7 +208,7 @@ magnet:?xt=urn:btih:A23998940CDA8E751191D49A35D9DC7662F6FD31
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137947.jpg" />
 </div>
 
 
@@ -158,7 +232,7 @@ magnet:?xt=urn:btih:39491274048B86329547F517C7F30B5243D0D44F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137948.jpg" />
 </div>
 
 
@@ -182,7 +256,7 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137949.jpg" />
 </div>
 
 
@@ -209,7 +283,7 @@ magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137950.jpg" />
 </div>
 
 
@@ -233,7 +307,7 @@ VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137951.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ magnet:?xt=urn:btih:49CAE218325FFB723F5F7413AAA0250DBBDC406D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137952.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ magnet:?xt=urn:btih:73236BAA68B522562B4F929FB8FD291713C5F2F1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137953.jpg" />
 </div>
 
 
@@ -308,7 +382,7 @@ VA - Equilibrium (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137955.jpg" />
 </div>
 
 
@@ -335,7 +409,7 @@ magnet:?xt=urn:btih:3744698BFD73EEA6D6204575E962C4C6D777CC9A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137956.jpg" />
 </div>
 
 
@@ -359,7 +433,7 @@ Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137957.jpg" />
 </div>
 
 
@@ -386,7 +460,7 @@ magnet:?xt=urn:btih:0DB96D6BFF1E1D078573118254AC3301F331E32F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137959.jpg" />
 </div>
 
 
@@ -410,7 +484,7 @@ Thore Pfeiffer - Umland (2019) Savvy [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137960.jpg" />
 </div>
 
 
@@ -437,7 +511,7 @@ magnet:?xt=urn:btih:3BB3F1D637D4FCC906E17535D5C939E852F5119A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137961.jpg" />
 </div>
 
 
@@ -464,7 +538,7 @@ BELOFF 2020.12 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137962.jpg" />
 </div>
 
 
@@ -488,7 +562,7 @@ magnet:?xt=urn:btih:C1EE99F53959451A7AD9F0E63E01F14CA44BDCC0
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137963.jpg" />
 </div>
 
 
@@ -512,7 +586,7 @@ Photo Lab PRO v3.12.78 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137964.jpg" />
 </div>
 
 
@@ -536,7 +610,7 @@ FastStone Image Viewer 6.1 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137966.jpg" />
 </div>
 
 
@@ -560,7 +634,7 @@ magnet:?xt=urn:btih:D4F5CF3F857FFD2D646C4B92C50819B7B6441AE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137967.jpg" />
 </div>
 
 
@@ -571,80 +645,6 @@ magnet:?xt=urn:btih:D4F5CF3F857FFD2D646C4B92C50819B7B6441AE2
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196123   (137968) от 31.12.2017
-
-Супер Новый год (2017.12.31-2018.01.01) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137968.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 год стал для телеканала НТВ по-настоящему супер, поэтому и праздничный эфир 31 декабря получил название «Супер Новый год». Живые эмоции, новые лица и актуальный плейлист — все это только в эфире НТВ!
-Чтобы предновогодний вечер был по-домашнему уютным, НТВ построил дом, в теплой гостиной которого состоится главный праздник года.
-Гостями нашего семейного торжества (   Читать дальше...   )Производство: НТВЖанр: Музыкальное ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 02:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC96ACC8B07C29F0BC4D95281B70B2B1FCBB2EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196053   (137969) от 31.12.2017
-
-Бедная Маша (1981) SATRip (серии 1-2 из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медсестра Маша, чтобы проверить чувства Коли, ближайших родственников и знакомых, сообщает своей подруге «по секрету», что ждет ребенка…Производство: СССРЖанр: Мюзикл, комедияРежиссер: Николай АлександровичАктеры: Тамара Акулова, Олег Штефанко, Амаяк Акопян, Станислав Садальский, Лариса Кузнецова, Светлана Петросьянц, Клара Лучко, Николай Трофимов, Всеволод Шиловский, Николай ГорловСубтитры: ОтсутствуютПродолжительность: 01:04:40 + 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6A2CFA8C0AA0E9C52E06B92F64A9C730999526
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436044   (137970) от 30.12.2020
-
-CGMA, Dylan Mellott | Weapons and Props for Games (2017) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137970.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном курсе рассматриваются основы создания оружия и объектов для игр. В этом курсе вы пройдетесь по всему процессу создания - от справочных изображений и первоначальных концептов до финальных моделей. Вы узнаете, как создавать привлекательные модели, которые оптимизированы для работы в игровых движках. В курсе рассматривается геометрия, дизайн, текстурирование (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоПродолжительность: 11:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE0D4EAB97C08F59395FD8FBEBD9346E5A4F103
 ```
 
 

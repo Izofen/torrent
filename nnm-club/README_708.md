@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18732.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KiCad 9.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18733.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:50BFBC4D394311C43296CDC995D87A26A9AF6B63
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18734.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18735.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Xplorer2 Ultimate 6.1.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18736.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18737.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ WPS Office + PDF v18.17.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18738.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Sleep Token - Studio Albums (6 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18739.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Ashampoo WinOptimizer 28.00.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18740.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:5F833AA9D51FE047D3F8DB14D6CFE3623FCF76A8
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18741.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Windows Manager 2.1.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18742.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ BalenaEtcher 2.1.2 + Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18743.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:C9FAD64E117621C35DAC7E2E2CB7565C5138C2A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18744.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:4CA71375C2835A8462645FB8A16EE733B510D063
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18745.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Any Video Downloader Pro 9.2.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18746.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Calibre 8.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18747.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18748.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:1F38A0210B0015F7EBEC4223904D4765851DE42E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18749.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ XENOBREAKERS: Classic Tower Defense (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18750.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dark Envoy (2023) [Ru/Multi] (1.6.1.73592) Repack seleZen [Director's Cut - Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18751.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ CCleaner Pro: ПО для очистки 25.08.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18752.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18753.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:A75940F5ACB0E82ECD9C9F8749DD352E0CD63BE5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18754.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Telegram Desktop 5.14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18755.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:A7355F86FEB428ABA5433A4E1C4543535429C0F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18756.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:DF11867E81C940DD88B5928657D3C8203BC42B41
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18757.jpg" />
 </div>
 
 

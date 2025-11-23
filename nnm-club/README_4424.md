@@ -1,3 +1,77 @@
+###  Публикация: 1824949   (136883) от 16.10.2025
+
+MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136883.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE99E06573DE3E6BCD2F2D26AA1F9189A110F963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824948   (136884) от 16.10.2025
+
+Проекты - VideoHive - Funeral Memorial Slideshow - In Loving Memory Tribute Video MOGRT - 60250444 [MOGRT]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проект поможет вам создать трогательное и уважительное видео-посвящение любимому человеку. Благодаря элегантным переходам, плавному дизайну и лёгкой настройке оно идеально подойдёт для похорон, поминальных служб.
+
+Музыка предоставлена в демо режиме.Формат: MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F57B017018A2172813D91B1F8256CA0B0F0B19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824947   (136885) от 16.10.2025
+
+Дипломатка / The Diplomat (2025) WEB-DL [H.264/1080p] (сезон 3, серии 1-8 из 8) Videofilm, Tak Treba Production
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт Уайлер должна была отправиться работать в Афганистан. Но совершенно неожиданно её назначают послом США в Великобритании. Женщине-дипломату придётся разрешать международные кризисы, создавать стратегические союзы в Лондоне и приспосабливаться к своему новому месту в самом центре внимания. И всё это вперемешку с попытками сохранить брак с коллегой-дипломатом и (   Читать дальше...   )Производство: Великобритания, США / Netflix StudiosЖанр: триллер, драма, комедияРежиссер: Саймон Селлан Джонс, Эндрю Бернштейн, Лиза Джонсон, Алекс ГрейвзАктеры: Кери Рассел, Руфус Сьюэлл, Дэвид Джеси, Али Ан, Рори Киннер, Ато Эссандо, Джессика Шанлье, Пёрл Маки, Тим Делап, Адам Сильвер, Джорджи Хенли, Селия Имри, Нана Менса, Мигель СандовалПеревод: ДублированныйЯзык озвучки: Русский (Videofilm Int.), украинский (Tak Treba Production), английскийСубтитры: Русские (Forced, 2xFull), английские (Full, SDH), украинские (Forced, 2xFull)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108B59019EFCB75F1F3AB66CC202C135DF267986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824946   (136886) от 16.10.2025
 
 3D print - CA 3D Studios - Lord Drakkon [STL, LYS]
@@ -6,7 +80,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136886.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:97F590E07803BB0C9C4B032A9462DC3641B05D61
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136887.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ MediaHuman YouTube Downloader 3.9.17 (1510) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136888.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:1BDAE212CDBDC6B5F57CF1B833623842C91BE1D2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136889.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:7F612324E8618825B8CF41464E6983AE3F6894C9
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136890.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:72166D27E6F9D0E2B64A49656DBBBFE175ADC470
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136891.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:2206560FA54CEFB88432B513437608DFDC530716
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136892.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:2C52FF46E5667BC3E8BE7C3BE0C06B74DF214372
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136893.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ magnet:?xt=urn:btih:68EE1CCF416FA70F88CBDDE8FEAD4317C44643DA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136894.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.2/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136895.jpg" />
 </div>
 
 
@@ -247,7 +321,7 @@ magnet:?xt=urn:btih:D5C1A3485ACABE70AFCE0319118E99D97547F8FD
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136896.jpg" />
 </div>
 
 
@@ -271,7 +345,7 @@ Internet Download Manager 6.42 Build 51 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136897.jpg" />
 </div>
 
 
@@ -295,7 +369,7 @@ magnet:?xt=urn:btih:E67DCC9031494A9200A7428314BD129119E910BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136898.jpg" />
 </div>
 
 
@@ -319,7 +393,7 @@ magnet:?xt=urn:btih:748195432819782F67873E29A4188C8D793C48F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136899.jpg" />
 </div>
 
 
@@ -343,7 +417,7 @@ magnet:?xt=urn:btih:3669E16F8B9026D126A75F3ED0FCB0A561F5A6BC
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136900.jpg" />
 </div>
 
 
@@ -367,7 +441,7 @@ magnet:?xt=urn:btih:2E165C0DE2134E716A57DE9B0A68D71D68DF205E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136901.jpg" />
 </div>
 
 
@@ -391,7 +465,7 @@ magnet:?xt=urn:btih:20EA24D9DEF7AF5A0F6D9620B2F82F22786E96B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136902.jpg" />
 </div>
 
 
@@ -415,7 +489,7 @@ magnet:?xt=urn:btih:C9C30E0F3168F7EA087BA598DB61542A6DA3086F
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136903.jpg" />
 </div>
 
 
@@ -440,7 +514,7 @@ Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136904.jpg" />
 </div>
 
 
@@ -467,7 +541,7 @@ magnet:?xt=urn:btih:1A5FA82E36EF21425FE1F0E14124C2AD1AC2846E
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136905.jpg" />
 </div>
 
 
@@ -491,7 +565,7 @@ magnet:?xt=urn:btih:9A5A2DBF2DCFC865613651BE41DD1A542DDA6F0D
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136906.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6456 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136907.jpg" />
 </div>
 
 
@@ -542,7 +616,7 @@ magnet:?xt=urn:btih:B73F214991544FA99DCDE55A6FB87878D044239A
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136908.jpg" />
 </div>
 
 
@@ -555,80 +629,6 @@ magnet:?xt=urn:btih:B73F214991544FA99DCDE55A6FB87878D044239A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B1B49ABC1639284A61340700A8871C6A97AF3CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824923   (136909) от 16.10.2025
-
-Шрифты - YouWorkForThem - Monoxide Font - T28400 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь с Monoxide — жирным шрифтом с заглавными буквами, разработанным для того, чтобы ваши творческие проекты стали ещё привлекательнее. Благодаря шести уникальным вариантам высоты этот шрифт привносит яркую индивидуальность и энергичный ритм в заголовки, плакаты и логотипы. Его чистый, но лаконичный стиль гарантирует, что каждый дизайн будет не только привлекающим (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBB7CE03F73F3B7B13220E2B32529741DAC25C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824899   (136910) от 16.10.2025
-
-Сусанна Сёберг | Плавание в холодной воде (2022) [MP3,  Людмила Шаулина]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датский ученый Сусанна Сёберг написала книгу о пользе купания в холодной воде: увлекательное, доступное и красивое руководство, основанное на научных исследованиях.
-Купание в холодное время года — простой и интересный способ оставаться активным и бодрым. Главное — решимость окунуться в холодную воду и остаться там на какое-то время.
-Контакт с холодной водой помогает (   Читать дальше...   )Жанр: ЗдоровьеИздательство: МИФПродолжительность: 06:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53740B0C0570714E3B66AE223F7ABB89B3263C20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824922   (136911) от 16.10.2025
-
-Последний рубеж / The Last Frontier (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-2 из 10) LostFilm, TVShows, NewComers, HDrezka Studio, Red Head Sound, ...
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Ремник, федеральный маршал США в Аляске, защищает вверенную ему территорию после крушения тюремного транспортного самолёта, которое освободило десятки опасных заключённых. Фрэнк расследует катастрофу и вскоре начинает подозревать, что крушение не было случайным.Производство: США, Apple Studios, Pickpocket EntertainmentЖанр: боевик, триллер, драмаРежиссер: Джон Кёрран, Дэнни Гордон, Джессика ЛориАктеры: Симона Кэссел, Хейли Беннетт, Джейсон Кларк, Доминик Купер, Элфри Вудард, Даллас Голдтут, Тейт Блум, Джош Круддас, Kya Rose, Сара СуайрПеревод: Многоголосый (LostFilm, TVShows, NewComers, HDrezka Studio, Red Head Sound, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full, SDH), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542603CC2E25532EE371A37560773975B12D222D
 ```
 
 

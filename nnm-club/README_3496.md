@@ -1,3 +1,84 @@
+###  Публикация: 1719225   (110578) от 29.04.2024
+
+Sidilarsen - Que la lumiere soit (2024) [MP3|320 Kbps] <Rapcore, Frenchcore, Technometal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Adelphité [00:04:38]
+02 - Intox [00:04:33]
+03 - On revient sur terre [00:03:41]
+04 - Sunburn [00:04:09](   Читать дальше...   )Жанр: Rapcore, Frenchcore, TechnometalПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9454479DCDE4815888505CA21D8304BBA6A085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719449   (110579) от 29.04.2024
+
+Александр Вестов - Алые розы (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не бросай её [3:17]
+02. Любовь - это ты [3:34]
+03. Я тебя не брошу [3:35]
+04. Одиночество [3:10](   Читать дальше...   )Жанр: ШансонПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB47834FEF0A199BBF241A765C2BC93D627FC68B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719457   (110580) от 29.04.2024
+
+Владимир Тимофеев - Северные лагеря (Блатные песни) (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волюшка-воля [4:56]
+02. Сибирские лагеря [4:14]
+03. Летний дождь [5:03]
+04. Сусуман [5:14](   Читать дальше...   )Жанр: ШансонПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68502659929E88C86D29677C73D45FDDCF87367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719506   (110581) от 29.04.2024
 
 Athena's Revenge - Wisdom & Warfare (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +87,7 @@ Athena's Revenge - Wisdom & Warfare (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110581.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110582.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:B885A6C28BA0325E299A4F26DAFCAFC177BA897C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110583.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Waysted - Waysted (1983) Expanded Edition, 2024, Cherry Red Records [MP3|320 Kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110584.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Amerikan Kaos - Armageddon Boogie (2024) [MP3|320 Kbps] <Classic Metal, Hard 'n'
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110585.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Darkness - Blood On Canvas (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110586.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ VA - Eosella Music One Year Anniversary (2024) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110587.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Pendragon - The Masquerade Overture (1996) Reissue, Remastered, 2024, Toff Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110588.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Nora En Pure - Purified Radio 400 (Drakensberg, South Africa) (2024-04-21) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110589.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Opera One 109.0.5097.68 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110590.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ magnet:?xt=urn:btih:4C61EDF78B503306D811E89C680DAC02EC4999BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110591.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ magnet:?xt=urn:btih:B6C58417D57CF81C90677CD971912BE1CE047893
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110592.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110593.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ Walker & Royce - No Big Deal (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110594.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ magnet:?xt=urn:btih:D5335B2C22E744783AC35B44DB641944BFDE5C6A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110595.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ UB40 - UB45 (2024) Ultimate Edition [FLAC|Lossless|WEB-DL|tracks] <Reggae, Ska>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110596.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ Miss Monique - Tomorrowland Friendship Mix (2024-04-25) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110597.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ magnet:?xt=urn:btih:75A758DA035C7C6E3CF9E65FBCA1558C1E4214EC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110598.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ St. Vincent - All Born Screaming (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110599.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110600.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ Billy Idol - Rebel Yell (1982) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110601.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ magnet:?xt=urn:btih:1D43952A2933CD5EB4629685B307189FA8614EA6
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110602.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ Image Uploader 1.4.0 Build 5139 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110603.jpg" />
 </div>
 
 
@@ -589,81 +670,6 @@ Image Uploader - бесплатная программа для Windows c отк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB157ACC67F1D510A24C57283CEF5CC4082446EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719512   (110604) от 29.04.2024
-
-Не разбей мое сердце (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студентка Алёна Павлова мечтает иметь детей, любимое дело и верного любящего мужа. Но когда-то девушке сделали необычное предсказание: как только Алёна полюбит кого-то, к ее избраннику тотчас же придет слава и богатство, но он сразу же ее бросит. А рядом с Алёной останется лишь тот, кому нужна она сама, а не ее дар. Алёна не верила в предсказание, пока оно не начало (   Читать дальше...   )Производство: Россия | С.Д.Л.Жанр: МелодрамаРежиссер: Евгений БарановАктеры: Анна Мельникова, Никита Кучихидзе, Мария Столярова, Екатерина Семёнова, Анна Миклош, Иван Матвеенко, Вадим Ковальски, Евгения Шахнович, Ника Ломако, Екатерина РябоваПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20C9B08634D736852F9FA63601AD03BC1176CFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719188   (110605) от 28.04.2024
-
-Пятеро на одного (27.04.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16B65DF25EE18D0E4DEFCA7E89316B941DF7B26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719153   (110606) от 28.04.2024
-
-JC Smith - The Cool & the Smooth (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Callin' u (4:59)
-02. Ride Wit' me (4:57)
-03. Take U Away (4:13)
-04. I Fall in Love (4:42)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01624E0F9F3FF09261783174A4A1D6F6C66DBC65
 ```
 
 

@@ -1,3 +1,182 @@
+###  Публикация: 537653   (150057) от 24.12.2020
+
+Полная коллекция Ребенок Эйнштейн / Full Baby Einstein Collection (2002 - 2009) DVDRip (28 серий) [Полностью EN, частично RU / FR / ES]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия видеофильмов Baby Einstein, посвященная раннему развитию наших малышей. Продукция компании Baby Einstein предназначена для детей с самого рождения. Выпускаемые под этой маркой фильмы на деле помогают вашему маленькому ребёнку познавать мир, они давно завоевали любовь и признание малышей и их родителей. Кроме того, что они решают вопрос "Как добиться немного (   Читать дальше...   )Производство: США, Walt Disney VideoЖанр: Детский, Обучающий, РазвивающийРежиссер: Джулия Эйгне-Кларк / Julie Aigner-ClarkПеревод: Одноголосый дублированный (ПузКарапуз), Перевод частичный... Указан в списке серий...Язык озвучки: Полный: Английский, Частично: Французский, Русский, ИспанскийСубтитры: ОтсутствуютПродолжительность: 28 серий по ~00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB1AFA709D7643C5219E123C44030171587463B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086725   (150058) от 25.12.2016
+
+King 810 - La Petite Mort Or A Conversation With God (2016) [MP3|320 Kbps] <Nu-Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Lies the Crown
+02. Alpha & Omega
+03. Give My People Back
+04. Vendettas(   Читать дальше...   )Жанр: Nu-Metal, HardcoreПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D23C0C5A8A2D60D72D255D43F7D38A45E1D029C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573318   (150059) от 22.12.2021
+
+Сокровища анимации: Микки Маус / Treasures of animation: Mickey Mouse (1929-1953) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150059.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 ноября 1928 года состоялся дебют маленького храброго мышонка по имени Микки, и с этого самого момента весь мир очарован этим ушастым героем! Сегодня, 80 лет спустя, Микки Маус является самой любимой суперзвездой на Земле. А теперь и мы с Вами можем присоединиться к компании Микки и его друзей в их забавных приключениях, собранных вместе в замечательном сборнике (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: Рисованная анимация, Детский, ПриключенияРежиссер: Уолт ДиснейПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 05:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9E740EA088CB492ADAF871DB25062891086632
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677467   (150060) от 18.11.2023
+
+Ласточка (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Асю Волкову несправедливо осудили на 18 лет за убийство ее одноклассницы. На зоне Ася узнала, что беременна. Она родила мертвого ребенка. Выйдя на свободу, она меняет свое имя, внешность и возвращается в родной поселок Ласточки. Ася хочет отомстить тем, кто сломал ее жизнь, из-за кого она оказалась в тюрьме. Ася подозревает, что настоящий убийца - Андрей, ее первая (   Читать дальше...   )Производство: Россия | «Всемирные Русские Студии»Жанр: ДетективРежиссер: Денис КарроАктеры: Екатерина Редникова, Илья Носков, Ольга Фадеева, Михаил Химичев, Наталья Рычкова, Александр Волков, Петр Баранчеев, Наталья Рыжих, Олег Андросов, Виктория ВысоцкаяПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B002B850F4775784546E1F95E9ABA0DBD3924ED6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271278   (150062) от 23.12.2018
+
+DJ Kevlar - You Gots T'Challa (The Best of 2018 Mix) (2018) Mixtape [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Funk, Afrobeat>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - deM atlas – Bad Loves Company (4:07)
+02 - Kooley High – Voila feat. Median (3:21)
+03 - Kidaf - Grabba (2:37)
+04 - Marlowe – Fred Sanford (2:43)(   Читать дальше...   )Жанр: Hip-Hop, Funk, AfrobeatПродолжительность: 01:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B5B15A6F97BF8574129E6F43155E01AD4592A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737957   (150063) от 26.12.2013
+
+David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tunnels - 5:42
+02. Water Birth - 7:40
+03. Off the Map - 7:02
+04. Star Fall - 8:32(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B6C19357E0AF89DB23037D13D23F8844DBEFC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519057   (150064) от 22.12.2021
+
+Дмитрий Колесников | Курс Грамматики - 2020 . База Английского (2020) WEB-DL [AD]
+
+>>След.
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс ставит сильную грамматику и глубокое понимание логики языка. Стартовый уровень значения не имеет.
+Многим нравятся мои уроки на youtube. Ответственно заявляю, что курс выше по качеству и эффективности, чем многие мои видео.
+Курс идет 28 занятий (3 месяца). 2 занятия в неделю, по 90-120 минут каждое. Я всегда работаю только на результат, поэтому фиксированного (   Читать дальше...   )Жанр: Английский языкПродолжительность: 84:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E6300A3470A6A29C3AF67FEED4DFE9F783DE8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086774   (150065) от 25.12.2016
 
 Журнал | Мой любимый дом №1 (январь 2017) [PDF]
@@ -6,7 +185,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150065.jpg" />
 </div>
 
 
@@ -30,7 +209,7 @@ magnet:?xt=urn:btih:BA1D5562487059AD2A4A17B30A53A6CDA5F0299C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150067.jpg" />
 </div>
 
 
@@ -54,7 +233,7 @@ Led Zeppelin - Лестница на небеса (1988) [FLAC 2.0 192/24|traсk
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150068.jpg" />
 </div>
 
 
@@ -81,7 +260,7 @@ magnet:?xt=urn:btih:2635FBB11C59E8582BA1C4589DF339FA580C5069
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150069.jpg" />
 </div>
 
 
@@ -108,7 +287,7 @@ magnet:?xt=urn:btih:A6D0A10FCAB87CD0695CEC22F314F0E662462718
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150071.jpg" />
 </div>
 
 
@@ -132,7 +311,7 @@ magnet:?xt=urn:btih:80A9D6552F3E23B070DD41872B144A56D8C44CE9
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150072.jpg" />
 </div>
 
 
@@ -161,7 +340,7 @@ Microsoft Windows 11 [10.0.22000.376], Version 21H2 (Updated December 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150073.jpg" />
 </div>
 
 
@@ -185,7 +364,7 @@ magnet:?xt=urn:btih:853408AFA2702B12F2DB2318F06CB4B735E0847C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150074.jpg" />
 </div>
 
 
@@ -211,7 +390,7 @@ magnet:?xt=urn:btih:48693FFA2CF14DA2859478EC4C7035A3F59AB49E
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150075.jpg" />
 </div>
 
 
@@ -235,7 +414,7 @@ magnet:?xt=urn:btih:EA3138D6AFBE88D78BE9453DF60F1DBDC65F8B6E
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150076.jpg" />
 </div>
 
 
@@ -259,7 +438,7 @@ magnet:?xt=urn:btih:252F68E3CE7427B0FDF6806CC8E1C2FDD6557C19
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150077.jpg" />
 </div>
 
 
@@ -284,7 +463,7 @@ V.A. - Electro Swing Elite Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150079.jpg" />
 </div>
 
 
@@ -311,7 +490,7 @@ AusLogics BoostSpeed 5.5.0.0 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150080.jpg" />
 </div>
 
 
@@ -335,7 +514,7 @@ iFlicks 2 v2.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150081.jpg" />
 </div>
 
 
@@ -361,7 +540,7 @@ Windows 7/10/11 Pro х86-x64 by systemp 21.12.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150083.jpg" />
 </div>
 
 
@@ -387,7 +566,7 @@ Memory Clean 2 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150084.jpg" />
 </div>
 
 
@@ -413,7 +592,7 @@ Luminar Neo 1.16.0.12503 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150085.jpg" />
 </div>
 
 
@@ -439,7 +618,7 @@ magnet:?xt=urn:btih:BDF88A2575AEA5FE8293172CC435063751FDD601
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150086.jpg" />
 </div>
 
 
@@ -464,7 +643,7 @@ magnet:?xt=urn:btih:6ACD941AF5A2A997BA17605388C91C9106142D7A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150087.jpg" />
 </div>
 
 
@@ -475,180 +654,6 @@ magnet:?xt=urn:btih:6ACD941AF5A2A997BA17605388C91C9106142D7A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9DD52266EAB715799879F2DA8D9CC88B17AE3FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270477   (150089) от 23.12.2018
-
-Алексей Никифоров | Деревья и полевые цветы из бисера [Ознакомительный фрагмент] (2018) [FB2]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150089.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказывается о новых находках и методах изготовления деревьев и цветов из бисера. Многие люди хотят собственное деревце бонсай у себя дома, но не все могут обеспечить условия для бонсай или не хватает времени для его выращивания. Выбор у этих людей есть - искусственный бонсай, бонсай из бисера.Жанр: ХоббиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF5C57D022FDD2F111CA9EA7404FC49D56FF67D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086923   (150091) от 25.12.2016
-
-Журнал | Elektor №1-2 (2017) [PDF] [En]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по схемотехнике и электронным компонентам, издается на английском и немецком языках. На страницах журнала много внимания уделяется проектам на микроконтроллерах. Все проекты хорошо задокументированы и снабжены детальными описаниями, схемами, чертежами печатных плат.Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C220B1F6C491F918CDFDB3E8E039F7FD4D78A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744882   (150092) от 25.12.2015
-
-Deep Purple - Дип Пёрпл (Дым над водой) (1988) [FLAC 2.0 24/192|traсks(Vinil-Rip)]<Hard Rock>
-
->>След.
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Черная ночь (Black Night)  3:26
-2. Шаровая молния (Fireball)  3:24
-3. Космическое путешествие (Space Truckin')  4:32(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195A3BC481818EBF3B7F4BFA3BF1A17F279F3C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426994   (150093) от 24.12.2020
-
-Псих (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олег — столичный психотерапевт. К нему в очередь выстраиваются клиенты центрального округа Москвы. Только в последнее время Олег их не любит, он их терпит. Кризис среднего возраста, жизнь с мамой в 40 лет, потеря самоуважения, медикаментозная зависимость, раздражительность и нарастающая агрессия — никто из клиентов не подозревает о его проблемах. Со стороны он кажется (   Читать дальше...   )Производство: Россия / Национальная Медиа Группа (НМГ),  	ВидеопрокатЖанр: драмаРежиссер: Фёдор БондарчукАктеры: Константин Богомолов, Елена Лядова, Игорь Верник, Марина Александрова, Анна Чиповская, Александр Горчилин, Евгения Громова, Роза Хайруллина, Владимир Симонов, Олег МеньшиковПродолжительность: ~00:59:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4225407A153216C013A3A7451FD251DE978C4E85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486671   (150094) от 22.12.2021
-
-Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая Джахи не сдаётся! [2021, TV, 20 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то Джахи, верную помощницу самой Королевы Демонов, только ей и уступавшую в силе, уважали и боялись. Но однажды девушка-волшебница уничтожила содержащий огромную мощь магический камень, и мир Демонов разрушился. Хотя Джахи и выжила, но потеряла почти все свои силы и оказалась в мире людей в теле ребёнка. Чтобы собрать как можно больше магических камней и восстановить (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедияРежиссер: Минато МирайПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 20 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C39B83540E8EA82350FD2367A491036A2A760F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677480   (150095) от 18.11.2023
-
-Держись / Hold Fast (2013) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150095.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти родителей в автокатастрофе родственники решили разделить двух братьев. Четырнадцатилетнего Майкла отправляют в семью его дяди Теда. Вот только жизнь на новом месте у подростка не задалась. Начались конфликты в новой школе, да и дядя Тед нередко злоупотреблял алкоголем. И после очередного конфликта в классе главный герой решает на побег. К нему присоединяется (   Читать дальше...   )Производство: Канада / Rock Island ProductionsЖанр: драмаРежиссер: Джастин СимсАктеры: Avery Ash, Майк Дэйли, Liam Dawson, Джейн Дингл, Эйден Флинн, Мак Фурлонг, Dawson Hiscock, Geraldine Hollett, Энди Джонс, Ethan MartinsПеревод: одноголосый любительский (Владислав Данилов)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A189C3647391A5D76B7785851816C6B85B977A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086724   (150096) от 25.12.2016
-
-John Di Martino's Romantic Jazz Trio - Music Of The Night (2016) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All That Jazz [00:05:01]
-02. I Dreamed a Dream [00:06:26]
-03. Music of the Night [00:05:12]
-04. Memory [00:05:05](   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A4F1C41416B7039F733F0AE68105111BFF27E6
 ```
 
 

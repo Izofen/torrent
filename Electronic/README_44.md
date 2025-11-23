@@ -6,7 +6,7 @@ VA - Spacesynth.de Contest TraxX (2007) [FLAC|Lossless|tracks + .cue] <Spacesynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70361.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70364.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70384.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Krieg-B - War Drums' resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70392.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Metropolit - Fear: My Guide, My Steady Downfall (2025) [MP3|320 Kbps] <Darkwave,
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70393.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Echodead - Enter the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70397.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Protokoll 19 - Mental Decay (2024) [MP3|320 Kbps] <Dark Electro, Harsh EBM>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70400.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Strong Product - IV (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70402.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ djdtime - Relaxing Deep House & Tech House Mix Vol. 1 (2024) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70448.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ djdtime - Vocal Progressive House & Melodic Techno, Vol. 2 (2025) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70449.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Trance Winter 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70457.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 08 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70497.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ MORTEN - We Rave You presents, Bootshaus Cologne, Germany (2025-01-10) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70513.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Third Party - Live @ VOID Club, Thailand (2025-01-31) [MP3|320 Kbps] <Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70519.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jan Blomqvist - MUTE (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70534.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Uplifting Only Top 15: February 2025 (Extended Mixes) (2025) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70543.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Tiesto - Live @ Club Space Miami, United States (2025-01-24) [MP3|320 Kbps] <Tec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70546.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70557.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Best of Trippy Code Melodic Techno & Progressive House Vol.1 (2025) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70565.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Exploration Tales #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70570.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - ADE Underground Amsterdam Sampler (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70618.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Ori Uplift - Uplifting Only Episode 627 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70619.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Winter Tech House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70634.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Armin van Buuren - A State Of Trance 1212 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70640.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Black Hole Trance Music 02-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70641.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Black Hole House Music 02-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70645.jpg" />
 </div>
 
 

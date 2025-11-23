@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102451.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102452.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:99C90584A00BD1B819AAFA0A3B1C1E3976137779
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102453.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102453.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:99C90584A00BD1B819AAFA0A3B1C1E3976137779
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102458.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102458.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:99C90584A00BD1B819AAFA0A3B1C1E3976137779
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102467.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102467.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:99C90584A00BD1B819AAFA0A3B1C1E3976137779
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102478.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tema windows 7 LIGTHVIDROVP+EXTRAS by rosy  2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102481.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102481.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Finale 2011 2011.r2 [Английский / Русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102485.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102485.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Finale позволяет настроить вид нотного листа о
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102496.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102496.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Finale позволяет настроить вид нотного листа о
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102503.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:991045C2B244B2C9ECBBDD69E4980A1F174676B6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102505.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:9C91156110880473159C955F232F9D98587CD84F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102511.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Anthropics Portrait Professional Studio v10.9.3 Final + Portable [2012,ML\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102513.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102513.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Lenovo WinDVD Disk v1.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102515.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102515.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Call&Note Recorder Mailer PRO 4.4.3[Программа] (Android 2.3.7+)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102516.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102516.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Call&Note Recorder Mailer PRO 4.4.3[Программа] (Android 2.3.7+)
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102526.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102526.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Call&Note Recorder Mailer PRO 4.4.3[Программа] (Android 2.3.7+)
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102534.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The KMPlayer 3.0.0.1440 (LAV) (сборка 7sh3 от 30.04.2012) [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102539.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102539.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Microsoft SQL Server 2012 Express (x86 and x64)  (Russian)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102557.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102557.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ SQL Server 2012 Express – это бесплатная версия SQL Server,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102558.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:C90552D1BEA3680C9372ECBD47A9DB5DC2396445
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102565.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:9680F61A2F99083F1235551C1F7E88B76E4575E9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102574.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:552666DA01159609E5BEF1383BE05B01B70BD40E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102576.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:92B75D6E51CC85344D224504E313F2935C3A1A1E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102590.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102590.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:92B75D6E51CC85344D224504E313F2935C3A1A1E
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102595.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:5DACE9CA8D9E47D3EE9EE89F23DF9FEFAFD53723
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102601.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102601.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1272388   (144679) от 27.12.2018
+
+The Alchemist - Lunch Meat (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin Steaks feat. Roc Marciano (1:40)
+02. Judas feat. Westside Gunn & Conway (4:47)
+03. The Hopeless Romantic feat. Action Bronson (2:48)
+04. Massacre feat. Styles P & Benny The Butcher (2:45)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEC118DC11AAED6AB19AFE03969C3F0E2B01D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969776   (144692) от 28.12.2015
+
+Проекты - Pond5 - Lovely Moments - 56638101 / VideoHive - Lovely Moments - 13536406 [AEP]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF7C0CED718110D3270A4FDAA5E7BEC78CADB21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348388   (144694) от 27.12.2019
 
 Luminant Music Ultimate 2.3.1 RePack (& Portable) by elchupacabra [En]
@@ -6,7 +58,7 @@ Luminant Music Ultimate 2.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144694.jpg" />
 </div>
 
 
@@ -31,7 +83,7 @@ PhotoMill X 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144696.jpg" />
 </div>
 
 
@@ -57,7 +109,7 @@ The Alchemist - Bread (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144700.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Cookie 6.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144720.jpg" />
 </div>
 
 
@@ -109,7 +161,7 @@ Comfy Partition Recovery 2.4 Home Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144734.jpg" />
 </div>
 
 
@@ -133,7 +185,7 @@ BELOFF [dp] 2019.12.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144738.jpg" />
 </div>
 
 
@@ -160,7 +212,7 @@ Yate 6.2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144743.jpg" />
 </div>
 
 
@@ -187,7 +239,7 @@ Stellarium 0.15.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144762.jpg" />
 </div>
 
 
@@ -212,7 +264,7 @@ Sumatra PDF 3.2.11801 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144773.jpg" />
 </div>
 
 
@@ -237,7 +289,7 @@ Andy Griggs - The Good Life (2008) [FLAC|Lossless|image + .cue] <Country, Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144779.jpg" />
 </div>
 
 
@@ -264,7 +316,7 @@ PowerRun v1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144782.jpg" />
 </div>
 
 
@@ -288,7 +340,7 @@ Xliff Editor 2.5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144792.jpg" />
 </div>
 
 
@@ -314,7 +366,7 @@ magnet:?xt=urn:btih:86CD9E8C9204A235799FDCD8D93A841DD754F14C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144807.jpg" />
 </div>
 
 
@@ -339,7 +391,7 @@ Postico 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144818.jpg" />
 </div>
 
 
@@ -366,7 +418,7 @@ Librera PRO: Читалка для книг v8.4.25 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144826.jpg" />
 </div>
 
 
@@ -382,6 +434,30 @@ magnet:?xt=urn:btih:6D8CF4DCCF87808339D3557ACBC343CE5811A388
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589989   (144835) от 16.12.2012
+
+LeaderTask 7.6.0.0 [Multi/Rus] RePack & Portable by KGS
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_144835.jpg" />
+</div>
+
+
+###  Подробнее
+
+LeaderTask - это Планировщик + ПИМ + Календарь + Адресная книга + Ежедневник! LeaderTask - умный органайзер для Лидеров! Интеллектуальная система управления проектами, событиями, задачами, контактами, освободит вас от рутины и даст больше времени для творчества! Наш органайзер поможет вам избавиться от различных поглотителей времени, поможет вам увидеть четкую перспективу жизни, иметь подробный обзор дел, задач, вы будете ставить более высокие цели и достигать их. Планировать и выполнять. Думать и находить решения. Измерять и управлять любыми ресурсами вашей жизни! Языки: English, Русский, Francais, Italian, Spanish, Deutsche,Bulgarian, Greek, Serbian, Korean и Chinese, включая Help.Язык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434826   (144840) от 27.12.2020
 
 MInstAll v.25.12.2020 By Andreyonohov & Leha342 (ISO) [Ru]
@@ -390,7 +466,7 @@ MInstAll v.25.12.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144840.jpg" />
 </div>
 
 
@@ -414,7 +490,7 @@ The Yashin - Miles Away But Getting Closer (2008) EP [FLAC|Lossless|tracks + .cu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144842.jpg" />
 </div>
 
 
@@ -441,7 +517,7 @@ R-Studio Network 9.3 Build 191259 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144850.jpg" />
 </div>
 
 
@@ -465,7 +541,7 @@ PotPlayer 231113 (1.7.22038) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144858.jpg" />
 </div>
 
 
@@ -489,7 +565,7 @@ Speedyfox 2.0.14 Build 95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144870.jpg" />
 </div>
 
 
@@ -513,7 +589,7 @@ PDF-XChange PRO 10.1.3.383 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144872.jpg" />
 </div>
 
 
@@ -537,7 +613,7 @@ The Roots - Undun (2011) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144880.jpg" />
 </div>
 
 
@@ -564,7 +640,7 @@ Adguard 2.4.2.712 nightly (CL - 1.5.165) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144901.jpg" />
 </div>
 
 
@@ -575,82 +651,6 @@ Adguard — это лучший способ избавиться от разд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E4FD6B1FF91F305E7087EC4408F5F192CCC8364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252111   (144907) от 26.12.2018
-
-Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Негодник, которому не снилась девушка-кролик [2018, TV, 13] WEB-DL 1080p rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет полон слухов о «синдроме юности», что проявляется у подростков с неустойчивой психикой. Старшекласснику Сакуте он знаком не понаслышке, ведь ему одна за другой встречаются девушки, страдающие этим загадочным синдромом. Так, однажды в библиотеке он натыкается на девушку в вызывающем костюме кролика, однако, к его удивлению, никто вокруг не обращает на неё (   Читать дальше...   )Производство: студия CloverWorksЖанр: романтика, комедияРежиссер: Масуй СойтиЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89673B0FDA9B4AB1F6E6526A2886E05F29626ABC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087601   (144911) от 28.12.2016
-
-Хаме-леон - Ночь шальных машин в городе тьмы (2016) [FLAC|lossless|image + .cue] <Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пламя (03:58)
-02. Мастер перевоплощения (03:58)
-03. Крылья расправь (07:46)
-04. Ночь шальных машин (05:52)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291B09664C0578EF14149E8B9DAA99F4B13D2B21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087867   (144916) от 28.12.2016
-
-CopyClip 2 - Clipboard Manager v2.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144916.jpg" />
-</div>
-
-
-###  Подробнее
-
-CopyClip 2 - эффективный менеджер буфера обмена
-CopyClip - очень простой и эффективный менеджер буфера обмена для вашего Mac, значек которого после запуска, находиться в строке меню и всегда под рукой. Приложение хранит все, что вы скопировали или вырезали в прошлом, что позволяет быстро обнаружить нужный фрагмент текста, который вы так долго искали.Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00F6E1320F93C2C43A1EFF15774D37323A2CB9C
 ```
 
 

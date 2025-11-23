@@ -1,3 +1,182 @@
+###  Публикация: 1676880   (154212) от 15.11.2023
+
+PDF-XChange Editor Plus 10.1.3.383 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154212.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-XChange Editor — программа для просмотра, редактирования и изменения PDF документов. У вас теперь есть более легкий, быстрый и многофункциональный аналог программе Adobe Reader. Программа обладает всеми возможностями для просмотра PDF документов. С помощью PDF-XChange Editor можно смотреть и печатать PDF документы, экспортировать из них текст и графику, создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EE280E1E7ECB010347B9F675ABE5DA851798B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600977   (154213) от 29.12.2022
+
+Wood Roses - We Call It Maize (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Darlin' (3:12)
+02. Disatant Memories (3:35)
+03. Bar Room Crie (3:23)
+04. Penis On the Line (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E109A6F38C0C9BF6E3E5C381289CDA1FE0275C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270863   (154214) от 21.12.2018
+
+Method Man - Meth Lab II: The Lithium (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, East Coast Rap, Hardcore Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pilot - Intro (1:20)
+02. Episode 1 - Kill Different ( feat. Hanz On, Raekwon) (3:15)
+03. Episode 2 - Eastside ( feat. Intell, Snoop Dogg) (4:24)
+04. Commercial Break ( feat. Thotti Gotti) (0:49)(   Читать дальше...   )Производство: Hanz On Music - 759108568607Жанр: Hip-Hop, East Coast Rap, Hardcore RapПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136289D58F11B0AAA2B50497D79FE3FE12C686B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347281   (154215) от 22.12.2019
+
+Emerald Rain - альбомов Discography (1997-2005) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2001 - Behind The Masquerade
+2005 - Believe
+2013 - ObsessionЖанр: Melodic Hard RockПродолжительность: 02:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52813C6E563CCD6B1F54A33D5053C56CF7D3B521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433911   (154216) от 22.12.2020
+
+Шаблоны - GraphicRiver - Phone 12 Case 3d Mockup - 29444862 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 6 реалистичных и простых в редактировании iPhone 12 Case 3D Mockup для Photoshop.Формат: PSDРазрешение файлов: 6000×6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E1325B361D2840B382ED6DA0FEBDA28EC3FF50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085827   (154217) от 23.12.2016
+
+Интересные факты. Выпуск 75 - 40 самых интересных фактов о человеке
+
+>>Поговорим
+>>А знаете ли вы..
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный проект NNM-Club
+Интересные факты. Выпуск 75
+40 самых интересных фактов о человекеФакт 1. Научное название пупка — умбиликус.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518600   (154218) от 20.12.2021
+
+Walletry 2.8.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Walletry - это простое приложение, которое поможет вам отслеживать свои доходы и ежедневные расходы. Вы можете добавлять свои ежедневные транзакции и классифицировать их, добавляя множество категорий и настраивая их. Также вы можете получать уведомления о сроках транзакций и прикреплять фотографии к своим транзакциям и еще указывать свое местоположение.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: © 2020 Fantazia AppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362555C7D269547D1FFFB3B182CAFE9967F583A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194734   (154219) от 26.12.2017
 
 VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 19) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
@@ -6,7 +185,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154219.jpg" />
 </div>
 
 
@@ -33,7 +212,7 @@ magnet:?xt=urn:btih:33818CB5C21C551332B481890E402846B45B4CB0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154220.jpg" />
 </div>
 
 
@@ -57,7 +236,7 @@ magnet:?xt=urn:btih:A9FD2FAE2F242D01FFCFC7D8452C77B233AE1A4E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154221.jpg" />
 </div>
 
 
@@ -81,7 +260,7 @@ PicPick Free+Pro 7.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154222.jpg" />
 </div>
 
 
@@ -105,7 +284,7 @@ Task Office 6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154223.jpg" />
 </div>
 
 
@@ -129,7 +308,7 @@ Badhoven - 3 альбома Discography (2001-2013) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154224.jpg" />
 </div>
 
 
@@ -156,7 +335,7 @@ magnet:?xt=urn:btih:27A7E0E48DF996B0E3E6C14F3606C3C63FB6C5EE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154225.jpg" />
 </div>
 
 
@@ -180,7 +359,7 @@ magnet:?xt=urn:btih:E56BE6739149541D208737FAE4406E4F53FD2D06
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154226.jpg" />
 </div>
 
 
@@ -204,7 +383,7 @@ magnet:?xt=urn:btih:199CFBEEB5984A7FB85B3DC78A7DEBC3BC1DBE10
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154227.jpg" />
 </div>
 
 
@@ -229,7 +408,7 @@ magnet:?xt=urn:btih:71380898CEB381DD3528AF50765698B54C9D5D76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154228.jpg" />
 </div>
 
 
@@ -256,7 +435,7 @@ Google Chrome 119.0.6045.160 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154229.jpg" />
 </div>
 
 
@@ -280,7 +459,7 @@ Jan Dylan Hunter - Blues Au Jus (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154230.jpg" />
 </div>
 
 
@@ -307,7 +486,7 @@ Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossle
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154231.jpg" />
 </div>
 
 
@@ -334,7 +513,7 @@ magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154232.jpg" />
 </div>
 
 
@@ -358,7 +537,7 @@ magnet:?xt=urn:btih:17153EBC5031A330228F7A2506B0A3B2B947AB44
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154233.jpg" />
 </div>
 
 
@@ -382,7 +561,7 @@ magnet:?xt=urn:btih:1A15F658526957F439634A3AFBE9CBC59C8171DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154234.jpg" />
 </div>
 
 
@@ -406,7 +585,7 @@ VA - Winter Relaxation, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154235.jpg" />
 </div>
 
 
@@ -433,7 +612,7 @@ Microsoft .NET 8.0.0 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154236.jpg" />
 </div>
 
 
@@ -458,7 +637,7 @@ HitPaw Watermark Remover 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154237.jpg" />
 </div>
 
 
@@ -469,186 +648,6 @@ HitPaw Watermark Remover 2.0.2 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF7CD7AA34C145EFDB506A5B59DBED202E721F8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194482   (154238) от 26.12.2017
-
-Д.Н. Власов | Транспортно-пересадочные узлы (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены вопросы развития современных систем интермодальных транспортно-пересадочных узлов. С учетом современных тенденций становления систем пассажирского транспорта рассмотрены теоретические аспекты развития, предложены практические методики по формированию системы ТПУ, призванной обеспечить устойчивость и безопасность системы транспортного обслуживания населения (   Читать дальше...   )Жанр: ТранспортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E4821AF3535329F2D731A6E351E72CF6C22D0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270903   (154239) от 21.12.2018
-
-VA - Best Car Xmas Edition 2019 (2018) Compiled by mCITY [MP3|320 Kbps] <Dance, Spacesynth>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker & Tomine Harket - Darkside (Original Mix)
-02. Anna Naklab feat. Alle Farben & Younotus - Supergirl
-03. Armin Van Buuren & Trevor Guthrie - This Is What It Feels Like
-04. ATB feat. Sean Ryan - Never Without You(   Читать дальше...   )Жанр: Dance, SpacesynthПродолжительность: 02:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063346D34271EE39A5E6F68D4A7325018B0E140E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086019   (154240) от 23.12.2016
-
-Демон внутри / The Autopsy of Jane Doe (2016) WEB-DLRip [H.264] [VO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой Джейн Доу без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: ВеликобританияЖанр: УжасыРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин, Келли Паркер, Сойерс Джейн, Перри Ив О’ХараПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: SolodПродолжительность: 01:26:27Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE3CF21D399327B3D0BBF1940A7920EC26387EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347112   (154241) от 22.12.2019
-
-Хан Ган | Вегетарианка (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Вегетарианка» южнокорейской писательницы Хан Ган - обладатель «Международной Букеровской премии», признан одной из лучших книг 2016 года по версии журналов Time, The Economist, The New York Times, Elle, Wall Street Journal. Это волнующий роман о власти, предательстве, жестокости, красоте, творчестве и обретении свободы. Прекрасная и тревожная аудиокнига о (   Читать дальше...   )Жанр: Зарубежная литератураПродолжительность: 05:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65214A051653461ABB16735D706AAA64C6B42BF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518533   (154242) от 20.12.2021
-
-SolarFlow - Imagine (2020) [AAC|~323 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begining of Life (Intro Mix) (3:24)
-02. Forest (Original Mix) (6:24)
-03. Dream of Mermaid (Original Mix) (5:37)
-04. Revival the Bird (Original Mix) (5:53)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024F7364B1671AC87BCD3FFEAF79488D206FBE66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577838   (154243) от 22.12.2020
-
-Gotthard - Firebirth (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlight
-02. Give me real
-03. Remember it´s me
-04. Fight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA877CD3496F976D01664D01F45DDC6BD7E4036F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433963   (154244) от 22.12.2020
-
-VA - Heavy Metal Collections Vol. 17 (5CD) (2020) [MP3|320 Kbps] <Symphonic, Power, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154244.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Grailknights - Pumping Iron Power (2018) (3:54)
-02. Chaos Magic - One Drop Of Blood (2015) (4:27)
-03. Silverheart - Shadows Maiden (2015) (4:51)(   Читать дальше...   )Жанр: Symphonic, Power, Heavy MetalПродолжительность: 05:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66C85E8DFCBFA8F84FB2DD8F85DBAB9EFB380F4
 ```
 
 

@@ -6,7 +6,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33107.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33159.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33189.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Long Dark (2017) [Ru/Multi] (2.12.148383 S/2.39.149246 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33192.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33222.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33270.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.7/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33318.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33339.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33400.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ruined Nurse (2024) [Multi] (1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33408.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33424.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33429.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.3) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33445.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33500.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ INDIKA (2024) [Ru/Multi] (Build 15648284) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33697.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33720.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33736.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33841.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DEVOUR (2021) [Ru/Multi] (5.1.3) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33927.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:CE0F252D8B7638EAFDF1AD810E8657E0ACC2AA3C
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33954.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Forbidden Fantasy (2024) [Ru/Multi] (Build 16582417/dlc) Repack Let'sРlay [Supp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34022.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34042.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34045.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Baby Blues Nightmares - Toddler Horror Game (2024) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34092.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34102.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Moon Mystery (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34152.jpg" />
 </div>
 
 

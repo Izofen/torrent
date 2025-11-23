@@ -1,3 +1,179 @@
+###  Публикация: 1673704   (164374) от 02.11.2023
+
+Теодор Драйзер | Американская трагедия (2020) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теодор Драйзер (1871–1945) американский писатель, журналист и общественный деятель. Яркий представитель американского течения натурализма и критического реализма. Мировую славу ему принесла трилогия «Титан», «Стоик» и «Финансист», а вершиной творчества стала «Американская трагедия».
+Роман «Американская трагедия» Теодора Драйзера – одно из лучших произведений американской (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 39:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF228FE501E5FEB08C77CFA205B30A5CA4C9B657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516986   (164375) от 13.12.2021
+
+Epica - Omega Alive (2021) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164375.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Alpha - Anteludium
+02. Abyss Of Time - Countdown To Singularity
+03. The Skeleton Key(   Читать дальше...   )Жанр: Symphonic Power Metal, Gothic MetalПродолжительность: 01:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962F89C072A1A604F53D67FFE370C623BAED2726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597972   (164376) от 17.12.2022
+
+Sync Folders Pro 4.6.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
+Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E9DA88AA57A8F9B2A57EC678993BF54C7B3109
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432466   (164377) от 17.12.2020
+
+MacBooster 8 Pro 8.0.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164377.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacBooster поможет настроить и ускорить работу macOS. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Попробуйте программу в деле, чтобы узнать обо всех ее возможностях!Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: IObitПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12B32B897691BBBDA43E97B1504DD4B34AD5B76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346249   (164378) от 18.12.2019
+
+Сокровища Европы. Россия / Tresors D'Europe. Russie (2017) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская Федерация - самая большая страна в мире. 17 100 000 квадратных километров поделены на одиннадцать часовых поясов. Это необъятная страна со степями, горами и бесконечными реками, текущими на север. Россия, с её богатой историей и культурой, расположенная на пересечении континентов и доходящая до Крайнего Севера, раскрывает свои тайны тому, кто находит время (   Читать дальше...   )Производство: Франция, Roche ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Жульен БюрПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1304A6A762E40E21D6B3F11795EA85B8FF241E29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673573   (164379) от 02.11.2023
+
+Воображение / Kalpana / Imagination (1948) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственный фильм танцора и хореографа Удая Шанкара - утопическая мечта о культурном обновлении и прославлении индийского танца во всем его разнообразии. Разворачиваясь как эпический фильм внутри фильма, Калпана рассказывает историю танцора (самого режиссера), который полон решимости открыть культурный центр и вдохнуть новую жизнь в традиционные художественные формы (   Читать дальше...   )Производство: ИндияЖанр: мюзклРежиссер: Удей ШанкарАктеры: Лакшми Канта, Уша Киран, Лалита, Падмини, Амала Шанкар, Удей ШанкарПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, хиндиСубтитры: русские (forced на песни, full), английскиеПродолжительность: 02:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01A70637D84ECDB8F42A10FF33A26F79675E76F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597930   (164380) от 17.12.2022
+
+DragonForce - Re-Powered Within (2018) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On 04:56
+02. Fallen World 04:08
+03. Cry Thunder 05:15
+04. Give Me the Night 04:28(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291DFAB285FE7119EA73AA2A17C8444B07337340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432563   (164381) от 17.12.2020
 
 Battery Health 3 v1.0.25 [En]
@@ -6,7 +182,7 @@ Battery Health 3 v1.0.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164381.jpg" />
 </div>
 
 
@@ -31,7 +207,7 @@ magnet:?xt=urn:btih:5AA2D11E73A7C8E73E48AD5AD040FC3ACC71C7A6
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164382.jpg" />
 </div>
 
 
@@ -55,7 +231,7 @@ Caro Emerald - Metropole Orkest & Caro Emerald (2017) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164383.jpg" />
 </div>
 
 
@@ -82,7 +258,7 @@ magnet:?xt=urn:btih:861B08B85D6FDF9B8627FB5CCFED698E5F848A15
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164384.jpg" />
 </div>
 
 
@@ -106,7 +282,7 @@ Tone2 - Saurus 3.0.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164385.jpg" />
 </div>
 
 
@@ -130,7 +306,7 @@ Volbeat - Live In Deutschland (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164386.jpg" />
 </div>
 
 
@@ -157,7 +333,7 @@ magnet:?xt=urn:btih:8ABB1E1BF905A3A17A2838CC9F53B03F6E1DB294
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164387.jpg" />
 </div>
 
 
@@ -181,7 +357,7 @@ VA - Spacechillers Vol. 3 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164388.jpg" />
 </div>
 
 
@@ -208,7 +384,7 @@ magnet:?xt=urn:btih:D7A5580C275DB87114CA22087E287F2795CFB25E
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164389.jpg" />
 </div>
 
 
@@ -232,7 +408,7 @@ Mad Pilot - Нет любви (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164390.jpg" />
 </div>
 
 
@@ -259,7 +435,7 @@ Angel - A Woman's Diary - Chapter II (2020) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164391.jpg" />
 </div>
 
 
@@ -286,7 +462,7 @@ magnet:?xt=urn:btih:8194422AE5F56CBE85E198A52BD887B957724B11
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164392.jpg" />
 </div>
 
 
@@ -310,7 +486,7 @@ magnet:?xt=urn:btih:5702B57EC5E82BDC8C642D5E7069D99A0BE13985
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164393.jpg" />
 </div>
 
 
@@ -334,7 +510,7 @@ Def Leppard - On Through The Night (1980) Remastered, 2018, [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164394.jpg" />
 </div>
 
 
@@ -361,7 +537,7 @@ Native Instruments Maschine 2 v2.14.6 STANDALONE, VSTi, AUi [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164395.jpg" />
 </div>
 
 
@@ -386,7 +562,7 @@ Big Sur Cache Cleaner 16.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164396.jpg" />
 </div>
 
 
@@ -410,7 +586,7 @@ ArchCommander 2.3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164397.jpg" />
 </div>
 
 
@@ -437,7 +613,7 @@ VueScan Pro 9.7.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164398.jpg" />
 </div>
 
 
@@ -461,7 +637,7 @@ Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 1987, Columb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164399.jpg" />
 </div>
 
 
@@ -475,184 +651,6 @@ Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 1987, Columb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2810783C11CCA8C65E170690147D2F511C946FA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516932   (164400) от 13.12.2021
-
-Новые Танцы (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 21)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое танцевальное шоу! Лучшие танцовщики страны снова выходят на сцену. Теперь не будет наставников и их команд, а только очные танцевальные поединки между участниками в четырёх категориях: соло, дуэты, дети и команды. Оценивать выступления участников будет Мигель совместно с двумя приглашенными гостями. Компанию неизменной ведущей Ляйсан Утяшевой составит Ульяна (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C0128EDE77A0BC2FDC38850D66BEB63BC8767C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673221   (164402) от 02.11.2023
-
-Адвокатское бюро Батталья / Studio Battaglia (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Батталья состоит из матери и троих взрослых дочерей. Все они, кроме младшей дочери, Виолы, адвокаты по семейным делам. Старшая дочь, Анна, перешла в конкурирующую фирму, средняя, Нина, осталась работать с матерью. Каждый день они сталкиваются с разводами и семейными проблемами других пар, но в их собственной жизни тоже не всё гладко.Производство: Италия / PalomarЖанр: драмаРежиссер: Якопо Бонвисини, Симон СпадаАктеры: Барбора Бобулова, Джорджио Маркези, Мириам Далмазио, Карла Синьорис, Лунетта Савино, Томас Трабакки, Массимо Гини, Марина Оккьонеро, Мишель Ди Мауро, Эмма Фазано и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:55:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BBF64CF0EF348FA1AA2C95082F7DBC43967395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346198   (164403) от 18.12.2019
-
-Monolink - Amniotic (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amniotic (7:31)
- 02. Black Day (5:37)
- 03. Sirens (5:58)
- 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDE9531B92FC01A48040751E8A533B447A07C6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432234   (164404) от 17.12.2020
-
-VA - Oxygenesis: Clubbing Techno Mix (2020) [MP3|320 Kbps] <Club, Dance, Tech House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка техно с самого времени зарождения живёт и продолжает жить в своей индивидуальной вселенной, где такие условности, как музыкальный жанр или смена эпохи, не оказывают никакого влияния на его форму и суть. По той причине Вы или приемлете или не принимаете эту музыку, но она остаётся быть такой как есть!001. Daniel Sbert - Lemur (Original Mix)
-002. Dj Territo - My Love
-003. Dodi Palese - Cassini
-004. Aroent - Eleese(   Читать дальше...   )Жанр: Club, Dance, Tech House, TechnoПродолжительность: 11:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A049A43F90E0337EFDCDE08C4AC50688A5191795
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517065   (164405) от 13.12.2021
-
-Иван Корбач | Впереди грома (2021) [MP3, Владимир Ильенко]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164405.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Впереди грома". Книга состоит из двух повестей о людях, чья жизнь и работа связаны с современной армией.
-
-Иван Михайлович Корбач родился в 1926 г. на Черниговщине. Участник Великой Отечественной войны.
-Закончил Львовское общевойсковое военное училище и факультет журналистики Киевского университета им. Т.Г. Шевченко.(   Читать дальше...   )Жанр: Историческая литератураПродолжительность: 12:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587B0C6F9209613D3F2BFBD86DB7FD40E5C8AA10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673603   (164406) от 02.11.2023
-
-Николай Леонов, Алексей Макеев | Полковник Гуров. Мы из российской полиции (2020) [MP3, Алина Суратова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164406.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФСБ обратилась к полковникам Гурову и Крячко из Московского уголовного розыска с предложением сопровождать генерал-полковника Смирнова в поездке на международный симпозиум в Лондон. Легендарные сыскари согласились. Но заурядная с виду командировка оказалась чрезвычайно опасным мероприятием. Едва генерал и сопровождающие его сыщики сели в берлинский поезд, как на (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 06:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F78385AF643F5E87C4CDEBF8CD00F770C3D81DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597982   (164407) от 17.12.2022
-
-SFTPCommander 2.4.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164407.jpg" />
-</div>
-
-
-###  Подробнее
-
-SFTP Commander — это приложение для передачи файлов с легким, но очень функциональным пользовательским интерфейсом, вдохновленным веб-браузерами. Поэтому у него есть адресная строка, кнопки «назад» и «вперед», а также управление закладками и историей просмотров. Все, что вам нужно для использования FTP/SFTP в macOS.
-Приложение хорошо интегрировано с операционной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2010-2022 Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6 +Язык интерфейса: Английский, Немецкий и Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B0C8C843433EE93A95F28985639E18E2569781
 ```
 
 

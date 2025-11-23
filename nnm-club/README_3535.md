@@ -1,3 +1,81 @@
+###  Публикация: 1714664   (111592) от 11.04.2024
+
+Leviathan Project - Sound of Galaxies (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Frequency (00:01:36)
+02 - Solar Storm (00:04:51)
+03 - Falling Apart (00:04:13)
+04 - Deserted (00:03:17)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E784623204952EB44840283677B31CB94AEFA89A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714930   (111593) от 11.04.2024
+
+Storm Seeker - Live in Stuttgart (2023) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal, Pirate Folk Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mare Len Lunor (Live in Stuttgart) [2:30]
+02 - Heavaway (Live in Stuttgart) [3:46]
+03 - Pirate Squad (Live in Stuttgart) [3:19]
+04 - Destined Course (Live in Stuttgart) [4:21](   Читать дальше...   )Жанр: Folk Metal, Pirate Folk Metal, MetalПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5A73609717B156CB9C8E44D181C3BAF393C248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715009   (111594) от 11.04.2024
+
+Хельга Воджик | "Песок Мэйтару" (Книга 1). Архив Тирха. Коготь Кулуфины (Том 1) (2023) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клыкарь и Ашри получают заказ на Коготь Кулуфины – артефакт предводительницы бистов, чудовища, некогда бывшего дочерью самого Орму, которая переродилась в Бездне и получила прозвище Тьма Мира… Но кто поверит во все эти сказки? Добраться до оазиса, разгадать загадку, достать реликвию и получить увесистый кошель золота! Идеальный план и дело на пару кварт дней! Наши (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: 1С-ПаблишингПродолжительность: 07:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893B7D5148C738F06C4DEDB60270C862D0B8C353
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715295   (111595) от 11.04.2024
 
 Арктическая охота капитана Кляйншмидта / Captain F.E. Kleinschmidt's Arctic Hunt (1914) WEBRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111595.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ Skype 8.117.0.202 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111596.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ Soft Cell - Torch E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111597.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ Chris Brown - 11:11 (Deluxe) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&b, So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111598.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ magnet:?xt=urn:btih:9BAE155354D2F8D7024CC6420C6DC009DB0BC4A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111599.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ VA - Timeless Ibiza 2024 [MP3|320 Kbps] <Progressive House, Melodic House & Tech
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111600.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111601.jpg" />
 </div>
 
 
@@ -187,7 +265,7 @@ magnet:?xt=urn:btih:BAB6E554A0A20CD14FD5EDB09CB32AD960A82CDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111602.jpg" />
 </div>
 
 
@@ -211,7 +289,7 @@ magnet:?xt=urn:btih:CF2C46CC10EDDAE9994B671808D65AB6E97A45E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111603.jpg" />
 </div>
 
 
@@ -235,7 +313,7 @@ magnet:?xt=urn:btih:AC05BD4818D5877EF107BD2295033D25D038D1D8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111604.jpg" />
 </div>
 
 
@@ -259,7 +337,7 @@ Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111605.jpg" />
 </div>
 
 
@@ -286,7 +364,7 @@ Hypersonic - Kaosmogonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111606.jpg" />
 </div>
 
 
@@ -313,7 +391,7 @@ magnet:?xt=urn:btih:6CA97D7FD9F538C3B1CE4A7D4D64A8304364B6A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111607.jpg" />
 </div>
 
 
@@ -337,7 +415,7 @@ magnet:?xt=urn:btih:6CA97D7FD9F538C3B1CE4A7D4D64A8304364B6A8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111608.jpg" />
 </div>
 
 
@@ -361,7 +439,7 @@ Lolly Allen - Coming Home (2016) 2019, OA2 Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111609.jpg" />
 </div>
 
 
@@ -388,7 +466,7 @@ magnet:?xt=urn:btih:B5C2BFFC297AA5B215A0FACF399A3AABD6A171DD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111610.jpg" />
 </div>
 
 
@@ -413,7 +491,7 @@ magnet:?xt=urn:btih:EE5F78D089697978985C17EC6DF983410247C986
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111611.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ Nienke Dingemans - Ain't No Hollywood Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111612.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ Asomvel - Born To Rock 'n' Roll (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111613.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ Topaz Gigapixel AI 7.1.1 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111614.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ magnet:?xt=urn:btih:8E276B94A6C4961B73F1E8F1659E8087A9CBB88F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111615.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ O&O Defrag Professional 28.0 Build 10010 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111616.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ magnet:?xt=urn:btih:F9E7CB331E62B94012972400D09E765248A12506
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111617.jpg" />
 </div>
 
 
@@ -576,81 +654,6 @@ magnet:?xt=urn:btih:F9E7CB331E62B94012972400D09E765248A12506
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18D5DC1C29B65E07F68A0949E1E3F264F4F116B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715202   (111618) от 11.04.2024
-
-Google Chrome 123.0.6312.123 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D0F99F03487AD04C2BBB04F38E26D5D85FD61AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715327   (111619) от 11.04.2024
-
-FontViewOK 8.41 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты и, конечно, Вы сможете с ними работать. Особенность программы - она позволяет вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6457248ECDEBD4917942C569D5F2FA152F062D42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714906   (111620) от 11.04.2024
-
-Session Americana - The Rattle and The Clatter  Twenty Years (so far) of Session Americana (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pack Up The Circus (3:46)
-02. Making Hay (Live at the Haybarn Theater) (4:44)
-03. Beer Town (4:18)
-04. Helena (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87420AEA136CCE3B6FFAFF88569B6143E7882DF
 ```
 
 

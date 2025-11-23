@@ -6,7 +6,7 @@ Ulrich Ellison - Power Of Soul (2021) A Tribute to Jimi Hendrix [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151030.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:90D788E014351380C30877102571309A761349DF
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151036.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Decrepit Cadaver - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151048.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Desert Voices - Never Ending (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151065.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:3DC31CDF080D93263DBD0277719073D0B1A62CB1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151188.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hard Times - Tales From The Wild Cat Place (2021) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151212.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mullett - The Originals Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151230.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Charlie - 10 Albums (1976-2015) CD [MP3|320 Kbps] <AOR, Classic Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151328.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kiss - 25 Studio Albums, 11 Live, 15 Compilations, 5 Box Set (1974 - 2017) 158 C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151373.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Reveal - Still Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151375.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Draconicon - Pestilence (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151394.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Maggie Lindemann - I feel everything (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151401.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Immortal Guardian - Age of Revolution (2018) [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151441.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Hammer King - Kingdom Of The Hammer King (2015) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151448.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Led Zeppelin - Led Zeppelins Swan Songs (4CD) /Сборник/ (2011) [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151489.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Chrissie Hynde - Duets Special (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151534.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Madsher - Devil's Alley (2020) EP [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151614.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:9036F662381DE5B36C6CBD3301E5C8193F822C47
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151636.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Ceremonial Castings - Salem 1692 (2020) MMXX [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151769.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9909CCD3C5484DB20AF0EAE38ABC86AB61CC7AA3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151775.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Pendragon - Love Over Fear (2020) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151782.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Tourniquet - 10 Albums (1990-2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151814.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:AD392ED59FB110B031F9FA2CDB68645E895AAD56
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151878.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Medenera - Argento (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151891.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Rick Wakeman - Piano Vibrations (1971) Reissue, 2003, Voiceprint [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151949.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Evans and Stokes - Diary of the Damned (2020) [MP3|320 Kbps] <Gothic Metal, Prog
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151953.jpg" />
 </div>
 
 

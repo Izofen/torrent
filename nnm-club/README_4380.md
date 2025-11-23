@@ -1,3 +1,89 @@
+###  Публикация: 592859   (135014) от 24.12.2012
+
+Chton - The Devil Builds (2012) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faustian Resolve
+ 02. Scavenger Of A Dead World
+ 03. Gods Of The Flesh
+ 04. Rise Black God
+ 05. Death Awaits
+ 06. Contagion (The Disease)
+ 07. Lord And Master
+ 08. Nithon Undertow
+ 09. Ratbag (Abcess Cover)
+ 10. Babalon And The Beast ConjoinedЖанр: Death MetalПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF231991AAB32C7D118440327D9D5A1A1270F50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371931   (135015) от 26.11.2023
+
+Хороший лжец / The Good Liar (2019) Blu-ray [H.264/1080p] [EUR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный мошенник Рой Кортни едва верит своей удаче, когда знакомится в сети с богатой вдовой Бетти Маклиш. Очаровав вдову и получив доступ ко всем ее ресурсам, Рой ловит себя на том, что она ему небезразлична.Производство: Великобритания, Германия, США / BRON StudiosЖанр: Драма, ДетективРежиссер: Билл КондонАктеры: Хелен Миррен, Иэн МакКеллен, Рассел Тови, Джим Картер, Марк Льюис Джонс, Лори Дэвидсон, Фил Данстер, Лусиан Мсамати, Йоуханнес Хёйкьюр Йоуханнессон, Тунджи КасимПеревод: Дублированный (Лицензия)Субтитры: Русские, английские, китайские, корейские, арабские, чешские, венгерские, польские, португальские, румынские, тайскиеПродолжительность: 01:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B3FA38D6E4EB462F4DF52C37CD97A0A94EDDAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593089   (135017) от 23.12.2012
+
+PUH Edition v2(конструктор USB v2)
+
+>>3
+>>14
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка для USB накопителя от  512 mb и больше.Сборка сделана как продолжение "Конструктор USB 1" .
+Собрано для тех ,кто по каким либо причинам не хочет или не может перечитывать кучи форумов ,что бы найти нужную информацию.
+PUH Edition v2(конструктор USB v2) - набор файлов для создания мультизагрузочного USB накопителя.
+
+Как работает:
+При форматировании носителя утилитой "Grub4DosUSB(SE)" ,носитель форматируется и на него копируются все нужные файлы требующиеся для работы сборки.После того как носитель подготовлен ,вы просто извлекаете в корень носителя нужные вам программы, все или одну, в любом сочетании.Больше не каких действий предпринимать не нужно! Все само пропишется и появиться.Название программы: PUH Edition v2(конструктор USB v2)Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677776   (135018) от 26.11.2023
 
 Microsoft Activation Scripts (MAS) 2.5 Portable [En]
@@ -6,7 +92,7 @@ Microsoft Activation Scripts (MAS) 2.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135018.jpg" />
 </div>
 
 
@@ -30,7 +116,7 @@ Need for Speed Most Wanted: Ultimate Speed [Ru/En] (L/1.3) 2012
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135019.jpg" />
 </div>
 
 
@@ -55,7 +141,7 @@ Chaos Enscape 3D 3.5.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135020.jpg" />
 </div>
 
 
@@ -79,7 +165,7 @@ magnet:?xt=urn:btih:87BEF0C8CFB566B810DDF2909153E3E51ED7DED2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135022.jpg" />
 </div>
 
 
@@ -103,7 +189,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25 серий
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135023.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135023.jpg" />
 </div>
 
 
@@ -129,7 +215,7 @@ LanAgent Standard 4.3.8 [Русский]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135025.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135025.jpg" />
 </div>
 
 
@@ -155,7 +241,7 @@ LanAgent - ваш верный агент и помощник, который п
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135026.jpg" />
 </div>
 
 
@@ -179,7 +265,7 @@ magnet:?xt=urn:btih:7EE7DD3997F3F7BF8E60AB6EC7B5C3B82155617E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135027.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135027.jpg" />
 </div>
 
 
@@ -207,7 +293,7 @@ magnet:?xt=urn:btih:7EE7DD3997F3F7BF8E60AB6EC7B5C3B82155617E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135028.jpg" />
 </div>
 
 
@@ -231,7 +317,7 @@ magnet:?xt=urn:btih:BDC00C579AE2B02A52BADB4A839E455416C48EE8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135029.jpg" />
 </div>
 
 
@@ -255,7 +341,7 @@ magnet:?xt=urn:btih:B05E17694957A241C3D9F65246CA9AEF0CBE430E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135030.jpg" />
 </div>
 
 
@@ -279,7 +365,7 @@ Tales of Arise (2021) [Ru/Multi] (20231108/dlc) Repack DjDI [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135032.jpg" />
 </div>
 
 
@@ -303,7 +389,7 @@ magnet:?xt=urn:btih:DE92F0E8B040B0C34B872433FB419AAD79A9FE05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135034.jpg" />
 </div>
 
 
@@ -327,7 +413,7 @@ magnet:?xt=urn:btih:930E2384C88650FAD546F4F34AEB105254A3E316
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135035.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135035.jpg" />
 </div>
 
 
@@ -353,7 +439,7 @@ Open Shell (Classic Shell) 4.4.191 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135036.jpg" />
 </div>
 
 
@@ -379,7 +465,7 @@ magnet:?xt=urn:btih:97C375CCE25D3628F77C46D537CB2949FB09AD76
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135037.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135037.jpg" />
 </div>
 
 
@@ -403,7 +489,7 @@ magnet:?xt=urn:btih:97C375CCE25D3628F77C46D537CB2949FB09AD76
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135038.jpg" />
 </div>
 
 
@@ -427,7 +513,7 @@ magnet:?xt=urn:btih:759B134823D527F03767523521386DFAA1B6B1A4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135039.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135039.jpg" />
 </div>
 
 
@@ -451,7 +537,7 @@ magnet:?xt=urn:btih:759B134823D527F03767523521386DFAA1B6B1A4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135040.jpg" />
 </div>
 
 
@@ -475,7 +561,7 @@ VPN Russia - VPN сервера в России 1.184 Mod by FreeApkexe [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135042.jpg" />
 </div>
 
 
@@ -499,7 +585,7 @@ magnet:?xt=urn:btih:17633C64698926E2E099C0D860FF82C7A57A79DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135044.jpg" />
 </div>
 
 
@@ -523,7 +609,7 @@ Mafia 2/II [Ru] (Steam-Rip/1.0.0.1/upd 4) 2010 | R.G. GameWorks
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135045.jpg" />
 </div>
 
 
@@ -551,7 +637,7 @@ magnet:?xt=urn:btih:7A503B815DF15ABEEAC99D5B527A67602113F2C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135046.jpg" />
 </div>
 
 
@@ -562,83 +648,6 @@ magnet:?xt=urn:btih:7A503B815DF15ABEEAC99D5B527A67602113F2C9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33BA5BAFE34457945F6DAF9B60CF4FB3AC67D899
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593139   (135047) от 23.12.2012
-
-Just Cause 2 [Ru/En/Multi6] (Steam-Rip/1.0.0.2/10 DLC) 2010 | R.G. Игроманы
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в полное адреналина свободное приключение.
-В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау.
-Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять уникальные трюки.
-На 1000 квадратных километрах пересеченной местности с сотнями видов оружия и транспортных средств, Just Cause 2 бросает вызов гравитации и предубеждениям.
-
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / Racing / 3D / 3rd PersonЯзык озвучки: Русский / Английский / MULTi6Язык субтитров: Русский / Английский / MULTi6Язык интерфейса: Русский / Английский / MULTi6
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7B414885F713A5BE78DFFC254C6779F5F6E1E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679648   (135048) от 26.11.2023
-
-Клоуны апокалипсиса / Apocalypse Clown (2023) WEB-DLRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля на пороге гибели. Целые города объяты хаосом. И пороком. Десятками разных пороков. Каждый порядочный гражданин пускается напоследок во все тяжкие. В этот судьбоносный для человечества момент нам как никогда нужны настоящие супергерои. И они нашлись! Фантастическая четверка! Четыре безумных, известных только своим мамам клоуна объявляют свое последнее спасительное (   Читать дальше...   )Производство: Ирландия / BCP Asset Management, Fastnet FilmsЖанр: комедияРежиссер: Джордж КэйнАктеры: Дэвид Эрл, Натали Паламидес, Эми Де Брюн, Фионн Фоли, Тайг Мерфи, Айван Кэй, Tony Cantwell, Тара Флинн, Маура Фоли, Martin McDonaghПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981ABF16E64FF88D51C1AC170941300AD2401564
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593506   (135049) от 23.12.2012
-
-Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, Avira от 23.12.2012
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник ключей для популярных антивирусных программ: ESET NOD32, Kaspersky, Avast, Dr.Web, Avira.Название программы: Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, AviraЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

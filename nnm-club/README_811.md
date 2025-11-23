@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21412.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PeaZip 10.4.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21413.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:878DB1409D2E89004A36F9F3A81EA8F8D5637623
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21414.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21414.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OCCT 14.0.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21415.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21415.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Compilation Part 154 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21416.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Guns N' Roses - Greatest Hits Live Broadcast Collection (2025) Live [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21417.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Alice Cooper - Original Album Series (2012) Box Set, 5xCD, Reissue, Warner Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21418.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:441A1D74511599C5FC6E8E3BE3D78C63DF91A8FD
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21419.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21419.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Compilation Part 155 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21420.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Chillout Music Essential Selections (2025) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21421.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:ED723AE50E45DC770680326FD3FA87EFF9120C52
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21422.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21422.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ XYplorer 27.00.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21423.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:824E1C0A4B113D1CF59F93FBF51B04DB905198B5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21424.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ QOwnNotes 25.4.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21425.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21425.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Niel De One - Music 4 Da People (2025) [FLAC|Lossless|tracks] <House, Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21426.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21426.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:88DABF2E5AA8C337C0683F126EE48CAB9C2DFE6F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21427.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21427.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:8619D9C7E95F3C57BF7530E0C7672931DA890B6C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21428.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21428.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:60A2220F0FEA14C7C944CD12EFA09F642A9AE91E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21429.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:36B5DBA1632046480C3CCE0EE28E1AF1317AD5C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21430.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:507FF7EBAD4F7931AE203E1DD1474E923A4C6464
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21431.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21431.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ blink-182 - Compilation (1995-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skat
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21432.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21433.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21433.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:99B24235792B0511DCDF844D529630C9FD18F5C5
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21434.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21434.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ TweakPower 2.072 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21435.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:2C256CC5463DA29D9CCB739C7DC843413DD1CDC6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21436.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21436.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:49764CC1BEC19AE54B6148BA84897369F14B32DB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21437.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21437.jpg" />
 </div>
 
 

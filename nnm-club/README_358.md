@@ -6,7 +6,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9451.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:701BFDF21E842C99FCEBC7ACD5FD981C04025145
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9452.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BF8C135AC5F62555F151B7BE5633C188A37EFB0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9453.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Internet Download Manager 6.42 Build 42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9454.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5F29E11712AD4DA131DB2D301D5FB6E5F7C99E0F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9455.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:ABAE8D6425549A55C1BEA270BE336511C38D5300
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9456.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Reef - 6 Albums, 9 Singles (1995 - 2019) 17 CD [FLAC|Lossless|tracks + .cue|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9457.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9458.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9459.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F31BA18C12082D08A659EF39A9696A8F7A7E94DD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9460.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Greatest Rock Ballads (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9461.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Flyoobe 0.40.64 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9462.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9463.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:86347225F152D9B97937061797AD1745D8323566
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9464.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:9B44CFCCD7280B93F39A9232ADD75262FD858F54
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9465.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:15F570D24D6DD31DC1276CCAAF60B5D42473170F
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9466.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:FE65B7C19CC438F8DA4431C19588DED30E053BFA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9467.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:7B648170B0A8C3830905350597BD841B5BDB6924
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9468.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:C804FF6539EE2888022CC50308460CE1E04D3BBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9469.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:60D3DB073E110EA6C97850DEEAFFD6976906C3DA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9470.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:BA9E9158B85AB6296DD89B97AC09E358E2E52EE2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9471.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:318915C6A9170194E36718C718F30B1D7B180B04
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9472.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9473.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9474.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack seleZen [Ultim
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9475.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:2803B9DF72AB8E1F39EF160FC2ECB8236F6DC140
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9476.jpg" />
 </div>
 
 

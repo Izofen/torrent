@@ -6,7 +6,7 @@ Hebi Katana - Hebi Katana (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155051.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Draconian - 8 Albums (2002-2020) [FLAC|Lossless|image + .cue] <Gothic Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155055.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Chris Antony - Cause and Effect (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155070.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eondry - 7 Echoes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic, Experime
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155085.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Soul Secret - Blue Light Cage (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155129.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lucifer - 4 albums (Japanese Edition) (2015-2021) [FLAC|Lossless|image + .cue | 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155223.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vinnie Moore - Double Exposure (2022) [FLAC|Lossless|image + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155352.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Santana - Best Ballads (1996) Compilation [MP3|320 Kbps] <Classic Rock, Blues Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155459.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0EED53FDC6140D41C32AC98778B82FCAC49308D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155469.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:80517FE7BF030A8CE31BEBF0ACA264897CA2971B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155497.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Dark Element - Songs The Night Sings (2019) Japanese Edition [WavPack|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155545.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Grimner - Urfader (2022) [FLAC|Lossless|WEB-DL|tracks] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155582.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Dark Element - The Dark Element (2017) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155615.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Skarlett Riot - Tear Me Down (2013) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155654.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Heavenly Cream - An Acoustic Tribute to Cream (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155748.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Psychos - Look Into Your Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155798.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Six Bar Break - Ghost Town (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155818.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Darkness Ablaze - It All Shall Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155833.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ No Man Eyes - Harness The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155840.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ancient Trail - The Ancient Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155849.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Ritual Aura - Heresiarch (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155852.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dark Fortress - Ylem (2010) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155857.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Quercus - Kverulant & Nenia (2018) 2CD [FLAC|Lossless|image + .cue] <Funeral Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155862.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Carved In Flesh - As Seen Through Tears (1997) Reissue, 2023, Vic Records [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155873.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Long Voyage Back - Long Voyage II (1999) [FLAC|Lossless|image + .cue] <Gothic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155882.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dark Reality - Oh Precious Haze Pervade the Pain (1997) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155899.jpg" />
 </div>
 
 

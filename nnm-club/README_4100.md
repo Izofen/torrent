@@ -1,3 +1,80 @@
+###  Публикация: 1686993   (126287) от 24.12.2023
+
+А.А. Дробыш | Конструирование программ и языки программирования (раздел 1. Язык программирования С++) (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126287.jpg" />
+</div>
+
+
+###  Подробнее
+
+В теоретической части представлен конспект лекций по изучению языка программирования С++.
+В практической части приведены указания для выполнения лабораторных работ по изучению языка программирования С++. Приведены основные теоретические сведения, сформулированы цели лабораторных работ, описан ход работ, перечислены контрольные вопросы к защите лабораторных работ. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БНТУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E631F2260260111188117AF8A6609941086DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686867   (126288) от 24.12.2023
+
+Ian Otta - Compilation (2023) [MP3|320 Kbps] <Electronic, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Autumn Day
+ 02.  Daydreamer
+ 03.  Love Is
+ 04.  Moonrise(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5AEF0124323C20B4C1680C27DC693EF7B636E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686882   (126289) от 24.12.2023
+
+А.К. Демидов | Объектно-ориентированное программирование на C++ (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие предназначено для студентов, обучающихся по направлениям 01.03.02 «Прикладная математика и информатика» и 01.03.04 «Прикладная математика», в качестве базового при изучении курса «Объектно-ориентированное программирование», а также как дополнительного при выполнении курсовой работы по курсу «Проектирование прикладного программного обеспечения».
+В пособии (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЮУрГУФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C45286831BC05EE38D94E9E3331116FA2478DE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686911   (126290) от 24.12.2023
 
 Гай Гэвриел Кей | Мир Джада (Книга 1). Все моря мира (2023) [MP3, Игорь Князев]
@@ -6,7 +83,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126290.jpg" />
 </div>
 
 
@@ -31,7 +108,7 @@ Pale Moon 32.5.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126291.jpg" />
 </div>
 
 
@@ -55,7 +132,7 @@ magnet:?xt=urn:btih:F372C8D16E827B361A8F3853CDD51983F9E54FB4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126292.jpg" />
 </div>
 
 
@@ -79,7 +156,7 @@ magnet:?xt=urn:btih:8B09BF0172574086FCEDA8E6B48C57325E214317
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126293.jpg" />
 </div>
 
 
@@ -105,7 +182,7 @@ magnet:?xt=urn:btih:841E0F03352987F28288957F2A8FD32F20A8B481
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126294.jpg" />
 </div>
 
 
@@ -129,7 +206,7 @@ magnet:?xt=urn:btih:B9F0CF360006391DE54729D6499A5242A77BE353
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126295.jpg" />
 </div>
 
 
@@ -154,7 +231,7 @@ magnet:?xt=urn:btih:475F2AF718DD3C34019D382D78509272AD28FA85
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126296.jpg" />
 </div>
 
 
@@ -178,7 +255,7 @@ FastStone Capture 10.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126297.jpg" />
 </div>
 
 
@@ -202,7 +279,7 @@ Till Lindemann - 2023 Tour Live (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126298.jpg" />
 </div>
 
 
@@ -231,7 +308,7 @@ magnet:?xt=urn:btih:86996D37596F7A6A614B3A9A27DE186FE265315F
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126299.jpg" />
 </div>
 
 
@@ -255,7 +332,7 @@ Word Learn Languages v5.7 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126300.jpg" />
 </div>
 
 
@@ -279,7 +356,7 @@ magnet:?xt=urn:btih:43027789D1312C02E0720BB9A0FED645FFE00E6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126301.jpg" />
 </div>
 
 
@@ -305,7 +382,7 @@ VA - Record Super Chart 23.12.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126302.jpg" />
 </div>
 
 
@@ -332,7 +409,7 @@ magnet:?xt=urn:btih:5147E61EFF0832EA2B9B3D10D59DC4912FD0D676
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126303.jpg" />
 </div>
 
 
@@ -356,7 +433,7 @@ magnet:?xt=urn:btih:57EF08A50C3F63623F80191F7A4E67147285EFD3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126304.jpg" />
 </div>
 
 
@@ -380,7 +457,7 @@ magnet:?xt=urn:btih:D90555678612AECA9B588746AEBFEDE44197DD4C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126305.jpg" />
 </div>
 
 
@@ -404,7 +481,7 @@ Balabolka 2.15.0.860 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126306.jpg" />
 </div>
 
 
@@ -429,7 +506,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126307.jpg" />
 </div>
 
 
@@ -454,7 +531,7 @@ magnet:?xt=urn:btih:63DF0EFA045DB17C1BFE01DCEA2F3A5CC4407B36
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126308.jpg" />
 </div>
 
 
@@ -478,7 +555,7 @@ magnet:?xt=urn:btih:410299A714B06222E81DDD468025B3563AA3697B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126309.jpg" />
 </div>
 
 
@@ -503,7 +580,7 @@ magnet:?xt=urn:btih:8DCAEC0E55062B7659C336A751ED96E2E050487D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126310.jpg" />
 </div>
 
 
@@ -527,7 +604,7 @@ Mozilla Thunderbird 115.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126311.jpg" />
 </div>
 
 
@@ -551,7 +628,7 @@ magnet:?xt=urn:btih:A7CDB6EB6DA7BBE089CFFB8A8796A684D8853588
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126312.jpg" />
 </div>
 
 
@@ -562,82 +639,6 @@ magnet:?xt=urn:btih:A7CDB6EB6DA7BBE089CFFB8A8796A684D8853588
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD46F7065618C2A57951C6F189EB49F80D517379
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686810   (126313) от 24.12.2023
-
-Ирэн Рудкевич | S-T-I-K-S. Шпилька (Книга 1) (2023) [MP3, Aztech (Александр Никитин)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улей не для слабых. Свежих иммунных опасность поджидает за каждым углом, да и тем, кто сумел пережить первые дни, расслабляться тоже некогда. Улей меняет всех. Обнажает подлинное нутро. В прошлой жизни Анна была совершенно обычной. Одной из многих, составляющих безликую толпу винтиков большого механизма. А в этой она одна из немногих, кому повезло не стать заражённой. (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, ПостапокалипсисИздательство: ЛитРесПродолжительность: 08:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4307522BA9B8BB8CB2BD92142430C326A69C038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667247   (126314) от 24.12.2023
-
-Убийца гоблинов [ТВ-2] | Goblin Slayer II [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что в некой гильдии, что находится вдали от больших городов, есть один авантюрист, сумевший заработать себе серебряный ранг, убивая одних лишь гоблинов. Некоторые считают его просто неудачником, охотящимся только на мелюзгу, другие — чокнутым и нелюдимым психопатом, помешанном на зелёных уродцах. И только те, кто видел его в деле, понимают, что на самом (   Читать дальше...   )Производство: Япония / Студия Liden FilmsЖанр: Приключения, фэнтези, экшенРежиссер: Одзаки ТакахаруЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Itashi, JazzJack, Sharon, Silv, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFC730EAAD511EA4EA2EEBC22D0F52E686B1957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686784   (126315) от 24.12.2023
-
-Proprofiling, Алексей Филатов | Ты - детектор лжи. Как распознать ложь с первых секунд (2023) HDRip [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-курс из 20 видеоуроков
-Вы станете настоящим детектором лжи, который будет видеть людей насквозь, не обладая сверхъестественными способностями.
-Помните о том, что по статистике в течении 10 минутного разговора вас могут обмануть 2-3 раза. А почти 90% людей регулярно лгут вам дома или на работе.
-Но именно вас больше невозможно обмануть!(   Читать дальше...   )Производство: ProprofilingЖанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: РусскийПродолжительность: 10:52:13Реклама: Присутствует информационно-рекламная плашка на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1D17BD95B3B50D936A1204D0266E54BC4DF719
 ```
 
 

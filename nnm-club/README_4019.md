@@ -1,3 +1,79 @@
+###  Публикация: 1690047   (124176) от 05.01.2024
+
+Клементина Бове | Королевишны #3колбаски (2021) [MP3, Полина Айрапетова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мирей два года подряд выигрывает в своём лицее титул королевы-страхолюдины — «Золотой Колбасы». А на третий год получает лишь бронзу — приятное поражение! Кто же победительницы? Это Хакима и Астрид — Серебряная и Золотая Колбасы соответственно. Но выясняется, что их объединяет нечто большее, чем лишний вес. Нечто такое, ради чего нужно непременно оказаться в Париже (   Читать дальше...   )Жанр: книги для подростков, юмористическая прозаПеревод: Тимофей ПетуховИздательство: СамокатПродолжительность: 06:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998B5EC7F4BBDAC647044316EFDF8580767FED44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689869   (124177) от 05.01.2024
+
+Центр Православного просвещения | Пагубное единомыслие (1997) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй выпуск серии “О Духовном рассуждении” посвящен современным попыткам заключения уний между Православной Церковью и латинской (католической), а также между Православной Церковью и монофизитскими (ориентальными) церквями. Подготовка этих уний ведется уже много лет в рамках общего экуменического процесса.
+В состав выпуска включены конкретные документы — проекты (   Читать дальше...   )Жанр: ПравославиеИздательство: Центр Православного просвещенияФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB33D359857B7ABC07FCBEACC767B3D3829F028F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690152   (124178) от 05.01.2024
+
+Visions of Morpheus - Lost Within (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Through Fire and Flame
+02 - Catharsis
+03 - Ghost
+04 - Beyond(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BA0379AAD5C36D7C5029924C40F8B12A74189C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690097   (124179) от 05.01.2024
 
 Юрий Тынянов | Смерть Вазир-Мухтара (2009) [MP3, Олег Фёдоров]
@@ -6,7 +82,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124179.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ Adramelch - Irae Melanox (1988) 2CD Remaster, 2010, Underground Symphony [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124180.jpg" />
 </div>
 
 
@@ -58,7 +134,7 @@ magnet:?xt=urn:btih:BC44D1A334EABBFDAD04A87803204A5BBD82ADBE
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124181.jpg" />
 </div>
 
 
@@ -83,7 +159,7 @@ magnet:?xt=urn:btih:56773CEE3DC25B6323CCD7FC20049A9D12DBF219
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124182.jpg" />
 </div>
 
 
@@ -110,7 +186,7 @@ magnet:?xt=urn:btih:F526C3D6DAFBE9CFB5FC799B7154F483D70F50B2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124183.jpg" />
 </div>
 
 
@@ -134,7 +210,7 @@ magnet:?xt=urn:btih:89F0C4F43116968859BCD952452FC21C68DFD2C8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124184.jpg" />
 </div>
 
 
@@ -158,7 +234,7 @@ magnet:?xt=urn:btih:B825E8FF5434CE0A6E1C5D145AA0D1ECF4D72DDC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124185.jpg" />
 </div>
 
 
@@ -182,7 +258,7 @@ magnet:?xt=urn:btih:D8A6DA198E3AFFFB0B4FEB74E89FA2CB8D765501
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124186.jpg" />
 </div>
 
 
@@ -206,7 +282,7 @@ Plus Messenger (Telegram+) v10.5.0.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124187.jpg" />
 </div>
 
 
@@ -230,7 +306,7 @@ magnet:?xt=urn:btih:0DA3B705E5312593EFFDED5C7387FBC0A035556B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124188.jpg" />
 </div>
 
 
@@ -256,7 +332,7 @@ magnet:?xt=urn:btih:152787C64DDBFFC17D74F6AFFEE732E6CAF786C7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124189.jpg" />
 </div>
 
 
@@ -280,7 +356,7 @@ magnet:?xt=urn:btih:401A8244613788408872756A6BB7326CE8336025
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124190.jpg" />
 </div>
 
 
@@ -304,7 +380,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2955 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124191.jpg" />
 </div>
 
 
@@ -328,7 +404,7 @@ magnet:?xt=urn:btih:5447D3C418832BC33D4113F552DEC8EF229D02D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124192.jpg" />
 </div>
 
 
@@ -352,7 +428,7 @@ Lemongrass - Mirror Of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124193.jpg" />
 </div>
 
 
@@ -379,7 +455,7 @@ magnet:?xt=urn:btih:0B9B49E57CDD51CF638EF61EC25D2A9F06FF987D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124194.jpg" />
 </div>
 
 
@@ -403,7 +479,7 @@ magnet:?xt=urn:btih:C55E4DA627DE4C0069E651800CC14ECF2DF732EE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124195.jpg" />
 </div>
 
 
@@ -427,7 +503,7 @@ magnet:?xt=urn:btih:90AEEF4F7868AACAA6D21EC83ADAAB95950C5644
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124196.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124196.jpg" />
 </div>
 
 
@@ -451,7 +527,7 @@ magnet:?xt=urn:btih:90AEEF4F7868AACAA6D21EC83ADAAB95950C5644
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124197.jpg" />
 </div>
 
 
@@ -475,7 +551,7 @@ VA - Trance Emotions Vol. 12 (Best of Edm Playlist Compilation 2024) (2024) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124198.jpg" />
 </div>
 
 
@@ -502,7 +578,7 @@ magnet:?xt=urn:btih:538D40B85897D88CB0194C47BC50CCD58F935B85
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124199.jpg" />
 </div>
 
 
@@ -527,7 +603,7 @@ magnet:?xt=urn:btih:A7D17375B3B752AEFEC796BF3551DFC1191D31D0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124200.jpg" />
 </div>
 
 
@@ -551,7 +627,7 @@ Udemy, Stone River eLearning | Affinity Designer For Beginners (2018) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124201.jpg" />
 </div>
 
 
@@ -562,79 +638,6 @@ Affinity Designer — самое быстрое, эффективное и, во
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE318E061380DCBCA919FF44C9D58FC06B839802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690033   (124202) от 05.01.2024
-
-А.Г. Мурлин, В.А. Мурлина, М.В. Янаева | Объектно-ориентированное программирование (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены базовые вопросы, связанные с технологией объектно-ориентированного программирования. Учебное пособие может быть использовано при подготовке бакалавров по направлениям 09.03.01 Информатика и вычислительная техника, 09.03.03 Прикладная информатика, 09.03.04 Программная инженерия.Жанр: Компьютерная литератураИздательство: КубГТУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BA168B4828C41DE2CAA0FA9664F703129AB054
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690059   (124203) от 05.01.2024
-
-OneCommander Pro 3.64.2.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124203.jpg" />
-</div>
-
-
-###  Подробнее
-
-OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
-Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618B31B60C570793770277E8D4DA7BCEE1C9225F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690105   (124204) от 05.01.2024
-
-Calibre 7.3.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320AF98F2075D56BD8144C943DA79D88CA60702A
 ```
 
 

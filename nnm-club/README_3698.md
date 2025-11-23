@@ -1,3 +1,84 @@
+###  Публикация: 1702303   (115830) от 24.02.2024
+
+Weber & Weber - World In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow's Another Day
+02. What If...
+03. World In Motion
+04. Love Generation(   Читать дальше...   )Жанр: Nu Jazz, Chillout, LoungeПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879CE6AA6B47536552E30F119BDD210EA341F942
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702341   (115831) от 24.02.2024
+
+Cathubodua - Interbellum (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Effigy Of Aftermath
+02 – Foretelling
+03 – Will Unbroken
+04 – Amidst Gods(   Читать дальше...   )Жанр: Epic Symphonic MetalПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833DEA85ADEEF473EBB70C03D2E36B0DCEA26F30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702350   (115832) от 24.02.2024
+
+Трио - 22 (2023) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мистер Браун
+02. А вы не были на Таити?
+03. Ноябрь
+04. Ром-баба(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45621430F6CB9143FD2D8D17B84876AF5FE1B9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702360   (115833) от 24.02.2024
 
 Artimus Pyle Band - Anthems Honoring The Music of Lynyrd Skynyrd (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +87,7 @@ Artimus Pyle Band - Anthems Honoring The Music of Lynyrd Skynyrd (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115833.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Katie Henry - Get Goin' (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115834.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Cats Can Fly - Cats Can Fly (1986) Remaster, CCF Records, 2023 [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115835.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Arkado - Open Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115836.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Rosie Frater-Taylor - Featherweight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115837.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Philip Sayce - The Wolves Are Coming (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115838.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115839.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ magnet:?xt=urn:btih:378DF692353816901DDB69C892BA6D3520033F53
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115840.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ StaxRip 2.36.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115841.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Takida - The Agony Flame (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115842.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ Sexual Music Collection - Midnight Jazz Confessions: Sultry Jazz for a Romantic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115843.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ magnet:?xt=urn:btih:F1D7AF2C5A5C53FA5DF130838C6ECF77FE2FB081
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115844.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ magnet:?xt=urn:btih:5B2787289CE614B0F1C90761884ADB87CCE6A271
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115845.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ VA - Pure Dreams, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115846.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115847.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ Soft Jazz Mood, Erotica - Intimate Nights: Erotic Valentine’s Day, Jazz Love S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115848.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ Mick Mars - The Other Side Of Mars (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115849.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ magnet:?xt=urn:btih:C7525976EAD231AFFAA48E6559F707F1ABDC37B9
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115850.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ magnet:?xt=urn:btih:DB170B8A2931E4D0C7CE6EC983DEEF4D4D86CD30
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115851.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ magnet:?xt=urn:btih:59B106D8C0355AFFFC964BCEDBD13DD85FFD3FFB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115852.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ Emurasoft EmEditor Professional 23.1.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115853.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ magnet:?xt=urn:btih:BC9C404CC19AE7D7F95CD677E18B568E38064500
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115854.jpg" />
 </div>
 
 
@@ -575,7 +656,7 @@ magnet:?xt=urn:btih:9236E91E8BD4412D9251A19CDC0FCCF5CCD717D3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115855.jpg" />
 </div>
 
 
@@ -586,85 +667,6 @@ magnet:?xt=urn:btih:9236E91E8BD4412D9251A19CDC0FCCF5CCD717D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A12A81BE25BF467698CB6DFB3AF58AA497EE4887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702365   (115856) от 24.02.2024
-
-Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Saxophone>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key West (05:15)
-02. Shadow in the Night (feat. The Motion Epic) (04:34)
-03. Heatwave (04:58)
-04. The Law (04:36)(   Читать дальше...   )Жанр: Synthwave, Retrowave, SaxophoneПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C26ECD983FF0417F232D1131D6DBDFE22376820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702292   (115857) от 24.02.2024
-
-Rob Tognoni - 17 Albums (1995 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rob Tognoni играет на сценах по всему миру в течение последних 40 лет. Он выступал на разогреве у великих: Roy Buchanan, Stevie Ray Vaughan's mentor Lonnie Mack, Joe Walsh из The Eagles, делил сцену с Peter Green, Sting, ZZ Top, Bo Diddley. Он представлял Австралию на королевских свадебных торжествах принца Фредерика и принцессы Марии Датских, выступал на чемпионате (   Читать дальше...   )Список альбомов:
-1995 - Stones And Colours
-1997- Headstrong
-1999 - Live At The TwilightЖанр: Blues RockПродолжительность: 17:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457B648CDE1FE1D3BEC81273162DB56521BCDCB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702083   (115858) от 24.02.2024
-
-Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Dre ft. Snoop Dogg - Still D.R.E. w/Kid Cudi ft. MGMT & Ratatat - Pursuit Of Happiness w/MEDUZA ft. GOODBOYS - Piece Of Your Heartw/ Over Easy - Rockstarw/Eminem - Without Me
-02. Martin Garrix & Sentinel ft. Bonn - Hurricanew/Whitney Houston - I Wanna Dance with Somebody (Who Loves Me) w/Morgan Wallen - Last Night w/Martin Garrix & Sentinel ft. (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4D45BFC22D56EBEB528C46815448537051DC7A
 ```
 
 

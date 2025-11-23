@@ -6,7 +6,7 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5264.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:67BFB0F3E950E6C721BCD742079D9C98CB2C3D6F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5265.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ProfiCAD 13.1.7 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5266.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:500FAF6679897D349C57C968EF8051A6185BC310
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5267.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:500FAF6679897D349C57C968EF8051A6185BC310
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5268.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Привет Уходящему Лету (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5269.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ CorelDRAW Technical Suite 2025 26.2.0.170 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5270.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ StartAllBack 3.9.14 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5271.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B48D1C86BD7999853640D1A009A9446F83CDDF48
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5272.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Room Arranger 10.2.0.732 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5273.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:1B2D7255EEFD0671BCDE0059B7EA3FD3A4FE1C7D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5274.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ AMS ФотоМАСТЕР 21.0 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5275.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Synergy (2024) [Ru/Multi] (2508200455) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5276.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:6892C635FA1B500AD53027FD5E82DC1E0F498657
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5277.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:380C20F35B6ECEF11A2D7359FBCD5BDFFD7E6A38
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5278.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:2BA38417911BACA3D5267CDDD4A8E039C3E7928C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5279.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7F6CAAC71DF1FAAAA62D3AD23EDF860C83F67351
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5280.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Residual (2021) [Ru/Multi] (1.3.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5281.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5282.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ ExperienceIndexOK 4.58 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5283.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Legends of Amberland: The Forgotten Crown (2019) [Ru/Multi] (1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5284.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:EA533B6512BA7E985A9191F94AE749F01A81BA51
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5285.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:2C7BA7DDF0FB87CB23DAD3BB78D007F1DE5F5D3D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5286.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ MAX Desktop 25.8.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5287.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Total Commander 11.56 LitePack & PowerPack + Portable 2025.8.2 by SamLab [Multi/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5288.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:9BA9CC3E84BAB8963F0D4C7AB35830AA32F70623
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5289.jpg" />
 </div>
 
 

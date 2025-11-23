@@ -1,3 +1,75 @@
+###  Публикация: 1836679   (254259) от 12.11.2025
+
+Topaz Video 1.0.4 [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video – это профессиональное программное обеспечение для улучшения видео на базе искусственного интеллекта, которое позволяет удалять шум из видео, снятого при слабом освещении, восстанавливать и повышать разрешение старых архивных видео до 4K, восстанавливать фокус и регулировать частоту кадров, создавая новые кадры буквально из воздуха.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839E71D76C9DC2C3989AC5F02E14F9C549B41AC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632959   (254431) от 12.05.2023
+
+HitPaw Photo Enhancer 2.2.3.2 (x64) Portable by Жека [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254431.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Photo Enhancer - это наиболее полный инструмент улучшения изображений для всех пользователей, позволяющий обновлять образ и повышать качество изображения. С его помощью вы можете сделать фотографию намного яснее, увеличить изображение без снижения качества, исправить размымые изображения и т.д.Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE691B1803D22E10408D0E7339198B1A81F22C48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630525   (254639) от 01.05.2023
+
+Apowersoft Watermark Remover 1.4.18 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apowersoft Watermark Remover - программа для удаления водяных знаков, которая поможет вам удалить водяные знаки, логотипы, пыль, царапины и другие дефекты с вашего фото / видео.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064C61BC6FC0927337C4CCF553063B351C1ADD6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536042   (254667) от 30.04.2023
 
 accusonus - ERA Bundle Pro 6.2.0 + Voice Changer 1.3.1 VST, VST3, AAX [En]
@@ -6,7 +78,7 @@ accusonus - ERA Bundle Pro 6.2.0 + Voice Changer 1.3.1 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254667.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254667.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ W.A. Production - Obsidian 1.0.0 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254948.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254948.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Tone2 - UltraSpace 1.0.0 VST (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255056.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255056.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Tone2 - Electra 3.1.0 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255058.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255058.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ GForce Software Oberheim OB-E 2.5.1 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255063.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255063.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ HitPaw Watermark Remover 2.3.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255084.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255084.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Adobe Audition 2025 25.6.0.97 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255576.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255576.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Adobe Media Encoder 2025 25.6.0 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255578.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255578.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Adobe After Effects 2025 25.6.0 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255619.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Adobe Premiere Pro 2025 25.6.0.116 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255622.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255622.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ LosslessCut 3.67.1 Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255889.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255889.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ IrfanView 4.73 + Plugins [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255915.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255915.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ Spotify 1.2.75.510 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256320.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256320.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Mp3tag 3.32 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256618.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ VLC Media Player 3.0.22 RC2 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256619.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ Perfectly Clear WorkBench 4.8.0.2876 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256621.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256621.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ Adobe Audition 2025 25.6.0.97 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256622.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256622.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ AIMP 5.40.2698 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256635.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256635.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ AMS Мой Дом 3D 4.15 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256665.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256665.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ Topaz Gigapixel 1.0.3 + models Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256704.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256704.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ Luminar Neo 1.25.0.15875 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256763.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256763.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ Topaz Gigapixel 1.0.3 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256775.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256775.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ AIMP 5.40.2699 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256778.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256778.jpg" />
 </div>
 
 
@@ -554,78 +626,6 @@ AIMP 5.40.2699 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64BC0AF25E8DA7A4267DC3DF03EEA48E432ADAC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837262   (256859) от 15.11.2025
-
-Adobe Photoshop Lightroom Classic 2026 15.0.1.1 RePack by KpoJIuK [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9916852DEDC508F4AF34380BAAA5C623B54F57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837491   (257501) от 17.11.2025
-
-MakeMKV 1.18.2 Beta RePack (& Portable) by $erg 5 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257501.jpg" />
-</div>
-
-
-###  Подробнее
-
-MakeMKV - программа позволяющая в один клик конвертировать Blu-ray/DVD диск (или папку), в MKV - Remux, всего за 5 минут! Программа прекрасно работает с защищенными дисками, теперь никаких региональных ограничений быть просто не может. Способна сохранить все имеющиеся аудио и видео дорожки на диске, можно полностью сохранить информацию о главах, MakeMKV также сохранит (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEEA04BBFBA4DF5682EA1977E06DB47EFE38C77E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837527   (257527) от 17.11.2025
-
-Axialis IconWorkshop Pro 6.96 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Axialis IconWorkshop – программа для создания высококачественных профессиональных иконок, а также для их редактирования. Основана на многооконном интерфейсе, что даёт возможность одновременно редактировать сразу несколько иконок. Среди нестандартных инструментов редактора, нужно отметить градиентные заливки и 3D эффекты. При редактировании иконки можно пользоваться (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A555CD079C21C1BF06122997F2B2ECC1B1F5F3F5
 ```
 
 

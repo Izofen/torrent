@@ -1,3 +1,75 @@
+###  Публикация: 1195126   (152163) от 27.12.2017
+
+Журнал | Война и Отечество №1 (2018) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152163.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом номере журнала "Война и Отечество" оригинальные версии событий военной истории России. Постоянные темы нашего журнала - Война, Родина, Героизм, Патриотизм, Архивная информация и комментарии именитых специалистов. Самое главное в журнале "Война и Отечество" нет никаких выдумок! Все, о чём пишут наши журналисты – это достоверные проверенные (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A7B7D31B5F0FF307BABD054D7B4F377B95F169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347587   (152167) от 23.12.2019
+
+Slimjet 25.0.1.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FAFFCFDE2CADD0EF7061512D459BF783B5A7B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601265   (152170) от 30.12.2022
+
+FanControl V142 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152170.jpg" />
+</div>
+
+
+###  Подробнее
+
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598FE77815402077703A4AFC23916B9E8EA09107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086440   (152179) от 24.12.2016
 
 FastStone Image Viewer 6.1 Corporate RePack (& Portable) by D!akov [Multi/Ru]
@@ -6,7 +78,7 @@ FastStone Image Viewer 6.1 Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152179.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Glary Utilities Pro 5.134.0.160 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152193.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Wolfram Mathematica 13.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152197.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Sonible Plugins 12.2022 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152221.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Adobe Acrobat Reader для PDF 21.10.0.19961 Mod by Rajat, MixRoot, Valikovrepi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152230.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Telegram Desktop 4.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152235.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Adguard 2.3.2 (704) (CL-1.5.155) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152243.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:D1A087FABA2903759F60FAD3CCE465D7D0B8D8D7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152244.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:FF5763DD6F4F4BCE22360FF61B95AA6AB00DED90
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152263.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Downie 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152269.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:6F7412E86512C4098DCB782A53F553137BF7504F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152280.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Macrium Reflect v7.2 .3957 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152284.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ EaseUS Todo Backup for Mac 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152291.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:B68AE131F3F0B00710EBCAC0E742B652EBA3DD11
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152298.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ Windows 11 Manager 1.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152304.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:247D9DFC3DC50CD7465077D53F29FE27E5A51D20
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152309.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ magnet:?xt=urn:btih:4ED021EB7C01C7684068065D1D2E622A28187B81
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152322.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ Icecream Screen Recorder PRO 7.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152326.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ QuickMemoryTestOK 4.68 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152328.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ Backgrounds 7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152330.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ magnet:?xt=urn:btih:0D9C9B80474E7742A0D608794C4C62BBED44D16C
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152333.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ magnet:?xt=urn:btih:C82DB0E9D531F08365D93D5E1941FC8AE75CFB24
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152336.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ Topaz Glow 1.0.2 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152339.jpg" />
 </div>
 
 
@@ -564,78 +636,6 @@ Topaz Glow - самостоятельная программа, а также п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72111F590FE88D241BFF2F24FC4DAB5A7538D383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518889   (152356) от 21.12.2021
-
-Adobe Photoshop Express 8.0.929 Mod by Balatan, Apps-Store [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop Express - великолепная программа для обработки фотографий, которая была разработана специально под Андроид. Здесь вы сможете в любой момент захватить нужный вам кадр, отредактировать его, поделиться им со своими друзьями и просто улыбнуться самым невероятным ее возможностям. Все это можно сделать абсолютно бесплатно, без всяких регистрация и прочего (   Читать дальше...   )Тип издания: Premium (Patched)Релиз состоялся: 14.12.2021Разработчик: AdobeПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BC75187F2B049708E02C4C8091B488C41F517E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518837   (152357) от 21.12.2021
-
-Screaming Frog SEO Spider 16.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screaming Frog SEO Spider Tool - программа для проведения подробного SEO анализа любого сайта. С помощью нее вы сможете проверить все внутренние ссылки, исходящие ссылки, метаописания каждой страницы, теги h1-h6 веб ресурса. С помощью Screaming Frog SEO Spider вы без труда обнаружите все ошибки в СЕО оптимизации вашего веб ресурса и сможете их устранить до их появления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Screaming Frog Ltd.Поддерживаемая ОС: macOS 10.7.3+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71DE4B5D02C3132CA95C47FEA3D7235FFAF6B88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347535   (152370) от 23.12.2019
-
-Navicat Premium 15.0.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: PremiumSoft CyberTech Ltd.Поддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Английский, немецкий, испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8712ED0921A5357972298F28E9E680AF23F300EC
 ```
 
 

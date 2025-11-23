@@ -6,7 +6,7 @@ Firefox Browser ESR 128.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35713.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ventusky: Прогноз погоды v39.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35714.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C1C31B9219209AE1E99797BA442B225AF477C294
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35715.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C1C31B9219209AE1E99797BA442B225AF477C294
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35716.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Subtitle Workshop 6.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35717.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Jedi Dreams - Soothing music and nature sounds (2024) [MP3|320 Kbps] <Relax, Med
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35718.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - трибьют арбенина (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35719.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Firefox Browser ESR 128.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35720.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:23F0E08D18FD50522548223FB5B5C27C7D337B07
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35721.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Icecream Slideshow Maker PRO 5.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35722.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Various Artists - Eric Clapton's Crossroads Guitar Festival 2023 (Live) (2023) 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35723.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:23FFA87C264FED9D3A360DA19D3EA9D4D5A50785
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35724.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Famous Classical Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35725.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Hardstyle Empire 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35726.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:443C7A208CCE2F2400AED9DAABBF6B22D4E2E7D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35727.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Vocal House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35728.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ PhotoRoom v5.6.4 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35729.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:B04840381C7422BB92DB6648902E9B23C30D6AD6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35730.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:9DCC2F585935455AD88E6D4789FD6B88C8F4E59B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35731.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:AE6F142F11814B2249C3282F0B64D1B0470D1444
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35732.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:FF33E8A1E7EE464D1D50F6539D40C20F651AC6C3
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35733.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:72F9F4EE7F73F337E12DAADC0DD0622947E16F2E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35734.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:ACD0F0D7F2D857E604EE7D19AA45EA805F7BA375
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35735.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:DDBDD73FF85291625F71EBB95FDE503B6B9E03CD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35736.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Duplicate Cleaner Pro 5.24.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35737.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:3D8E830FA47B2CF7CE483E2E0E00687C16B59C01
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35738.jpg" />
 </div>
 
 

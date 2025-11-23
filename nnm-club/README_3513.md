@@ -1,3 +1,79 @@
+###  Публикация: 1718121   (111020) от 23.04.2024
+
+Журнал | Цветок №8 (482) (апрель 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313724DE4653CB67DE72AD3CBD4AB1C319BD6808
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718083   (111021) от 23.04.2024
+
+Газета | Невыдуманные истории №15 (419) (апрель 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111021.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6887D586109EA8CB276463AA3C7C7EA8358B35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718042   (111022) от 23.04.2024
+
+U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderball
+02. The Arbiter
+03. Pull The Trigger
+04. Fistful Of Anger(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AA0255165B1FF9C6538BB8A77B2F61A0F0C7DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718151   (111023) от 23.04.2024
 
 НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 2-й матч) Нью-Йорк Айлендерс - Каролина Харрикейнз (22.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
@@ -6,7 +82,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111023.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ magnet:?xt=urn:btih:BF8C78D79458B8FB5E109E4F0BCF976F9FA39E2B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111024.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ Finch - Glory of the Inner Force / Galleons of Passion (1975&1977) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111025.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ Adrenochrome - The Grove (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Grin
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111026.jpg" />
 </div>
 
 
@@ -109,7 +185,7 @@ Pat Martino - Live! (1972) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111027.jpg" />
 </div>
 
 
@@ -135,7 +211,7 @@ Asagraum - Dawn of Infinite Fire (2019) [FLAC|Lossless|tracks + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111028.jpg" />
 </div>
 
 
@@ -162,7 +238,7 @@ magnet:?xt=urn:btih:A6F23A646606CFAF9E0223E075F8C2D4D69A99C0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111029.jpg" />
 </div>
 
 
@@ -187,7 +263,7 @@ Jesse Cotton Stone - Welcome to the Hell Country (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111030.jpg" />
 </div>
 
 
@@ -214,7 +290,7 @@ Lightnin' Charlie - Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111031.jpg" />
 </div>
 
 
@@ -241,7 +317,7 @@ magnet:?xt=urn:btih:984583A5960930CF292031C92D118E8CD0F7AF39
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111032.jpg" />
 </div>
 
 
@@ -266,7 +342,7 @@ De Novo Blvd - Bourbon Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111033.jpg" />
 </div>
 
 
@@ -293,7 +369,7 @@ Ronny Smith - Struttin (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111034.jpg" />
 </div>
 
 
@@ -320,7 +396,7 @@ Chicago Mike Beck - LOVE! It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111035.jpg" />
 </div>
 
 
@@ -347,7 +423,7 @@ Vanessa Peters - Flying On Instruments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111036.jpg" />
 </div>
 
 
@@ -374,7 +450,7 @@ Framing the Red - Three To Get Ready (2024) [FLAC|Lossless|WEB-DL|tracks] <South
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111037.jpg" />
 </div>
 
 
@@ -401,7 +477,7 @@ Anthony Geraci - Tears in My Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111038.jpg" />
 </div>
 
 
@@ -428,7 +504,7 @@ Praying Mantis - Defiance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111039.jpg" />
 </div>
 
 
@@ -455,7 +531,7 @@ Pontchartrain Shakers - Pontchartrain Shakers (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111040.jpg" />
 </div>
 
 
@@ -482,7 +558,7 @@ magnet:?xt=urn:btih:AE3401CE39426D2531A10957046952C48CF50F97
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111041.jpg" />
 </div>
 
 
@@ -507,7 +583,7 @@ Zoot Sims - Swing King! (1947 - 1953) 2CD, 2004, Proper Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111042.jpg" />
 </div>
 
 
@@ -534,7 +610,7 @@ Arne Skage - Rootwork (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111043.jpg" />
 </div>
 
 
@@ -561,7 +637,7 @@ Guenna - Peak of Jin'Arrah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111044.jpg" />
 </div>
 
 
@@ -588,7 +664,7 @@ Die Ballista - Burial Bell (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <doommet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111045.jpg" />
 </div>
 
 
@@ -602,87 +678,6 @@ Die Ballista - Burial Bell (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <doommet
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19FB3EA036F6AB5423B931DAD4EDD06F62193F95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717872   (111046) от 22.04.2024
-
-Asgaia - Death Board (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Swirl Of Tar (00:04:58)
-02 - For Emperor (00:04:14)
-03 - Command And Follow (00:05:13)
-04 - The Hidden War (00:04:42)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC1D84FFC4F60CCBDAB5D77FC6B8C5110A0D88C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717827   (111047) от 22.04.2024
-
-Alene Misantropi - Absence of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Depressive, Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confessions of a Man in Fear (Part I)
-02. Absence of Light
-03. Confessions of a Man in Fear (Part II)
-04. Golden Blood Sea(   Читать дальше...   )Жанр: Depressive, Atmospheric Black MetalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B02CDD1BDF3D7FC89C688568BF466EE932642FB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717870   (111048) от 22.04.2024
-
-Paul Motian - Monk In Motian (1988) JMT [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crepuscule with Nellie [4:57]
-02. Justice (Evidence) [4:41]
-03. Ruby My Dear [4:52]
-04. Straight No Chaser [4:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57112BA636E98B7AE7F7FE61B91BF47DE10F95D2
 ```
 
 

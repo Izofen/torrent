@@ -6,7 +6,7 @@ DxO PhotoLab Elite 7.6.0 build 189 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58917.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ App Manager 3.1.6 [Ru/Multi] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58918.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:95FDA371CA84D8D298E02F9F88B86E2F55C5C25F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58919.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:43BCDB727C8AD7B710E338863EEE965D94C6D36E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58920.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5914C23DBDA50D6B7F128F74A614384F3CD38502
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58921.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58922.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58923.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:EE7DA14EF29B29F2170746FE02FA4590CC2FA5CD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58924.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:724CF220857C5CD139338D4EE7E0CA1A36B2B9C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58925.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:CAF744D47F2EF7BC6A42C4980A15AA267CD653E2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58926.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58927.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:EB5B4505E83A9C55CAFEB098E7B2B3FD7014C2DE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58928.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Дискотека 2024 Dance Club Vol. 223 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58929.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ World Turtles (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58930.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Malwarebytes Windows Firewall Control 6.11.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58931.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:CB0C50D7D99D546433E73236C0B8BE1A7CB7B7F4
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58932.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:CD8C9126B7596670B58952B4FD96BF7417A335ED
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58933.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58934.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Knights & Guns (2024) [Multi] (1.0) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58935.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58936.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58937.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C94B6F63C2E50664645B3C8E14442933215E8EB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58938.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Vampire - The Masquerade: Bloodlines (2004) [Ru/En] (1.0-11.5/dlc) Repack Psycho
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58939.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:968DB5BEB195B1C71E224AC54B56ADC837FDFFDE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58940.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ FarCry по-русски (2015) [Ru] (1.1) Mod
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58941.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:EBF4456616A23B768689A3A5A8164CCD422AFF77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58942.jpg" />
 </div>
 
 

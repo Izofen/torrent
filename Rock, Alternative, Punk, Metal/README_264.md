@@ -6,7 +6,7 @@ Ataraxia - Sous Le Blanc Rosier (2007) 2CD [FLAC|Lossless|image + .cue] <Gothic,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163495.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Born Of Fire - Anthology (2012) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163496.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nova Skellis - Life Amongst The Damned (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163497.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:30D126AC43C192192FEC84DE30819B5D28DCC956
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163500.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Balrog - Bestial Satanic Terror (2006) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163502.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:4F65261B7AA3B828D1180008A803FB2CAC10EE9C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163505.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dirty Honey - Can't Find The Brakes (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163508.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Aurora Ortus - Ostara (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163509.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lordi - Lordiversity (2021) Box Set, Limited Edition, 7xCD [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163513.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Behemoth - At The Arena Ov Aion - Live Apostasy (2008) [APE|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163514.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Atrocity - Blut (1994) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163517.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tony Iommi - 9 albums, 13 CD (1996-2012) [FLAC|Lossless|image + .cue | tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163522.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Crest Of Darkness - Project Regeneration (2000) [APE|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163527.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Heimdalls Wacht - Ut De Graute Olle Tied-Deel Twee (Land Der Nebel) (2015) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163532.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ The Yardbirds - 15 albums, 1 Box set, 27 CD (1963-2018) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163534.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Balrog - Miserable Frame (2013) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163535.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Roger Taylor - Outsider (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163536.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Temple Of Baal - Mysterium (2015) [FLAC|Lossless|image + .cue] <Black Metal, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163540.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Project Creation - Floating World (2005) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163543.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Black Label Society - Doom Crew Inc. (2021) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163552.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Dirty Honey - Can't Find The Brakes (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163578.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Aeonian Sorrow - Katara (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163587.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Aeonian Sorrow - A Life Without (2020) EP [FLAC|Lossless|image + .cue] <Gothic, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163607.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Phenomena - 7 albums, 14 CD (1985-2020) [FLAC|Lossless|image + .cue | tracks+.cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163632.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Life Of A Hero - Letting Go (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163644.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Drifting Sun - Forsaken Innocence (2021) [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163648.jpg" />
 </div>
 
 

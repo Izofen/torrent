@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42709.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D0CEA9E6E2BC5DB51674F3EA281A7D60C7B9BDF3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42710.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - 90s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42711.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Picturize it v1.2.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42712.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Kid3 3.9.6 Audio Tagger Portable (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42713.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Rock Identifier - Stone ID v2.3.40 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42714.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Picture Bird - Bird Identifier v2.9.28 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42715.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Compilation part 124 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42716.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Inazuma Eleven: Orion no Kokuin | Одиннадцать молний: Печа�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42717.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Cher - Forever Fan (2024) [MP3|320 Kbps] <Pop-Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42718.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Photo Lab PRO v3.13.29 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42719.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ PhotoRoom v5.3.5 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42720.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Purple Disco Machine - Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42721.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Photo Studio PRO v2.7.9.3240 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42722.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1E0E2E9A6D74A785B692FF59703E2E50B1078431
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42723.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42724.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Purple Disco Machine - Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42725.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Bob Dylan & The Band - The 1974 Live Recordings Sampler (2024) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42726.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - DJ Hits Platinum 97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42727.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Trance Emotions, Vol 13 (Best Of EDM Playlist Compilation 2025) (2024) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42728.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Mega-Mix Dance Hits Vol. 1 (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42729.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C3599E4D55D21AB8E269305C7EDA46F6C130F75E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42730.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42731.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:FA2676646518CFD1A89CC9214CE68AEB8D90F2DB
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42732.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Tribal Fusion Harmonie (2024) 2CD [MP3|320 Kbps] <Enigmatic, New Age, Elect
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42733.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:4E1A1500FEC0E1C0E741DE7E1B7F312960333DE0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42734.jpg" />
 </div>
 
 

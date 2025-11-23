@@ -6,7 +6,7 @@ Steelgar - Collection (2008-2024) hand made [restored, declipped] [FLAC |16/44.1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39457.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Desert - Fortune Favors The Brave (2019) [WavPack|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39458.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Visionatica - Enigma Fire (2019) [WavPack|Lossless|image + .cue] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39459.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Leathermask - Lithic (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39460.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Gene Ludwig - Pat Martino Trio - Young Guns (1968, 1969) 2014, HighNote [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39461.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Dawn Of Destiny - The Beast Inside (2019) [WavPack|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39462.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Typhonian - The Gate of the Veiled Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39463.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:4F47501B48F5E43F92014623FB3CDF8F24167DFD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39464.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:FAA38C15852491A79AD73B329F1FEB38B9F2CC67
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39465.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ahnenstahl - Zwischen Tod und Leben (2006) [FLAC|Lossless|image + .cue] <Epic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39466.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Sarah Vaughan - The Essential Sarah Vaughan 1958 - 1964 (1992) Verve Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39467.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ MeldaProduction - MCompleteBundle 17.02.01 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39468.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:50EAB17639EAEC5F4BA6E67AD5F7CD6AA4A9501E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39469.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:4AE0BAB3B28EF70FF6F8DF6E18ED5CD1BFF3E34B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39470.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39471.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:3F803539AA7449C47590E9FF8C1006F55D0D501B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39472.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:86BABD4FB9ABA459FC7019A2DE1C6DBD46172E54
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39473.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:0C6B7A0778FE5E09949BA1836552B8ECA956B7CF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39474.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sarah Vaughan - The Jazz Collector Edition (1940-e) 1991, LaserLight [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39475.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:CAF4432A174B57E04F239A09D7CE0D77E279A6D8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39476.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:BF722DBA6DBD68C0C8EF16794A43DB3A952F4978
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39477.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:AA2380C61E36A308D51442A0E263CF406CEC0BAC
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39478.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Togu Audio Line - TAL-G-Verb 1.2.8 VST, VST 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39479.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:A5EB29E863D5F1EB4EAD4FEE10269688C8536640
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39480.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:5BBD2DD7E319691ADBA49BD5442FBCECBF7039BC
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39481.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Jazzamor - Reworks (20 Years of Jazzamor) (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39482.jpg" />
 </div>
 
 

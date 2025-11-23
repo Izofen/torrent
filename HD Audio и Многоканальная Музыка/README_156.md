@@ -6,7 +6,7 @@ Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112990.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112995.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112997.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112999.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113000.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113004.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:7636DDC3AAC9B0604B41C7FB9AD7F57D5CB07B23
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113014.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bruce Dickinson - Tattooed Millionaire (1990) [FLAC|24/96|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113018.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Neon Rider - Destination Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113025.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ T Bear - The Way Of The World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113026.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gary Clark Jr. - JPEG Raw (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113027.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hammer King - König und Kaiser (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113029.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0B24800DD94E4E5E10066A00F0E1C02360A16DBF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113037.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:3820322A8D347D377B3D897E77FD31F8C105AF7C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113041.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symph
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113042.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5F2174683070E078BC0B63F2DAC34555BC99884A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113073.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:DCF69E7E60AD2D671FFF0025570499355DE7EBFF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113074.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Rockets - Wonderland (2019) [FLAC 24/96|Lossless|tracks] <Synth-pop, Space-rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113078.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Эстрадное обозрение (2 серия) (1961) [FLAC 24/96|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113084.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:FFB07C7B253ABCCEF05875B1FD89FDF0DAEF454A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113085.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stone Temple Pilots - Studio Albums (10 releases) (1992-2020) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113088.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Яблони в цвету (1976) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113096.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Chiara Ungaro - Urban Dreamscape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113111.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bear Garden - Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113112.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Darkthrone - Panzerfaust (1995) Reissue, 2010, Peaceville [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113113.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mike LeDonne & Eric Alexander - Wonderful (2024) [FLAC 24/96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113114.jpg" />
 </div>
 
 

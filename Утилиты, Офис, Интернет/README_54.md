@@ -1,3 +1,75 @@
+###  Публикация: 1654274   (194071) от 19.08.2023
+
+Caramba Switcher 2023.08.15 [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caramba Switcher - это новый, понятный автоматический переключатель раскладки клавиатуры, предназначенный для работы с русским, английским и немецким языками. Caramba Switcher Lab версия предназначена для добровольцев: крепких ребят и девчат, желающих помочь развитию проекта. Lab-версия будет в автоматическом режиме отсылать нам слова-исключения и аббревиатуры, которым (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6239D655E64339D71584EA99C3ED3B5E24CFB441
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654151   (194101) от 20.08.2023
+
+TraceRouteOK 3.33 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобная программа для трассировки, вам достаточно указать адрес нужного сайта или его IP, после сразу получите нужную информацию, которую легко скопировать и сохранить.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34E37914612667C88BE42549DABBFE818B937B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653797   (194146) от 17.08.2023
+
+10-Strike LANState Pro 9.82 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194146.jpg" />
+</div>
+
+
+###  Подробнее
+
+10-Strike LANState - программа для администрирования и визуального мониторинга серверов и компьютеров в сети, позволяющая наблюдать текущее состояние устройств в графическом виде в любой момент времени. LANState мониторит устройства и сигнализирует о различных событиях. LANState содержит множество функций, полезных для системных администраторов: рассылка сообщений, (   Читать дальше...   )Язык интерфейса: Русский или Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFB08E102A82210C0DAE11323AD4C260B1E4430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653779   (194216) от 17.08.2023
 
 Blue Iris 5.7.9.4 [En]
@@ -6,7 +78,7 @@ Blue Iris 5.7.9.4 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194216.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194216.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ DirLister v2 beta 4 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194324.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194324.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Keyman 16.0.141 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194326.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194326.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ SophiApp 1.0.97 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195127.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195127.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Windows 11 Classic Context Menu v1.2 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195173.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195173.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Total Uninstall 7.4.0 Professional RePack (& Portable) by elchupacabra [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195392.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195392.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Ashampoo Burning Studio FREE 1.24.13 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195588.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195588.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 4.8 RePack (& Portab
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195637.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195637.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ UltraISO Premium Edition 9.7.6.3860 Portable by JooSeng [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195687.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195687.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Auslogics Windows Slimmer 4.0.0.3 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195901.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195901.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:6CB93D0A35BF25CC9A88567678E14C10EF7F0D8B
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196309.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196309.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Files 2.5.10 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196416.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196416.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ MyPublicWiFi 30.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196417.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196417.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ Ashampoo Driver Updater 1.6.0.0 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196574.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196574.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ Atrise Lutcurve 4.1.1 [En/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196729.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196729.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ Epubor Ultimate 3.0.15.425 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196752.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196752.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ KSA Power Supply Calculator WorkStation v.2.4.0 Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196805.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196805.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ iTop Screen Recorder Pro 4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196819.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196819.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ novaPDF Lite 11.8 сборка 411 [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196848.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196848.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ Ashampoo Burning Studio 2023 1.24.0.13 (6310) [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196885.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196885.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ GoldMemory PRO 7.98 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197104.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197104.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ Mini Speech2Go 1.116 + Voices [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197133.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197133.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ AIO Boot NewGen 23.6.2.0 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197658.jpg" />
 </div>
 
 
@@ -551,78 +623,6 @@ AIO Boot NewGen - это мощное программное обеспечен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:267D20D95D20DF8C1B6B32E12F716FC835ACD88A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636981   (197677) от 01.06.2023
-
-ORPALIS PaperScan Professional 4.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197677.jpg" />
-</div>
-
-
-###  Подробнее
-
-ORPALIS PaperScan Professional является универсальной, мощной и простой в использовании программой для сканирования. Большинство приложений подобного рода предназначены для одного сканера, PaperScan позволяет управлять любым сканером, в том числе сетевыми сканерами (TWAIN или WIA протоколы поддерживаются). Вы можете импортировать любые изображения / PDF-файлы в PaperScan (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE1E6076C389CC0BAC038439AE4150D53B27132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636030   (197737) от 29.05.2023
-
-Kleptomania 5.0 Commercial [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kleptomania — уникальная в своем роде программа . Она умеет захватывать текст, но, в отличие от других программ, она его может снимать откуда угодно - даже из тех приложений, которые “не признают” буфер обмена. Она умеет, к примеру, захватывать список файлов в любой папке, путь к файлу, текст из диалоговых окошек и вообще - с любого места экрана. Kleptomania позволяет (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90912DDCCEBB65A6CE9D2B6D7630121E26DC308C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636681   (197758) от 31.05.2023
-
-BlueLife Hosts Editor v1.5 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197758.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlueLife Hosts editor - бесплатная утилита выступающая менеджером для быстрого редактирования файла HOSTS. Удобный графический интерфейс позволит вносить быстрые правки для перенаправления IP, а также производить блокировку заданных адресов. Файл HOSTS - системный файл Windows, который регулирует параметры перенаправления IP-адресов и DNS. Данный файл можно отредактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8863EE4CFA24AA0FCB550478E5B65920A04578E2
 ```
 
 

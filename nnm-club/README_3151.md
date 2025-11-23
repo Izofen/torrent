@@ -1,3 +1,75 @@
+###  Публикация: 1822476   (101031) от 06.10.2025
+
+Андрей Орлов | Честь пацана (2024) [MP3, Егор Федотов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он не мог остаться в стороне, потому что правильно понимал, что значит быть настоящим «пацаном». Андрей Шефер по прозвищу Шериф, отслужив в десантных войсках, возвращается домой. На дворе – конец восьмидесятых, жизнь в стране перевернулась с ног на голову. В Казани бушуют «пацанские» войны. Территория города поделена на части, в каждой правит своя банда, возглавляемая (   Читать дальше...   )Жанр: Детектив, боевик, триллерИздательство: ЭксмоПродолжительность: 08:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C4828C93300E0BC7A9D43D2ABB84CFC1C29808
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822477   (101032) от 06.10.2025
+
+Алекс Норман | Эволюция убийства (2024) [MP3, Амир Шакиров]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история о смысле, который психопаты вкладывают в слово «любовь». Его семейная жизнь дала трещину. Жена выставила из квартиры. Пришлось ехать на дачу. Там он и встретился с Ингой – сестрой жены. Слово за слово. Бутылка коньяка. Бурная ночь… А утром нагрянули из Следственного комитета. Жену жестоко убили минувшей ночью. Нож со следами ее крови обнаружен в его машине. (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЭксмоПродолжительность: 05:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF9CC685382EEE91735A0E7A399331494E56612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822478   (101033) от 06.10.2025
+
+Франк Хеллер | Шесть меню (2023) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой этого романа - Филипп Коллин, талантливый шведский адвокат. Даже во время путешествия по самым красивым местам Европы у него всегда есть время для того, чтобы сделать остановку и раскрыть какое-нибудь запутанное преступление. Но на этот раз преступление ищет его. Он становится главным подозреваемым в ограблении поезда, и ему предстоит проявить чудеса (   Читать дальше...   )Жанр: ДетективИздательство: СОЮЗПродолжительность: 04:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98053FBCC35CD965B43D7723A9336E688ADF0A8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822305   (101034) от 06.10.2025
 
 Максим Калинин | S-T-I-K-S. Офис (Книга 1) (2025) [MP3, CHUGA]
@@ -6,7 +78,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101034.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:98BE9AD35D52783CE7318CC706E83CE8E098DE79
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101035.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:2BB0F54AE2AA3F1EFA40A1B63006955B33B97942
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101036.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:D38EBFDF3F4E8A4419293BBC470B6BDA38E8AAFF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101037.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:38426E6345161F66AEA1CECA884CDB00E96ECCD0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101038.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:72419635F21F867744075A9E4847016313D84FF3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101039.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:C9E1F27502084320659F5C8A9B5491E6E2F5A7D5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101040.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:CCDBFCCA1CEC109528B3A7B3CC1330269E8B1D11
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101041.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ Egao no Taenai Shokuba Desu. / A Mangaka's Weirdly Wonderful Workplace / Раб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101042.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Noda / Мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101043.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ Plus-sized Misadventures in Love! | Debu to Love to Ayamachi to! | Пышечк�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101044.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:C28137522DFDFFBF1AD26163B6629F889BE7E7A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101045.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:E552FC0CC18B43FA2658759247545AFD21007A94
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101046.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:2458339A790BC08F2B72E04F0BF21FC3047C6D2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101047.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:A47A6429EF62406E21F95AAF44393EC8ACB4578A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101048.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:1FB04B6971D883578BB35722B7210C9F9ECD5B4A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101049.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:65CB5FBA1843D4BD92B022C17E65B2B4C75C1DB5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101050.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ Kao ni Denai Kashiwada-san to Kao ni Deru Oota-kun / Inexpressive Kashiwada and 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101051.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ magnet:?xt=urn:btih:CF827ED601EC3E025F5E413EEDAF818CFAD4CC2C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101052.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:EF6B113C353D7272F2780966410661E221BF5AF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101053.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ magnet:?xt=urn:btih:F7BF0833197614B58FF2F693CD7546C7CA39A249
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101054.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:657A2442C4CD6CE5F6137EE2A10EAC26F5668F62
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101055.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:EF5743C3F1163D7DF7B70D4549E0753D0AFF8C53
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101056.jpg" />
 </div>
 
 
@@ -553,81 +625,6 @@ magnet:?xt=urn:btih:EF5743C3F1163D7DF7B70D4549E0753D0AFF8C53
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8749AFC4E9AA80502BEA1FABE5C0769F2395C52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822495   (101057) от 06.10.2025
-
-Tedeschi Trucks Band And Leon Russell - Present: Mad Dogs & Englishmen Revisited (Live At Lockn') (2025) [FLAC|Lossless|tracks + .cue] < Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Letter
-02. Darling Be Home Soon
-03. Dixie Lullaby
-04. Sticks And Stones(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0200E7B2B13FC2451965AE4B09B0CC9604C1A961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822489   (101058) от 06.10.2025
-
-FBReader Premium v3.8.19 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 06.10.2025Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE04741F4DCFB7F92D283904A9BEFBC56F6C50FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822491   (101059) от 06.10.2025
-
-Listen Audiobook Player v5.3.4 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проигрыватель предназначен для воспроизведения контента, предоставленного пользователем. Вы можете получить книги без DRM с таких сайтов, как https://librivox.org/, Overdrive (через вашу библиотеку), http://www.downpour.com/, http://www.loyalbooks.com/ или любого другого места, где можно найти аудио без DRM.Тип издания: ModРелиз состоялся: 06.10.2025Разработчик: acme-android.comПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3F46245ED7DBA2C696E3A5E590EEBB74C031AA
 ```
 
 

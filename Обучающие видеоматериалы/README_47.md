@@ -6,7 +6,7 @@ Udemy, Samantha Dabrowski | Become a Graphic Designer in the Film Industry (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131748.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Passive Income Gen Z | ChatGPT & DALL-E2 to Create a KDP Storybook for Ch
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131750.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Udemy, Rufana Zade | Master Brand Design: Graphic Masterclass - Time-Saving Step
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131752.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Udemy, Jesse Lawrence | How to become a music photographer (2023) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131782.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:221FACCA5D20BA1E2DB496C779C16F5CC7A1712C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131912.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:30CD1737AEDB2CCC71AD6A4CD3F174C45E3F2852
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131915.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Udemy, Zeon Horizon | 3Ds Max MasterClass : Only 3D course that teaches everythi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131919.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:136244580422CDA31EA73F8FFF70B93902BEA6C3
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131933.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Udemy, Markos Resvanis | Unreal Engine 5 Visual Novel and Narrative Game Design 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131947.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Udemy, Meta Brains | Midjourney for Beginners: Embark on Your Artistic Journey (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131990.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Udemy, Benoit GOMES | Level design Masterclass : Theorizing before crafting (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132025.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Udemy, Marc Schneider | Mastering Theater Lighting (2023) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132030.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:D2B149F0CAEC9FCB7050DE0FF1D298683FEDC4E1
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132049.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ my_revit | Revit interior (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132203.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Udemy, Art Studio313 | Master 3D & 2D Hand Painting/Combine Blender & Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132246.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Udemy, Bharat Sharma | Introduction to Sculpting in Blender for Absolute Beginne
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132259.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Liveclasses, Антон Мартынов | Генерация изображен
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132260.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Udemy, Build FX | Master Blender With AI Tools, Blender Addons & Unity (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132265.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:0B018A0D0F675D86FD10ABDD66343F9920A935F1
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132284.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Udemy, Manas Roy | ChatGPT and Adobe Firefly AI Course: Beginner to Pro Level (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132300.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Roman Mantra | Mantra PRO Ai. Вебинар по созданию нейроа�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132521.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Daniel Kordan | Photo Editing Masterclass (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132540.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:C5F4172BE3A0CC4B32742338EEF42732C2344793
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132552.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Hudozhnik Online, Ника Сабрекова | «Цветные каранда�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132600.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ LinkedIn Learning, Dr. Chaz Austin | Creating a Career Plan (2020) PCRec [EN]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132633.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Gumroad, Polygonpen | Advanced Bottle Modeling and Rendering in Cinema 4D and Re
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132846.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1703726   (114946) от 01.03.2024
+
+Тот, кто смотрит / Stranger in the Woods (2024) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оливия, пережившая гибель жениха и попытку самоубийства, отправляется со своими друзьями на природу. Ее близкие уверены, что свежий воздух и смена обстановки пойдут девушке на пользу. Но вместо этого Оливию начинает одолевать тревога. Она не может избавиться от ощущения, что леса вокруг их хижины таят опасность, а остановившийся по соседству сводный брат одного из (   Читать дальше...   )Производство: США / WonkЖанр: триллерРежиссер: Адам НьюачекАктеры: Холли Кенни, Брендин Браун, Пэрис Николь, Радек Антчак, Тедди Спенсер, Девон СтюартПеревод: Дублированный (ОККО)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9541DF0AB87365C0B8881E41699836A06777C1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703639   (114947) от 01.03.2024
+
+Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nathan Morgan: Dilemma ставит вас на место детектива Натана Моргана, которому поручено распутать загадочное убийство. Действие игры разворачивается в стенах величественного особняка Беннеттов, где произошло теневое преступление. Ваша главная задача как детектива - установить личность преступника. Для этого вам придется прочесывать особняк в поисках улик, скрупулезно (   Читать дальше...   )Тип издания: RepackРазработчик: 98 INTERACTIVEЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский, Турецкий, Немецкий и другиеЯзык интерфейса: Русский, Английский, Турецкий, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F1944C17BC988885D55816B2B3D677B813BB7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703674   (114948) от 01.03.2024
+
+Adobe Illustrator 2024 28.3.0.94 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe Illustrator 2024 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC921132BDB620B9C5243CB6A8A34C1E0ADB42F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703772   (114949) от 01.03.2024
 
 ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2044.0 (01.03.2024) RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +78,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2044.0 (01.03.2024) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114949.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:97DF0E8A14291D0B3CAD3E10A72F3CAC464153D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114950.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:CFB5E93B28AB0E37AA1203F8235FEDEC9611E66F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114951.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:53C7E6D7D72DB5580AA8D52A9971C04358E64827
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114952.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:B2462437C078F76FBC5F4DAD6A1680D8C445B188
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114953.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:D531146E736A6F60331966885EAED623806849A9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114954.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:D531146E736A6F60331966885EAED623806849A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114955.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:A074AD7A46F02E6456E9E719AED5D9F50F4F1D4E
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114956.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:F10A2F38AA91C42C9E901FC2E69F80444FB52A9A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114957.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:6F90ED2AB95C32C8F905410460019A90923856CC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114958.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:C2F2E319CD1D98CFB99B77C840F79EBBFC142BE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114959.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:8E66650F117380875FD0EBDD5191AE5CB8131C1F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114960.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:01B5FC691D12AE41C42E83EE22BBE5DBD2A0967D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114961.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ IObit Driver Booster Pro 11.3.0.43 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114962.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114963.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:F4EE92835A1978E46312A1EDB908AA14496BA529
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114964.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ Apple и Google уничтожили мобильные приложения д�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114965.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ Apple и Google удалили из своих магазинов приложе
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114966.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0.0.0/dlc) Repack DjDI [Supre
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114967.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ Eric Assmar, Jefferson Goncalves & Gustavo Andrade - Assmar, Gonçalves & Andrad
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114968.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:2968E5319A90D87055CE9964BAF0765C124D113C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114969.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ magnet:?xt=urn:btih:DBE9038ACBEECCFF3C976506F02A336AD8FC47B3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114970.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ The Gus Glynn Band - Paint It Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114971.jpg" />
 </div>
 
 
@@ -560,81 +632,6 @@ The Gus Glynn Band - Paint It Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F31E683250234FAACB3680E8C4F6103DA16FD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703531   (114972) от 29.02.2024
-
-Firewind - Stand United (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salvation Day (4:23)
-02. Stand United (4:30)
-03. Destiny Is Calling (3:55)
-04. The Power Lies Within (4:20)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA70A42871EADC5A08BAA95804AE929B32DDD349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703499   (114973) от 29.02.2024
-
-Галина Романова | Метод Женщины. По следам старых грехов (2024) [MP3, Мария Оссовская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Ардин, известный юрист, оказывается в трудной ситуации, когда его соседка внезапно исчезает. Дом старухи оказывается запачканным кровью, на участке обнаруживаются захоронения, а записи с камер показывают, что Ардин закапывал тела. Майор Игнатов считает его виновным, но помощница Кира подозревает, что Михаила подставили. Вопрос в том, почему именно его.Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 08:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD0091FE651A0D1B67006C288D894DE75896C29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703402   (114974) от 29.02.2024
-
-Газета | Моя Семья №8 (1207) (февраль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114974.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Моя Семья» задумана как газета о человеческих отношениях. Редакция делает упор на историях из жизни, поэтому многие наши публикации читаются как романы. Главной основой публикаций являются письма читателей, что делает «Мою Семью» уникальной — все наши истории подлинные.Жанр: Семья, дом, бытИздательство: ООО "Издательство "Моя Семья"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6999EC974041801829A2821FAD7FD8CB859F8A81
 ```
 
 

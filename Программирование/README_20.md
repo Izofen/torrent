@@ -1,3 +1,75 @@
+###  Публикация: 1831496   (212135) от 28.10.2025
+
+Саймон Монк | Raspberry Pi. Сборник рецептов. Решение программных и аппаратных задач [2 книги] (2023, 2025) [PDF] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит более 200 рецептов по работе с микрокомпьютером Raspberry Pi, рассматривающих как программные, так и аппаратные задачи. Показана установка и настройка операционной системы для Raspberry Pi, подключение датчиков и двигателей, способы интеграции Raspberry Pi в систему умного дома и сеть Интернета вещей. Рассмотрен язык Python в контексте программирования (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: М. РайтманЯзык: Русский, английскийИздательство: O’Reilly Media, АЛИСТФормат: PDFКачество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5DBEBEB9CC2A2B39F1F9E54BA42F6FCFCB8736
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831020   (212157) от 28.10.2025
+
+Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы сделать первые шаги в мире программирования? Независимо от того, новичок вы или хотите расширить свой набор инструментов для программирования, этот экспресс-курс по Python поможет вам в кратчайшие сроки начать писать настоящие программы. Следуйте пошаговому руководству, чтобы освоить основные элементы Python: от переменных и циклов до типов данных, функций (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: EPUB, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827814A96E2FE855FCCF9B49F1F07064516EA123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565631   (212221) от 24.07.2022
+
+А.В. Селезнева | Основы программирования. Язык высокого уровня С++. Часть I (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие состоит из двух частей, каждая из которых содержит теоретический материал, примеры задач с их реализацией, ряд лабораторных работ. Первая часть данного пособия знакомит читателя с основными понятиями программирования, его базовыми конструкциями, средами разработки. Учебное пособие направлено на приобретение студентами общих знаний и навыков программирования (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70B3C585A08D26289B86DCAE6596CBAA2AF6E8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564585   (212375) от 19.07.2022
 
 Джозеф Албахари | C# 9.0. Справочник. Полное описание языка (2021) [PDF]
@@ -6,7 +78,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212375.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212375.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:3C9733D20EC33BAD8EC9148822B0C515BCB28EB5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212680.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212680.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:7D8F134E3E352C06F095E4F3B8FA2822BCD9D310
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212687.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212687.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:F8BD1695440C6ED105C8BA2BACEB53CC68AF7B4F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212689.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212689.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:F5A33D2EF9C373F48672FD6260FFF5E991019EE8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212692.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212692.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:A8C4B6A8AB917EED1C66ED3A9B59F9B8CA90429A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212697.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212697.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:CFE03601B3EDFE01105A626DD9A9F37AB1E9FD56
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212764.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212764.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Jan Newmarch, Ronald Petty | Network Programming with Go Language: Essential Ski
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213012.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213012.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:C6DEE4EE386FAF324EBBCB59D9BAF0435DCA307C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213073.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:5BB02F460E4804C383A62BEC4DDD046F63853B7E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213109.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213109.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:1A75B1B3D2C6DDC846CCFD79CE861672C93A525D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213964.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213964.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:BAAD7823B4C7B1E9E96757C4C5658C1E8034F122
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214133.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214133.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:E972A6F27A62110EB2396C4EEFB013182BCE823E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215132.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_215132.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215179.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215179.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:BCA4FA8907E7A90FA5A96AA70F18F7D0F51B8749
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216516.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216516.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:9FBF4348C7F13B6B52EE2336C319D462603B471E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217080.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217080.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:6851216C11DE59DEB33E23DABBBE8596B50DE6C7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218569.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218569.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ magnet:?xt=urn:btih:ED98E3457AB75C23FF19B8D042AA3B12F2A981A1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218657.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218657.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ magnet:?xt=urn:btih:F7D0A1EC40F5358A09B81EEADE2BE19299BF1FB6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219346.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219346.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:3DE35924F8D88CE3343BDDFDE9CE1257B9E86FA7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221694.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221694.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:A76C19AC5D109551CB00921BD795D0FE29F29B7E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223199.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223199.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:EBB3408E6AEFAFE42AB6DCD1FE141BBBBE432BDE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224599.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:42747F759BF2B75FFDD48415D788CFD5070C473E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225026.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225026.jpg" />
 </div>
 
 
@@ -549,80 +621,6 @@ magnet:?xt=urn:btih:42747F759BF2B75FFDD48415D788CFD5070C473E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70D5E59802DEA6BE22CEFAD727614427E08F6C51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341715   (228053) от 29.11.2019
-
-Дэвид Флэнаган, Бенджамин Дж. Эванс | Java. Справочник разработчика. 7-е издание (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это обновленное издание не только помогает опытным программистам на Java извлечь наибольшую пользу из версий Java 9-11, но и служит удобным учебным пособием для начинающих разработчиков. На многочисленных примерах кода в этом тщательно пересмотренном издании демонстрируется, как воспользоваться в полной мере современными интерфейсами API и нормами передовой практики (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E6ED2B749BE701DE4BAF2D146859C3CE32E53A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583333   (229595) от 14.10.2022
-
-Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, concepts, and patterns in JavaScript (2021) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте об уничтожении, итерациях, генераторах, полезных API-интерфейсах браузера. В книге рассматриваются такие понятия, как функции высшего порядка, мемоизация, каррирование и конечные автоматы. Вы познакомитесь с основами Flux и Redux и увидите, как работают такие шаблоны, как синглтон и издатель/подписчик.
-
-Каждая тема сопровождается подробным объяснением, примерами (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37348BE5EDE5107DA9525EC6C6B088EB7A004C1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512640   (229631) от 25.11.2021
-
-Гарри Персиваль, Боб Грегори| Паттерны разработки на Python (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы читаете эту книгу, то нет смысла убеждать вас в том, что Python просто великолепен. Настоящий вопрос вот в чем: зачем сообществу Python нужна эта книга? Ответ кроется в популярности и зрелости этого языка: хотя популярность Python растет такими темпами, что он приближается к верхним строкам рейтингов, сам язык только начинает брать на себя задачи, над которыми (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053404EEEB857A347B153BD8CD32FA41FB57CFEC
 ```
 
 

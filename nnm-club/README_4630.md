@@ -1,3 +1,151 @@
+###  Публикация: 1678653   (143487) от 22.11.2023
+
+Небеса могут подождать / Heaven Can Wait (1978) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стареющая звезда футбола Джо Пендлтон погибает в результате несчастного случая на дороге, а его дух оказывается в руках сверхусердного ангела. После того как тело Джо уже кремировано, на небесах выясняется, что ему ещё не пришло время умирать. И перед ангелом и самим Всевышним стоит нелёгкая задача — найти на Земле наиболее подходящий объект для его души. Свободным (   Читать дальше...   )Производство: США, Paramount Pictures, Shelburne AssociatesЖанр: фэнтези, мелодрама, комедия, спортРежиссер: Уоррен Битти, Бак ГенриАктеры: Уоррен Битти, Джули Кристи, Бак Генри, Джеймс Мэйсон, Дайэн Кэннон, Джек Уорден, Чарльз Гродин, Винсент Гардения, Джозеф Маэр, Хэмилтон Кэмп, Артур Мэлет, Стефани Фэраси, Джинни Линеро, Гарри Д. К. Вон, Джордж Дж. МэносПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C54F44F65B76D29D647B74639A2527F44B43B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087780   (143488) от 28.12.2016
+
+Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack R.G. Catalyst [Complete Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quantum Break - уникальный проект, состоящий из двух частей: динамичной игры и сериала со звездным актерским составом — Шоном Эшмором в роли Джека Джойса, Эйданом Гилленом в роли его противника Пола Сайрина и Домиником Монаганом, сыгравшим гениального брата Джека, Уильяма. В Quantum Break вас ждут отличные персонажи и множество драматичных сюжетных поворотов, которыми (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C98882E3026E400275587341F1852D77DFE8C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590805   (143489) от 17.12.2012
+
+Sexy Girls Pack Wallpapers (17.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A94045A033B39549F89DBF60C795EBAA14AE88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194795   (143490) от 28.12.2017
+
+Kendrick Lamar - DAMN (2017) Collector's Edition [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DUCKWORTH. (04:08)
+02. GOD. (04:08)
+03. FEAR. (07:40)
+04. XXX. (FEAT. U2) (04:14)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C88100CEB0D5D00B4AF416F13196DCB997E807
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272270   (143493) от 27.12.2018
+
+Paragon Hard Disk Manager for Mac 1.3.873 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Hard Disk Manager for Mac® - это идеальное решение для управления системой и данными Вашего Mac. Надежное резервное копирование, гибкие функции восстановления, быстрое управление разделами, гарантированное затирание данных и многое другое - все, что нужно для Вашего Mac!
+Резервное копирование и восстановление на базе технологии Paragon Snapshot for Mac  (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: Paragon Technologie GmbH.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5708DBB8325AD7B7FB1971192705759E1FC886
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348695   (143495) от 28.12.2019
+
+Наталья Сорокина | Искусство и деньги. Лекции-путеводитель (2016) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историю искусства не следует воспринимать как череду картин и скульптур или их воспроизведений в книгах, история искусства - это истории жизни талантливых людей со всеми трудностями в процессе творчества. Как художник переходил из разряда безымянных ремесленников в ранг признанных мастеров? Кто открыл для нас таких гениев, как Брунеллески и Боттичелли, Леонардо да (   Читать дальше...   )Жанр: Культура и искусство, ИскусствоведениеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFC877D9B96717B187FE7511EEBB693A43C0B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678688   (143496) от 22.11.2023
 
 Floorp Browser 11.6.1 + Portable [Multi/Ru]
@@ -6,7 +154,7 @@ Floorp Browser 11.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143496.jpg" />
 </div>
 
 
@@ -30,7 +178,7 @@ Gilrs Wallpaper Collection (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143497.jpg" />
 </div>
 
 
@@ -54,7 +202,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc/upd2) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143498.jpg" />
 </div>
 
 
@@ -78,7 +226,7 @@ VA - Get Physical: Electro Bass Compilation (2021) [MP3|320 Kbps] <Drum And Bass
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143499.jpg" />
 </div>
 
 
@@ -105,7 +253,7 @@ Ivan Torrent - Immortalys (2017) [MP3|320 Kbps] <Instrumental, New Age,Electroni
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143500.jpg" />
 </div>
 
 
@@ -132,7 +280,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143501.jpg" />
 </div>
 
 
@@ -158,7 +306,7 @@ FanControl V174 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143503.jpg" />
 </div>
 
 
@@ -182,7 +330,7 @@ Warhammer 40,000: Dakka Squadron v1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143504.jpg" />
 </div>
 
 
@@ -206,7 +354,7 @@ magnet:?xt=urn:btih:C27337554813900EE786377956C4F00120CA297E
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143505.jpg" />
 </div>
 
 
@@ -230,7 +378,7 @@ magnet:?xt=urn:btih:F7F0EE6AA7DB68596DF73C7B08D65CCB3A499C80
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143506.jpg" />
 </div>
 
 
@@ -261,7 +409,7 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143507.jpg" />
 </div>
 
 
@@ -285,7 +433,7 @@ DxO ViewPoint 3.1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143508.jpg" />
 </div>
 
 
@@ -310,7 +458,7 @@ magnet:?xt=urn:btih:A3C199CBED3EEE2A74CAB889634DD6A481FD66B1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143509.jpg" />
 </div>
 
 
@@ -334,7 +482,7 @@ Billy Joel - Turnstiles (1976) SACD, Remastered 2012, Mobile Fidelity Sound Lab 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143510.jpg" />
 </div>
 
 
@@ -361,7 +509,7 @@ Cesar Bravo, Desilda Toska | The Art of Social Engineering (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143512.jpg" />
 </div>
 
 
@@ -387,7 +535,7 @@ VA - Top Songs of 2021: Global [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143513.jpg" />
 </div>
 
 
@@ -414,7 +562,7 @@ magnet:?xt=urn:btih:68CA5231EB851E2055E53117224548AF9CE3F32F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143515.jpg" />
 </div>
 
 
@@ -440,7 +588,7 @@ magnet:?xt=urn:btih:405AB0AC777896ADA8160306DD687D1ACFF6FC8E
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143516.jpg" />
 </div>
 
 
@@ -464,7 +612,7 @@ magnet:?xt=urn:btih:8154EF30352DD875DAACED94AC8234EBFAEEFD3D
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143518.jpg" />
 </div>
 
 
@@ -488,7 +636,7 @@ magnet:?xt=urn:btih:BEB2ACB632D85393D80A27BC7CEC8B14D888832A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143519.jpg" />
 </div>
 
 
@@ -499,152 +647,6 @@ magnet:?xt=urn:btih:BEB2ACB632D85393D80A27BC7CEC8B14D888832A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFBF65A3DC094182283D628FE1F4968691E8778E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347593   (143520) от 28.12.2019
-
-Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143520.jpg" />
-</div>
-
-
-###  Подробнее
-
-360° Visualizer Music VideoЖанр: Technical Death MetalПродолжительность: 00:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520306   (143521) от 27.12.2021
-
-Гарри Гаррисон | "Стальная Крыса" Книга 10. Стальная крыса на манеже (2021) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный Джим ди Гриз — знаменитый межзвездный преступник — получил за свою изобретательность и решительность меткое прозвище «Крыса из нержавеющей стали».
-Рожденный богатой творческой фантазией Гарри Гаррисона, отчаянный и симпатичный герой из далекого будущего приобрел необыкновенную любовь и популярность поклонников фантастики во всем мире, щедро поделившись (   Читать дальше...   )Жанр: ФантастикаПеревод: Геннадия КорчагинаПродолжительность: 09:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8740CEE8AD027AACC016A67651B5E56FE7B86762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970345   (143522) от 29.12.2015
-
-Эдвард Смит | Вторая Стадия. Дети Линзы (1994) [PDF, DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143522.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вторая Стадия» и «Дети Линзы» являются соответственно пятой и шестой книгами знаменитого сериала Э. Э. «Дока» Смита о Ленсменах, стражах галактической безопасности и порядка, носителей Концентратора-Линзы, которая предназначена для усиления их ментальных способностей. В пятой книге эпопеи продолжается рассказ о Кимболе Киннисоне, Сером Ленсмене, неподсудного никому (   Читать дальше...   )Жанр: Фантастические романыПеревод: М. С. Нахмансон, И. Коробова, Г. Выдревич, Н. В. Эдельман, А. Антошульский, Т. ФилатоваФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D7570EF625928B8398DDE34C2F288A7D2DDB95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678510   (143524) от 22.11.2023
-
-Собака Баскервилей / The Hound of the Baskervilles (1959) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143524.jpg" />
-</div>
-
-
-###  Подробнее
-
-В восемнадцатом веке богатый землевладелец Хьюго Баскервиль похитил местную девушку и запер ее в своем поместье. Однажды во время гулянки он рассказал своим друзьям о девушке, но те не поверили ему. Он отправился в подвал и обнаружил, что девушке удалось убежать. Тогда Хьюго вскочил на свою лошадь и бросился в погоню. Неожиданно возникшее "чудовище из ада" (   Читать дальше...   )Производство: Великобритания / Hammer Film ProductionsЖанр: Детектив, Криминал, УжасыРежиссер: Теренс ФишерАктеры: Питер Кушинг, Андре Морелл, Кристофер Ли, Марла Ланди, Дэвид Оксли, Френсис Де Вулф, Майлз Маллесон, Ивен Солон, Джон Ле Мезюрье, Хелен ГоссПеревод: Двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA438EC1C6A4BEF396E5368D7D64F9850AF2566
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195377   (143525) от 28.12.2017
-
-Растровый клипарт - Fotolia - Sensual attractive lady posing in studio [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушки с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3920x5792-8688x5792
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B94F60FA6F2CBF63DCFBF8B2FEE209DF2BDB253
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678650   (143526) от 22.11.2023
-
-Viber 21.4.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viber - десктопная версия популярного мобильного приложения для IP-телефонии, с помощью которого можно свободно отправлять сообщения, совершать голосовые и видеовызовы (HD качество) другим пользователям Viber, вне зависимости от того каким устройством они пользуются, к какой сети подключены и в какой стране находятся.
-Программа автоматически синхронизирует с мобильным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F32CCB4FA2F36B3854B22571B5FA0E9787507D
 ```
 
 

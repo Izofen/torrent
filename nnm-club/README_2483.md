@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65306.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Scardust - Souls (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65307.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:42DEDA791E4A0C80D3D27E82AA3EF83AEA6EEA9D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65308.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Frank Potenza - Express Delivery (1989) TBA Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65309.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Heaven Shall Burn - Heimat (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65310.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:9BA37C418F111C041577194AC9F5B6508D87F0C1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65311.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:774896AC06353EBA81E6CFCC02B037F18E974579
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65312.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:8934E0E4C1A48AC7DD0B336D96DDDE1DEC6E7247
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65313.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:73FBB42AAFDED1CC77677D57279545E2514A2AA5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65314.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:53EBC62627FF72316F4CECAF5CFCF6E316F7E034
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65315.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Wiener Philharmoniker & Tugan Sokhiev - Sommernachtskonzert 2025 / Summer Night 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65316.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:40D36A3F179BDD182850DFAE787560C947AFE051
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65317.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Photo Editor v11.7 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65318.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Hell - Human Remains (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65319.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65320.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Shelly Manne & His Men - Play Peter Gunn (1959) 1997, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65321.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Cronos Compulsion - Lawgiver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65322.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Doc Bowling and His Blues Professors - Sing the American Songbag (2025) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65323.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Shotgun Sam and his World Famous Blues Band - Shotgun Sam and his World Famous B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65324.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Mauro Ferrarese - Echoes 'long The Path (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65325.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:967755E728951F8F55A89737860B6AD404DD0AAF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65326.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Carlos Camilo - Levitating (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65327.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65328.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ E&B Haircut - Polaroid Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65329.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ The Crystal Tears - The Crystal Tears (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65330.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ D.K. Harrell - Talkin' Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65331.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35479.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C66FA023BDD6496A0F080643F7DE9B8267A98BF5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35480.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Skies above the Great War (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35481.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A4FCFE330575C3FAE25A8A49DB4615D6077A60ED
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35482.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Unforeseen Incidents (2018) [Multi] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35483.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:69089A314D3ACFD1C9A8B6BBFFDA881AD1BE826B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35484.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C31B79519EF40C527F026C8E34101EDF907BFD0F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35485.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:DBFCA8D823E9C4A334FE54EABA941CAD1D2C2EC1
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35486.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:D1F2880614DE64D3B3F73CB68D6B034633176B4F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35487.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Automobilista 2 (2020) [Multi] (1.6.3.0/dlc) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35488.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:BFEA7C5728CB53B08CB4AA0786FA5D3CADE5E9FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35489.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:38BE494E94BCC3BEBB3AFBA442D9D9CF96DEBD1C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35490.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:A5CB31ADB41962A071C2830E60D1EC10CEA3FA97
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35491.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0-45746.11849/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35492.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ History Channel: Филадельфийский эксперимент / Vanishi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35493.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Revo Uninstaller Pro 5.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35494.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:EAF62403588D966E9E6900B417A3D38338211FAB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35495.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:EBE27543A75A1B0C0F7948E62E524D004C0E65EF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35496.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:8EEAD83609F88E7499D5FCF6D42BD29D26FAC548
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35497.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:8EEAD83609F88E7499D5FCF6D42BD29D26FAC548
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35498.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:4A7D100E5F4FB4C85ED392682C722C289B5440E3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35499.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6FA93350CB783964C6840F8CB3BB6317A97CAEEE
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35500.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:DCA716B96E8F560B8870C3717AA07E255FA6F962
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35501.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:EAEE36CD6016BF330EDC7B80FADE6BDB4740474D
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35502.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Balabolka 2.15.0.883 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35503.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:56B957F75C4C21DBFA0810B8F232BDEA9549B6FA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35504.jpg" />
 </div>
 
 

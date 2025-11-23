@@ -6,7 +6,7 @@ Mates of State - Bring It Back (2006) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103014.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:340A211B964B501AF965EF1892FCA2DE89CD8ACC
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103123.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E34D247E32A357E2F57335B85F0C52F57252CAAB
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103380.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - The Orient Collective - Ancient Wisdom (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103629.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pregnant Women Music Company - Pregnancy Routine (2024) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103708.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - The Orient Collective: Journey to the Soul (2024) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103754.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Orient Collective - Gateway to Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103827.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Music for Yoga & Meditation (Soft, Soothing Instrumentals) (2024) [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104775.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:391DC54F19F4405835BF310AD7B6A311BFE85D31
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104839.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Golden Sound Of Panflute (2007) 3CD [WavPack|Lossless|image + .cue] <Romant
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105070.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Orient Collective: Alchemy (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105166.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:60791D80D87E6DA83264BB71A1CE502C1C01D3AD
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105349.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:00D104D4265EFA26440B4C10BF45DBD19D4161E6
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105350.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6F7BD04E1C99DF8D184AB44F8213DEC1088F7B93
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105354.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Nocturna (1979) 2LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105414.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Orville Peck - Stampede (2024) [FLAC|Lossless|image + .cue] <Folk, World, Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105454.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Levantis - Music For Mother & Baby (Музыка для мамы и малыша
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105531.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hans Peter Neuber - Licht-Meditation (2007) [WavPack|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105961.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:D7381593B5918338E4BAC837AE92B37B0DED9277
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106531.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:CB21A800B0B790B8242E20CDF2FCBA01DA946D35
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106771.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:1AA5C145DF2B5AC64E1E25AF80A6C129C6CC8EE1
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106816.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:443E2C3FA6975136EEF46681F2A77AA9DACF9C71
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107358.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Stefano Maggio & Alessandro Giordani - Miss Erotica (2017) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108532.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Werner Ahrens - Horst Bosing - Crystal Spheres (2006) [WavPack|Lossless|image + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108578.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - The Orient Collective: Red Carpet (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108875.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:0784070B69AEA5FAC2865C87AF9103FC45E15884
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108959.jpg" />
 </div>
 
 

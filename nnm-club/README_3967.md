@@ -1,3 +1,76 @@
+###  Публикация: 1692267   (122824) от 15.01.2024
+
+Total Commander 11.02 (15.01.2024) Portable by MiG [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портативная сборка Total Commander 11.02 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 11 появился новый мультимедиа (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D9B31B2A046D115D56CE2A3B8BABD90EF7D594
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692173   (122825) от 15.01.2024
+
+SanDisk (Western Digital) SSD Dashboard 4.1.2.4 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122825.jpg" />
+</div>
+
+
+###  Подробнее
+
+SanDisk (Western Digital) SSD Dashboard - официальная программа от Western Digital, которая предназначена для работы с твердотельными SSD накопителями SanDisk. По функциональным возможностям, программа схожа с инструментом Western Digital SSD Dashboard, а начиная с версии 2.5.1.0 полноценно поддерживает работу с накопителями брэнда WD.
+Программа SanDisk SSD Dashboard (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC960FE93832F5F34AC44204D3256625330A8D80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692143   (122826) от 15.01.2024
+
+Воздушное ограбление / Lift (2024) WEB-DLRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшая девушка и агенты ФБР уговаривают профессионального вора и его команду осуществить «невероятное ограбление» на борту самолёта Boeing 777, который летит из Лондона в Цюрих, и предотвратить террористическую атаку.Производство: США / Netflix, 6th & Idaho Productions, Genre FilmsЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Ф. Гэри ГрейАктеры: Кевин Харт, Гугу Эмбата-Ро, Сэм Уортингтон, Винсент Д’Онофрио, Урсула Корберо, Билли Магнуссен, Yun Jee Kim, Вивеик Калра, Жан Рено, Джейкоб Баталон и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:47:49Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692205   (122827) от 15.01.2024
 
 Като Иванникова | Линеры. Интенсив (2023) WEB-DL [AD] [RU]
@@ -6,7 +79,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122827.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122828.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Notepad++ 8.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122829.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:A758B9DBD875D508EC94DADD09EBB963E3195EFF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122830.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:D243DE33ED1DCF2C47DF1580D929511A68794B43
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122831.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ WinToUSB Technician 8.5 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122832.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:6D794A12DEB87211332963DD9835944A40660C5D
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122833.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ magnet:?xt=urn:btih:369CE77187FE26DF0AD91BE5EB0DF3F0870669D5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122834.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:A6E69C1708B639E4F63DF5453946446422CA179A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122835.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:767F0493982035DA91E6DCBB12AA432B7C5681F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122836.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ magnet:?xt=urn:btih:67D51D5949AB214E795EA03DE270382A3272AFC4
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122837.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ Astra Linux Special Edition 1.6.14 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122838.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ magnet:?xt=urn:btih:2EA83824303FE3DF3EFB8E8BC257C75463DF9A22
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122839.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:6E0526C34F8C8CFFA4A108F3F853D40108EA1770
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122840.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ magnet:?xt=urn:btih:59478827A0819A3732681131E7936FFC70F2B691
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122841.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:2A2792E7766012C01C90E474B752AA07F8D38760
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122842.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:5726802D10ADACC9C61B74C3A64DFCB107A67765
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122843.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ magnet:?xt=urn:btih:D57E8989831A107DC4EAACE472168CBB98E4E168
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122844.jpg" />
 </div>
 
 
@@ -446,7 +519,7 @@ magnet:?xt=urn:btih:D7F9A1D33472C2E45E4531167C11687196B33936
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122845.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ magnet:?xt=urn:btih:5DF5AC748329E73311739A6FFC525EB9A7F3351B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122846.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ magnet:?xt=urn:btih:EFF825CEDE143A605B6872EFD94A1408B461BA56
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122847.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ magnet:?xt=urn:btih:238BFC327426A04848DC26EB2668CD3C18E8D292
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122848.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:954F8CA6E3ECBA85021CFC509B2D0D01D999C146
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122849.jpg" />
 </div>
 
 
@@ -558,80 +631,6 @@ magnet:?xt=urn:btih:954F8CA6E3ECBA85021CFC509B2D0D01D999C146
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD57369CFF9BF28DDA85D025D5B756DE7C63ED78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320664   (122850) от 15.01.2024
-
-М.Н. Загоскин | Рославлев, или Русские в 1812 году (2009) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Михаил Николаевич Загоскин (1789–1852) – исторический романист и комедиограф.
-Действие романа М.Н. Загоскина «Рославлев» (1830) происходит во времена Отечественной войны 1812 г. В основе его лежит трагическая история отношений русского офицера Владимира Рославлева и его невесты Полины.Жанр: Русская литература, классика, исторический романИздательство: Вира-М (аудио)Продолжительность: 16:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68310BD507D71545D0AC221F44DCB38C4C522838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688253   (122851) от 15.01.2024
-
-Приходи на меня посмотреть (2000) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122851.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пьесе Надежды Птушкиной "Пока она умирала". Софья Ивановна давно не встает со своего кресла. А ее единственная дочь Таня, похоже, смирилась с положением старой девы. Вся ее жизнь - это заботы о больной матери. Но в один из предновогодних вечеров Софья Ивановна собралась умирать. В отчаянии она трижды стучит костяшками пальцев по столу. И с этого момента (   Читать дальше...   )Производство: Россия / Киностудия им. М. Горького, НТВ-ПрофитЖанр: мелодрама, комедияРежиссер: Михаил Агранович, Олег ЯнковскийАктеры: Олег Янковский, Ирина Купченко, Екатерина Васильева, Наталья Щукина, Марк Рудинштейн, Иван ЯнковскийСубтитры: отсутствуютПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79921028B44BA210D2528024F870E7F1E8A47875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320662   (122852) от 15.01.2024
-
-М.Н. Загоскин | Москва и москвичи (2009) [MP3, Галина Самойлова]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122852.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Москва и москвичи» (1848) русский романист XVIII века рассказывает о современной ему Москве. Записки Богдана Ильича Бельского, издаваемые М. Н. Загоскиным. Наблюдая его точно и особенно интересны сейчас, во времена интенсивного развития города.Жанр: Русская литература, классика, исторический романИздательство: Вира-МПродолжительность: 02:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276B4D72D1EE5967C7F7953B84EC17D132F40F49
 ```
 
 

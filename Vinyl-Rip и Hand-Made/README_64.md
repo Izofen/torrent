@@ -1,3 +1,110 @@
+###  Публикация: 1620006   (245766) от 20.03.2023
+
+Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Mask — пауэр-метал группа, основанная в 2002 году бельгийским гитаристом Душаном Петросси.2002 - Revenge Is My Name
+2005 - Hordes of The Brave
+2009 - Shadow Of The Red Baron
+2011 - Black As DeathЖанр: Power MetalПродолжительность: 07:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623217   (245973) от 01.04.2023
+
+Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's in the blood [4:50]
+02. Getcha ya ya [4:35]
+03. She broke my heart (in 36 places) [3:40]
+04. She said she loves me [4:17](   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565417   (249436) от 23.07.2022
+
+Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Dance-Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ка́йли Энн Мино́уг (англ. Kylie Ann Minogue (ˈkaɪli ˈæn mɪˈnoʊɡ), также известная под мононимом Ка́йли; род. 28 мая 1968, Мельбурн) — австралийская поп-певица, автор песен и актриса. Наиболее коммерчески успешная австралийская исполнительница, известная частыми сменами сценического образа. СМИ называют её «поп-принцессой» (   Читать дальше...   )1988 - Kylie
+1989 - Enjoy Yourself
+1990 - Rhythm of Love
+1991 - Let's Get to ItЖанр: Dance-Pop, DiscoПродолжительность: 18:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618995   (249796) от 14.03.2023
+
+Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mutiny Within — американская группа из города Эдисон, штат Нью-Джерси, играющая в стиле мелодик дэт-метал. Группа была основана в 2002 году басистом Эндрю Джейкобсом, первоначально, как кавер-коллектив группы Children of Bodom.2010 - Mutiny Within
+2013 - Synchronicity
+2017 - OriginsЖанр: Progressive Melodic Death Metal, MetalcoreПродолжительность: 02:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618707   (249886) от 13.03.2023
 
 Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
@@ -6,7 +113,7 @@ Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249886.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249886.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250027.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250027.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250117.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250117.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250260.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250260.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250468.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250468.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251202.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251202.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ Metallica - Дискография (20 releases) (1983-2023) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252145.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252145.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252509.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252509.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253061.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253061.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ Herb Alpert - Rise (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul-Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253082.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253082.jpg" />
 </div>
 
 
@@ -277,7 +384,7 @@ Roberto Delgado & His Orchestra - South America In Super Stereo (1970) Series: P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254149.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254149.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254150.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254150.jpg" />
 </div>
 
 
@@ -331,7 +438,7 @@ Rod McKuen - Love's Been Good To Me (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254151.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254151.jpg" />
 </div>
 
 
@@ -358,7 +465,7 @@ VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254164.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254164.jpg" />
 </div>
 
 
@@ -385,7 +492,7 @@ Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254717.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254717.jpg" />
 </div>
 
 
@@ -412,7 +519,7 @@ magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254728.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254728.jpg" />
 </div>
 
 
@@ -439,7 +546,7 @@ Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254741.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254741.jpg" />
 </div>
 
 
@@ -466,7 +573,7 @@ Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254819.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254819.jpg" />
 </div>
 
 
@@ -493,7 +600,7 @@ Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254852.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254852.jpg" />
 </div>
 
 
@@ -520,7 +627,7 @@ magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254888.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254888.jpg" />
 </div>
 
 
@@ -547,7 +654,7 @@ magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254994.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254994.jpg" />
 </div>
 
 
@@ -574,7 +681,7 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255126.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255126.jpg" />
 </div>
 
 
@@ -588,114 +695,6 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626464   (255201) от 14.04.2023
-
-Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255201.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Piece Of The Action 3:37
-A2 Midnight Reservation 3:42
-A3 It's Got To Be Love 3:08
-A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625981   (255266) от 12.04.2023
-
-Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255266.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Run For Your Life 4:08
-A2 10, 9, 8, 7, 6, 5, 4  4:24
-A3 I Do It All For You 4:04
-A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625644   (255296) от 11.04.2023
-
-Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Rock, Math Rock, Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutus — бельгийская рок-группа из провинции Фламандский Брабант, образованная в 2013 году.2015 - Brutu Guru (EP)
-2015 - Major / Bye Julia (Triptych EP)
-2017 - Burst
-2019 - NestЖанр: Progressive Rock, Math Rock, Punk RockПродолжительность: 02:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625760   (255300) от 11.04.2023
-
-Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255300.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Waiting On The Border Line (3:46)
-A2. How Do You Feel Now (4:51)
-A3. Back To The Wall (5:12)
-A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
 ```
 
 

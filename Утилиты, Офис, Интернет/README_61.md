@@ -1,3 +1,75 @@
+###  Публикация: 1560262   (212998) от 28.06.2022
+
+Windows 11 Disable Or Restore Rounded Corners Portable 1.0.0.3
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 приносит много новых визуальных улучшений, и пожалуй одной из самых заметных особенностей являются закругленные углы вокруг окон. Хотя закругленные углы в проводнике, стороннем программном обеспечении и браузерах выглядят хорошо, некоторым пользователям Windows 11 эти изменения могут не понравиться, и они захотят отключить закругленные углы вокруг окон. (   Читать дальше...   )Язык интерфейса: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28ECEB47F95017182848ECA279F6EDDD4FB273D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300553   (213353) от 14.06.2022
+
+Registry Clean Expert v4.83 [En]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Registry Clean Expert - программа для сканирования реестра на предмет неправильной или устаревшей информации. Благодаря изменению таких данных в реестре система начинает работать быстрее и без ошибок. Программа имеет опцию резервного копирования и восстановления реестра на случай, если система даст сбой. Кроме этого, используя Registry Clean Expert, вы можете управлять (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4497510CB21CAC9A748556EC6F59EBDCD95D7BE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832255   (213421) от 30.10.2025
+
+PrivaZer Pro 4.0.114 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213421.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C13F2C35359832F55621295F6FA390E1815F324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832254   (213422) от 30.10.2025
 
 4K Video Downloader+ 25.4.0.0248 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +78,7 @@
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213422.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213422.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Glary Utilities Pro 6.33.0.37 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213433.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213433.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ PrivaZer Pro 4.0.114 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213446.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213446.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ MyLanViewer 6.6.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213480.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213480.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Ashampoo WinOptimizer 28.00.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213581.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213581.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ MiniTool Partition Wizard Technician 12.8 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213984.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213984.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ WinUtilities Professional Edition 15.45 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214148.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214148.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ GreenCloud Printer Pro 7.8.6 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214217.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214217.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Startup Delayer 3.0 Build 366 Standard [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217282.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217282.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:1EE20699E38D95E673B77138D016ECF96C7C438B
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219131.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219131.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ KeepSolid VPN Unlimited 8.1 (акция Comss) [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219480.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219480.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ OpenGL Extensions Viewer 4.5.2 Build 36.0.0.0 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219821.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219821.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ PDF-XChange Viewer Pro 2.5.322.10 Full / Lite RePack (& Portable) by KpoJIuK [Mu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220170.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220170.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ Tipard PDF Converter Platinum 3.3.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220201.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220201.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:A6133AC3B1C654F78A6D607C62D0D2AAE4ECA83B
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220686.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220686.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ Audials Radiotracker 2018 Premium 2018.1.51200.0 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220690.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220690.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ OCCT 15.0.6 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220755.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220755.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ uTorrent 3.5.5 Build 46552 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221007.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221007.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ Photo EXIF Manager 3.0 Re-Pack & Portable by FoXtrot [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221598.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221598.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:D28A25D11732C7B6AC54339EFDB05D57D6AFD3DF
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221751.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221751.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ Pic-a-Pix Puzzle World 6.3
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222143.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222143.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Macrorit Partition Extender 2.0.5 Unlimited Edition RePack (& Portable) by TryRo
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224317.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224317.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ Webcam Surveyor 3.8.1 Build 1135 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224618.jpg" />
 </div>
 
 
@@ -553,79 +625,6 @@ Webcam Surveyor 3.8.1 Build 1135 RePack (& Portable) by TryRooM [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A85B09D0875FE876A25F42DB8E88743FE3D33A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851711   (224624) от 20.12.2014
-
-Virtual CD 10.6.0.0 Retail [En/De]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания H+H Software сообщает о выходе новой версии программы Virtual CD 10, одного из лучших в отрасли эмуляторов оптических дисков. Среди нововведений программы – поддержка операционной системы Windows 7, модифицированный графический интерфейс, поддержка носителей Blu-ray и HD DVD, встроенные инструменты для записи данных, а также целый ряд других усовершенствованных (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9428C524391E520D02EB1325019D2BF1354E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965583   (224779) от 14.12.2015
-
-AOMEI Partition Assistant Professional Edition 6.0 WinPE [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aomei Partition Assistant WinPE – загрузочный диск для работы с дисками и разделами, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?”.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3B088C838535D7C7D76B1DF681FEC9FC82ED88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584106   (226047) от 17.10.2022
-
-WebDrive NextGen (ex. Webdrive Enterprise) 1.1.14 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226047.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebDrive представляет собой мощный и простой в использовании FTP-клиент для подключения к удалённым FTP-серверам как к обычным локальным дискам.
-Утилита создаёт виртуальный диск, после чего происходит перенос данных с подключённого сервера на диск, из которого можно производить различные файловые операции (копирование, удаление, чтение/редактирование атрибутов и (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD421072CBE6AB6D898B6563E51448BC81E17DA5
 ```
 
 

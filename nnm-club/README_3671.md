@@ -1,3 +1,79 @@
+###  Публикация: 1703394   (115128) от 29.02.2024
+
+Из глубины / No Way Up (2024) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самолет терпит крушение в Тихом океане. Затонувший авиалайнер висит на краю пропасти, а выжившие оказываются в западне воздушного кармана. Запас воздуха постепенно заканчивается, и между пассажирами начинается борьба за выживание.Производство: США / Altitude Film Entertainment, Hyprr Films, Ingenious Film Partners, Sarma FilmsЖанр: триллер, ужасыРежиссер: Клаудио ФахАктеры: Софи Макинтош, Колм Мини, Уильям Аттенборо, Джеремия Амур, Филлис Логан, Грэйс Неттл, Джеймс Кэрролл Джордан, Carlos Agualusa, Мануэль Пасифик, Peppijna DalliПеревод: Дублированный (Vox Records)Язык озвучки: Русский, АнглийскийСубтитры: Русский, английский (full, SDH), французскийПродолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2611F20785103157C1411BCA70C84A81E701E062
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703480   (115129) от 29.02.2024
+
+Compositing Academy, Alex Hanneman | NK707: Deep Compositing in Nuke (2024) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115129.jpg" />
+</div>
+
+
+###  Подробнее
+
+NK707: Глубокий композитинг в Nuke (NK707: Deep Compositing in Nuke)
+В Академии композитинга мы уделяем приоритетное внимание практическому опыту. Алекс, оттачивавший свои навыки в таких известных студиях, как Weta, ILM, Sony и MPC, привносит в курс реальные методы и идеи.
+На этом курсе вы познакомитесь с основами глубокого композитинга, будете использовать высококачественные (   Читать дальше...   )Производство: Compositing AcademyЖанр: Обучающие видеоматериалы с NukeЯзык озвучки: АнглийскийПродолжительность: 05:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F09E845F6B814731571CE62CB9AAEB6E25C4BAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 282299   (115130) от 29.02.2024
+
+Оноре де Бальзак | Бедные родственники (2014) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Этюды о нравах.
+Оноре де Бальзак (1799–1850) – французский писатель, один из основоположников реализма в европейской литературе.
+В аудиокнигу вошли романы «Кузина Бетта» и «Кузен Понс» Бальзак объединил их общим названием «Бедные родственники». Совершенно разные по сюжету, эти два произведения связаны единством главной темы – губительные для человеческой (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 37:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA58B1689967F0EBE7F0D511E07A717C3F2C1D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976104   (115131) от 29.02.2024
 
 Миллиарды / Billions (2016) HDTVRip (сезон 1, серии 1-12 из 12) NewStudio
@@ -6,7 +82,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115131.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:9D70CCCF0423B20EB900D4484FADCB8B0A794873
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115132.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:98483B411358511496219E9C40D8B60B24F34ACF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115133.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ magnet:?xt=urn:btih:467E9A6631275485F2E8895A80CE370D0D18B270
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115134.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ magnet:?xt=urn:btih:9FDB1C5D05AEF3C76F0332BB08713BA00817640A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115135.jpg" />
 </div>
 
 
@@ -127,7 +203,7 @@ magnet:?xt=urn:btih:EA8A4753F8B8A27D5C8499B27E62158348838F9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115136.jpg" />
 </div>
 
 
@@ -151,7 +227,7 @@ magnet:?xt=urn:btih:CB72574257CED286A1C565238BF6C36B3EF62A42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115137.jpg" />
 </div>
 
 
@@ -176,7 +252,7 @@ magnet:?xt=urn:btih:C11EABC8D0F01BFC990FB6E899720686EB18CA14
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115138.jpg" />
 </div>
 
 
@@ -200,7 +276,7 @@ Python. Самое полное руководство по разработке
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115139.jpg" />
 </div>
 
 
@@ -224,7 +300,7 @@ Navitel / Навител: Официальные карты релиза Q4 2023
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115140.jpg" />
 </div>
 
 
@@ -249,7 +325,7 @@ magnet:?xt=urn:btih:1A8B359DAB9EA5AE4499CE7F33A906A5FF8E4FEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115141.jpg" />
 </div>
 
 
@@ -273,7 +349,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (13566803/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115142.jpg" />
 </div>
 
 
@@ -297,7 +373,7 @@ magnet:?xt=urn:btih:D50E89121A45C1B464598555ED684C2FDDA361E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115143.jpg" />
 </div>
 
 
@@ -321,7 +397,7 @@ Heroes of Might and Magic V / Герои 5 (2006)  [+2 DLC] [Ru] [macOS WineSkin
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115144.jpg" />
 </div>
 
 
@@ -345,7 +421,7 @@ magnet:?xt=urn:btih:01281C3A81626C385855AE141F277F2D8A9A598D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115145.jpg" />
 </div>
 
 
@@ -371,7 +447,7 @@ Skillbox, Андрей Миронов, Екатерина Воронина | И�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115146.jpg" />
 </div>
 
 
@@ -398,7 +474,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) UHD BDRemux [H.265/21
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115147.jpg" />
 </div>
 
 
@@ -423,7 +499,7 @@ Microsoft Activation Scripts (MAS) 2.5 (28.02.2024) Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115148.jpg" />
 </div>
 
 
@@ -447,7 +523,7 @@ magnet:?xt=urn:btih:74B29CCC21650BA846BC4ED6D80BF35BADB31145
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115149.jpg" />
 </div>
 
 
@@ -471,7 +547,7 @@ magnet:?xt=urn:btih:76EA43F33E23BB89EFD31B1A822F56215905B47F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115150.jpg" />
 </div>
 
 
@@ -495,7 +571,7 @@ Ace Frehley - 10,000 Volts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115151.jpg" />
 </div>
 
 
@@ -522,7 +598,7 @@ Anaka - The Oblivion Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115152.jpg" />
 </div>
 
 
@@ -549,7 +625,7 @@ magnet:?xt=urn:btih:F75FD859CBB7CFF651EE3FF1EDC6BDC560139F14
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115153.jpg" />
 </div>
 
 
@@ -561,87 +637,6 @@ magnet:?xt=urn:btih:F75FD859CBB7CFF651EE3FF1EDC6BDC560139F14
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20C98F147849B04A2A08843058E17204B09CCE0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703190   (115154) от 28.02.2024
-
-Anaka - The Unwavering (2015) [MP3|320 Kbps] <Heavy, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doomsday Divide
-02. Deathborn
-03. Ominous Visions
-04. Damage(   Читать дальше...   )Жанр: Heavy, Groove MetalПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A56EDE0B32440F68178EB89ED48B47E9B464967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703176   (115155) от 28.02.2024
-
-Traveler - Traveler (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starbreaker
-02. Street Machine
-03. Behind The Iron
-04. Konamized(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1F4BDF22D468BAF0E2FFD58E8E774E4FFAC74B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703247   (115156) от 28.02.2024
-
-Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Di-Da [5:10]
-02. Dance of the Fakowees [4:13]
-03. Not Yet [3:25]
-04. Tenth Lament [6:20](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682320C7D41ECAC5D5228966A5F497BC1591AF78
 ```
 
 

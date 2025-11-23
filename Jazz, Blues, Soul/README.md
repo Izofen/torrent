@@ -6,7 +6,7 @@ Stan Getz & Jimmy Raney - Complete Studio Sessions (1948 - 1953) 2CD, 2003, Defi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wes Montgomery - Movin': The Compete Verve Recordings (1964-1968) 5CD, 2011, Uni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lennie Tristano And Warne Marsh - Intuition (1956) 1996, Capitol Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_957.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hank Mobley - Three Classic Albums Plus (1956) 2CD, 2016, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1268.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chet Baker - The Italian Sessions (1962) 1996, RCA-Victor [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1431.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1767.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1769.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1771.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1773.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1776.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Jesse Williams Band - Keep Steady (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1789.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Hoochie Coochie Men - For A Good Time Call (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1793.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wailin' Walker - Blues Lightnin' (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1794.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Mississippi Black Snakes - White Buffalo (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1795.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Mystix - Dream Girl (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1797.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ John Haydock - More Best of Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1801.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ John Haydock - Reckless Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1802.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Enlly Blue - Softly Floating (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1808.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Catfish John Tisdell - Rust and Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1944.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ben Rice & the PDX Hustle - Fallen Angel (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1947.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Clara Mae Hollins & The Royal Blues - Clara Mae Hollins & The Royal Blues – Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1952.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Candice Ivory - New Southern Vintage (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1968.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ CHristina Crofts - Best Of Bottleneck (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1980.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bill Evans - Quiet Now: Never Let Me Go (1999) Verve [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2137.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Warren Vache & Bill Charlap - 2gether (2000) 2011, Nagel Heyer Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2607.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Matt Swanton Band - Growing Pains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2733.jpg" />
 </div>
 
 

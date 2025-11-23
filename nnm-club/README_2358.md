@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61673.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Autodesk 3ds Max 2025 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61674.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:A6DB7A7E12EF7CA171025367E4D0389581435514
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61675.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Adobe Premiere Pro 2024 24.3.0.59 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61676.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:77E47EB17FD3BC70E7AE2827A8F1F474A409EF4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61677.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Doctor WhoВеликобритания, 1963–1989 годы, 2005 год — н
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61678.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Creativo, Андрей Баталов | Инфографика для марке
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61679.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Adobe After Effects 2024 24.3.0.50 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61680.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B552CF657EF26C65715FA9C395B973F8E5D16F72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61681.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ CorelDRAW Graphics Suite 2024 v.25.0.0.230  [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61682.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Windows 10 PE x64 by AnkhTech V8 (24.03.2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61683.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61684.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:081EC79B4418D486886529F388237C55E10D3D9E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61685.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ macOS 14 Sonoma 14.4.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61686.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:49DC4F04A6B37C9BA2DDFFE8AAB26C6F030A56F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61687.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:B128CE16CB479F8D9275468459CE7889EAAEAD41
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61688.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8AF719A4E55E667F5493C3B91AD8C129E7814C73
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61689.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Stellarium 24.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61690.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ PullTube 1.8.5.30 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61691.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ CloudMounter 4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61692.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:2C6262CED94DE4FB138D60BF4F2068E0D766D771
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61693.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wondershare UniConverter Ultimate 15.5.3.36 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61694.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VueScan Pro 9.8.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61695.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:83790BB8AB44F10094E3EE2539F84A067F241C08
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61696.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:2B195663A2B3B4FB389BC55A7BB398333B8A3A1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61697.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:561D92D84BDDE5000EE9BBC10BD0027C73450F82
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61698.jpg" />
 </div>
 
 

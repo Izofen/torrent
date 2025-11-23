@@ -6,7 +6,7 @@ Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100617.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AlimkhanOV A. - Black (The 4th Album) (2024) [MP3|320 Kbps] <Italo-Disco, Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100878.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5A64BEC4D256BF702D6D4122F2442F683DD3BD45
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100880.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yuri Sosnin - The Night (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101115.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Yuri Sosnin - Frank Conversation (2024) [MP3|320 Kbps] <Italo-Dance, Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101157.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:DA223B3EC590BF96BFA7D2180E766195AAF6091D
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101169.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Mu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101301.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Purple Disco Machine - Club Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101312.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Luther Vandross - Never Too Much: Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101356.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jessica Simpson - Sweet Kisses (1999) CD, Album [FLAC|Lossless|tracks + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101410.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ David Hasselhoff - You Are Everything (1993) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101414.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Amazing New Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101433.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Italo Disco Dance Party Collection Part 4 (2025) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101718.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F6695FCCD43B3357BDB517CE8CB11FCE8BE081E2
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101824.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Barbra Streisand - A Woman in Love - The Greatest Hits (2012) [MP3|320 кб/с]<
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101841.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:E9504363E507DCD57B18A5FD5EA2564ABD18ED8E
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102492.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102492.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Geoff Moore - A Beautiful Sound (2002) [FLAC|Lossless|tracks + .cue] <Acoustic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102809.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:1AABA998D3D553DC92789F49F9AAA92774B59984
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103093.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:CBA27CD5329AE916D53663AB2DEC70BAC80A5D07
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103138.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:DB8B684680139EAC6E28EABFE4C5E2AF918BC9F6
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103141.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A6C0C9AA222C14650EC37125FF568E3E5E3EF0C2
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103143.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:C45B2509B4BB037370A12E0380C7160FEA639FE8
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103165.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Darwin (Влад Дарвин) - Путь открыт (2010) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103213.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Zucchero - DISCOVER II (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103251.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:067610092508485C49251B341E33133DCF333702
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103260.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ magnet:?xt=urn:btih:6E015DE838164B04EFD9D38F7F9C00800455EAC6
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103280.jpg" />
 </div>
 
 

@@ -1,3 +1,100 @@
+###  Публикация: 1515330   (170560) от 06.12.2021
+
+MarsEdit 4 v4.5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE8F70FCA7C3EBE49E499D24E95887B2414CA30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515256   (170564) от 06.12.2021
+
+Image Resizer – Resize Photos 2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image Resizer – Resize Photos  полезный и эффективный инструмент для изменения размера одного или нескольких изображений без ущерба для разрешения и качества изображения. Используя этот инструмент, вы можете выбрать фотографии из библиотеки фотографий или из любой папки на вашем компьютере.
+Получите это приложение, Image Resizer и будьте уверены, что у вас есть лучший (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276D8BDFBA08949A1ACE091BBD4B1DABCFD6DC48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344488   (170565) от 10.12.2019
+
+Awaken 6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Awaken — программа-будильник, которая позволит засыпать и просыпаться под любимую музыку. С ее помощью можно установить несколько будильников (разовых или повторяющихся), которые в назначенный час будут воспроизводить выбранную мелодию или открывать приложение/файл. Помимо будильников можно устанавливать таймеры обратного отсчета, которые по истечении времени могут (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Embraceware Software IncПоддерживаемая ОС: macOS 10.15 или более поздняя версияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DC875FE1DC9932AA06FDDABF02F66E7288B3CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430649   (170566) от 10.12.2020
+
+Cent Browser 4.3.9.227 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794A8872459501975AD8C166AC76D492206880A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515371   (170573) от 06.12.2021
 
 FastScripts 3.0.3 [En]
@@ -6,7 +103,7 @@ FastScripts 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170573.jpg" />
 </div>
 
 
@@ -31,7 +128,7 @@ CleanMyMac X 4.14.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170576.jpg" />
 </div>
 
 
@@ -55,7 +152,7 @@ Smultron 12 v12.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170582.jpg" />
 </div>
 
 
@@ -80,7 +177,7 @@ VA - A Strangely Isolated Place 2019 (2019) ASIP [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170592.jpg" />
 </div>
 
 
@@ -105,7 +202,7 @@ Ink2Go 1.9.1 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170604.jpg" />
 </div>
 
 
@@ -130,7 +227,7 @@ PC HelpSoft Driver Updater 7.0.1050 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170607.jpg" />
 </div>
 
 
@@ -154,7 +251,7 @@ Scrollow 1.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170620.jpg" />
 </div>
 
 
@@ -178,7 +275,7 @@ Internet Download Manager 6.38 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170622.jpg" />
 </div>
 
 
@@ -202,7 +299,7 @@ Opera 65.0.3467.69 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170624.jpg" />
 </div>
 
 
@@ -226,7 +323,7 @@ Wireshark 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170626.jpg" />
 </div>
 
 
@@ -251,7 +348,7 @@ Omni Recover 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170628.jpg" />
 </div>
 
 
@@ -277,7 +374,7 @@ Maxo Kream - Brandon Banks (2019) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170632.jpg" />
 </div>
 
 
@@ -304,7 +401,7 @@ Adobe Photoshop 2024 25.1.0.120 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170637.jpg" />
 </div>
 
 
@@ -328,7 +425,7 @@ Auslogics Duplicate File Finder 9.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170639.jpg" />
 </div>
 
 
@@ -352,7 +449,7 @@ Navicat Premium 15.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170643.jpg" />
 </div>
 
 
@@ -376,7 +473,7 @@ CrossOver 19.0 (build 32195 ) RC2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170648.jpg" />
 </div>
 
 
@@ -402,7 +499,7 @@ Dash 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170651.jpg" />
 </div>
 
 
@@ -426,7 +523,7 @@ Revo Uninstaller Pro 5.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170654.jpg" />
 </div>
 
 
@@ -450,7 +547,7 @@ iFinance 4 v 4.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170673.jpg" />
 </div>
 
 
@@ -474,7 +571,7 @@ Cheetah3D 7 v7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170680.jpg" />
 </div>
 
 
@@ -499,7 +596,7 @@ Udemy, Artsiom Rusau | Тестировщик с нуля. Web, Mobile, Postman,
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170681.jpg" />
 </div>
 
 
@@ -524,7 +621,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170708.jpg" />
 </div>
 
 
@@ -535,105 +632,6 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B582DDBA7E31142DF1DCFF8CCE010284D473CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596159   (170711) от 08.12.2022
-
-uTorrent Pro 3.6.0 Build 46612 Stable Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170711.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABDCB98511694529A071C8CD5FE7B72FBC0F7E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661979   (170713) от 26.10.2023
-
-МТС Music v9.18.1 Mod by Alex.Strannik [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альтернатива классической Яндекс Музыке с точно такой же базой музыки, но с немного другим интерфейсом и поддержкой устаревающих устройств. В наличии обширный каталог списков под ваше настроение и разнообразных хитпарадов. Работает хорошо. МТС Music — это 65 миллионов треков, подкасты и радио для абонентов любых операторов.
-
-МТС Music без подписки это:
-• радио и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 22.10.2023Разработчик: MTS PJSCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282CE842CAFE71B949E97583881395DC48971D33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514867   (170714) от 05.12.2021
-
-Defender Tools 1.11 Portable by Ratiborus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Defender Tools — это небольшая утилита от Ratiborus, которая позволяет быстро и полностью отключить Защитник Windows, а так же программа даёт возможность добавить или удалить папку или файл в исключения Windows Defender.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E0D24DA99ABB097FFF4809C501E4EA431FDF4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430496   (170717) от 10.12.2020
-
-Avast Clear 20.10.5824.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Clear (утилита для удаления Avast) - инструмент для ручного полного удаления антивирусных программ Avast в Безопасном режиме. Иногда не представляется возможным удалить Avast стандартным способом, с помощью компонента панели управления «Установка и удаление программ». В этом случае вы можете воспользоваться утилитой для удаления Avast Clear.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59576FA7FD24D71BC9078E6FCE780323166F3594
 ```
 
 

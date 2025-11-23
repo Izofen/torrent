@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Music News For Forum vol.104 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13348.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends (Special Selection), Vol. 25 (2025) 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13349.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8ABF1AAD21D6F07F8C32D46FD74F1324BEC3430E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13350.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:7D06BB79AD92408EF9628182AEF11F2FCAAF6990
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13351.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:2C406789B16BDB94C757FCEF184FEEB4EC31CD6B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13352.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Baby Audio - Humanoid 1.2.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13353.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Contact 3: People & Machines (2025) [MP3|320 Kbps] <Minimal, Tech House, Ot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13354.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:CF8DA86A04FB7EF84CF1A6E7F1A3151BA49AE483
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13355.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:D427BA6A923E872567DCD1EE7E95CC2523B3C887
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13356.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ IK Multimedia - MODO BASS 2 2.0.4 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13357.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ IK Multimedia - Lurssen Mastering Console 1.2.0 STANDALONE, VST, VST 3, AAX (x64
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13358.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Lorien Testard - Clair Obscur: Expedition 33 (Original Soundtrack) (2025) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13359.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:24BA43A06CCA01B69568DFF266517B4F1A17196B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13360.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Photo Studio PRO v2.8.2.4360 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13361.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:330E4AA62E964B280D4C9011782471626BBE9AA4
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13362.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:88BC0E5D58B28E08F933092B94E1061F248BAAA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13363.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ IK Multimedia - MixBox 1.5.2 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13364.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:703DA3877764A320823EA839E34CD1442D8A9781
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13365.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ IK Multimedia - T-RackS 6 6.2.1 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13366.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Ibiza Pool Party (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13367.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:EA1FA43942CEA1E623EA0D3873E84350DFD6EF12
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13368.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:8418334ACA247AD2D314D98F64A3AF105A488D9F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13369.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:6E366CA65997AC386748D9000B7F443D226ED119
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13370.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Deep House Relief 2025 (Compiled by Marga Sol) (2025) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13371.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13372.jpg" />
 </div>
 
 

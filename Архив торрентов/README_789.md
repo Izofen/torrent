@@ -1,3 +1,77 @@
+###  Публикация: 1518006   (161328) от 17.12.2021
+
+O&O Defrag Professional 25.2 Build 7405  RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161328.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O Defrag - одна из самых известных и лучших программ для дефрагментации жёстких дисков на рабочих станциях. Позволит вам вернуть утраченную производительность рабочих станций Windows. Данное решение устранит фрагментацию файлов и расположит их в нужном порядке. Программа предлагает широкий выбор новых и уникальных функциональных возможностей, которые позволяют (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F2B678546484D9168F7408F35B4A06EEA3E434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599001   (161342) от 21.12.2022
+
+Opera GX 93.0.4585.78 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E930E410E14A6A5B1D11268C36632825E201764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598947   (161348) от 21.12.2022
+
+Aiseesoft Screen Recorder 2.6.16 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите самый простой, но профессиональный способ записывать экран и делать с него снимки. Aiseesoft Screen Recorder - лучшее программное обеспечение для записи экрана, позволяющее фиксировать любую активность на компьютере Mac или Windows. Он может работать как хороший рекордер видеоигр, захватывать видеозвонки и многое другое для захвата любой области экрана. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39BC73ADB3606F4007E7327E303569E389F37FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598921   (161350) от 21.12.2022
 
 Perfectly Clear WorkBench 4.2.0.2368 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +80,7 @@ Perfectly Clear WorkBench 4.2.0.2368 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161350.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ AOMEI Backupper Technician Plus 6.8.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161358.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:B789B6CE7F73DD6CBA5305EF54621E59CBC496FF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161362.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ WidsMob AI Retoucher 3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161366.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ DxO PhotoLab 6 ELITE Edition 6.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161368.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ Lucky Patcher 11.0.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161370.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ Speedtest от Ookla 5.2.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161380.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Algoriddim Neural Mix Pro 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161386.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ Sketch Fashion 1.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161387.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ AudioFinder 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161392.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ djay - DJ App & AI Mixer 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161395.jpg" />
 </div>
 
 
@@ -276,7 +350,7 @@ EverWeb (Standalone) 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161410.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ Wondershare Recoverit for Mac 12.0.17.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161412.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ Separation Studio 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161413.jpg" />
 </div>
 
 
@@ -350,7 +424,7 @@ SponsorBlock for YouTube 5.4.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161426.jpg" />
 </div>
 
 
@@ -374,7 +448,7 @@ DiskCatalogMaker 8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161447.jpg" />
 </div>
 
 
@@ -399,7 +473,7 @@ Overlay 3.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161451.jpg" />
 </div>
 
 
@@ -424,7 +498,7 @@ DxO PhotoLab 6 ELITE Edition 6.10.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161452.jpg" />
 </div>
 
 
@@ -449,7 +523,7 @@ RAW Power 3.4.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161456.jpg" />
 </div>
 
 
@@ -474,7 +548,7 @@ Hookshot 1.15.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161459.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ MacCleanse 9.0.6 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161463.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ Task Calendar 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161466.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ Aiseesoft iPhone Cleaner 1.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161469.jpg" />
 </div>
 
 
@@ -557,82 +631,6 @@ Aiseesoft iPhone Cleaner  - это лучший способ для очист
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1415FCA4AEBA7B7D9624DE0957A12F2F0B19CE54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433507   (161471) от 20.12.2020
-
-GrandTotal 7 v7.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161471.jpg" />
-</div>
-
-
-###  Подробнее
-
-GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
-Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
-GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2020Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60A61C54A6B9F2FBE06A9E62415FAC97C80FE1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433464   (161472) от 20.12.2020
-
-PhotoMill X 1.8.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161472.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoMill X – групповая обработка фотографий
-PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать watermark с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
-Удалите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Gwinno Software IncПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2EA74F7D6BBE62B3D4E6C504D97C48D161F6C55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433308   (161474) от 20.12.2020
-
-Middle 1.5.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287D175310B5C01DEAD3020C39141763793AFEB7
 ```
 
 

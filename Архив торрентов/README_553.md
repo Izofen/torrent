@@ -6,7 +6,7 @@ Fort Firewall 3.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119948.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 121.0.6167.140 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119967.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PrivaZer 4.0.82 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119976.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Free Hex Editor Neo 7.41.00.8634 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119983.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Microsoft PowerToys 0.78.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119984.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PIDKey Lite 1.64.4 b38 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119993.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ JetBrains PhpStorm for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119996.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Google Chrome 121.0.6167.140 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119999.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ LibreOffice 24.2.0.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120005.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Defender Remover Portable 12.6.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120009.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ W10Privacy 5.1.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120017.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tails 5.22 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120021.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Stats 2.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120070.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Debit & Credit Premium 6.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120072.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MWeb Pro 4.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120074.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Iris 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120076.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ NCH ClickCharts Diagram Pro 9.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120077.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ File List Export for Mac 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120081.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ ForkLift 4 v.4.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120083.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sante DICOM Editor 10.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120088.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Native Instruments Kontakt 7 for Mac v.7.8.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120090.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ AltTab for Mac 6.65.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120096.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Infuse PRO 7.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120099.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Photo Lab PRO v3.12.89 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120102.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ungoogled Chromium 121.0.6167.85-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120103.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Privacy Eraser Free 6.3 Build 4831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120105.jpg" />
 </div>
 
 

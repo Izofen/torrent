@@ -1,3 +1,55 @@
+###  Публикация: 590841   (143208) от 17.12.2012
+
+Фотография - Фотограф Paul Octavious
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Paul Octavious
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F190DB47E2D1BD48ECA1B3340A99967F280E0DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272710   (143210) от 28.12.2018
+
+†Hymns† - Cardinal Sins/Contrary Virtues (2011) 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143210.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Prologue (0:36)
+ 02. Repent & Rebuild (3:54)
+ 03. Idyllic in Nature, Horrendous in Habit (2:19)(   Читать дальше...   )Жанр: Alternative Rock, ExperimentalПродолжительность: CD1 - 00:23:57
+CD2 - 00:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1118726F658A83B4CF9E8D88A9DC5EA5AC171A10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590533   (143219) от 17.12.2012
 
 Журнал | PC Magazine (USA) [январь 2013] [PDF] [En]
@@ -6,7 +58,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143219.jpg" />
 </div>
 
 
@@ -30,7 +82,7 @@ Jimmy Eat World - Static Prevails (1996) [FLAC|Lossless|tracks + .cue] < Alterna
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143236.jpg" />
 </div>
 
 
@@ -57,7 +109,7 @@ R-Studio 7.8 Build 160621 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143239.jpg" />
 </div>
 
 
@@ -81,7 +133,7 @@ Avidemux 2.8.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143243.jpg" />
 </div>
 
 
@@ -105,7 +157,7 @@ magnet:?xt=urn:btih:DA4F83ACFF12E781A2109B8951CCC48C841D6083
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143250.jpg" />
 </div>
 
 
@@ -129,7 +181,7 @@ VA - Monster Tunes: Best Of (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143251.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Capture One Pro 9.0.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143255.jpg" />
 </div>
 
 
@@ -187,7 +239,7 @@ Ashampoo WinOptimizer 26.00.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143268.jpg" />
 </div>
 
 
@@ -211,7 +263,7 @@ magnet:?xt=urn:btih:47E86140DC083DCCFD8FBFA9837AA65262A76502
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143281.jpg" />
 </div>
 
 
@@ -235,7 +287,7 @@ magnet:?xt=urn:btih:0AAEB8CD817F4C80AC7D06C0AFF66FA8AE257652
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143295.jpg" />
 </div>
 
 
@@ -259,7 +311,7 @@ Animal Wallpapers (16.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143297.jpg" />
 </div>
 
 
@@ -283,7 +335,7 @@ magnet:?xt=urn:btih:91BA8DA4DA31E72C9AA46B108D55BC2536CB7E14
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143306.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ Native Instruments Traktor Pro 3 v3.5.2.299 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143313.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ magnet:?xt=urn:btih:60DF8D55CF76ED42B6C8233BDD7ACA35FD9B1460
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143315.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ Inno Setup 5.5.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143331.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ magnet:?xt=urn:btih:151821884069896A0D172830F00BEEA3E76F7FB5
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143332.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ qBittorrent 4.6.1 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143333.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ magnet:?xt=urn:btih:EDF4D322ED7FBE503600887F0C70C105986A974C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143340.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ magnet:?xt=urn:btih:77817905D1AD6783043BF970E0AD11A9FEE1ADBD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143342.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ magnet:?xt=urn:btih:562A8F153A829E18C9A7392AF2C57F1B68075A8A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143344.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Paragon NTFS v15.4.44 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143345.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ AIMP 4.70 build 2239 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143348.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ magnet:?xt=urn:btih:8028F48F80D3CA0DABAE6978C1D3320ED63910F7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143350.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ CleanMyMac X 4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143352.jpg" />
 </div>
 
 
@@ -602,57 +654,6 @@ CleanMyMac сканирует каждый уголок вашей систем�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C82C6880BC997B11C0A9EEEB52018E1FC76265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087993   (143360) от 29.12.2016
-
-Биатлон. Рождественская гонка звезд-2016. Гельзенкирхен (Германия) (28.12.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143360.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 декабря 2016, среда
-Рождественская гонка звезд-2016. Гельзенкирхен (Германия)
-1. Масс-старт - 20:15 МСК
-2. Гонка преследования - 21:30 МСК(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D726BD50EB83BF9C718D9138922D6E3589FAB5B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348581   (143367) от 28.12.2019
-
-Boom 2 v1.6.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boom 2 является уникальным приложением для профессиональной обработки звука, которое радикально изменяет ваше восприятие музыки. Эта премиальная версия включает в себя бесплатные звуковые эффекты, обеспечивающие потрясающие ощущения. Приложение разработано только для OS X Yosemite и более поздних версий. Оно автоматически калибруется в соответствии с типом компьютера (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2019Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5A1C1E3EE78C99501FF22A28DE77BAE4C0A6E0
 ```
 
 

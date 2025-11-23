@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85144.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5180FA3F3333C0A3DC40DBE4BC5F4239B5EB1C58
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85147.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Autodesk AutoCAD Electrical 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85163.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ AutoCAD® Electrical – это AutoCAD® для проектировщиков 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85167.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Autodesk AutoCAD Electrical 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85169.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Windows Longhorn SkinPack 1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85176.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Longhorn - это как бы кодовое название Windows Vista во
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85177.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Zолушка (2012) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85183.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Photodex ProShow Producer 5.0.3222 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85199.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ ProShow Producer 5 - является крупным релизом именит
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85208.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Tребования: Nokia x6 RM-559   Скриншоты:(   Читать да�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85219.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Tребования: Nokia x6 RM-559   Скриншоты:(   Читать да�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85220.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Tребования: Nokia x6 RM-559   Скриншоты:(   Читать да�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85228.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85236.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85252.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:1FFC569AF80CB0228B6FE48037422C3A39E951D4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85254.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:048C10426639A1297985C08CF2F916815BD8A8EB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85255.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:9C44995C6EF467F8F1F8319BE1F9220292DD0741
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85257.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:C981C30AA3E151DEFAE6901727A076772004EB49
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85268.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:C827485B6C827E6321F8D8AF5CD10F8D9E78094F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85274.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85275.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85279.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ BurnAware 4.8 Professional + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85282.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - 200 Модных Хитов DFM №18 50/50 (2012) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85286.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0A55A4CBA365D1F8EBEE3D0920CF17334F7F7E72
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85292.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:0A55A4CBA365D1F8EBEE3D0920CF17334F7F7E72
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85301.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23321.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23321.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Gigapixel AI Pro 8.3.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23322.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23322.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9542A12EAF169CB2F80177B394F9D947CADB3849
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23323.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23323.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CB822D2450FAA3BAF4BC6E185331874C729C0622
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23324.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23324.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4C363FCA2B8EFEF61EBAB51598E721D46D8C03A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23325.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23325.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E19817B779665F4D9BE8EBD67F968B711486441A
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23326.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ FreeFileSync 14.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23327.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23327.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:A6A28D9E9D80BD04D388DF7621A142EB3D62A0E2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23328.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23328.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23329.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:5481012C8DAAF1DA3362F2AF564997C5DAE5325E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23330.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:B01044F495CDE0843BBB1781A8C1793D86E56DEA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23331.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9799D4FC02A65B4CFA69581BB15DE0017D8AB398
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23332.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23332.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:EE55C997647E031D766C26CA209E31A8503B9E33
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23333.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:41CE1498268F4D3687764F902C0BE4023CC913A3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23334.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23335.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23335.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C42660D4F33BB813984773DF3CC1BA762C73326D
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23336.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23336.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:2B7370346E0C02DD1C497D81E459361DEBCC07E9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23337.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23337.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:9F359A000D36D806D97446A8D51C86284080DFAF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23338.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23338.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:027BFA882CD56E0F0CAB7B216D6209D284687D10
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23339.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23339.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack Other s [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23340.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:AF802C775E8E466F30F9D45E562571AA17069179
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23341.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:EC26BDCBE76916064AC9EF82060BDF5D9ACED851
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23342.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23342.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23343.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Windows Manager 2.1.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23344.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Douse, Koishite Shimaunda. | Anyway, I'm Falling in Love with You | В любо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23345.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23345.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23346.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1703357   (115102) от 29.02.2024
+
+Лиза Франкенштейн / Lisa Frankenstein (2024) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115102.jpg" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются в 1989-м году. Лиза Своллоуз, ученица старших классов, не пользуется популярностью в школе, но для нее это не столь важно. Все мысли Лизы посвящены лишь прекрасному незнакомцу из викторианской эпохи, чей надгробный памятник она нашла на кладбище. Однажды ночью, во время грозы, ей случайным образом удается воскресить труп юноши, которого Лиза (   Читать дальше...   )Производство: США / MXN EntertainmentЖанр: ужасы, мелодрама, комедияРежиссер: Зельда УильямсАктеры: Кэтрин Ньютон, Коул Спроус, Лиза Соберано, Дженна Дэвис, Трина ЛаФарг, Паола Андино, Джошуа Монтес, Chris Greening, Mae Anglim, Джои ХаррисПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76AEC233303B573B7083E49BADE63069B9E6691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703569   (115103) от 29.02.2024
+
+Нерешительный жених / Lo sposo indeciso che non poteva o forse non voleva piu uscire dal bagno (2023) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Джанни Буридано — всемирно известный философ, Саманта — красивая уборщица в университете, где тот преподает. Несмотря на огромные социальные и культурные различия, Джанни и Саманта влюбляются друг в друга и решают пожениться. Вот только не подозревают, что над ними нависло ужасное проклятие, готовое вступить в силу прямо в день их свадьбы.Производство: Италия / Europictures, Adler Entertainment, MG PRODUCTIONЖанр: драма, мелодрамаРежиссер: Джорджо АматоАктеры: Джанмарко Тоньяцци, Иления Пасторелли, Стефано Пеше, Франческо Паннофино, Morena Gentile, Орнелла Мути, Джулия Гуалано, Джорджо Коланджели, Клаудия Джерини, Джулия ГориеттиПеревод: Многоголосый профессиональный (Кириллица)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56474C1EF41EDF1773630E9C154EECD9F7BA5773
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703123   (115104) от 29.02.2024
+
+Формула 1. Драйв выживания / Formula 1: Drive to Survive (2024) WEB-DL [H.264/1080p] (сезон 6, серии 1-10 из 10)
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал даёт болельщикам возможность не только проследить за борьбой за титул с первой до последней гонки сезона, но и познакомиться с личной жизнью их кумиров, увидеть, что происходит внутри команд, тех людей, благодаря труду которых все знают Формулу 1 такой, какая она есть.Производство: Великобритания, Box to Box FilmsЖанр: документальный, спортПеревод: Двухголосый (HDRezka (Ash61)), Двухголосый (Украинский)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (full, forced), Украинские (full, forced), Английские (forced, full, SDH).Продолжительность: серии 10 ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8147C4F68013211C09083C934D76223FE6EAB2A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703378   (115105) от 29.02.2024
 
 Ruff Ghanor (2024) [Multi] (1.0.0.1) Repack FitGirl
@@ -6,7 +78,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115105.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:2903448C8302B79F03D0F9F58E93156244CE009F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115106.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:D17F612C1AAA2BCA82147A10AE78E9BC08BF2700
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115107.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ IObit Driver Booster Pro 11.3.0.43 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115108.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.0_B/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115109.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:17AA35BF3CBE799941497D2DCF3B4FC05451B53D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115110.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:64F6387B65845402F287E1E7621D2D5C4954C154
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115111.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:64F6387B65845402F287E1E7621D2D5C4954C154
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115112.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Udemy, Ерлан Тургумбаев | Финансовое моделиров
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115113.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:D12F7613D6B13694C01DA2335642C2B5C8EB9D88
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115114.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:0ED9C47F14AF178CF435405955CDBF14C048BCE6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115115.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Scene SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115116.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:6781E23EF04C56905C7297280D3E991B803FEBC8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115117.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:6781E23EF04C56905C7297280D3E991B803FEBC8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115118.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:03BB4AA7B09F842D618A22419CBB5424B7B5BB41
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115119.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ magnet:?xt=urn:btih:4576264DBF86F323F9269895A07761A099736B6C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115120.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ magnet:?xt=urn:btih:8CED44EE6899E4F2000DAADDC880A90D9D9AE6F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115121.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ MathType 7.8.0.0 RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115122.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ ZBrush 2024.0.2.22 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115123.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ magnet:?xt=urn:btih:FC755D192808E90612E82204F0729B12B35CC74F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115124.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ magnet:?xt=urn:btih:26F64DF8665448E286A60C751168E5A6551F2C2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115125.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ magnet:?xt=urn:btih:08D94487ABCF6FFC54689AC4566BC27C3EDF2B69
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115126.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ magnet:?xt=urn:btih:13D46DE886993E706A37207201DD00AF553EF03D
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115127.jpg" />
 </div>
 
 
@@ -546,82 +618,6 @@ magnet:?xt=urn:btih:13D46DE886993E706A37207201DD00AF553EF03D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671B17F4976C08C86FAE331962E9DF41530952E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703394   (115128) от 29.02.2024
-
-Из глубины / No Way Up (2024) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолет терпит крушение в Тихом океане. Затонувший авиалайнер висит на краю пропасти, а выжившие оказываются в западне воздушного кармана. Запас воздуха постепенно заканчивается, и между пассажирами начинается борьба за выживание.Производство: США / Altitude Film Entertainment, Hyprr Films, Ingenious Film Partners, Sarma FilmsЖанр: триллер, ужасыРежиссер: Клаудио ФахАктеры: Софи Макинтош, Колм Мини, Уильям Аттенборо, Джеремия Амур, Филлис Логан, Грэйс Неттл, Джеймс Кэрролл Джордан, Carlos Agualusa, Мануэль Пасифик, Peppijna DalliПеревод: Дублированный (Vox Records)Язык озвучки: Русский, АнглийскийСубтитры: Русский, английский (full, SDH), французскийПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2611F20785103157C1411BCA70C84A81E701E062
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703480   (115129) от 29.02.2024
-
-Compositing Academy, Alex Hanneman | NK707: Deep Compositing in Nuke (2024) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115129.jpg" />
-</div>
-
-
-###  Подробнее
-
-NK707: Глубокий композитинг в Nuke (NK707: Deep Compositing in Nuke)
-В Академии композитинга мы уделяем приоритетное внимание практическому опыту. Алекс, оттачивавший свои навыки в таких известных студиях, как Weta, ILM, Sony и MPC, привносит в курс реальные методы и идеи.
-На этом курсе вы познакомитесь с основами глубокого композитинга, будете использовать высококачественные (   Читать дальше...   )Производство: Compositing AcademyЖанр: Обучающие видеоматериалы с NukeЯзык озвучки: АнглийскийПродолжительность: 05:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F09E845F6B814731571CE62CB9AAEB6E25C4BAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282299   (115130) от 29.02.2024
-
-Оноре де Бальзак | Бедные родственники (2014) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Этюды о нравах.
-Оноре де Бальзак (1799–1850) – французский писатель, один из основоположников реализма в европейской литературе.
-В аудиокнигу вошли романы «Кузина Бетта» и «Кузен Понс» Бальзак объединил их общим названием «Бедные родственники». Совершенно разные по сюжету, эти два произведения связаны единством главной темы – губительные для человеческой (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 37:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA58B1689967F0EBE7F0D511E07A717C3F2C1D7
 ```
 
 

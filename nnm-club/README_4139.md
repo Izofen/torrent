@@ -1,3 +1,76 @@
+###  Публикация: 1685019   (127301) от 18.12.2023
+
+Скольжение (2013) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой с необычным именем-прозвищем Пепл – оперативный сотрудник, однако и он, и вся группа, к которой он принадлежит, типичные, погрязшие в криминальной деятельности, «оборотни в погонах». В отлаженной преступной схеме этой сработавшейся команды начинают возникать сбои, и становится очевидным, что в их рядах есть осведомитель. Обозначенная сюжетная канва (   Читать дальше...   )Производство: Россия / Blackbriar production, MultilandЖанр: триллер, криминалРежиссер: Антон РозенбергАктеры: Владислав Абашин, Алексей Игнатов, Михаил Солодко, Владимир Лукьянчиков, Наталья Швец, Ольга Смирнова, Александр Борисов, Николай Козак, Мария Слидовкер, Алексей ШкатовСубтитры: отсутствуютПродолжительность: 01:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570D38FECA742A8D437F74DFD4AA3444FC2C6452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685389   (127302) от 18.12.2023
+
+Multi Commander Full Edition 13.3 Build 2969 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Multi Commander - мощный многооконный менеджер файлов, являющийся отличной альтернативой стандартному проводнику Windows. При работе с файлами используется удобный двухпанельный вид, что обеспечивает простоту и доступность эффективного и быстрого управления файлами в повседневной деятельности.
+Кроме стандартного набора функциональных возможностей файлового менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AE23031A7DFF5760A3275ABA979592D0CC77D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672050   (127303) от 18.12.2023
+
+В фокусе воробьи (2023) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этих птичек мы наблюдаем практически везде и всюду. Они бывают самых разных расцветок - серые и жёлтые, белые и чёрные. Грачи, сойки, синицы, вороны - это тоже воробьиное семейство. При этом самих воробьёв из 6 тысяч видов всего два.Производство: Беларусь, ГПЦЖанр: документальный, познавательный, орнитологияРежиссер: Александр МышаловЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC1552F5DF3A1E62C62DE2F3F075101DD1B26B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684772   (127304) от 18.12.2023
 
 Условный мент (2022-2023) WEBRip [H.264/720p] (сезон 4, серии 1-50 из 50)
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127304.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:1ED54F880F9121123323991C10DFF9219C560AA4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127305.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:369960A9AF60A2B24E95C42BD921B638F14F8A2A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127306.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:77A95E995362E002ED1A1691E621472A2A434EFC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127307.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:9F2689AA4E9CC5B2325674694734EEAB4FA256D3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127308.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:9D7441D7D18139462AF90FEDCE4E7FC1528294A0
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127309.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:8674E59DE7C262041107DFE7E37FAF50B11DFED8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127310.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ magnet:?xt=urn:btih:8674E59DE7C262041107DFE7E37FAF50B11DFED8
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127311.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:D75F5E10AD6C21F48E746A5555D50AFAAC0C5654
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127312.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:02146687052C02C0C9272079DF00B97FA2219886
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127313.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:02146687052C02C0C9272079DF00B97FA2219886
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127314.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:88B802222E6639B55FE1EA1F9B2BD919278B1E25
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127315.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ Udemy, Jones Granatyr | Midjourney in 2 hours: Practical Guide for Beginners Dis
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127316.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ Planet VPN 2.6.1.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127317.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ magnet:?xt=urn:btih:66150B0EFCBD0749CAC3A96DD13E396BF1340190
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127318.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ magnet:?xt=urn:btih:7C57752AE93BF037FEE3C209E7D7EC3E5E1E1040
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127319.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ Defender Remover Portable 12.6.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127320.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ magnet:?xt=urn:btih:600390B5CFE40982E7DF3AC1D7A040588E6119CA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127321.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ magnet:?xt=urn:btih:B98708B0787669CB54DE45DF8D55C448835F7A98
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127322.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ magnet:?xt=urn:btih:065B2A4135C726690F1D1D6756B1168663661E4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127323.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:065B2A4135C726690F1D1D6756B1168663661E4F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127324.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ magnet:?xt=urn:btih:FB8547897EAB829283A56761E59E2E7F80ED6FE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127325.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ Tails 5.20 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127326.jpg" />
 </div>
 
 
@@ -552,78 +625,6 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A7BE5CA68F7967F167C85173BC0726BB8C92D4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685364   (127327) от 18.12.2023
-
-ALLPlayer 9.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127327.jpg" />
-</div>
-
-
-###  Подробнее
-
-ALLPlayer, наверное, одна из самых популярных программ для просмотра фильмов и прослушивания музыки, с современным интуитивно понятным интерфейсом, известная больше по смартфонам и планшетам, чем по Windows. Все функции легко доступны, именно в тот момент, когда они необходимы, а благодаря встроенным кодекам ALLPlayer может воспроизводить практически любой формат (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57115AA4EC7CA79F96550AE80856CCD44758C09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062062   (127328) от 18.12.2023
-
-BeamNG.drive (2015) [Ru/Multi] (0.31.1.0) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127328.jpg" />
-</div>
-
-
-###  Подробнее
-
-BeamNG.drive — невероятно реалистичный автосимулятор с практически безграничными возможностями. В основе игры лежит система физики мягких объектов, способная правдоподобно моделировать компоненты автомобиля в реальном времени. Благодаря годам кропотливой разработки, исследований и испытаний, BeamNG.drive способен передать весь восторг вождения в реальном мире.Тип издания: RepackРазработчик: BeamNGЖанр: Racing (Cars), Sandbox, Simulation, 3DЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE2F4CD06ABADF106F3BAB9467FEFCE49FF7779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 132771   (127329) от 18.12.2023
-
-В Париж (2008) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в 60-е годы прошлого века, в заштатном провинциальном городке. Иван — передовик, токарь на заводе, один растит сына Лешку. В семье возникают проблемы: у любимой женщины Ивана огромная недостача, ей грозит тюрьма. А Лешку, на глазах любимой девушки, унизили хулиганы. Батя находит нестандартный выход из этих ситуаций: он сам делает пистолет (   Читать дальше...   )Производство: Россия,  ПЦ "Пирамида"Жанр: ДрамаРежиссер: Сергей КрутинАктеры: Юрий Степанов, Полина Кутепова, Ярослав Жалнин, Георгий Дрозд, Валерия Ходос, Евгений ЕфремовПродолжительность: 02:04:11
-
-## Скачать торент
-```bash
-нет
 ```
 
 

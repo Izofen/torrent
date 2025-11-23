@@ -6,7 +6,7 @@ deer death - Next Death (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116483.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116485.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mahmood - Nei Letti Degli Altri (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116487.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Aname (Anamé) - 2 Albums (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116494.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116499.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116500.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:8A6F193CF087F09D28236E094D5CB202106DB4FE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116527.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Once - Out Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116647.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116649.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Immediate Family - Srin In The Game (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116651.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Fatal Rails - Damned (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116653.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Paul Jensen - Journey Back Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116672.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lucky Wuthrich (Lucky Wüthrich) - My Kind of Music (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116675.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cigar Box Band - Don't Belong (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116676.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Erin Ross - The Wind Will Lead Me Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116699.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sundrifter - An Earlier Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116828.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116829.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116830.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Amba Shepherd - Superrlativ Collection II (2024) [FLAC 16/44.1; 24/44.1; 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116836.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Geo22 - Knightcore (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116843.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116847.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116849.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Background Instrumental Music Collective - Till Next Summer: Happy Jazz to Keep 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116869.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jennifer Lopez - This Is Me...Now (2024) (Deluxe) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116873.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Durbin - Screaming Steel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116888.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116891.jpg" />
 </div>
 
 

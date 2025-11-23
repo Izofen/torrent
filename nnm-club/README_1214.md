@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31917.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Шансон премьера 2024 (Лучшие песни) (2025) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31918.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:933AA520BC47F9C62CB0803C5D50ADC38504FADA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31919.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0551E2E1CD20D857ACC6C011E1D9C71B1C8493E2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31920.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:0CCAC7C24D0E276FE5F296E106C1127D8824A1CB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31921.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B8E9E1AB30C8BC9A4EC478BB5C9034331D120941
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31922.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:774C5EB67471AE333ACD2F4F79DC6FCC3841F79B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31923.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1868CA3282744FEF46125617C6907BBE3DF257E4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31924.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:199D23242F1B003E8148A3319D0FDE6794CA0C93
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31925.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:FA763A43B5CF18E6A22D13BEFABE1AEC080769C3
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31926.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:4A4E62BFC8C94EBCBB4C20C275A80CC579180C29
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31927.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:2A7EC51562576CC56FE64A5E4DEBD5F870D9ED2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31928.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:0661D496BF610515A104E79F93EAE9703E409C26
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31929.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:C2D616B48347AFA3C22FE4E4681550FAA15DD566
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31930.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:588C9427AF71C3E55420CF45D00B0A4DB717A1C6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31931.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:0076772A453F90085422C685C2FC18B9FFA20730
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31932.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VLASVET | Код реальности. Переписать жизненный �
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31933.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31934.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:57FD5B12107664E33A1BA6261AE35ECD173D0ACE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31935.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:2436EA467CB4D85AEE29E88DFD056947C3484629
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31936.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Franzis SHARPEN #5 Pro 5.41.03926 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31937.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:D2CD695F222019278D7A15E9460AAEB0AF2DF0C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31938.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:6CAB26C7FFA6846C6F1C6E2E64D8DDC51DFA376A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31939.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:D66480F974102435FE6266C39091FD344F98090F
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31940.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:F4FBE98F1704BBCB59CEC9B4197A7A379CC98B27
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31941.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.23) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31942.jpg" />
 </div>
 
 

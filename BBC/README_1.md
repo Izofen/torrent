@@ -6,7 +6,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32042.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32061.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33724.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34859.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35467.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AD9A4F16B19E164BBE3DCDB4DAA5BEE4B119BA98
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38760.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44906.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49033.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53048.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ BBC: Луи Теру. Разговоры с анорексией / Talking to An
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56180.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57535.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:FDEE35BFD87BD6B0113079428FECF0EC55D77116
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57639.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:16696EDB930D924B117AA62F09F5B78E37E20C0A
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57651.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:49C05F1E015C8FB550B6D6DD4F0DFD2DAA141E05
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57669.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F3C8AA79F26919559618AB8CDC97384B1B58EBF4
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57670.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:2164C11C7723A5C1520FEF9A77BEADC4122B02FB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57991.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58167.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58169.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58277.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58358.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58389.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58434.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58466.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ BBC: По странам и континентам. Дикая Африка / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58478.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58570.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58718.jpg" />
 </div>
 
 

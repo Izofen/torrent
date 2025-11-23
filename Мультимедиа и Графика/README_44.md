@@ -1,3 +1,77 @@
+###  Публикация: 1641000   (196842) от 20.06.2023
+
+ВидеоМОНТАЖ 17.0 Portable by conservator [Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196842.jpg" />
+</div>
+
+
+###  Подробнее
+
+ВидеоМОНТАЖ - это невероятно доступный и удобный видеоредактор, позволяющий с лёгкостью создавать эффектные видеоролики и увлекательные фильмы в домашних условиях. Всего за 5 шагов вы получите отличное видео с красивыми переходами, титрами, эффектами и фоновой музыкой.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D602044F0A35027B024E1530253089259C40218
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639354   (197078) от 13.06.2023
+
+LibFredo6 13.9a for Sketchup 2017-2023 Win (x64) [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197078.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibFredo6 — это общая библиотека плагинов, используемая большинством расширений Fredo6 и многими другими. LibFredo6 заботится, среди прочего, о обогащении моих расширений несколькими возможностями, такими как параметры по умолчанию, языковой перевод, проверка плагинов на наличие обновлений, ведение журнала трассировки и т.д. Это НЕ автономный плагин. Его необходимо (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A75CECF1F1A0F085CC0903D3539760E866F056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639731   (197126) от 14.06.2023
+
+PhotoDiva Pro 5.0 Portable by Spirit Summer [Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197126.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoDiva — одна из лучших программ для ретуши портретных фотографий. Подойдет начинающим фотографам и тем, кто хочет быстро улучшить снимки.
+Даже если вы хорошо выглядите, фотография не всегда может показать ваше истинное лицо, иногда даже наоборот, почему-то получаются неудачные снимки.
+Избавляйтесь от засветок, удаляйте любые дефекты на коже и случайно попавших (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10623276068A9EF1E7828C20472BC126A3CC228
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636660   (197659) от 31.05.2023
 
 Tipard Video Converter Ultimate 10.3.30 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +80,7 @@ Tipard Video Converter Ultimate 10.3.30 RePack (& Portable) by TryRooM [Multi/Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197659.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197659.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:85F6126F78340A0F907909ED19D0E2A33B45C2C0
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197975.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197975.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ BluffTitler Ultimate 16.3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198382.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198382.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ CrazyTalk Pipeline RePack by PooShock 8.12.3124.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198500.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198500.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ Franzis SHARPEN Video #2 professional 2.27.03871 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198541.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198541.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ XviD4PSP 8.1.54 Pro (x64) Portable by conservator [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198554.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198554.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ Adobe Animate 2023 23.0.2.103 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198582.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198582.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ Franzis SHARPEN projects 4 professional 4.37.03697 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198598.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198598.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ CyberLink PhotoDirector Ultra 14.5.1627.1 (x64) RePack by PooShock [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198605.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198605.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ Plugin Alliance & TBTECH Kirchhoff-EQ 1.6.4 VST, VST 3, AAX (x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198695.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198695.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ MPV Player - Dolby Vision, HDR to SDR Mode Portable 0.35.1 (x64) RePack by Adven
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198721.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198721.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ magnet:?xt=urn:btih:00FBBE1ABAC67F130AE3C9BD933A496C21B99EF8
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198797.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198797.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ Movie To GIF 3.2.0.0 Portable by GrayWolFX [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_198865.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_198865.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ SoftColor PhotoEQ 10.10.2305 RePack by 78Sergey [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_198875.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_198875.jpg" />
 </div>
 
 
@@ -348,7 +422,7 @@ Serato DJ Pro Suite 3.0.5 (x64) RePack by VR [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199134.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199134.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ DTS-HD Master Audio Suite 2.60.22 RePack by AlekseyPopovv [En] (28.04.2023)
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199155.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199155.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ Sony Catalyst Production Suite 2023.1.0.975 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199202.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199202.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ Exoside QuadRemesher 1.2.1 for 3ds Max [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199263.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199263.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ Dolby Media Encoder 3.4.0 Portable by AlekseyPopovv [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199266.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199266.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ Pulsar Audio Plugins Bundle (04.2023) VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199450.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199450.jpg" />
 </div>
 
 
@@ -492,7 +566,7 @@ Filter Forge Studio Edition 12.6.714 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199552.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199552.jpg" />
 </div>
 
 
@@ -516,7 +590,7 @@ Reason Studios Reason 12.5.3 STANDALONE, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199565.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199565.jpg" />
 </div>
 
 
@@ -542,7 +616,7 @@ magnet:?xt=urn:btih:F658FDEE0C6CF80607EBEF75B8BB27AE79A277D3
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199652.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199652.jpg" />
 </div>
 
 
@@ -553,79 +627,6 @@ magnet:?xt=urn:btih:F658FDEE0C6CF80607EBEF75B8BB27AE79A277D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5A19A2DEE03EBF507626A3AB0D4CEB04928BE4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626607   (199738) от 15.04.2023
-
-Itoo RailClone Lite 5.3.0 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199738.jpg" />
-</div>
-
-
-###  Подробнее
-
-RailClone - это плагин для программы 3ds Max для параметрического моделирования на основе пользовательских частей геометрии, определяемых пользователем, и с готовыми шаблонами архитектурных данных.
-По функционалу, этот плагин схож с такими модификаторами как Loft, Bevel Profile и Sweep. Но в отличие от последних, он множит 3d объект(-ы) по заданному пути.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADFA334CD0EE891E07B56DCB8C3DC971193D45D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626221   (199854) от 13.04.2023
-
-ВидеоШОУ 5.0 Portable by conservator [Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199854.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ВидеоШОУ» — настоящая находка для тех, кто мечтает научиться создавать качественные видеоролики, но совершенно не имеет желания изучать сложный софт на английском языке. Готовый видеоролик можно сохранить в любом формате для просмотра с ПК или телефона, записать на диск с красивым интерактивным меню, а также оптимизировать специально для размещения в интернете. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B0773608D5C0ABFDFCDAA92249B913CC718C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828972   (199918) от 24.10.2025
-
-PillowView 1.0.0 [En]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный просмотрщик изображений с открытым исходным кодом и простой редактор изображений для Windows 10/11 x64, написанный на Python, основанный на Pillow и собственных API Windows. Его также можно назвать графическим интерфейсом Pillow для Windows. Во многом вдохновлён IrfanView.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDAFD5EE58B41D644BB6E3116A4E52A4E169F91
 ```
 
 

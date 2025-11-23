@@ -1,3 +1,75 @@
+###  Публикация: 472106   (83906) от 23.03.2012
+
+Андрей Белянин | Вкус вампира (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вампиры?! И воображение живо рисует эдакое инфернальное бледное существо с алыми губами и... Впрочем, коренной астраханец, художник-авангардист Дэн Титовский - не таков. Он - вампир энергетический и питается "серебряными чувствами доверчивых девушек". Но, несмотря на длинный шлейф разбитых сердец, есть у него многолетняя привязанность - в меру безобидная (   Читать дальше...   )Жанр: Фэнтези, фантастикаПродолжительность: 13:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286F04541DC24E10352C57328255BDC0AA6B1D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472089   (83907) от 23.03.2012
+
+Из Африки / Out of Africa (1985) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало века… Карен Бликсен отправляется в путешествие в Кению, где ее супруг-предприниматель выращивает кофе. Здесь, в самом сердце Африки, волею судеб Карен будет суждено встретить свою подлинную и единственную любовь...Жанр: Драма, Мелодрама, Приключения, БиографияРежиссер: Сидни ПоллакАктеры: Мэрил Стрип, Роберт Редфорд, Клаус Мария Брандауэр, Майкл Кичен, Малик Боуэнс, Джозеф Тиака, Стивен Кинянджуи, Майкл Гоф, Сюзанна Хэмилтон, Рэйчел Кемпсон...Перевод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269B11D1DA9BCCE9E40981048DADD4E4FFCD21F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472067   (83908) от 23.03.2012
+
+Мужчины в большом городе 2 / Mannerherzen... und die ganz ganz grobe Liebe (2011) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет комедии показывает разных по характеру и роду деятельности мужчин. Один из них — хозяин кафе и будущий папа, второй — безработный, третий музыкальный продюсер и бабник, а четвертый разводится. Чего именно хотят мужчины — неизвестно. Ясно только, что все они весьма схожи в своем стремлении к счастью и любви.Жанр: КомедияРежиссер: Саймон ВерховенПродюсер: Квирин Берг, Макс ВидерманнАктеры: Тиль Швайгер, Флориан Дэвид Фитц, Кристиан Ульмен, Юстус фон Донаньи, Надя Уль, Паскуале Алеарди, Йоханнес Алльмайер, Томас Бадинг, Майкл Бэрал, Оли БигалькеПеревод: ДублированныйПродолжительность: 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281FC1C6841BE383A9E4100FA5DFA1E641FD665A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471444   (83911) от 23.03.2012
 
 Сделка с дьяволом / The Covenant (2006) [1080p] Blu-Ray
@@ -6,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83911.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Charlie Parker, Dizzy Gillespie - 17 альбомов (1945-1994) [MP3|192 кб/
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83913.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Iron Maiden - En Vivo! (Live) (2012) Scene [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83914.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ CD 1:
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83917.jpg" />
 </div>
 
 
@@ -113,7 +185,7 @@ Meshuggah - Koloss (2012) [FLAC|Lossless]<Progressive Post-Thrash / Math Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83918.jpg" />
 </div>
 
 
@@ -146,7 +218,7 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск 50
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83920.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:8F1888F8794DDCF1A3E5C2F3BF2EF7E623F6A209
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83926.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ PhotoInstrument 5.5.553 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83927.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ Photoinstrument - редактор для обработки цифровых ф
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83929.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:9A756ECE770B0201EA2EF21D24679FC27952551B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83930.jpg" />
 </div>
 
 
@@ -286,7 +358,7 @@ magnet:?xt=urn:btih:9A756ECE770B0201EA2EF21D24679FC27952551B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83936.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ magnet:?xt=urn:btih:9A756ECE770B0201EA2EF21D24679FC27952551B
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83939.jpg" />
 </div>
 
 
@@ -337,7 +409,7 @@ magnet:?xt=urn:btih:326B735B73C6CE7749303B4F8C22E79D7082D514
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83940.jpg" />
 </div>
 
 
@@ -363,7 +435,7 @@ magnet:?xt=urn:btih:724C861E3701E1F94A9FE2E81C78A50FB318820C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83943.jpg" />
 </div>
 
 
@@ -388,7 +460,7 @@ magnet:?xt=urn:btih:D9EEBFAB688001E8DE8E754C0499FA4A04CF2E12
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83944.jpg" />
 </div>
 
 
@@ -412,7 +484,7 @@ magnet:?xt=urn:btih:D9EEBFAB688001E8DE8E754C0499FA4A04CF2E12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83945.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ magnet:?xt=urn:btih:D9EEBFAB688001E8DE8E754C0499FA4A04CF2E12
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83946.jpg" />
 </div>
 
 
@@ -461,7 +533,7 @@ VA - Назад в 80-e Collection (2012) [MP3|320 kbps]<Disco | Pop | Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83948.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83950.jpg" />
 </div>
 
 
@@ -527,7 +599,7 @@ CD 1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83955.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ magnet:?xt=urn:btih:E295555D0D127D72DD9AC77AE3FB004462D918A9
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83957.jpg" />
 </div>
 
 
@@ -578,7 +650,7 @@ magnet:?xt=urn:btih:E7A9927C790369B26591118237AE6463831CCA2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83958.jpg" />
 </div>
 
 
@@ -604,7 +676,7 @@ magnet:?xt=urn:btih:CFC40A3D94A52CAC613CB60582AE958C489ED6E4
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83961.jpg" />
 </div>
 
 
@@ -615,85 +687,6 @@ magnet:?xt=urn:btih:CFC40A3D94A52CAC613CB60582AE958C489ED6E4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6E3EA5904E577B50C208D0BD4E372A3A0069E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472093   (83962) от 23.03.2012
-
-Клятва / The Vow (2012) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время медового месяца Пейдж и Лео попадают в автокатастрофу. Пока жена находится в коме, Лео не отходит от ее кровати ни на час, но возвращение девушки к жизни омрачено потерей памяти — она не узнает любимого и не помнит об их романе. И тогда Лео решает заново завоевать сердце Пейдж.Жанр: Драма, МелодрамаРежиссер: Майкл СаксиПродюсер: Гари Барбер, Роджер Бернбаум, Джонатан ГликманАктеры: Рэйчел МакАдамс, Ченнинг Татум, Сэм Нил, Скотт Спидман, Джессика Лэнг, Джессика МакНэми, Венди Крюсон, Татьяна Маслани, Лукас Брайант, Джои КлейнПеревод: ДублированныйПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4B6D24B3237FD0D89B3E06A5BE8C3C11772CD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472473   (83963) от 23.03.2012
-
-Comice OS 4 [i386 + x86-64] (2xDVD)
-
->>След.
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comice os - французский дистрибутив Linux, основанный на Ubuntu 11.10.
-Comice os использует различные передовые технологии, чтобы сделать Вашу работу на компьютере максимально удобной. На рабочем столе располагается панель быстрого запуска, позволяющая запускать приложения одним кликом. Launchpad - это своеобразный дом, где находятся все установленные программы. Comice Shell - модификация gnome shell в соответствии с видением Pear Linux.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECEAF48E431D3671A6CA5F9B391940BC43B4AAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471481   (83965) от 23.03.2012
-
-[Прошивка для Nokia 5800]Mod by Nik
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83965.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Прошивка для Nokia 5800]Mod by Nik (nikolka)Тип раздаваемого файла: Прошивка для Nokia 5800
-Платформа: Symbian
-Год издания: 05.02.2012
-Автор: by Nik
-Версия прошивки: v.60.0.003
-Язык ввода: Русский, Английский
-Tребования: Nokia 5800 RM-356   (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

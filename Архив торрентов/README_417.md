@@ -6,7 +6,7 @@ Mozilla SeaMonkey 2.8 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97146.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97147.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9701E5A8CFCE8A6BBD404FB070BC90D5ECEC0594
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97150.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97150.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kaido Player 7.1.36.35 [theme glass]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97151.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97151.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Janiva Magness - Stronger For It (2012) [MP3|320 кб/с]<Blues, Vocal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97155.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:9D70C801C88FA6BC1E78AA8C4FBCC77DAB4A763E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97156.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97156.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:9D70C801C88FA6BC1E78AA8C4FBCC77DAB4A763E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97157.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:CB6D63ABF8D2C1B87FF8FB0FE8C9ADCF22DF161D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97166.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Example @ Arena Moscow (GeneticBros Official Mix)(2012) [MP3|320 кб/с] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97168.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97168.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - Example @ Arena Moscow (GeneticBros Official Mix)(2012) [MP3|320 кб/с] <
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97170.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:59E92645E3A2BF5CD4B8F36344CFC2F1F7121D04
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97171.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97171.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:59E92645E3A2BF5CD4B8F36344CFC2F1F7121D04
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97172.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:D52D6B84A70CD50086050B696621D3A3AADD5946
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97173.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97173.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:D52D6B84A70CD50086050B696621D3A3AADD5946
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97176.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:D52D6B84A70CD50086050B696621D3A3AADD5946
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97177.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F91E4096F46F1D3C4A1CD29A23A7643ACDED5138
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97178.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:19EFACF6E6383B20A1780C3C524281A529174B04
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97180.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:D36C88C595D7CC67A4FC35FC17DB736517343AA1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97181.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97183.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97184.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97184.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97185.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:A72AE32A359965A3DD95FA23026AB1FE5201044F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97186.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Gunther Gobbel & Christian Greiner - Play For Pleasure. Finest Lounge Music (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97195.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97195.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Gunther Gobbel & Christian Greiner - Play For Pleasure. Finest Lounge Music (201
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97197.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Madmen & Poets - Scandinavian Sunday (2010) 2CD [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97198.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Trance hits vol 2 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97200.jpg" />
 </div>
 
 

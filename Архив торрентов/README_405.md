@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96225.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Dash Berlin Top 20 - March (2012) [MP3|320 кб/с]<Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96232.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Ideal Chill II-IV (WEB) (2010-2012) [MP3|~225 кб/с (V1), 320 кб/с (CB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96236.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Suntree - Inside (2009) [FLAC (image+.cue)|Lossless]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96245.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Suntree - Inside (2009) [FLAC (image+.cue)|Lossless]<Psy-Progressive>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96246.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:018818FA203CD5B4123309D87BCC164A1F942BCF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96250.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Nedry - In A Dim Light (2012) [MP3|320 Kbps]<Dubstep, Electronic, IDM, Trip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96251.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:8045D41A56C2B05204AADC1E2289C9A978E8B68E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96260.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ The Flower Kings Live in Concert Tilburg (2006) DVD5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96262.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96262.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ The Flower Kings Live in Concert Tilburg (2006) DVD5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96264.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:5559948116A14BFC9D12DDF76EA845EE9D1A8CF2
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96272.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96278.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96278.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96280.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Visual Assist X 10.6.1862 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96285.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96285.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Coolio - Forever The Best (2006) [MP3|320 кб/с]<Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96286.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:749FB8913E6169D40B6F125DCE76AAAD245C8AB5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96303.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:B7A9925C8B84EDE1FF46BC719BBB611B3487AA95
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96304.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:D8D363C4DF68A3A21DEEE757B90E84AEA7E2FF1E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96309.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:1F5750B75A9D161AC6805109FD8C4DC758F877A2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96310.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:404B3DD2670E38A77EDFD40144542E83B2A05817
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96317.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:5FE8B35BF296FE0E580BB709E10FD30F359795DE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96322.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Solar Kid - Sint Etik (2012) [MP3|~247 кб/с (V0)]<Psychill, Dub>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96329.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Black Flares Blue Noise vol.1 - compiled by DJ Mlf (2009) [FLAC|Lossless]<P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96333.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96333.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VA - Black Flares Blue Noise vol.1 - compiled by DJ Mlf (2009) [FLAC|Lossless]<P
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96338.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ magnet:?xt=urn:btih:A8EA012C6A39C6EE1B5B66BDB72A3AE99D05F318
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96339.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Corona - Sonar Luminescence (2012) [MP3|~257 кб/с (V0)]<Psychedelic / Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96343.jpg" />
 </div>
 
 

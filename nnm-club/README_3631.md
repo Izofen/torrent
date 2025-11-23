@@ -1,3 +1,75 @@
+###  Публикация: 1480232   (114088) от 06.03.2024
+
+Сайлент Хилл / Silent Hill (2006) WEB-DLRip [H.264/1080p-LQ] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая мать, отчаявшись найти лекарство от таинственного заболевания своей дочери Шэрон, отказывается отдать ее в психиатрическую лечебницу. Вместе с Шэрон она отправляется в Сайлент Хилл, город, название которого ее дочь постоянно твердит во сне. Но когда они подъезжают к заброшенному городу, на дороге появляется таинственная фигура, Роуз резко тормозит, и машина (   Читать дальше...   )Производство: Канада, Франция, Япония, США / Metropolitan Filmexport, Davis-Films, Silent Hill DCP Inc., KonamiЖанр: Ужасы, Детектив, ПриключенияРежиссер: Кристоф ГансАктеры: Рада Митчелл, Джоделль Ферланд, Лори Холден, Шон Бин, Дебора Кара Ангер, Ким Коутс, Таня Аллен, Элис Крайдж, Коллин Уильямс, Рон ГэбриелПеревод: Дублированный (R5)Субтитры: Русские, английскиеПродолжительность: 02:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747624C51973969FC868E2A1512C9C5890D20E8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703970   (114089) от 06.03.2024
+
+Cent Browser 5.1.1130.26 Beta + Portable [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6ACC7F1E1932312BC8426642D381932EA0C7FE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704969   (114090) от 06.03.2024
+
+Призрачный воин / The Phantom Warrior (2024) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114090.jpg" />
+</div>
+
+
+###  Подробнее
+
+История происхождения женщины-линчевателя Немезиды Найт. Немезида одета во все черное, на ней маска Диониса от бога подземного мира Аида. Ее гладкие и красивые вьющиеся светлые волосы развеваются на ветру, когда она скачет на своем черном коне по имени Зевс. Вооруженная верным дробовиком и пистолетом, привязанным к ноге, Немезида Найт яростно сражается с самыми презренными (   Читать дальше...   )Производство: Великобритания / Saints and SavagesЖанр: Фантастика, фэнтези, приключенияРежиссер: Саввас Д. МайклАктеры: Дин Кейн, Стивен Беркофф, Дженни Миллер, Чарли Роуз, Джин Андерсон, Уэс Блэквуд, Адам Дикон, Марк Смит, Элайджа Роуэн, Джош БёрдеттПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:21:28Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBAB1014B4CBF0B61128AE07C103A8EF694B62E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704787   (114091) от 06.03.2024
 
 Объект преследования / Taget / Don't Buy the Seller (2023) WEBRip
@@ -6,7 +78,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114091.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:E9FCBEFEF12875EFDD2CC38621EC76AED676AA0D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114092.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:F18CDB836052A7AD91CA2D92713211FFD7C678A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114093.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:0EC17301E7BC6B2E4FFE1A42D93C81F938FB24C0
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114094.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Adobe Photoshop 2024 25.5.1.408 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114095.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:5CC7E49900BF1E82E6CC84376C4F4B2FACA0C48D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114096.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:7DE69E93C3BEFA76E007AE1052C9D4E1C191C021
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114097.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:6F367C86A9DDBBFFC0A8A49C1C43FA0F7068B04D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114098.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:339ED3AF766E7C53C2D616E836C4A9C3A910185D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114099.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ Wynton Marsalis - Hot House Flowers (1984) CBS [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114100.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Lionel Hampton - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114101.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Solitude Aeturnus - Hour of Despair (2007) hand made remaster [FLAC 16/44.1|Loss
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114102.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ Stephane Grappelli Trio - I Got The World On A String (1996) 1998, West Wind [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114103.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ Alfred PowerPack 5.5 Beta 2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114104.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ magnet:?xt=urn:btih:CCAD3165D36D1776B9CC9DA4138CCE822A43985D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114105.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ Dave Brubeck - Trio Brubeck (1993) MusicMasters Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114106.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ Farsot - Life Promised Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114107.jpg" />
 </div>
 
 
@@ -434,7 +506,7 @@ Mr. Smood - You'd Better Leave Now (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114108.jpg" />
 </div>
 
 
@@ -461,7 +533,7 @@ Cedar Walton Trio - Plays Billy Strayhorn (1974, 1988) 2009, Jazz Ball Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114109.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ Omar Coleman - Strange Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114110.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ Believer - Dimensions (1993) [FLAC|Lossless|image + .cue] <Progressive, Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114111.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ The Mighty Howlers - Back on Track (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114112.jpg" />
 </div>
 
 
@@ -569,7 +641,7 @@ Boxy SVG 4.25.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114113.jpg" />
 </div>
 
 
@@ -580,84 +652,6 @@ Boxy SVG 4.25.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D18FAC4F0343357567DE356AE87F758DE3FE5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704677   (114114) от 05.03.2024
-
-Mama Kandy - The Whitening (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casbah Cowboy (6:16)
-02. Pastures of Plenty (5:01)
-03. The Double (5:00)
-04. Life Change (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15507985B6BF7DA7CC0090FCAEC3ED031C46559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704576   (114115) от 05.03.2024
-
-Cycleam - Dream Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Close Your Eyes (00:01:44)
-02 - Followers of Light (00:05:30)
-03 - Dream Cycle (00:04:33)
-04 - Human Stupidity (00:03:28)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9DA7754648C14F87345EA641BC5CB1C702F99A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704702   (114116) от 05.03.2024
-
-BetterMouse for Mac 1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114116.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20825348115154B25830C131C00C9FB8E4E0D50C
 ```
 
 

@@ -6,7 +6,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102050.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6E1150A88F20C7AEBAA8C9F0E11C6FF30EC3B365
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111842.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:133D893DCBF2AE3AE4FD42C14A3C3F122257677B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114192.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A4E037BFA211CFB61055FC7A2B56AA9F7DDC44C3
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120709.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6BEE965EA26F99CC8236D96CB63E006FDB410FE6
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122069.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4C068AD2388F82BD00BD393EB5EAB4948DF52EF3
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126811.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A97DECB1263CD4B9474CF3D6F74DD07A65F63689
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126960.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:BD8B41F8D9FE8E705BE91953EF5EF6EC4CDDBBDC
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128719.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B0A9855E0A63D07C933761B42D4AE3A26D9A31A5
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128774.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:B94B03038AE7B79DDA24C020005EB3B50CC0B150
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142917.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A9899EE0270743983790AE519DE3298616B023EB
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142969.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:7564A9896361AAC78DDBEBE35EEECEC9EFB61FDE
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143030.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:59A0B837BF3C76646C7D7AA04E29599C65B10ABF
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147729.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C07B884308A5181182FEBDC6E07514A43B0B9245
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148272.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:07C9A5ACF54C4876E2A145B3220F0CB90408CCA2
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148302.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:10FE017BA34F871833C37D369BA75F247C90D7EB
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150759.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:94AE6EA7389D1B0AEF72AF016D921008A7A5A89B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153041.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:9406494132AF1962362BFAF18C674ECF44222252
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156242.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:730687B9D9879BE3308D4406C3110990A80275A4
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157096.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:69B7C1CCDD1D94D51622140CB92F2A212996B426
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164909.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:40F713C923E069EB02054DBD61E37FDD11C318F3
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164921.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:78CEB8100D05002473E9D4246B04F6DB781B5A7C
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164944.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:2ECAF80D311549F76FBB9793CC1D02D33E600743
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165019.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:F95B1D4A5F8DEDF693728675D98C49888286573A
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165078.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ NG. Суперсооружения Третьего рейха - 7 / Nazi Megast
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166369.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166388.jpg" />
 </div>
 
 

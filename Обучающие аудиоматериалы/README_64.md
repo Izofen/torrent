@@ -1,3 +1,51 @@
+###  Публикация: 1654482   (205173) от 21.08.2023
+
+Александр Свияш | Советы брачующимся, забракованным и страстно желающим забраковаться (2019) [MP3, Марина Сушицкая]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь, брак, семья, секс – неотъемлемая часть жизни любого человека. Они служат источником радости, вдохновения, счастья. Но и они же могут стать причиной бесконечных страданий. Почему так происходит? Потому что люди не знают тех простых закономерностей, которые управляют нашим поведением, неосознанно относятся к выбору, предъявляют чрезмерные требования к любимому (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 11:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F16A554BDC33354D7F06A3010787512618231DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654092   (205346) от 19.08.2023
+
+Елена Тамазова | Ты стоишь больше (2023) [MP3, Люба Петрова]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите повысить свой доход, не меняя работы, и не нагружая себя дополнительными обязанностями? Вложитесь в свою профессиональную репутацию. Сделайте так, чтобы вас знали и ценили не только внутри компании, но и за ее пределами. Повысьте свою капитализацию на рынке труда. В основе программы Елены Тамазовой, бизнес-тренера и коуча с 15-летним опытом работы в сфере (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 07:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D3D4C1B9E16E06F1FC4C438F021D298B08332A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653442   (205478) от 16.08.2023
 
 Франс де Вааль | Политика у шимпанзе (2020) [MP3, Алексей Багдасаров]
@@ -6,7 +54,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205478.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205478.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:1CCEDD6F59D88DED1F57DEB73AE95B0D0071A117
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205639.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205639.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:41C00C8630F9080E31157F0F2A6010BE5D1A98B1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205693.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205693.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ magnet:?xt=urn:btih:833CB952D2AA079555E1D39A6DE730992F2CE7A0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205758.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205758.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ magnet:?xt=urn:btih:73238A32EB7851432AB4314D471EE8D8D08D4BC9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205761.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205761.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ magnet:?xt=urn:btih:AF445353749244E84F2835405EA399E69FD9FEA0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205869.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205869.jpg" />
 </div>
 
 
@@ -152,7 +200,7 @@ magnet:?xt=urn:btih:AE9BD8267C5EB7FFA74C26D62615B0859B9600EB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205939.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205939.jpg" />
 </div>
 
 
@@ -179,7 +227,7 @@ magnet:?xt=urn:btih:4321DAEB78AE5E8E6F3C80111ED3BE89CBD2B825
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205983.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205983.jpg" />
 </div>
 
 
@@ -204,7 +252,7 @@ magnet:?xt=urn:btih:4469370F0221D7322BC4C454740B398C1D1CBB3F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206411.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206411.jpg" />
 </div>
 
 
@@ -228,7 +276,7 @@ magnet:?xt=urn:btih:652CB0CC07E55FBC3ECBB9540B4B4E0E3D0FE9EA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206432.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206432.jpg" />
 </div>
 
 
@@ -254,7 +302,7 @@ magnet:?xt=urn:btih:1B3F0538E3A3F7FA7A9BDC349F6324D5BAF45C42
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206868.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206868.jpg" />
 </div>
 
 
@@ -278,7 +326,7 @@ magnet:?xt=urn:btih:6E6E48DD900E21FCA0CBD67D17C901A7663F8EF8
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207464.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207464.jpg" />
 </div>
 
 
@@ -303,7 +351,7 @@ magnet:?xt=urn:btih:E0B92091CF25F5C54E22090CF51EF648A66A5016
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207511.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207511.jpg" />
 </div>
 
 
@@ -328,7 +376,7 @@ magnet:?xt=urn:btih:BEDA3D486204D3280D080DB345F7733C45DF1749
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207582.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207582.jpg" />
 </div>
 
 
@@ -352,7 +400,7 @@ magnet:?xt=urn:btih:897E7F546CF81DCDD30F4B175A5021426CDDC7E5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207662.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207662.jpg" />
 </div>
 
 
@@ -376,7 +424,7 @@ magnet:?xt=urn:btih:AEB3268C4BDE66FF6B2531937A41B2839AB5864E
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207729.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207729.jpg" />
 </div>
 
 
@@ -402,7 +450,7 @@ magnet:?xt=urn:btih:5CAAB9CC2770816A32C6C21681705A8A03FFFDCB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207956.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207956.jpg" />
 </div>
 
 
@@ -428,7 +476,7 @@ magnet:?xt=urn:btih:F05293EE19D9A18D07D734D80386541FCC97B028
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208217.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208217.jpg" />
 </div>
 
 
@@ -452,7 +500,7 @@ magnet:?xt=urn:btih:041AE667098751C946A52C518D827940D39B1A91
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208247.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208247.jpg" />
 </div>
 
 
@@ -478,7 +526,7 @@ magnet:?xt=urn:btih:A27EEF0646AFC7A58C8F7180BAF9FB0D4783B856
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208322.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208322.jpg" />
 </div>
 
 
@@ -502,7 +550,7 @@ magnet:?xt=urn:btih:65F690F154B5474FE3A05854407CB2B42B7C0579
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208365.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208365.jpg" />
 </div>
 
 
@@ -526,7 +574,7 @@ magnet:?xt=urn:btih:6295A0E7ECDA9B91F621B360F83603E6CD1B6815
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208444.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208444.jpg" />
 </div>
 
 
@@ -551,7 +599,7 @@ magnet:?xt=urn:btih:7A089E4823C6ED79E59D169D75F2145C45E4B488
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208502.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208502.jpg" />
 </div>
 
 
@@ -575,7 +623,7 @@ magnet:?xt=urn:btih:F3BBAF1DC8357B05639B54EE0E493D624AA4397A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208554.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208554.jpg" />
 </div>
 
 
@@ -587,55 +635,6 @@ magnet:?xt=urn:btih:F3BBAF1DC8357B05639B54EE0E493D624AA4397A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6C6B1489A19B8EF8DB291057165B6A2B1C80B3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647311   (208587) от 18.07.2023
-
-Василий Богданович | Вежливый отказ, или Я могу сказать нет и не чувствовать себя виноватым (2008) [MP3, Вячеслав Манылов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто ли вы испытываете неудобства, когда вас просят об одолжении коллеги, друзья, муж (жена), дети? И что вы отвечаете им, когда меньше всего хотите выполнять очередную просьбу? Ничего? Вы соглашаетесь? А потом говорите себе, что вы делаете это в последний раз и надо, наконец, подумать о себе?
-Вы правы, надо, наконец, подумать о себе. А это значит не делать ничего (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудикнига своими рукамиПродолжительность: 07:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67C40EF6C67DE9D2FDEA7B5BB1C57F490C46CC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647379   (208617) от 18.07.2023
-
-Всеволод Коршунов | Призвание: режиссёр. Беседы с режиссёрами российского кино (2022) [MP3, Павел Корицкий, Агния Егошина]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московская школа кино и издательство Бомбора представляют! Книга «Призвание режиссёр. Беседы с режиссёрами российского кино» - это настоящий калейдоскоп современного отечественного кино. Киновед Всеволод Коршунов встретился с двенадцатью выдающимися режиссерами нашего времени и поговорил с ними об искусстве, ремесле и индустрии в целом. Каждый из них режиссер, но (   Читать дальше...   )Жанр: кинематограф, режиссураИздательство: БОМБОРАПродолжительность: 05:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F47F758EE16B55E65AF63CCBFBBF9D7C54205C9
 ```
 
 

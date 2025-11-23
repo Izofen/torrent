@@ -6,7 +6,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26347.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26347.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:A3F7145BF640B3125D3F5071CDCA2616466AE88F
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26476.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26476.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:83CD8AA51A567B7D880A57F42245F92846496C75
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26554.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26554.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:8F5EF3D1537AD53310BCB8BA5400DA6843FBA4FE
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26666.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26666.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:C9A1BFAF16AADA7A32C41D3FACA60968E8F100C5
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26764.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26764.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:A889E0ADDE68AF5ABA404F60FD76D7C56FA57F1F
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26778.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:CF3C5EFE3BF85EED2AAC0F9239681A2299426373
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27332.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27332.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:03DED59069C1F3710C8839ECD7338206A24750E3
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27367.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27367.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:5CF568A0FF248F6C981FEC40754B99D4FFAD5086
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27414.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27414.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:6BF8B42318CBFAE81C3C98700BFEFC74619FBA07
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27434.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27434.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:00A1518DCE97F0A4A352C2399039DAA228848900
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27611.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27611.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:9FA8EC62657432D2588696C5EE5976F2E5F0DBEC
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27725.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:196D428722DA00034BAFE4FDC0663A777EA0FB22
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27736.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27736.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:3DD4710388C66178B393F4756AE9A356E60DCD61
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27854.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27854.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:0C2200781765EB120D89B2C0F7650A36B139927E
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27942.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:04269AA1C711B93E9C7955F069C39B84F95F72E6
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28130.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28130.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:E9B3986BE34EDCD706D28FA14B7BF348AF3C08F7
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28139.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28139.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:02FC0D6C35766302EE02D8209B746B90ABA80B62
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28373.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:9545815655119746788B395D4052F9FC42897039
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28478.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28478.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:29145EC28CABAB785E446C53F63D50F9C53BB433
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29204.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29204.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:18338EA15DB18DD1821D8AD91ECCC4F34E71677D
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29420.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:118D376D9054B3CC1F77FBF006E6726C1E8C6C2D
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29611.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29611.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:D4494210DE514790579442CCD583E8F983407F39
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29712.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29712.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:285DF680B39557523B8999EE74E1738C11B2185B
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29752.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29752.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:7E5003CDD6AB8842B959697E39E6D659122DAD4D
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30042.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:ADDFA7721B46723E3AF03DFBFBF01CF26913D001
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30227.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30227.jpg" />
 </div>
 
 

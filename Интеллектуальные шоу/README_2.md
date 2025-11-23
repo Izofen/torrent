@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71233.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:53F14615E6255F4D9D27F1A69C91B210D5DF832C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71234.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6729F808D423AC9FA4BC3AF725DC80562C4A1E0F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71407.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D6120DAFC0E5C958F4423D3D78584DFA7EEA6468
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71441.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5B71461CEF2F9A9E7F96D0A011CA164AAA942B21
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71472.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:39AA1F726C1BC827BE7BFF8977D20DA571333310
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71561.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1AE1D3E2467DF08197A71E5044612958781B601A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71591.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E2FCF014C71D41343A2011158172AC9649E25E36
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71592.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3B3EA57312F23C0870F84D8130F4CA079D4EB9AC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91233.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7E8772C3F8962F9B4347AF6ED1037262F186654B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94736.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:E56001FEB085FC6E945D768124F5D57E8C218EB9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99140.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:D15E5C1DAB184EED6172882C123E91D20380B315
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100691.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F6C538660EC7793D89D0D379544221A9FBDA9A15
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100740.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:D63AD718817DCA7B384FD6614E1644031194F9D2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100985.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:00B29645D0B36A3B0E50FF4C481C5576C0B6335B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101144.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:764A205E42C5FDC15C3841CCD5DD782E995DB21D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101193.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:0F5EDE044F4E49279279F8C8D64544280BAFAC13
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101194.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:3D89C849995F9592F46D3A210AC51D31ECFE5B5D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101281.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:52CB2E8D084761DDDB0EA699630EFBF1B38BFAA9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101305.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:03795581579796E3FB10FC595ACDC0D8C4EC5BC7
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101330.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:97EB31ACEC068CA313C6E0AA6D39DD48B060B65A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101497.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:D5AD0674E928A4B7B7CE2E81EC656AC5ED497878
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101523.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:73FAD619D9CA9CF722EC9D1A4A55F85A3AF9E75B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101546.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:F3DEB8260179EBFC7BA4D5B400B68FAEF1DFF100
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102810.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:DD08A6C9448BDC42484ECA8A26AFE57C4C9C60D3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102845.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:0C081E5933110A2B97586405C0B32358F794EF24
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102848.jpg" />
 </div>
 
 

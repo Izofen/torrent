@@ -6,7 +6,7 @@ Any Video Downloader Pro 9.2.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18746.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Calibre 8.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18747.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Telegram Desktop 5.14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18755.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Malwarebytes Windows Firewall Control 6.15.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18761.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Foobar2000 2.24.5 include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18763.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Windows 11 (v24h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18768.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ AnyDesk 9.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18769.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Windows 11 (v24h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18778.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Abelssoft SSD Fresh Plus 2026 15.0.61552 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18779.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v24 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18782.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Proton VPN 5.11.29 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18807.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Magic Eraser / Магический ластик v2.21.16 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18820.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18832.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ NewPipe v0.27.7 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18837.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:0858DE2C07F447719FE0E9A1C62BD7B944F2EA98
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18849.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Battery Guru: Monitor & Health v2.3.21 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18850.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Adobe Photoshop 2025 26.6.1.7 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18852.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adobe Photoshop Lightroom Classic 2025 14.3.1.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18853.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Adobe Photoshop 2025 26.6.1.7 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18856.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ PDF-XChange Editor Plus 10.6.0.396 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18886.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ PDF-XChange PRO 10.6.0.396 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18889.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.3 Mod by Balatan  [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18911.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:F178B8B7C8D5B65CB604440A21BF3D0E7BDC44BA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18917.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Screenshot touch v2.5.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18918.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ WeNote: заметки блокнот планер v6.30 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18919.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Pencil Photo Sketch : Drawing v2.2.20 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18923.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21256.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21256.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:037EE923A568424AB27CD2F4992990A3E429DD54
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21257.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21257.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:045834431843193FE4950A8F45C1D96D4BF6AAE4
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21258.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21258.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - 20s Soft Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21259.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21260.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:29AAA56B1FB10C709A54BC38AE3F85CBFF67EF82
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21261.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21262.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:37FF43F49E5C5E8B76E0FABB82C334394AD51523
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21263.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21263.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Adobe Acrobat Pro 2025.001.20458 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21264.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9A944E683A4521C8DA50C03EDE2253D16EDD3EF6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21265.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VirtualBox 7.1.8 Build 168469 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21266.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Barotrauma (2023) [Ru/Multi] (1.8.6.2/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21267.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:DE6BFD459AA7608F0907976B5294927D39BA23D3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21268.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21268.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F94FE635462F10455ABF612A576F07A1924C37B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21269.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:E5049814432E6CF7B9504095B76C2F26A18846C6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21270.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:876FE44474E7B368EEFC0C746AC85A02546BCEB8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21271.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:F39CFB878AD34A6F899CEF76138552DF480A4C7B
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21272.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21272.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:514BFA38E350EF02BA1643087A4110A150436A17
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21273.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:3F1E7E4B8E667F524E06F2AFFD024189832BBA73
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21274.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21274.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:B5E55692FAB6B7542BDFCBF6A1370DC118587C71
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21275.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21276.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ AIMP 5.40 Build 2673 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21277.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21277.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:988415CE72F6E36BAEB04A5210D8F7F05CAB5786
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21278.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ FinePrint 12.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21279.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21279.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Blender 4.2.9 LTS + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21280.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:50235FC106D04595CE126BB8FAFC66797367D2DD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21281.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21281.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211730.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211730.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:529D243E6DB46CFD697E30548238C1E57B6366B4
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211849.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211849.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9271E5773B3DB1E133AEE2BFCDEB5A21E579B0F6
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212018.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212018.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4D776C241B9C36FDD85091E54E49463C11F36692
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212043.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212043.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8E13DBC2E6F29CF8BBAB062232CAF8CDF10952D0
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212904.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212904.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:518F2D5F04ADD9BC4ED14113B917354BE1B2D72D
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213193.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213193.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:49EBE991B429347F857571E263C04754F0DC0FF6
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214790.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214790.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:078A79BEB6A028B8A7774128D38ADF99F41F2118
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217143.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217143.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:02F139349F18CE754EA5493AEEE0DC6E9CF81C45
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217202.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217202.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:92E903D92A166E39E4495043530541A44B0AFF35
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219754.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219754.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:DED19A65962F5562D7C5CCB75CF03DB4F6116365
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221566.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221566.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:C2DFEC26ACDBAA9ECDFD5FEB16D33A1B820ADA97
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224898.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224898.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:3EE3EBC09FBCA89694382364D725743012129097
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225828.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:7087EBF2BD49E71858E3030E812C88F0ACB17106
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230613.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230613.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E55DE06B230F4E04D28F9DEAFBBA33E321A01DAC
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238036.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238036.jpg" />
 </div>
 
 

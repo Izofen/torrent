@@ -6,7 +6,7 @@ PictureThis - Plant Identification v5.0.11 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37767.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:611A18381D442F41D6D307CA37575BD2C76B99D1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37768.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PicWish: AI Photo Editor v1.8.1 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37769.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7F4070C66FB379F58ACE7CA38F6332F104A53FBE
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37770.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4CB77A084608302CBEF7758E25F7E952E160468B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37771.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A4035AF53824ACC19A04DE29EA7A31963C145F3C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37772.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DD0BAA712297F88F13DE16AB7642D88E9588041B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37773.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Depressive Witches - Studio Albums (3 releases) (2021-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37774.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:18795B0E9A75DA019FE904BCA4104F41352A33F1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37775.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - 90s Nostalgia 90s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37776.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:438854B549F3004FCAEDD2C3BB1ACFD2F330D4C3
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37777.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:8755EA6F1B9A5B2DD770D18A61A27494FE85C1B9
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37778.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Display Driver Uninstaller 18.0.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37779.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:F7500C0E479A2D068A17F9D5C5804CA043CF5A6F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37780.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Speedollama (2024) [Ru/Multi] (1.4.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37781.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ GoldWave 7.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37782.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37783.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ AntiPlagiarism.NET 4.135.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37784.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Stellio - Music Player v6.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37785.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:5F405EAB57C4E1935D133ED634BC06D5094D81D9
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37786.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:69E052C06A01B7A49CDE1507D16D760D29688758
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37787.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:85FB2756CAE32409910750B5561F95A008ABEFD9
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37788.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:E515EA4F08941BF7565A13058506E04E3EAAE631
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37789.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:444311ECFBC838BFA9B104CDCC5465622E088FA3
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37790.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37791.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:8066EA62A6B04C58484EAB53377F567F44237004
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37792.jpg" />
 </div>
 
 

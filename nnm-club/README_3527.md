@@ -1,3 +1,81 @@
+###  Публикация: 1716204   (111384) от 14.04.2024
+
+Денис Стрельцов - Песни из старого чемодана (2018) [MP3|320 Kbps] <Шансон>>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гастрольная
+02. Письмо белогвардейца
+03. Канкан
+04. Два ангела(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8319179CAAE50F2E02E9AD335AE609D5F863FD59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716179   (111385) от 14.04.2024
+
+Chicane - Far From The Maddening Crowds (Symphonic Rehearsals) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early (Symphonic Rehearsal Mix)(05:23)
+02. Already There (Symphonic Rehearsal Mix)(03:30)
+03. Offshore (Symphonic Rehearsal Mix)(06:27)
+04. Lost You Somewhere (Symphonic Rehearsal Mix)(04:05)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ElectronicПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C60EA016C7C47CD3693BB9ED7DF5365A71245B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716072   (111386) от 14.04.2024
+
+МакВикар / McVicar (1980) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111386.jpg" />
+</div>
+
+
+###  Подробнее
+
+История основанная на реальных событиях. Джон МакВикар бежит из тюрьмы, где должен был отбыть еще двадцать три года. Вместе с сокамерником Уолли он роет туннель. При побеге Уолли схвачен, а Джону удаётся уйти. В Лондоне, с помощью старого знакомого, беглец встречается с женой и сыном и хочет начать новую жизнь, но полиция объявляет большую охоту на «врага общества (   Читать дальше...   )Производство: Великобритания / Polytel, The Who FilmsЖанр: драма, криминалРежиссер: Том КлеггАктеры: Роджер Долтри, Адам Фэйт, Шерил Кэмпбелл, Билли Мюррэй, Джорджина Хейл, Стивен Беркофф, Брайан Холл, Питер Джонфилд, Мэтью Скарфильд, Леонард ГрегориПеревод: Двуголосый профессиональный, авторский (Юрий Товбин)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CABA2D1F8C771A5CB03929DAF197D64823E481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715892   (111387) от 14.04.2024
 
 VA - The Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +84,7 @@ VA - The Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111387.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Спринт (13.04.2024) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111388.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ VA - Electro Blues - In House Selection (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111389.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Brave Browser 1.64.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111390.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:C22D78135FC88887957016995A8781E3B41C7C9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111391.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ Telegram Desktop 4.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111392.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ magnet:?xt=urn:btih:9CB9318853A5BE6FEAB6198811B96C2445E1F9D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111393.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ Tyr - Battle Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111394.jpg" />
 </div>
 
 
@@ -209,7 +287,7 @@ magnet:?xt=urn:btih:B25C0BAABC6CBC3724D70258C8B291311C6FD12E
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111395.jpg" />
 </div>
 
 
@@ -236,7 +314,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111396.jpg" />
 </div>
 
 
@@ -260,7 +338,7 @@ Black Sabbath - Paris 1970 (Live) (1970) Re-Recorded, 2024, The Media Champ[FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111397.jpg" />
 </div>
 
 
@@ -287,7 +365,7 @@ Boku no Hero Academia: Yuuei Heroes Battle | Моя геройская акад�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111398.jpg" />
 </div>
 
 
@@ -311,7 +389,7 @@ magnet:?xt=urn:btih:19C30AF291944E4DE3082273EE94EE76E57E4DE2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111399.jpg" />
 </div>
 
 
@@ -337,7 +415,7 @@ Text Editor Pro 29.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111400.jpg" />
 </div>
 
 
@@ -361,7 +439,7 @@ magnet:?xt=urn:btih:B063A7EFE16DF09C57DB87C8FC5E73F34E14E9A3
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111401.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ Castle Rat - Into The Realm (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111402.jpg" />
 </div>
 
 
@@ -414,7 +492,7 @@ magnet:?xt=urn:btih:907C13607BD9D10CA1C93A2CA3CF493791BD5EEB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111403.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ magnet:?xt=urn:btih:ED616B1D8F93211106369217D7EB148F15716205
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111404.jpg" />
 </div>
 
 
@@ -462,7 +540,7 @@ Draw.io 24.2.5+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111405.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:687BC72B6C8515514FAA2FCB9AA165E44165B461
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111406.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ magnet:?xt=urn:btih:547B1DA1CA5955C17A3822771F4D9B692288B208
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111407.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ magnet:?xt=urn:btih:DF51B47A56CA806A3545210C11C994631ACF4223
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111408.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ magnet:?xt=urn:btih:75C149CFDDB3E88B9940245B7ACF6389663BEDD2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111409.jpg" />
 </div>
 
 
@@ -570,81 +648,6 @@ magnet:?xt=urn:btih:75C149CFDDB3E88B9940245B7ACF6389663BEDD2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6619A5843EBA352ADC6E05D869CC67F523EAE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716056   (111410) от 14.04.2024
-
-Судьба на двоих (2024) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марина живет самой обычной жизнью: днем работает на швейной фабрике, а по вечерам ухаживает за пожилым отцом. Ей приходится браться за любые подработки, чтобы хоть как-то свести концы с концами. Неожиданно судьба сводит ее с солидным мужчиной на дорогом авто. Влюбившись с первого взгляда в Марину, он добивается ее и дарит настоящую сказку: дорогие рестораны, подарки, (   Читать дальше...   )Производство: Россия | «Авва-Фильм»Жанр: МелодрамаРежиссер: Руслан БальтцерАктеры: Эрика Булатая, Родион Галюченко, Сергей Борисов, Мария Глазкова, Христина Блохина, Татьяна Таушева, Татьяна Филатова, Александр Червов, Светлана Авдина, Ольга ТорощинаПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC47791DB7ABE76F1E4803DB872E728D167F1848
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716229   (111411) от 14.04.2024
-
-Nena - 7 Albums (1983-1989) LP Collection [MP3|320 Kbps] <New Wave, Pop Rock, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая синтипоп-группа Новой волны, действовавшая с 1982 по 1987 год. Фронтменом группы является певица  Gabriele "Nena" Kerner (Нена Кернер), в состав группы также входили Йорн-Уве Фаренкрог-Петерсен (клавишные), Карло Каргес (гитара), Юрген Демель (бас) и Рольф Брендель (ударные). В 1982 году группа выпустила сингл «Nur geträumt», за которым последовал (   Читать дальше...   )Список альбомов:
-1983 - Nena
-1984 - ? (Fragezeichen)
-1984 - Nena (International Album)(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 04:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F10DD4B35C5BE40FF3B24E593195C844A3C8929
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716059   (111412) от 14.04.2024
-
-Зонтик для подруг (2024) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ася, Лера и Надя – лучшие подруги со школы. У каждой из них своя налаженная жизнь, вот только отношения с мужчинами не складываются. Муж Нади после 20 лет брака ушел к беременной секретарше. Лера сразу после школы выскочила замуж и родила ребенка, но сына она давно уже воспитывает самостоятельно. Ее любовник Костик женат и из семьи уходить не собирается. Ася никогда (   Читать дальше...   )Производство: Россия | «Продюсерский центр "ТВИН"»Жанр: МелодрамаРежиссер: Кира АнгелинаАктеры: Анастасия Денисова, Юлия Юрченко, Лидия Милюзина, Тарас Кузьмин, Анна Калабина, Александр Дуда, Василий Шмаков, Михаил Данилюк, Егор Кузьмин, Кристина ЦветковаПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9569B2126213A6B70930836C1A1152D3CE8C05B
 ```
 
 

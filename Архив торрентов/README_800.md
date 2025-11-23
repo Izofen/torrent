@@ -1,3 +1,75 @@
+###  Публикация: 1674005   (162942) от 03.11.2023
+
+AnyDesk 8.0.5 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A23DF5C5C9D957E4764B8ADF8E5A2BC2DF71DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673910   (162953) от 03.11.2023
+
+OGWhatsApp 17.55 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162953.jpg" />
+</div>
+
+
+###  Подробнее
+
+OGWhatsApp Pro – это многофункциональная модификация оригинального клиента WhatsApp. Приложение даст возможность пользователям настраивать интерфейс, скачивать темы, добавлять оповещение при заходе пользователей в приложение, иметь анти-удаление сообщений и статусов, сохранять статусы, отправлять файлы неограниченного размера, устанавливать пароли для чатов, пользоваться (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 20.10.2023Разработчик: AlexModsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CE27831F91B5C99B6D74B63152226203DDE7F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432827   (162968) от 18.12.2020
+
+Adobe Zii 2021 - Universal Patcher 6.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией практически всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86627AF1E595E7A10D230552CDC9E8ED82B9EEAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432840   (162983) от 18.12.2020
 
 Sketch 70.3 [En]
@@ -6,7 +78,7 @@ Sketch 70.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162983.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:CD39165561A95DFBD852A65E2BDFADEE97590CE8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162995.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ A Better Finder Rename 11 v11.41 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162998.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ PDF Search + PDF Converter 11.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163003.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Network Kit 9.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163009.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ PullTube 1.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163013.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ Adobe Premiere Rush v1.5.40 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163014.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ Sketch 81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163016.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Audirvana 3.5.43 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163017.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ Topaz Photo AI 2.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163020.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Aiseesoft FoneLab for Android 5.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163023.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Opera 73.0.3856.284 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163026.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ Pixelmator Pro 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163027.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ AMD Radeon Software Adrenalin Edition 23.11.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163033.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ SyncBird Pro 3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163035.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ WonderPen 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163040.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:873A60B099948B6C9F027714CD1C14EF3C6D37A0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163041.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ Omni Toolbox 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163043.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ Balabolka 2.15.0.765 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163044.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ Microsoft Edge 87.0.664.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163048.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ LibreCAD 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163053.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ Omni Recover 3 v3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163061.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ Hex Editor Neo Ultimate 7.21.00.8382 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163065.jpg" />
 </div>
 
 
@@ -552,78 +624,6 @@ Hex Editor Neo - мощный Редактор Шестнадцатеричны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDBC1BEEBCD4681C87E7C94CC129DD50650AABF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674053   (163068) от 03.11.2023
-
-Wise Care 365 Pro 6.6.2.632 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F31B3E4C1B970CBCE0C13E0AF7AECEEAA216ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432768   (163069) от 18.12.2020
-
-Adobe Animate 2021 v21.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Animate 2021, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate также позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594CFC8BD40EA10D35B44778CA72D16260545C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517374   (163070) от 15.12.2021
-
-Artstudio Pro 3.2.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D061CE48362044261E9AFC331BF4A02ACF0EC8A
 ```
 
 

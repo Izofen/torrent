@@ -1,3 +1,76 @@
+###  Публикация: 1737864   (106470) от 20.07.2024
+
+Steinberg WaveLab Pro 12.0.30 build 696 (x64) Portable by 7997 [Multi]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеринг - одна из самых важных частей процесса производства музыки. Это уникальное искусство, и в течение 25 лет WaveLab был выбором номер один для профессионалов. Универсальный аудиоредактор Steinberg WaveLab является мощным инструментом профессионального монтажа, восстановления звуковых файлов, редактирования звукозаписей высокого разрешения. Программное обеспечение (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др. (русского нет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15486597429D7614F138BA22EDD06269AF5368D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737901   (106471) от 20.07.2024
+
+Сбрось маму с поезда / Throw Momma from the Train (1987) BDRip [AV1/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается, даже у столь разных людей может быть что-то общее. Объединяющим мотивом является желание избавиться, причем самым действенным способом, от близкого человека.
+Один хочет убить свою бывшую жену, которая все еще умудряется превращать его жизнь в ад, второй видит сны о свободной радостной жизни, которым не суждено сбыться из-за буйной, деспотичной мамаши, (   Читать дальше...   )Производство: США / Orion Pictures, Rollins, Morra & Brezner, Throw MommaЖанр: триллер, комедия, криминалРежиссер: Дэнни ДеВитоАктеры: Дэнни ДеВито, Билли Кристал, Ким Грайст, Энн Рэмси, Кейт Малгрю, Брэнфорд Марсалис, Роб Райнер, Брюс Кирби, Джои ДеПинто, Энни РоссПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76BD0BD8F143FE09A81E66A438F5C5C201CDAD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738008   (106472) от 20.07.2024
+
+Дом-ловушка / Accused (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106472.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как люди в интернете, а затем журналисты в теленовостях распространяют слух о причастности Гарри ко взрыву в метро, его дом превращается в настоящую ловушку, из которой нет выхода. Угрозы и оскорбления быстро сменяются попытками вторжения, а брошенный друзьями и родственниками Гарри оказывается один против всех. Ему нужно пережить эту ночь в самом опасном (   Читать дальше...   )Производство: Великобритания / Sunrise Films, Three Little Birds PicturesЖанр: триллерРежиссер: Фил БарантиниАктеры: Чанил Кулар, Лорин Аджуфо, Нитин Ганатра, Фрэнсис Томелти, Нила Аалия, Робби О’Нилл, Джей Джонсон, Бен Энрайт, Олли Тиг, Кимберли МарренПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF757E69CD5BA8EB41E0414768CA8B3348BB04A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737931   (106473) от 20.07.2024
 
 Гарфилд / The Garfield Movie (2024) WEB-DL [H.264/1080p]
@@ -6,7 +79,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106473.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Zoner Photo Studio X 19.2403.2.556 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106474.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:C763F2595236E5F833D05493CDC03652DF242457
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106475.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:55107CFC942CA2BC868BC3730D88151CCA30FEE3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106476.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:18509CD79C1DF700C9B8F3453CC02398B073A194
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106477.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:AD458E0EA1119A94FCE632D0F21D2BAE2938BFD4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106478.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Lorne Lofsky, Guido Basso, Joey DeFrancesco, Vito Rezza - Alma Records Presents 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106479.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Spahn Ranch - The Coiled One (1995) Deluxe Edition, 2024, Cleopatra Records [FLA
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106480.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ magnet:?xt=urn:btih:395D5C79747F795273E1ABFB13C45BB074D73180
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106481.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ Nothing But Thieves - Dead Club City (2023) Extended Deluxe, 2024, RCA Records L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106482.jpg" />
 </div>
 
 
@@ -255,7 +328,7 @@ magnet:?xt=urn:btih:5BE8BA518DF71ED891B3162DBFBDC9AF21270816
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106483.jpg" />
 </div>
 
 
@@ -279,7 +352,7 @@ magnet:?xt=urn:btih:5BE8BA518DF71ED891B3162DBFBDC9AF21270816
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106484.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ VA - Exx Boundless Summer Hits 2024 (2024) [MP3|320 Kbps] <Progressive House, Me
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106485.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ magnet:?xt=urn:btih:22C008BF633F579445FCAE34271B44BABBA20A6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106486.jpg" />
 </div>
 
 
@@ -354,7 +427,7 @@ Bugatti And Musker - 2 Albums (1981, 1982) [MP3|320 Kbps] <Electronic, Funk/Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106487.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ Crypt Sermon - The Stygian Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106488.jpg" />
 </div>
 
 
@@ -408,7 +481,7 @@ Highly Suspect - As Above, So Below (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106489.jpg" />
 </div>
 
 
@@ -435,7 +508,7 @@ magnet:?xt=urn:btih:9EA14C4521099F5B679345D76AACF675195AD768
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106490.jpg" />
 </div>
 
 
@@ -459,7 +532,7 @@ magnet:?xt=urn:btih:9EA14C4521099F5B679345D76AACF675195AD768
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106491.jpg" />
 </div>
 
 
@@ -483,7 +556,7 @@ Worshipper - One Way Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106492.jpg" />
 </div>
 
 
@@ -510,7 +583,7 @@ T.S. Monk - Changing Of The Guard (1993) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106493.jpg" />
 </div>
 
 
@@ -537,7 +610,7 @@ Junior Mance - Holy Mama (1976) 2008, Test Of Time Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106494.jpg" />
 </div>
 
 
@@ -564,7 +637,7 @@ Trousdale - Out Of My Mind (2023) Deluxe Edition, 2024, Independent [FLAC 16,24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106495.jpg" />
 </div>
 
 
@@ -578,87 +651,6 @@ Trousdale - Out Of My Mind (2023) Deluxe Edition, 2024, Independent [FLAC 16,24/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D0AEB67B4220992C3BF86E4F0543832CA44F61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737470   (106496) от 18.07.2024
-
-Cloven Hoof - Dominator (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106496.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rising Up
-2. Nova Battlestar
-3. Reach For The Sky
-4. Warrior Of The Wasteland(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78199F530EF2808631E6B7AA88A8E4B2F69B2F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737541   (106497) от 18.07.2024
-
-Pete Malinverni - An American In London (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foggy Day (in London Town) (8:09)
-02. Joshua F'it the Battle of Jericho (6:17)
-03. My Ideal (7:14)
-04. Star Eyes (8:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8B250DF560A0EA6E996335986B6A7F56875380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737523   (106498) от 18.07.2024
-
-John Patton - Soul Connection (1983) 2008, Just A Memory [FLAC|Lossless|tracks + .cue] <Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Connection [9:49]
-02. Pinto [5:20]
-03. Extensions [6:51]
-04. Space Station [5:40](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78933B5E0BEDE9FF551DA60B6FA123757E2E50B5
 ```
 
 

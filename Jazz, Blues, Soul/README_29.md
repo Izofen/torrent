@@ -6,7 +6,7 @@ Mateo Ortega - Close To Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67067.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jimmy Adler - It's Hot! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67068.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ She Brought Me Gasoline - Songs from the Cliff (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67072.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ricky Byrd - NYC Made (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67073.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Love Dogs - Get Off My Lawn (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67078.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The DownShifters - Blues / Roots / Wellness (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67082.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Oli Zangl - Take me home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67083.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mark Murphy - Jazz Standards (1972 - 1991) 2CD, 1998, 32 Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67084.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Honey Badgers - Live in Noarlunga (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67085.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Roberto Lessa - Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67086.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kurt Rosenwinkel & Jean-Paul Brodbeck - The Brahms Project (2025) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67088.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ McCoy Tyner & Joe Henderson - Forces Of Nature: Live at Slugs' (1966) 2CD, 2024,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67111.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ John Dankworth - What the Dickens! (1963) 1994, Sepia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67113.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Espresso Pronto Roma! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67134.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - 60 Years of the Southend Scene (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67137.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Alternative Route (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67153.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - JAZZ IN THE BACKGROUND (For All Moments Of The Day) (2025) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67159.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Funky Groove Relax (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67162.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Nu Funk Vol 10 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67165.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Ambient Relaxation (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electronic, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67166.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Jus' Blues 25th Anniversary Legends Collection (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67179.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Compact Jazz - Best of the Jazz Vocalists (1992) CD, Compilation [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67187.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mal Waldron - Four Classic Albums (1956 - 1959) 2CD, 2024, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67190.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Saori Yano - Little Tiny (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67198.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Saori Yano - Sakura Stamp (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67211.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Saori Yano - Groovin' High (2006) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67212.jpg" />
 </div>
 
 

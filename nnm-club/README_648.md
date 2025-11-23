@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17163.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:78FDCC2C0A0CB4D440503A1035E4E189F3555A57
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17164.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - В нашу гавань заходили корабли (2001-2025) 15CD [
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17165.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ FurMark 2.8.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17166.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:431FFC669267D18C765E8C3245FD6AA7A1C3D3E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17167.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:BF344595C78DE969550681F91BC60047B704BACB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17168.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E8118D770114BF25EF606BD2467BA3459270C3F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17169.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D339CBFB95EDA572EC77FF0661BDA6B32C9584B3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17170.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C969B0E9186003B4FA41007E6150393B77515DEE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17171.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17171.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:6E64EAF3A1ED514642B7A99B0A69DB2994ED2B42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17172.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17172.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:0DBC9197F232C0483562372ED1A69D6095AF34F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17173.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17173.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F8CB068B7F1ADB2F0CA7340CAD160BC697B92851
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17174.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17174.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Tómarúm - Beyond Obsidian Euphoria (2025) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17175.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17175.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:F7458B588F214FE3ED34AD54AC7AFA1426029639
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17176.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17176.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:53A871026596D67B3D104E389D6FA4739D5A1256
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17177.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17177.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:3A07CCD76B20B0A8BAF58A88328574A189B62495
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17178.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17178.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A593868D77BD6EC096F417CC7105986DFAC595B8
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17179.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:F4A7E308E2FFA03A6010F9F197092372F913F1B1
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17180.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Warhammer 40,000: Gladius (2018) [Ru/Multi] (1.16.0/dlc) Repack FitGirl [Complet
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17181.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:7909A7785A1B0D619E047335457D25E7A2BDA0CB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17182.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:2DB7287EBBEDAE415209ED27DE93728A5CDDB482
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17183.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Internet Download Manager 6.42 Build 38 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17184.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:482045F12102FEE5FD8A330EC706491F4C19F915
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17185.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:73CF2F3DAA55110E21E77C744F109A0B1195CC74
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17186.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:E23966FDFEAF083D65B9410837B7883908F7C4A4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17187.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Guilty Gear Strive: Dual Rulers | Guilty Gear Strive: Двойные прави�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17188.jpg" />
 </div>
 
 

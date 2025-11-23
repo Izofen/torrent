@@ -6,7 +6,7 @@ WPS Office + PDF v18.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19951.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19951.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare UniConverter 16.4.5.218 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19955.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19955.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TweakNow WinSecret Plus! 6.6.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19960.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19960.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ RadioMaximus 2.33.00 RePack (& Portable) by elchupacabra (28.04.2025) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19962.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19962.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:90F947ADA52394F32A12F5B6E249FE82C3E90CD0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19965.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19965.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ One Read / Все Документы Читатель - Офис v1.2.3.46 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19968.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19968.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PDF24 Creator 11.25.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19969.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19969.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ WinTools.net 25.5.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19970.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19970.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ AIMP 5.40 Build 2675 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19971.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19971.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ DP Animation Maker 3.5.38 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19976.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19976.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.9.200 Gol
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19980.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19980.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Adobe Photoshop Lightroom Classic 2025 14.3.0.8 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19991.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19991.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ FreeTube 0.23.4 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19993.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19993.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ EOBD Facile: OBD 2 авто сканер v3.73.1100 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20006.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ qBittorrent 5.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20024.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Notepad++ 8.8.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20026.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Internet Download Manager 6.42 Build 34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20052.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ PilotEdit Lite & Pro 19.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20057.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ WinMerge 2.16.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20067.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20067.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Balabolka 2.15.0.894 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20069.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 27 Public Beta 2 (x64) Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20076.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20076.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ By Click Downloader Premium 2.4.22 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20079.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Extreme Picture Finder 3.68.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20087.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20087.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Adobe Illustrator 2025 29.5.0.137 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20094.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20094.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Adobe Photoshop 2025 26.6.0.14 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20097.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20097.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Adobe Photoshop 2025 26.6.0.14 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20103.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20103.jpg" />
 </div>
 
 

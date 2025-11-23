@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22073.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22073.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FBReader Premium v3.8.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22074.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AF956C81C123F5D642617BF68DCC66C52A9BA25B
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22075.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22075.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:82C4308CD4797985553D13D4370B53A72F01483F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22076.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22076.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:BB95C5B03C0AC74134FA737CABC12E6FDB29D424
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22077.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22077.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F815932E6EB965DC1743CFE1832FE576DF107E84
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22078.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22078.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Firefox Browser 137.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22079.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:9BC26DF9607C284A807896544AAF2E3A929FF434
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22080.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22080.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:06C8FE972D065E0A9CE2BC42CFF9B596D5C47248
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22081.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22081.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Astrea Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22082.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22082.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:0E2347AD339587FA407BEE4A87D229C2C146F63D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22083.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.35026.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22084.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:F1FED5B680ED751010F4FFCEBE1D75D5D8190816
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22085.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:F1FED5B680ED751010F4FFCEBE1D75D5D8190816
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22086.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:AD368D9CD683D949AEEE9E8CE8FAC6440E022E4E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22087.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22087.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:CDCD2E4E842C06F4A9F83970BF18430A33F146D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22088.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22088.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:17A7696A39874B15002529E5C1F4E54371913E38
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22089.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Aiseesoft Video Converter Ultimate 10.9.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22090.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ CCleaner Pro: ПО для очистки 25.07.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22091.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22091.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Arida Vortex - The Illustrated Man (2015) [FLAC|Lossless|image + .cue] <Power Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22092.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Michel Lauricella | MORPHO - Anatomy for Artists - Books 1 - 10 [10 книг] (2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22093.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22093.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6F91F7E6B8A270EC4C322D788E786F6E3980604B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22094.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22094.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:55E3D5F7652542446516CF4D7F2ECDC8197CA46F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22095.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:731B14D13E889EE1C8826AC7DC73B98BA3B73AA7
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22096.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22096.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:454CA38C9C36620ACFB79DF381974DDE7A9B3FE5
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22097.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22097.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Jagged Alliance 2/1 Metavira (2013) [Ru] (1.0.8) Repack/Mod dark_elf2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22098.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22098.jpg" />
 </div>
 
 

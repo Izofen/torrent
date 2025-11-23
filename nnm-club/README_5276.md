@@ -1,3 +1,181 @@
+###  Публикация: 1598104   (162622) от 19.12.2022
+
+VA - The Metal Rock Summer Festival (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Bugen's Rock Turn - Wind Force Twelve [01:20]
+ 02. - De Winnewupps - Kien Plaan [03:33]
+ 03. - Pandemic - God Versus God [05:23]
+ 04. - Caravan of Souls - Ratworld [06:00](   Читать дальше...   )Жанр: MetalПродолжительность: 03:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C260BF5C2335DA46574A74EAFD19D1A60C3202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598612   (162623) от 19.12.2022
+
+Sandboxie 5.61.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D624E39FC16C2864F42D077C1FF618F098335CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673913   (162624) от 04.11.2023
+
+Acceso Norte - Shadows of Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted Time (4:07)
+02. Duro y con Placa (4:10)
+03. Depredador (5:26)
+04. Déjà Vu (5:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4BFB2381D2DB273D33EF35BA023F9A47AB9261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598540   (162625) от 19.12.2022
+
+Tidabie Tidal Music Converter 1.4.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tidabie Tidal Music Converter дает вам платформу для загрузки любых треков с Tidal Premium и HiFi Music на Mac. Поддерживает преобразование треков Tidal в формат MP3 / AAC / FLAC / WAV / AIFF, чтобы вы могли воспроизводить Tidal Music на различных устройствах.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2022Разработчик: © 2022 Tidabie IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABC1899BCF1E0E1F29BF25A44536BA2E9C18134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598505   (162626) от 19.12.2022
+
+Sonic Dynamite - Another World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempestate 02:49
+02. Bread & Circuses 04:43
+03. Another World 05:08
+04. Distant Lands 06:23(   Читать дальше...   )Жанр: Melodic Hard Rock, Heavy MetalПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA78EE8231D1A4C75B753D1CA60765CBB218CBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674087   (162627) от 04.11.2023
+
+Amadine 1.5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
+Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: ©2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EC44DD62B58DCF54B25332D38BA99FDD533A53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517418   (162628) от 15.12.2021
+
+Семейка Аддамс: Горящий тур / The Addams Family 2 (2021) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если в доме поселилось настоящее исчадие ада, а именно два подростка? Срочно планировать самый жуткий отпуск! Мартиша, Гомес, Уэнсдей, Пагсли и дядя Фестер загружаются в семейный походный катафалк, чтобы отправиться навстречу новым приключениям и чудаковатым друзьям, от которых волосы встанут дыбом. В этой поездке семейка Аддамс сплотится намертво! Если, (   Читать дальше...   )Производство: Великобритания, Канада, США / BRON Studios, BermanBraunЖанр: мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный, двухголосый любительский (Pazl Voice)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C38B24BAC1F46FFC82DC9EA09E5CE0782813F06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432608   (162629) от 18.12.2020
 
 Гренландия / Greenland (2020) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
@@ -6,7 +184,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162629.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ magnet:?xt=urn:btih:AF2AAA3E757FB1152623344E4E3C1BC1441DECA0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162630.jpg" />
 </div>
 
 
@@ -55,7 +233,7 @@ Nevercenter CameraBag Pro 2023.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162631.jpg" />
 </div>
 
 
@@ -79,7 +257,7 @@ magnet:?xt=urn:btih:4046F8066A1BA15E8D3C441F722211C1553B4D22
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162632.jpg" />
 </div>
 
 
@@ -103,7 +281,7 @@ magnet:?xt=urn:btih:42CCBD836C89A89F7A55815433D5BBDA90282CF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162633.jpg" />
 </div>
 
 
@@ -127,7 +305,7 @@ magnet:?xt=urn:btih:2A970209DF886733D5F9623CF0D36EFBD67366AC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162634.jpg" />
 </div>
 
 
@@ -151,7 +329,7 @@ magnet:?xt=urn:btih:EBBE084E9D2E4FA37ED1834FC8545C9B2B8CF60F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162635.jpg" />
 </div>
 
 
@@ -175,7 +353,7 @@ magnet:?xt=urn:btih:EAD360322144BC07AD26F6792E4B248097329349
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162636.jpg" />
 </div>
 
 
@@ -199,7 +377,7 @@ Nevercenter CameraBag Photo 2023.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162637.jpg" />
 </div>
 
 
@@ -224,7 +402,7 @@ magnet:?xt=urn:btih:3282CBC39B3BAEE06F09DC2F9BDD4CE2739E81BA
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162638.jpg" />
 </div>
 
 
@@ -251,7 +429,7 @@ magnet:?xt=urn:btih:48FCA5C95542C1B14ED368A3A46D41E4A30A6466
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162639.jpg" />
 </div>
 
 
@@ -275,7 +453,7 @@ Cirkus Prutz - Blues Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162640.jpg" />
 </div>
 
 
@@ -302,7 +480,7 @@ Microsoft .NET 6.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162641.jpg" />
 </div>
 
 
@@ -327,7 +505,7 @@ magnet:?xt=urn:btih:02CAFB83EC93338908F19F5A91BFD1D62C272A9A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162642.jpg" />
 </div>
 
 
@@ -351,7 +529,7 @@ SuperDuper! 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162643.jpg" />
 </div>
 
 
@@ -375,7 +553,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162644.jpg" />
 </div>
 
 
@@ -399,7 +577,7 @@ magnet:?xt=urn:btih:B986F9F1A8C6E7D939376CAE5823541CD3AB3AFF
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162645.jpg" />
 </div>
 
 
@@ -423,7 +601,7 @@ Awaken 6.4.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162646.jpg" />
 </div>
 
 
@@ -447,7 +625,7 @@ Ion Fury (2018) [En] (3.0.0.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162647.jpg" />
 </div>
 
 
@@ -458,178 +636,6 @@ Ion Fury - продолжение аркадного шутера Bombshell от
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:144DAB7F2B04197A13FD81445F66CDFCE15241DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598480   (162648) от 19.12.2022
-
-Balls Gone Wild - Stay Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing One (03:14)
-02. Hangman (04:05)
-03. School on Fire (04:45)
-04. Feel My Love (03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B63ABCD78AFCB717BF28BC51D068E63FB67A4FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517449   (162649) от 15.12.2021
-
-Черкизона. Одноразовые люди (2010) WEBRip [H.264/1080p] (сезон 1, серии 1-60 из 60)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162649.jpg" />
-</div>
-
-
-###  Подробнее
-
-После трагической гибели жены у провинциального хирурга Сергея Виноградова не остается человека ближе, чем Даша – десятилетняя дочь покойной. Да и сама девочка относится к нему, как к родному отцу. Втайне от близких Сергей увольняется из больницы, продает квартиру и, вопреки воле Дашиного деда, увозит ее в Москву. Полные надежды на счастливую жизнь, герои случайно (   Читать дальше...   )Производство: Россия / Всемирные Русские СтудииЖанр: драма, криминалРежиссер: Вадим Данцигер, Алексей Гирба, Дмитрий ПетруньАктеры: Дмитрий Миллер, Константин Соловьев, Анастасия Макеева, Александр Пашков, Михаил Сафронов, Ольга Чудакова, Владимир Скворцов, Роман Хан, Игорь Поселенов, Владислав Дунаев и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119D27D8405F04D0775CF6428E4B66A03293A027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432603   (162650) от 18.12.2020
-
-Гренландия / Greenland (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания / G-BASE, Anton, Riverstone Pictures, STX FilmsЖанр: БоевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91966ACE7AC1E7938D2A1845024F846EF8CA587F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673885   (162651) от 03.11.2023
-
-EaseUS Data Recovery Wizard Technician 17.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162651.jpg" />
-</div>
-
-
-###  Подробнее
-
-EaseUS Data Recovery Wizard служит для восстановления утраченных данных с ПК, ноутбуков и съемных накопителей. Программа позволяет восстанавливать файлы, изображения, документы, видеозаписи, потерянные из-за случайного удаления, форматирования, сбоя системы, неожиданного отключения питания, вирусной атаки или по другим причинам.
-Пользователь может предварительно (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC527717692F1F37E1230F970155B8A82EB728E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513932   (162652) от 15.12.2021
-
-Джеймс Бонд 007: Живешь только дважды / James Bond 007: You Only Live Twice (1967) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коварство злодеев из международной преступной организации СПЕКТР не знает границ. На этот раз враги человечества пытаются поссорить самые могущественные государства мира и тем самым спровоцировать начало ядерной войны. До полного уничтожения жизни на Земле остаются считанные мгновения. В такой ситуации запаникует кто угодно, но только не Джеймс Бонд. Не теряя достоинства (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: Боевик, триллер, приключенияРежиссер: Льюис ГилбертАктеры: Шон Коннери, Акико Вакабаяси, Миэ Хама, Тэцуро Тамба, Тэру Симада, Карин Дор, Дональд Плезенс, Бернард Ли, Лоис Максуэлл, Десмонд ЛлевелинПеревод: Дублированный, Многоголосый профессиональный, Двухголосый профессиональный, АвторскийЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F717B8A94D05E2CE07030FBBDC908B42861006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661037   (162653) от 03.11.2023
-
-Контейнер (2023) WEBRip [H.264/1080p] (сезон 3, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162653.jpg" />
-</div>
-
-
-###  Подробнее
-
-В третьем сезоне Вадим, вернувший себе власть и статус, лишает суррогатную мать Сашу возможности видеться с ребенком. Саша полноправно считает сына родным и решается на унизительный для себя шаг - вновь переехать в дом к заказчику, чтобы хотя бы так видеться с малышом. Сможет ли Саша жить под полным контролем Вадима или же на этот раз у нее другой план?Производство: Россия / STARTЖанр: драмаРежиссер: Максим СвешниковАктеры: Оксана Акиньшина, Филипп Янковский, Мария Фомина, Артем Быстров, Маша Лобанова, Юлия Ауг, Нино Кантария, Ростислав Бершауэр, Дмитрий Чеботарёв, Сергей ГодинСубтитры: Русские (SDH)Продолжительность: ~00:54:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657970B252051A7F50309868E0E29FB17A2AEE1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399078   (162654) от 18.12.2020
-
-YouTube Downloader v7.1 [Ru/En] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162654.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этой программы можно скачать любое видео с портала ютуб. Работает на всех девайсах.Тип издания: FreeРелиз состоялся: 17.12.2020Разработчик: dentexПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
 ```
 
 

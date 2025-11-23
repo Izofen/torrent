@@ -1,3 +1,78 @@
+###  Публикация: 1659219   (124982) от 31.12.2023
+
+Отвязные дворняги / Strays (2023) BDRip [H.264]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пёс Рэджи обожал своего хозяина-алкоголика, хотя тот постоянно пытался избавиться от питомца. Очередная попытка удаётся, пёсик теряется, зато знакомится с компанией бродячих собак, которые объясняют наивному оптимисту, как жестоко поступал с ним хозяин. Теперь у Рэджи появляется новая цель — вернуться домой и откусить гадкому человеку мужское хозяйство.Производство: США / Universal Pictures, Gloria Sanchez Productions, Lord MillerЖанр: комедия, приключенияРежиссер: Джош ГринбаумАктеры: Уилл Феррелл, Джейми Фокс, Айла Фишер, Рэндалл Пак, Уилл Форте, Бретт Гельман, Роб Риггл, Джош Гад, София Вергара, Джэми ДеметриуПеревод: Дублированный (Bravo Records Georgia)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4A7FF25326FDCDAB55B36EF10106BC982D823C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681233   (124983) от 31.12.2023
+
+Медленные лошади / Хромые кони / Slow Horses (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-6 из 6) NewStudio, LostFilm, HDRezka, TVShows, Сербин
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124983.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 3-м сезоне сериала «Медленные лошади» разворачивается сюжет, основанный на книге Real Tigers Мика Херрона. Главными действующими лицами вновь оказываются члены команды Джексона Лэма. На этот раз героев втянули в заговор, угрожающий существованию не только Слау Хауса, но и всей команде МИ5. Напомним, в финале предыдущего сезона Джексон Лэм выясняет причины неожиданной (   Читать дальше...   )Производство: Великобритания, США / Pretty Pictures, See-Saw FilmsЖанр: триллер, детективРежиссер: Джеймс Хоуз, Джереми Лавринг, Сауль МетцштайнАктеры: Джек Лауден, Гари Олдман, Кристин Скотт Томас, Дастин Демри-Бёрнс, Розалинд Элизар, Саския Ривз, Кристофер Чунг, Крис Райлли, Эйми-Ффион Эдвардс, Кадифф КирванПеревод: Многоголосый профессиональный (NewStudio, LostFilm, HDRezka, TVShows), Авторский (Ю. Сербин)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (Forced, Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53681C6D511044E271D68A6C0EC2FD7F66EDD5DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599731   (124984) от 31.12.2023
+
+VA - Лучшие песни Европа Плюс за 2022 год [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124984.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Purple Disco Machine feat. Sophie And The Giants - In The Dark (Denis Bravo Radio Edit) (3:10)
+002. Harry Styles - As It Was (2:47)
+003. Alis Shuka - Not About Us (Ayur Tsyrenov DFM Remix) (2:10)
+004. Shakira feat. Rauw Alejandro - Te Felicito (Amice Remix) (3:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ABBB7B0CACC74457905F2D42584CBE2D9EF490
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689059   (124985) от 31.12.2023
 
 Гарри Поттер / Harry Potter (2001 - 2011) BDRip [AV1/1080p] [10-bit] [Open Matte] [hand made 60fps] [Коллекция]
@@ -6,7 +81,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124985.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:5409C627040B7E8F4C36335BF1BC87321044DBE8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124986.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:382DABACC2AEBFDBD5E93075D89839F7FB7933A1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124987.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:F25D363BDB5F8F5B58BF53F4B7C0BACA4C977DFB
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124988.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:402227F34E323A64F2B0FD105B19C028913EAD39
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124989.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:56B3193CD5842A5058A2CDABA8E651C9AB1E67C2
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124990.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124991.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:7C62A68528E95BC189702F5D8DDA36EAE05C0902
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124992.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:6514141C8BF7F86DCA8BB88C096CB7AD26E56994
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124993.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:CA342C242991358CE1CCA9C472979AE4233B7A43
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124994.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:1CD8D53866104E8E5E0B87DD3F98DAD7598D28DA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124995.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124996.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ Toccata - Ultima Ratio (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124997.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ magnet:?xt=urn:btih:BFA076DEDE9E18844EF5584EE6F2DCEFEB5E9D52
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124998.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:E14E09A392DE4B36D6FE435818E631E757AA0491
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124999.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125000.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ magnet:?xt=urn:btih:B085FE1D2161244C2F9E18115CD566D7270D4130
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125001.jpg" />
 </div>
 
 
@@ -430,7 +505,7 @@ Jayson Tipp - Table For One (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125002.jpg" />
 </div>
 
 
@@ -457,7 +532,7 @@ Demon - Taking The World By Storm (1989) Japanese Edition, Reissue, Remastered, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125003.jpg" />
 </div>
 
 
@@ -484,7 +559,7 @@ magnet:?xt=urn:btih:DD667AA9405FB3BB61703EAC0173884B78B6263C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125004.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ Wayne Pretorius - Introduction to Wayne P (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125005.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ magnet:?xt=urn:btih:01C0499B732B733F1519F4487D55B9B6DE776AFB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125006.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ magnet:?xt=urn:btih:ED9C06001657F5B1FE7ACBA9B109E7F311259397
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125007.jpg" />
 </div>
 
 
@@ -571,81 +646,6 @@ magnet:?xt=urn:btih:ED9C06001657F5B1FE7ACBA9B109E7F311259397
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:454FE3D532C0516EDE6D9BD040E765AEA5D10674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561015   (125008) от 30.12.2023
-
-Туве Янссон | Опасное лето (2018) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето выдалось тревожным – наводнение пришло в долину и затопило дом муми-троллей. Семья отправилась искать новое жильё. На их удачу, волнами к берегу прибило вполне подходящий дом, который, правда, вёл себя немного странно. У него была крыша, похожая на створку раковины, и вращающийся пол, а если дёрнуть за шнурок – с потолка упадёт картина. Или польёт дождь. Или (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Евгения Канищева, Мария ЛюдковскаяПродолжительность: 02:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10C7BFE96AFDCDF94511B0AE8D1264FCA26A24A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688348   (125009) от 30.12.2023
-
-Lord Of The Lost - Weapons Of Mass Seduction (2023) [MP3|320 Kbps] <Neue deutsche härte, dark metal, dark rock, gothic metal, heavy metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look (feat. Blümchen) [00:03:57]
-02. Ordinary Town [00:04:23]
-03. Cha Cha Cha [00:02:59]
-04. Judas [00:04:11](   Читать дальше...   )Жанр: Neue deutsche härte, dark metal, dark rock, gothic metal, heavy metalПродолжительность: 2 CD, 01:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCF1743E80C3509FA991844097D8BD66C8A4026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601392   (125010) от 30.12.2023
-
-Анне-Катрине Вестли | Папа, мама, бабушка и восемь детей (Книга 2). Мортен, бабушка и Вихрь (2021) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норвежская писательница Анне-Катрине Вестли, придумавшая истории про дом, где растут сразу восемь мальчиков и девочек, популярна во всей Европе, наверное, не меньше, чем знаменитая Астрид Линдгрен. Герои её книг – люди простые, но очень симпатичные: добрые, честные, трудолюбивые. Взрослые здесь не теряют умения относиться с юмором к себе самим и друг к другу, какие (   Читать дальше...   )Жанр: детская проза, детские приключения, зарубежные детские книгиПеревод: Любовь ГорлинаПродолжительность: 03:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52CEC9911AD78941E35DF1D3F50B8C1B080B95A
 ```
 
 

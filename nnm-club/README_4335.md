@@ -1,3 +1,76 @@
+###  Публикация: 1680910   (133501) от 01.12.2023
+
+Чингиз Абдуллаев | Дронго (Книга 03). Охота на человека (2023) [MP3, Павел Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксперт-аналитик Дронго живет в ожидании телефонного звонка. Каждый день, каждый час. На этот раз его вызвали в США. Целая цепочка загадочных убийств и никаких следов. Но Дронго знает: преступник всегда оставляет следы, даже если он человек-невидимка…Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B0CC6E5C3CD00F4F3B27C9ECE4BC927589C5FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680954   (133502) от 01.12.2023
+
+Disk Space Saver 2.6.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Space Saver - это анализатор дискового пространства, который поможет вам найти большие места на жестком диске за считанные секунды. Легко освобождайте место на диске одним щелчком мыши. Программное обеспечение визуализирует все данные на жестком диске, поэтому вы можете обнаружить и удалить большие файлы и папки. Иерархическая структура отображает большие объемы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2022Разработчик: © 2022 QiplexПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4DA12B76EFC8B6D218067C78B0767FE03106AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680951   (133503) от 01.12.2023
+
+Анна Блейк | Расследование ведет Аксель Грин (Книга1). За грехи отцов (2023) [MP3, Михаил Нордшир]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мрачный психологический триллер, загадка двойного убийства, жертвы всегда как-то связаны… За дело берется молодой детектив Аксель Грин!
+Благополучный город Треверберг потясен ужасающей новостью: во время осмотра выставленного на продажу старого особняка обнаружена жуткая инсталляция. Большое кострище с обгорелым трупом молодой женщины и перед ним на коленях мужчина, (   Читать дальше...   )Жанр: Психологический детективИздательство: Аудиокнига АСТПродолжительность: 13:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250D3969300B3E0745C3834BE97F5DA8378935A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680915   (133504) от 01.12.2023
 
 Журнал | Бизнес журнал №10 (57) (2023) [PDF]
@@ -6,7 +79,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133504.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ GoodTask 7.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133505.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:6384B242B5347C105BC18C8BC496E1B7B5D8A796
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133506.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ The Moody Blues - Long Distance Voyager (1981) Reissue, 2008, Decca [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133507.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ URL Manager Pro 6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133509.jpg" />
 </div>
 
 
@@ -132,7 +205,7 @@ magnet:?xt=urn:btih:68EDFEFC237633B232D500A078E1B98D401A1AEB
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_133511.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_133511.jpg" />
 </div>
 
 
@@ -165,7 +238,7 @@ magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133512.jpg" />
 </div>
 
 
@@ -190,7 +263,7 @@ Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133513.jpg" />
 </div>
 
 
@@ -217,7 +290,7 @@ Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133515.jpg" />
 </div>
 
 
@@ -244,7 +317,7 @@ magnet:?xt=urn:btih:B0449DF1A2CD7038F88BF46C3A9E32A22212EDEF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133516.jpg" />
 </div>
 
 
@@ -268,7 +341,7 @@ magnet:?xt=urn:btih:77C4E33A015C4B278602A485B330B5724987DF2E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133517.jpg" />
 </div>
 
 
@@ -293,7 +366,7 @@ Dissection - Storm of the Light's Bane (1995) Reissue, Remastered, 2006, 2CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133518.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133520.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133521.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ magnet:?xt=urn:btih:5F5301C427E8077316C5CD28FAA964D63351328A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133522.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ Flames Of Fire - Our Blessed Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133524.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ magnet:?xt=urn:btih:A9AF360851A8A46412ABFAD9B0868C8924E04D00
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133525.jpg" />
 </div>
 
 
@@ -464,7 +537,7 @@ magnet:?xt=urn:btih:BFF38ED4C0B688EB526FA1B5E18C52FFCD4D66E6
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133526.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Wise Care 365 Pro 2.16 Build 167 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133528.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Celtic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133531.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ Herb Ellis - Man With The Guitar (1965) 2021, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133533.jpg" />
 </div>
 
 
@@ -577,7 +650,7 @@ magnet:?xt=urn:btih:56E0B894D1C1390E3C69126A06B5888799896435
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133535.jpg" />
 </div>
 
 
@@ -602,7 +675,7 @@ magnet:?xt=urn:btih:641CCC354C7376342C2304E7931BAA350FBB3280
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133537.jpg" />
 </div>
 
 
@@ -613,81 +686,6 @@ magnet:?xt=urn:btih:641CCC354C7376342C2304E7931BAA350FBB3280
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4EC4A5F33D8E890A94E5179E81F55715EDCB4B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594656   (133538) от 26.12.2012
-
-Барбара / Barbara (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая девушка из ГДР подала заявление на выезд из страны и за это сослана в провинцию. В свободном мире ее ждет возлюбленный, который уже разработал для нее план побега на лодке через Балтийское море. А пока Барбара живет под надзором спецслужб и работает в больнице в отделе педиатрической хирургии, где вместе со своим коллегой Андре пытается помочь юной беженке из трудовой колонии — ярой противнице режима.Жанр: ДрамаРежиссер: Кристиан Петцольд / Christian PetzoldАктеры: Нина Хосс, Рональд Церфельд, Райнер Бок, Кристина Хеке, Клаудия Гейслер, Питер Уайсс, Каролин Хаупт, Дениз Петцольд, Роза Энскат, Ясна Фритци Бауэр и другие.Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 01:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD9163F7D73C4AFEFAC59EE214D61C9389B4AA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680739   (133539) от 01.12.2023
-
-DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Industrial, Melodic Death Metal >
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transistor (Intro) [00:02:46]
-02. Aurora [00:04:14]
-03. Path [00:02:17]
-04. Moon [00:04:21](   Читать дальше...   )Жанр: Power Metal / Instrumental / Electro-Industrial / Melodic Death Metal / Sid Metal / Folk MetalПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594632   (133540) от 26.12.2012
-
-Кейт Аткинсон | Джексон Броуди (Книга 3). Ждать ли добрых вестей? (2012) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт Аткинсон прогремела уже своим дебютным романом, который получил престижную Уитбредовскую премию, обойдя многих именитых кандидатов — например, Салмана Рушди с его «Прощальным вздохом мавра». Однако настоящая слава пришла к ней с публикацией «Преступлений прошлого» — первой книги из цикла о кембриджском частном детективе Джексоне Броуди. Роман вызвал бурю восторга (   Читать дальше...   )Жанр: ДетективПеревод: с англ. Анастасии ГрызуновойПродолжительность: 13:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11121E85CD3D9E2BC893DAF1CC258CD48AF66928
 ```
 
 

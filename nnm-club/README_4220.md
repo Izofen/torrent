@@ -1,3 +1,75 @@
+###  Публикация: 1525361   (129600) от 20.01.2022
+
+Покажи мне отца / Show Me the Father (2021) WEBRip [H.264/1080p] [EN]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм об отцовстве от создателей «Огнеупорного» и «Отважных». Этот фильм — свежий взгляд на роль отцовства в современном обществе и разговор о том, как фигура отца влияет на нашу дальнейшую жизнь...Производство: СШАЖанр: Документальный, драмаРежиссер: Rick AltizerПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: РусскиеПродолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BCDD1DFCBF4465A7F9314A935DFFC44930758D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490313   (129601) от 30.04.2012
+
+Владимир Аврорский | Бразилия для любознательных [2006] [FB2, RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вглядываясь в бразильскую жизнь изнутри, автор ведет непринужденный рассказ обо всем увиденном от имени литературного персонажа - европейца, возможно, даже человека русских корней, решившего отправиться в Бразилию и остаться там жить. У читателя возникает естественное желание самому оказаться в этой удивительной стране.2006Формат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2435E940F305F71A37ED1DE219E1846C5ABB14ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525475   (129602) от 20.01.2022
+
+PDF Reader Pro Edition 2.8.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129602.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC4424C95083BBEF2E7AFEE6D22D5921EE48FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525439   (129603) от 20.01.2022
 
 Лена Сокол | Доктор Красавчик (2021) [EPUB]
@@ -6,7 +78,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129603.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:CB37F9E9D7EB404FE158B4909D813526989CF074
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129604.jpg" />
 </div>
 
 
@@ -59,7 +131,7 @@ magnet:?xt=urn:btih:3A9CFC4D7B631337C25A53E20F48BB6BA58781BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129606.jpg" />
 </div>
 
 
@@ -83,7 +155,7 @@ magnet:?xt=urn:btih:AF90C9401536C9721B3DAADB3FC33C147D75CCF1
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129607.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ Mirror for Android TV 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129608.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:2F0DABC9DD1564690871B9453084FD46B6BEDC3A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129610.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Angelus Apatrida - The Call (Limited Edition) Scene (2012) [FLAC|Lossless]<Thras
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129611.jpg" />
 </div>
 
 
@@ -188,7 +260,7 @@ Angelus Apatrida - The Call (Limited Edition) Scene (2012) [FLAC|Lossless]<Thras
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129612.jpg" />
 </div>
 
 
@@ -212,7 +284,7 @@ magnet:?xt=urn:btih:5082FB945D5ECEAE4DD9FC9CEF9EA36A9CB5AE76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129613.jpg" />
 </div>
 
 
@@ -236,7 +308,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129615.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ magnet:?xt=urn:btih:6A4D33DE7BD8D2B2C3D1DDFA79107EA73509CAFD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129616.jpg" />
 </div>
 
 
@@ -288,7 +360,7 @@ Against the Storm (2022) [Ru/Multi] (1.0.1r) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129617.jpg" />
 </div>
 
 
@@ -312,7 +384,7 @@ Meteora - Gradients III Lights In The Sky (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129618.jpg" />
 </div>
 
 
@@ -339,7 +411,7 @@ magnet:?xt=urn:btih:F8E738083CDE85FF4EEAF36524AD3A65BF13F94C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129619.jpg" />
 </div>
 
 
@@ -363,7 +435,7 @@ magnet:?xt=urn:btih:41FD493047D54493F9E4E5C19DCCF5D1CFF1E26A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129620.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ magnet:?xt=urn:btih:80246DF0895FBCD93FF5972E72D1338AFA1C1763
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129621.jpg" />
 </div>
 
 
@@ -411,7 +483,7 @@ magnet:?xt=urn:btih:046DCB7F22D40922EC75280D53E69C8326802948
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129622.jpg" />
 </div>
 
 
@@ -435,7 +507,7 @@ Dekoboko Majo no Oyako Jijou / The Family Circumstances of the Irregular Witch /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129623.jpg" />
 </div>
 
 
@@ -459,7 +531,7 @@ magnet:?xt=urn:btih:64C115B1AE4A301666397A59B09D68EDF4DA07F3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129625.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ Human Blue - MisStArRyAs Xperience (2006) [FLAC|Lossless]<Psychedelic / Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129626.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ Firefox Browser 96.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129627.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:3D5EC746A1CA001DA7D3630C941BA3BBD816B491
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129628.jpg" />
 </div>
 
 
@@ -562,7 +634,7 @@ magnet:?xt=urn:btih:452278E5F21EC0DA64FD892CCFE20B2B6351AE07
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129630.jpg" />
 </div>
 
 
@@ -574,80 +646,6 @@ magnet:?xt=urn:btih:452278E5F21EC0DA64FD892CCFE20B2B6351AE07
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E3F07562513FF29E3359ECD5945958E1D0D9B52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683257   (129631) от 10.12.2023
-
-Ф. Бруно | Программирование FPGA для начинающих (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129631.jpg" />
-</div>
-
-
-###  Подробнее
-
-FPGA (Field-Programmable Gate Array, программируемые пользователем вентильные матрицы, ПЛИС) в настоящее время стали основной частью большинства современных электронных и компьютерных систем. Чтобы реализовать свои идеи на основе FPGA, вам необходимо разобраться в их архитектуре, освоить набор инструментов разработки и изучить их важнейшие конструктивные особенности. (   Читать дальше...   )Жанр: Радиотехника и электроникаПеревод: Ю. В. Ревич , А. Ю. РомановИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358884DAC434A7D77144D5399A2B11D75DEAC87B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525519   (129632) от 20.01.2022
-
-K-Lite Codec Pack Update 16.7.5 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129632.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BB4B161FB44A7CF897A5D814C2F24A5D40D9E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683269   (129634) от 10.12.2023
-
-Udemy, Bradley Jadir | DaVinci Resolve for Wedding Film Makers (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь создавать красивые свадебные фильмы, неподвластные времени, с помощью DaVinci Resolve.
-Изучите приемы редактирования, сочетания клавиш и многокамерное редактирование, чтобы ускорить рабочий процесс.
-Поднимите свои раскраски на новый уровень с помощью цветовых кругов, бревенчатых кругов, раскраски HDR, кривых, искажения цвета, эффектов свечения и ореола, (   Читать дальше...   )Производство: UdemyЖанр: Дизайн видео, цветокоррекцияЯзык озвучки: АнглийскийПродолжительность: 05:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AD6CA15A082B4036F0D96560474DAC2150B74E
 ```
 
 

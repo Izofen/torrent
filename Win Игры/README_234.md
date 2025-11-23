@@ -6,7 +6,7 @@ Pro Basketball Manager 2024 (2023) [Ru/Multi] (1.22-20112023) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132915.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pure Collector's Edition / Pure Коллекционное издание [Ru/En
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132952.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132978.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133259.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Skinwalker Hunt (2022) [Ru/Multi] (1.011) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133272.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Ms. Holmes 5: The Milverton Plot (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133397.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133468.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133569.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133575.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Forgive Me Father (2022) [Ru/Multi] (1.4.4.60) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133585.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133607.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.32/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133633.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133662.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Scene FAiRLIGHT [Lionheart Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133991.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133999.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134005.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Monstrum (2015) [En] (1.5.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134037.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Slender: The Arrival (2013) [Ru/Multi] (3.0.46.992) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134053.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134063.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134104.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Stea
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134338.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Mundaun (2021) [Ru/Multi] (1.0.444) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134434.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ghoul Castle 3D (2021) [Ru/Multi] (2.5) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134467.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Royal Romances 5: Cursed Hearts / Королевские романы 5: Про�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134485.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mystery Case Files 26: A Crime in Reflection / За семью печатями 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134499.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Remnant II (2) (2023) [Ru/Multi] (396.261/dlc) Repack DjDI [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135010.jpg" />
 </div>
 
 

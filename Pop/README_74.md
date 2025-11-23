@@ -6,7 +6,7 @@ Angel Garcia DJ - If You Come Back (2023) [FLAC|Lossless|tracks] <Pop Trance, Eu
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166095.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1CFCE136701A41F59BC0F26318AFCA50FBFE6E59
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166587.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Хиты украинской эстрады 70-х годов / Хіти у
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166613.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:433DCE2B4A30ED9CC875C9610705E3AC59E5496A
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166631.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Black Eyed Peas - Elevation (2022) [MP3|320 Kbps] <Rap, Reggae, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166634.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:FC7E90867053E8AF8AED8642FC6D311D42B7DA2E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166698.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Эти песни запевает молодёжь - Любимые пес
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166850.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Disco Getters - Disco Disco Disco (1979) LP [MP3|320 Kbps] <Electronic, Funk Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166881.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Fun
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166934.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Soirée - Soiree (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166936.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Modern Talking - Maxi & Singles Collection (2019) 3CD, Dieter Bohlen Edition [FL
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167024.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Loboda - SOLD OUT (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167156.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Loboda - SOLD OUT (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167209.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:8A5ACDCEA51CF86B37F26D606F4DA2A18B0F615C
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167340.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|image + .cue] <Disco, Dance, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167365.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Dschinghis Khan - Here We Go (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167537.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:769F273FA4B2CAE15E7B4EFEFD33F8D4A48B65C3
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167557.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:291715DAFCD66FBBC96323CA4166E584FF206E7D
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167572.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Best Hits of 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167585.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Sweet Connection - Need Your Passion (2008) CD, Compilation [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167621.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ El Pasador - Non Stop And Other Hits (2015) CD [MP3|320 Kbps] <Electronic, Funk 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167696.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Taylor Swift - evermore (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167708.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Sophie - 3 Albums (1989 - 1995) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167754.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Mark Farina - 2 Albums (1990, 1992) CD [MP3|320 Kbps] <Electronic, Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167786.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Malcolm McLaren And The Bootzilla Orchestra - Waltz Darling (1989) [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167851.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:2226985829D1E3BFD47AB5B6368FD4A6E2951CF7
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167968.jpg" />
 </div>
 
 

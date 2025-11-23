@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55667.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C3CF0DF5B04E7AEA25A3F3FC914B8BBAB3AE9CC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55668.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6F1ABE82F8B6F34844BEF33F777EEAFDC28976DD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55669.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F1021D9874A8CB6A10DA6F2F6D0BBBC806EE18D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55670.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:11E3E4B43D7B939FF02B97FC4D8F6C0FBA4A085D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55671.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack seleZen [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55672.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:AB42A94D9A61DAC9F6B9752286F9BD7D266D0165
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55673.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EE363BD37413D0F3E31867C9F12D5D18A4A3E66B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55674.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EE363BD37413D0F3E31867C9F12D5D18A4A3E66B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55675.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:74D4128F20BA21DC7394F5DAC6C5AA1AAFA8A7A1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55676.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:BC23DB0C2565504012D9D03E1B48091349CE9E32
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55677.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:D6E13268A8353885E1957A992AB9FEBAB914B436
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55678.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:04CF63F651893CBB637E20E81368BE6D2980788B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55679.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:6E580C6C485D8F7D095FB21FF734782A4E4A860F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55680.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ The Bat! Professional 11.2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55681.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Snappy Driver Installer Origin R764 | Драйверпаки 24.05.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55682.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55683.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:3723CCBAE6D647E06ACD2E596AE50125C34AF208
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55684.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.8/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55685.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:2E35FDC5EA0A19B4E20EF30E121BC8F61D173096
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55686.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:78B0BC324FC04562C6BDCEF033FA42DBB7E27025
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55687.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:01B65116676DDA732BB263DA9D4AA271191D35F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55688.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A745CED574601D865DEBEB69C34C25B4F568113C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55689.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:D5261624EF55B92A85C0AFB41E7E0E49C8FB6ACA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55690.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:92D560734554F021CBF0E98C564B5F4304ECBBF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55691.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:3A624F0442D657B6F0DC9FEE1561C31B90AF2A61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55692.jpg" />
 </div>
 
 

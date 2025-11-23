@@ -6,7 +6,7 @@ Vanced Tube v5.4.80.107 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14556.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7CEC1768A2BF37265A382629110FFC3F7DFC5843
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Multi] (1.0.20250606) Scene
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14558.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:33935076178044F6CBE40964436048ADD261C27E
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14559.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.109/dlc) Repack Other s [Digital Col
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14560.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ GPS АнтиРадар v49.0 Mod by СМАРТОС [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14561.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:D9F6872F98F30F5FF91E9A43CFA1672CDDA1CFE1
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14562.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E038FEECF49CC85E800F30B0579872E04F839C0C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14563.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:8B2A1E480B8961193EC7AB417101AB5458ECCD82
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14564.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:6DE3A4015B6E7403B5F9F622A3D04804458431D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14565.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:1ABDE5BF8D895CB5B1B20B66D9566563B53EC522
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14566.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:82458F25D671FEDD3AF4F31CBB6ED7777A7DA587
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14567.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kanchigai no Atelier Meister / The Unaware Atelier Master / Не знающий 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14568.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Carrier Command 2 (2021) [Ru/Multi] (1.5.10) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14569.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:231C42F23A0B9E93023F38366748D1B02D8B347B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14570.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Micron снимает с производства DDR4 несмотря на р�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14571.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Micron объявила о сворачивании производства DDR
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14572.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:520BEA037B0B9B704E4B76E4103735E8B36DAABB
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14573.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ MX Player Pro v1.93.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14574.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14575.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14576.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:1DBB492FC235DB7F96F82FBE6A60605DFBA74DDC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14577.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:2C3F56C5D1638CA1516C811C120CA77F8614C537
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14578.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (x64) Portable by 7997 [Multi/Ru
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14579.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C344BF17AC256815FBA04B36E4F1D7CDEDECD7D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14580.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:9D1518A26F5F4E57F3602FF3D40F977786F62734
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14581.jpg" />
 </div>
 
 

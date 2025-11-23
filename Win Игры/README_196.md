@@ -6,7 +6,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053/dlc) Repack Decepticon
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59668.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59688.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Deber (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59721.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shadow Corridor 2 (2024) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59722.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Thaumaturge (2024) [Ru/Multi] (71.135/dlc) Repack Decepticon [Digital Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59744.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Beat Slayer (2024) [Multi] (1.1.14) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59746.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ One Last Breath (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59747.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ RimWorld (2018) [Ru/Multi] (1.5.4063/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59751.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59757.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Terra Memoria (2024) [Multi] (2024.3.13a) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59758.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59803.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59806.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Voice Love on Air (2024) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59811.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59819.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ CD 2: Trap Master (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59827.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59834.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59835.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Turbo Kid (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59837.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ MythForce (2023) [Ru/Multi] (1.0.5.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59838.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Inkbound (2024) [Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59840.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ NightFeed (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59844.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59847.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Lost Village (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59856.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Scene Rune [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59863.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fractals of Destiny (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59879.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59882.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ CADopia Pro 22 v.21.2.1.3514 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201603.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Embarcadero RAD Studio 11.3 Alexandria 28.0.47991.2819 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201624.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201624.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Resistor 2.1.1.6 [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202076.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202076.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CF7DA71A88E00EAA8E028BE4813CD092A52ED666
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202189.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202189.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windows DesktopPack 22.10 [Multi/Ru]  (Авторская раздача)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204733.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204733.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Ultimaker Cura 5.11 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205656.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205656.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Digimizer 6.3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205999.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205999.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Trados Studio 2022 Professional 17.0.3.11695 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206045.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206045.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Mentor Graphics QuestaSim 2021.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206189.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206189.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Mentor Graphics ModelSim 2020.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206264.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206264.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ GImageX 2.2.0 Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206678.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206678.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Keysight Genesys 2023 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207219.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207219.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Avia Systems - Scan2CAD 10.4.16 Repack by F4CG [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207900.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207900.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Java SE Development Kit 20.0.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208518.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208518.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Siemens HyperLynx VX2.10 Build 19246144 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208636.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208636.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Atmosphere Deluxe 7.1 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208715.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208715.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ NeoAxis Engine 2023.1.2 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209059.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209059.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ SynWrite 6.41.2780 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209104.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209104.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ PSPad 5.0.7 Build 775 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209180.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209180.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Infolytica MagNet 7.4.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209671.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Cabinet Vision 2021.1.0.571 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211397.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211397.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ JetBrains DataSpell 2022.1.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211806.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211806.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.19 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212129.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212129.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ JetBrains RustRover 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212481.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212481.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ JetBrains CLion 2025.2.4 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212483.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212483.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ JetBrains DataSpell 2025.2.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212487.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212487.jpg" />
 </div>
 
 

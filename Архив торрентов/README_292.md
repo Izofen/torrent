@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64531.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ YT Downloader 9.15.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64532.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Process Lasso 16.0.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64533.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8D0992F2BF504A9598612141A32BDDEF3959562A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64574.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Magic Eraser / Магический ластик v2.23.11 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64576.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Bria Mobile: VoIP Softphone v6.20.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64578.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dog Scanner: Породы собак v19.0.0-G Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64583.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Photo Lab PRO v3.13.68 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64595.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:28F882A9B4DFEEB18C37563E8C51F7FE31A1C9DE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64598.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ iDownerGo Video Downloader 10.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64609.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Genius Art: Image AI Generator v1.4.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64612.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Allavsoft Video Downloader Converter 3.28.2.9336 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64618.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ XYplorer 27.10.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64619.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft Visual Studio 2022 Professional 17.14.10 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64622.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.10 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64668.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Firefox Browser ESR 115.26.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64806.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Firefox Browser ESR 140.1.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64850.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Firefox Browser ESR 115.26.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64851.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Cat Scanner / Сканер породы кошек v18.8.0-G Mod by vadj [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64854.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.9 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64903.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ FireAlpaca 2.13.22 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64913.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ MultiTimer: МультиТаймер v1.9.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65005.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Magic Eraser / Магический ластик v2.23.9 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65078.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Photo Lab PRO v3.13.67 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65110.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Magic Eraser / Магический ластик v2.23.8 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65113.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ AirBrush: ИИ Фоторедактор v7.11.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65133.jpg" />
 </div>
 
 

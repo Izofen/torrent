@@ -6,7 +6,7 @@ Joey DeFrancesco, Massimo Farao - Estate (2008) Zucca Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69856.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69858.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Downhome Kin - Gravel & Grit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69864.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ John Haydock - Heard It on the Radio (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69866.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ John Haydock - Play It as It Lays (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69870.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Flickering Alley - Bluebird's Whisper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69871.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bluestackface - Yet To Prove (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69872.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Doctor Ray Blues Band - Singles 2022 - 2023 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69874.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Felix Manuel - The Road Away (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69875.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fabio Rea - Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69876.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lancaster Ferreira - Freddie King Tribute (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69878.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jimmy Vivino - Gonna Be 2 Of Those Days (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69879.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Les McCann & The Mitchell-Ruff Trio - 20 Special Fingers (1961, 1968) 2CD, 1999,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69902.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ George Cables - I Hear Echoes (2024) HighNote Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69966.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bud Powell - Strictly Confidential (1964) 1994, Black Lion [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69969.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Freddie Hubbard - Keep Your Soul Together / Polar AC / Skagly (1974, 1975) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70017.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Freddie Hubbard - Bundle of Joy / Super Blue / The Love Connection (1977 - 1979)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70019.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Django Reinhardt - Rare Django (1928 - 1938) 1990, Disques Swing [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70039.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Andrei Kondakov-Victor Dvoskin Project - Deserted Park (1993) 2024, Apollon & Ev
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70040.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bill Evans - BD Jazz (1955 - 1962) 2CD, 2017, BDMusic [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70052.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stan Getz - BD Jazz (1948 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70057.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Brian Lynch - Madera Latino (2012) 2CD, 2016, Hollistic Musicworks [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70078.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Luiz Bonfa - Amor! (1959) 2001, Collectables [FLAC|Lossless|tracks + .cue] <Braz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70094.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bill Evans - Live In Tokyo (1973) 1986, Sony [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70138.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Emily Remler Quartet - Take Two (1982) 1992, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70139.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Peter White - Light of Day (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70150.jpg" />
 </div>
 
 

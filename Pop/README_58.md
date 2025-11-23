@@ -6,7 +6,7 @@ VA - Hit Lights '79 (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141806.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141838.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Now 100 Hits Christmas (2019) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141840.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141953.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141960.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141976.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:2C9E30EB9B845B89082F38DEBA18635E8A272FD4
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142241.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142393.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142737.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Michelle Gurevich - Exciting Times (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142814.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Elissa - A'ayashalak (2002) [FLAC|Lossless|tracks + .cue] <Lebanese Pop, Levanti
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142873.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastere
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142999.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143015.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Michele - Magic Love (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143031.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - 100 Greatest 10s: The Best Songs of Last Decade (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143110.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Helene Fischer - Best Of  (Shop24direct 2019 Edition) 4CD (2019) [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143330.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - 100 Greatest 00s The Best Songs from the Decade (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143349.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Популярные песни 60-х годов (2006) [APE|Lossless|image
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143472.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Disco Fantasy '79 (1979) 2LP [MP3|320 Kbps] <Funk / Soul, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143562.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:51E90CEB345060B46EB406F29894629B4C77BE27
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143570.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:EB17ED0289E24179045EAEDB29131BC9D273446C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143880.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Dance Music Delirious (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143908.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Syndicate - The best disco with non-stop sound effects (2002) [FLAC|Lossles
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143970.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Dalida - 50 De Succese Disco (1978) LP [MP3|320 Kbps] <Pop, Funk-Soul, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144045.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Santa Claus & D'Jingle Bells - That's Eurobeat Christmas (1993) [FLAC|Lossless]<
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144046.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Fantastique - Fantastique (1982) 2006 [FLAC|Lossless|image + .cue] <Disco, Hi-NR
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144124.jpg" />
 </div>
 
 

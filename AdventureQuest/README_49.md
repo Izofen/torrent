@@ -6,7 +6,7 @@ KURSK (2018) [Ru/En] (2.1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144970.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145630.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145640.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145884.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145967.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FEE93D9CFEEFB036918EF0E899A28F4ECB884D37
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146594.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148564.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149081.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Scarf (2021) [Ru/Multi] (1.0.1) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149106.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Leviathan: The Last Day of the Decade / Левиафан: Последний д�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149739.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150229.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150884.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Disney Infinity 3.0 (2016) [Multi] (1.0.3/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150968.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Disney Infinity 2.0 (2016) [Ru/Multi] (1.0.2/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151005.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151091.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151256.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151737.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151870.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Life Is Strange: Complete Season (2015) [Ru/Multi] (1.0.0.397609) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152690.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153001.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153010.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Titan Station (2022) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153259.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153670.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154485.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154588.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154920.jpg" />
 </div>
 
 

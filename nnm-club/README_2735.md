@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71858.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - I Love Disco France 80's (2013) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71859.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Pop International Hits (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71860.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:FB566380E082D87BC6E2A1403922570C350122E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71861.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:4368E01F08A77756D087EBE22ABE911FD374CF73
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71862.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E1832EFA3564F5A354990573A328B05651673E88
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71863.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9A4EAE76BE46F8CD97E2B6AE7A0454AA3A32D0A2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71864.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Nahawand: Best of 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71865.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Enchanted Steel - Might and Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71866.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C56F0BCAFA63AE54F38AF5B9D453DC3B74AE44C4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71867.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Kamanchaka Iquique - Esmeralda (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71868.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Noirad - Aegean Legacy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71869.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:48E952BC690D995C2D8660485DD8194745661A8E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71870.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:91EA47AAF8816195119EC00C9B63224E7D6CC0FF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71871.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:F3920843EF8E56FAD6A249A9FC0E078AC6AFE8FE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71872.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:BDC96AEDF00E682E49E5154032A77FC8397CC417
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71873.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:85C61E9F64804284668E8EA8DAD8EC604DA54945
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71874.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:93956EF3D8769F6555CFA83327F00B6F9E1EE310
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71875.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71876.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Wolf Rahm - Фольклорище (2014) [FLAC|Lossless|image + .cue] <Folk Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71877.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6470407E1F0C9D42A53F4240EED9DDA65E4CA36D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71878.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:FC83EBD8891D7F7AC23FEFF954F5831675EA09A8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71879.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:4DBDF30DC10C3D83DAEB0EB638F0D4D351EDDFDD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71880.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Post Meridiem - Академистика (2015) [MP3|256 Kbps] <Hard Rock, Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71881.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:ABAF7EF13CCD3118070E070015F71C4C97F50403
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71882.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:D7ADAB915FB57336A7FE74642E5520D03767ABFC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71883.jpg" />
 </div>
 
 

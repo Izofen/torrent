@@ -6,7 +6,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10635.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0A50BB69A02BF4FFFE6ACEEAD304342CF895E258
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10636.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0A50BB69A02BF4FFFE6ACEEAD304342CF895E258
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10637.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0A50BB69A02BF4FFFE6ACEEAD304342CF895E258
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10638.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D431FD3909E2E9E16DA060C08BF99B88CA1DAE29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10639.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PDF-XChange Editor Plus 10.6.1.397 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10640.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10641.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:EFCA801CF6F63010881957FB2DD7D496C7175434
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10642.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:BBC80BD9896D6857FB396D610D21398A6E538664
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10643.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:08DA631E597C444CE7E162AF6B615DFB746D140D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10644.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:C2CFA36A2058F78747BC993C70F3C4F8F7C173E4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10645.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:A8D499847CD794EFF72AC8557B03788808D199F0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10646.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ ishutinow
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10647.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ FBReader Premium v3.8.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10648.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:501411EB92BFD7D0A606B73E56F286FEF2CEF3EA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10649.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:3C2D4F3D6228644FE7613D315F0BCACA1CE26ADD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10650.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wondershare UniConverter 16.5.7.315 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10651.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:A357D5D95393145C3FBD22057AACEB96EF1AF0C3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10652.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ PotPlayer 250625 (1.7.22570) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10653.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:1CDBF406389B0AEDE37BE23B3710EE0B93D9ECD7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10654.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:899D6528301D7CDB45FEBF06A3EAAD4CC13A0E3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10655.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.19-38.257/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10656.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:6F51CFEC704AE2CE0E31ADEE2C221243053BB294
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10657.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ TagScanner 6.1.20 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10658.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:8873BC09CD9F671C7BF9AEC5866E92CB96F8C4A9
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10659.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:44039DF0E0B158E64E3842CF6B812E23C7AFD395
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10660.jpg" />
 </div>
 
 

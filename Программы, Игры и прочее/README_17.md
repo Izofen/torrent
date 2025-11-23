@@ -6,7 +6,7 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31254.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SnapEdit - AI photo editor v7.2.8 Mod by Maximoff⁠ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31267.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31279.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31279.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Filmora - Редактор видео с AI v14.4.01 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31641.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31663.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31727.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31799.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31824.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31911.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Graph Messenger (Telegraph) vT11.5.3 - P11.16.2 Mod by NNN x RBMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31948.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32000.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32006.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32033.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32039.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32044.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32047.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32074.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32108.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ PicsMaster AI Photo Editor Pro v2.0.4 Mod by TRUMods [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32112.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Ugly v1.1.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32119.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Niffelheim v1.6.15 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32146.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32153.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32189.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32219.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32233.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32236.jpg" />
 </div>
 
 

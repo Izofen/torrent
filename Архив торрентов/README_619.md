@@ -6,7 +6,7 @@ Sexy Girls Wallpapers (26.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132843.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132875.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2968C40C1B2FF080306E0C27ED2CA380196F74FD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132898.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Heroes of Might and Magic: Quest for the Dragon Bone Staff [PS2] [Multi-5] [PAL]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132926.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:F9088FA72D2D202EB2C60214C3F4F966D500813A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132944.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ OneCommander Pro 3.60.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132954.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E0254AC1E14208CA1AFB3C415E43C0ED8FDCCE3F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132960.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:1044E4B0E16D42F2767E0A651FE26F6DDD6677C7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132968.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Efficient Sticky Notes 3.10 Build 326 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132970.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Araxis Merge Pro 2023.5954 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132975.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ XYplorer 25.20.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132980.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:09A592F804514653D63BCE58F0F565A6F958D394
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132981.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:09A592F804514653D63BCE58F0F565A6F958D394
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132986.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Legend of Grimrock [En] (L/1.3.6) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132992.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ AirReceiver AirPlay Cast DLNA v5.0.6 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132994.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ OmniReader Pro for Mac 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132997.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:A2CF6D2FD9B778F0682551997EB7B00DF18CBCDC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133000.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Baldur's Gate: Dark Alliance II [PS2] [English] [PAL] (2004)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133001.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:FFC04FF1F18FDE03B91342D54C47E8F4276F2F1A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133013.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:FFC04FF1F18FDE03B91342D54C47E8F4276F2F1A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133017.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Baldur's Gate: Dark Alliance [GameCube] [English] [NTSC] (2002)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133019.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Background Eraser (InShot Inc.) v2.194.57 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133020.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:6F015ACAA05194143D7A1B0F4936BC84CCF16D18
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133039.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Ventusky: Прогноз погоды v30.0 (b3000) Mod by Alex.Strannik [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133048.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:84A6452A6E7176987B71C7AB0EE68DC37C78348C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133049.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ PhotoScape 3.6.3 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133053.jpg" />
 </div>
 
 

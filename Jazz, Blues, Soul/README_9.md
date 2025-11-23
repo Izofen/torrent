@@ -6,7 +6,7 @@ Texas Hill - Soldiers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33142.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sam Coulson - Gold Watch Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33143.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stacy Mitchhart - Midnight Breeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33144.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lions In The Street - Moving Along (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33145.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Catfish John Tisdell - No Slowing Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33146.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rockabilly Steve and Br3 - Lonely Thursday Night (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33238.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nabil Najem - Blues Women (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33239.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Richie Arndt - Tennessee & Alabama - Songs Along the Road #2 (2024) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33240.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Randy Lee Riviere - Concrete Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33241.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Paweł Szymanski - Good Morning Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33242.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Russell Ballantine - Delta Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33243.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Moonset - Dim the Lights and Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33244.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mississippi MacDonald - I Got What You Need (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33245.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mojo Minefield - Watch Your Step! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33246.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mitch Woods - Happy Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33247.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mike Hammar and the Nails - Raised in The Dirt (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33248.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Free - 12 Albums, 3 Box Set (1968 - 2018) 42 CD [FLAC|Lossless|image + .cue|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33428.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - The Best Of Summer 2024 Broken Beat Nu Disco (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33458.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jimmy Carpenter - Just Got Started (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33678.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Merry Swingmas (Electro Swing Christmas) (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33750.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Funk & Soul For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33759.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dakota Staton - Five Classic Albums (1957 - 1959) 2CD, 2017, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33764.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ulrich Ellison - Momentum (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33978.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sexual Music Collection, Jazz Music Lovers Club - Provocative Jazz (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34413.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Jimmy Bruno Group - Midnight Blue (2001) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34588.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Tal Farlow - This Is Tal Farlow (1958) 1997, Verve Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34593.jpg" />
 </div>
 
 

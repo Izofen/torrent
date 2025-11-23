@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131502.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E298310F11E9285A3411A8069AA9FDE3C2B3C22
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131505.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FleshTorture - The Stench Of Humanity (2011) [MP3|320 кб/с]<Brutal Death Grin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131524.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:AD025EBCFB64DFF5990269249759512A4CCF9D4E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131532.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:C50077569E6A72F20BE673B5C2E5A18F12BE9B6C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131544.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Radioactive Man - Waits and Measures (2012) [MP3|320 kbps] < Electronic, Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131545.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Adobe Illustrator 2024 28.1.0.141 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131563.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ V-Ray 6.20.00 for 3ds Max 2019-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131575.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131585.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:E7DDA0CAE36380F817135C5CF0C7C4A3B962ECE6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131594.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:1E54E16D01AEB49DE5DDB077D835433DEAF188FF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131598.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4AE8CFD7DBF87A96E4918067ED4D59007B61BF56
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131608.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:93E2D3936D81CCC12BA9778990E47B6E7423D173
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131611.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Blender 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131614.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Advanced SystemCare Pro 17.1.0.157 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131618.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Lonestar - This Christmas Time (2000) [FLAC|Lossless]<Pop, Christmas>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131623.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Amenta - V01D (2011) [MP3|320 кб/с]<Industrial Experimental Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131629.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Windows 11 Manager 1.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131631.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:57A9D19305307DB6C3F3B7AA01A576082226E00C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131634.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Total Commander 11.02 (05.12.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131644.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:988053730645BC4C0238184EEC5C787B60B73AB8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131655.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Supermium 119.0.6045.192 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131656.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:2D25698941515B976C873E6AD749DF028C6374B4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131657.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:6A63B48CDD7EABE8609CA75FE0EAA2C4D9AF9FB7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131659.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:DFD3A257A0A7A008651FDD03C95B5BED17644F23
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131661.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ magnet:?xt=urn:btih:76A8D1BBCC37453AFBC38C13B25CD2CA18A758CE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131673.jpg" />
 </div>
 
 

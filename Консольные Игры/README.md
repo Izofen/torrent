@@ -6,7 +6,7 @@ Hollow Knight: Silksong (2025) [Switch] [USA] 20.1.5, Atmosphere 1.9.4 [License]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_876.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hollow Knight (2018) [Switch] [USA] 20.1.5 [NSZ] [License / DLC / 1.4.3.2b] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3688.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pentiment (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5159.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Storyteller (2023) [Switch] [EUR] 16.0.3, Atmosphere 1.5.4 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5166.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ World of Goo 2 (2024) [Switch] [EUR] 18.0.1, Atmosphere 1.7.1 [License] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5186.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Have A Nice Death (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.5.1 [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5190.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Stray (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5196.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Switch] [EUR] 18.0.1, Atmo
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5204.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dredge: Complete Edition (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5211.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Outer Wilds: Archaeologist Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5232.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Super Bomberman R 2 (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5342.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Animal Well (2024) [Switch] [EUR] 19.0.1, Atmosphere 1.9.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5513.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sea of Stars (2023) [Switch] [EUR] 19.0.1, Atmosphere 1.9.0 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5514.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmos
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5515.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Shin Megami Tensei V: Vengeance (2024) [Switch] [USA] 18.1.0, Atmosphere 1.7.1 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5517.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dave The Diver: Anniversary Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5526.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Switch] [EUR] 18.1.0, A
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5560.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Cocoon (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5561.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Prince of Persia The Lost Crown (2024) [Switch] [EUR] 17.0.1, Atmosphere 1.6.2 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5578.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ xemu 0.8.106 Portable [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8566.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Persona 3 Reload - Digital Premium Edition (2024) [PS4] (1.07 / DLC) License [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15297.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Worms: The Revolution Collection (2012) [PS3] [USA] 4,50 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25244.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25244.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Mass Effect 3 (2012) [PS3] [EUR] 4.01 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25303.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25303.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Far Cry Compilation (2014) [PS3] [USA] 4.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25427.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25427.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Asura's Wrath (2012) [PS3] [EUR] 3.73 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26238.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26238.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ The Simpsons Game (2007) [PS3] [USA] 1.93 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26298.jpg" />
 </div>
 
 

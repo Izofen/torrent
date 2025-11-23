@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67854.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CB76770FF9916429FAAC649FF9102DD389A22660
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67855.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ BABY Audio - Smooth Operator Pro 1.0 VST, VST 3, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67856.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Paul van Dyk - This World Is Ours (2025) [FLAC|Lossless|WEB-DL|tracks] <Tranceco
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67857.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - 12.04, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67858.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:336C80F02F397D15018AEFE8F145386359BE753A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67859.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:96BEA7F940F470CE18598BD90E1CF7DBE1808512
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67860.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:96B85D5626CE68FAFC7361F981ED13C126DFF2D5
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67861.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:A085717A4E87041A2DB83BF3AEE61A73D6696E8D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67862.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:800A3BA5857D4141E76C0F8A49D6205E6953C86E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67863.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:F42939B4AD6D62985FBDE50012478274EF1DFBC6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67864.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67865.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ LANDR - Synth X 1.0.38 VSTi 3 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67866.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Smith/Kotzen - Black Light / White Noise (2025) SHM-CD, Japanese Edition [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67867.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jeff Rymes - Zodiac Shuffle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67868.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Within Destruction - Animetal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67869.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67870.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67871.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:CD3486B0C6B70189612D8EFD29F034675E2E81A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67872.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:730D03DB5FEDDA5811ABF5AA2DFBE9358591742F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67873.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Fractal Age - Energy & Entropy (2025) [FLAC|Lossless|WEB-DL|tracks] <Futurepop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67874.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67875.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Metal Bots - Soulful Strains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67876.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Tobacco Road Blues band - Lis & Skull (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67877.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6FC935923E83C941D353FA38652BD17F9BC8D04A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67878.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kid Ramos - Strange Things Happening (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67879.jpg" />
 </div>
 
 

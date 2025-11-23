@@ -1,3 +1,153 @@
+###  Публикация: 1835129   (250561) от 05.11.2025
+
+3D print - Bee Figures - Akame - Akame Ga kill [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фан-арт - Akame - Akami Ga Kill
+Full: масштаб 1:10
+Stls - 180 мм и 90 мм
+Тестовая печать была выполнена и работает правильно.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7EBC39906D9BB8F77784708537CAF8F1299FAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835147   (250562) от 05.11.2025
+
+Текстуры - Creative Market - Plastic Wrap Overlay Textures - 291194318 [PNG, FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя потрясающую коллекцию текстур прозрачной пластиковой плёнки. Выведите свои визуальные эффекты на новый уровень, органично интегрируя эти наложения и превращая обычные дизайны в выдающиеся шедевры.Формат: PNG, FIGРазрешение файлов: 4000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126A43532C9A926DFFF09ACFA07A3608C6F75515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835139   (250563) от 05.11.2025
+
+Оверлеи - Envato - Blue Light Circles Overlays - TYBQANP [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оверлеи из 15 кругов синего света.Формат: JPGРазрешение файлов: 5000x3333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B25D3E66525BE3BFDE726CA4A1F5C559E7CF1E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835140   (250569) от 05.11.2025
+
+3D print - Bee Figures - Naruto - Naruto Classic [STL, 3MF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фан-арт - Наруто - Naruto Classic
+Полная версия: масштаб 1:10 - разделенный
+Тестовая печать была выполнена и работает правильно.Формат: STL, 3MF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07566D2B30891EA218545275375202773C5CEC4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835083   (250583) от 05.11.2025
+
+Шрифты - Behance - Bubble Font - Organetto Font - 217128681 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Organetto - это шрифт, вдохновлённый надписями на плакатах в стиле ар-деко, дизайн которого воплощает новейшие технологии цифровых шрифтов. Этот универсальный шрифт имеет несколько вариантов ширины, что делает его идеальным решением для любых дизайнерских задач.
+Помимо функционального геометрического стиля и различных вариантов ширины, Organetto также включает альтернативные (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F3073C4E8333EB7C71EE1C220A0FD19A32AACF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835067   (250610) от 
+
+Сборники - Creative Market - Watercolor Autumn & Winter Bundle - 959235 [PNG, JPG, AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти уникальные элементы осенне-зимней тематики нарисованы от руки и имеют красивую акварельную текстуру. Эти дизайны идеально подойдут для поздравительных открыток, наклеек, печатных материалов и многого другого!Формат: PNG, JPG, AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A44AC044192CFFA0CCDE790429F39B3F77F78B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835063   (250612) от 
 
 Векторный клипарт - Creative Market - Autumn vector set - 1772973 [EPS, AI]
@@ -6,7 +156,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250612.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250612.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ magnet:?xt=urn:btih:1A2DB1FA7C1C623CE892F34226677DF5CE1E53BE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250613.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250613.jpg" />
 </div>
 
 
@@ -54,7 +204,7 @@ Digital Juice - AnimationBoxx - Volume 1 to 22 [MP4]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250634.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250634.jpg" />
 </div>
 
 
@@ -78,7 +228,7 @@ magnet:?xt=urn:btih:9CA6DA72DB37604B3F2E0A41B1D7B573C46B4076
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250641.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250641.jpg" />
 </div>
 
 
@@ -103,7 +253,7 @@ magnet:?xt=urn:btih:5313021AD5DAA1215D546A011109965AFC781668
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250724.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250724.jpg" />
 </div>
 
 
@@ -127,7 +277,7 @@ magnet:?xt=urn:btih:DC24F9D997734FAC8A063B96C39B74A9B272319F
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250743.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250743.jpg" />
 </div>
 
 
@@ -151,7 +301,7 @@ magnet:?xt=urn:btih:48E78A84918A0092B54275F0E0CFDABF1676155E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250745.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250745.jpg" />
 </div>
 
 
@@ -175,7 +325,7 @@ magnet:?xt=urn:btih:2F5AD7A2F959D56DEEBE71322D9C882E86165582
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250791.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250791.jpg" />
 </div>
 
 
@@ -199,7 +349,7 @@ magnet:?xt=urn:btih:7A1C2938D36F87D129E751A360052B6E96FAC6C4
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250801.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250801.jpg" />
 </div>
 
 
@@ -223,7 +373,7 @@ magnet:?xt=urn:btih:F3B6DD068460A5C8EC02447524634D755CD3D92C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250823.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250823.jpg" />
 </div>
 
 
@@ -247,7 +397,7 @@ magnet:?xt=urn:btih:13194AFA9A88077281492977D8C032E6DADB778C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250836.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250836.jpg" />
 </div>
 
 
@@ -271,7 +421,7 @@ magnet:?xt=urn:btih:91C611D2C7E619FE46B12C6A24224D3AD8925E85
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250902.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250902.jpg" />
 </div>
 
 
@@ -295,7 +445,7 @@ magnet:?xt=urn:btih:D8679DFF5744A7C81440FA9AA93BBD5DF084AC38
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250911.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250911.jpg" />
 </div>
 
 
@@ -321,7 +471,7 @@ magnet:?xt=urn:btih:1C8A42F5FC92AC1D2D9B374211B7222F4763F9E0
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250968.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250968.jpg" />
 </div>
 
 
@@ -345,7 +495,7 @@ magnet:?xt=urn:btih:DD1DFAC2057706C5D573ED3E50E51ADE5380A7A2
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250975.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250975.jpg" />
 </div>
 
 
@@ -369,7 +519,7 @@ magnet:?xt=urn:btih:C7CF16BF67266ECD510E17866E0818DEF498275C
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250996.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250996.jpg" />
 </div>
 
 
@@ -393,7 +543,7 @@ magnet:?xt=urn:btih:0240B31A11D29412CB6966497D3AF1BE7C4E2C29
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251004.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251004.jpg" />
 </div>
 
 
@@ -420,7 +570,7 @@ magnet:?xt=urn:btih:C46B2DC7ACCA4D5B215E5F8290CF49F28DC9AE2A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251259.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251259.jpg" />
 </div>
 
 
@@ -444,7 +594,7 @@ magnet:?xt=urn:btih:3EB74F529AF6FA51C3DF098367F4238632A9FBF0
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251268.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251268.jpg" />
 </div>
 
 
@@ -471,7 +621,7 @@ magnet:?xt=urn:btih:758F1E1106D80870F2F76C77B75A4B329CF6B095
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251679.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251679.jpg" />
 </div>
 
 
@@ -482,153 +632,6 @@ magnet:?xt=urn:btih:758F1E1106D80870F2F76C77B75A4B329CF6B095
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70899BDC22147CF8E2B1D920C561FBF2F15313A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835710   (251682) от 07.11.2025
-
-3D print - Cults3D - B3DSERK - Guy Gardner Sculpture [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251682.jpg" />
-</div>
-
-
-###  Подробнее
-
-B3DSERK с гордостью представляет скульптуру Гая Гарднера.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B5C4F8CF02AD0B0F2E84D5BA7C76154E5EB52CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835674   (251697) от 07.11.2025
-
-Футажи - Artlist - Animated Blooming - 6003458 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои проекты с помощью Artlist - Animated Blooming, потрясающей коллекции анимированных футажей, посвященных цветению и флористике. Этот набор представляет собой элегантную подборку анимированных цветочных элементов, узоров, переходов и фонов, идеально подходящих для добавления нотки весенней свежести и утонченной красоты в ваши видео.Формат: MOVРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E42994F6FA2224D33491F536A912B53C6A5BAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835671   (251699) от 07.11.2025
-
-3D print - Cults3D - B3DSERK - Darkseid Sculpture [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251699.jpg" />
-</div>
-
-
-###  Подробнее
-
-B3DSERK с гордостью представляет скульптуру Дарксайда.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17B3C9A5D2148B9A3F4EFC3290C800C4B0AF48B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835745   (251731) от 07.11.2025
-
-Шаблоны - Creative Market - Ongaku - Ultimate CD Mockup Template - 3952821 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выведите оформление вашего альбома на совершенно новый уровень с нашим самым подробным шаблоном. От полностью редактируемых оттенков прозрачного пластика, эффектов трафаретной печати и матового пластика до оттенка внутреннего диска — ни один другой шаблон CD не предоставит вам столько возможностей и такой творческой гибкости.
-
-Высокое разрешение 3000 x 3000 пикселей, (   Читать дальше...   )Разрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5BCBD77ED666109FD0741AEBA6F19DF9CC0A69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835961   (251753) от 08.11.2025
-
-Звуковые библиотеки - Triune Digital - Western Film SFX [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Western Film SFX - 796 сведенных и отмастеренных высококачественных звуков, готовых к использованию в ваших проектах: звуки выстрелов из настоящего оружия (револьверы Peacemaker и двустволки Stagecoach). Все звуки обработаны в 4 разных стилях, каждый из которых идеально подойдет для вашего проекта!
-Здесь также вы найдете "тонны" звуков, включая вращение (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52B2AC04809B38A2C958694693ACE9A524AF0A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835958   (251754) от 08.11.2025
-
-Растровый клипарт - Pixelbuddha - Essential Collage Pack - 5100 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любопытное сочетание винтажных диковинок и вневременной ботаники — набор Essential Collage Pack объединяет более 70 PNG-элементов, созданных из старых вырезок из фотографий и произведений искусства, находящихся в общественном достоянии. Фигуры людей, морские существа, музейные скульптуры, засушенные цветы, этюды бабочек и гравюры с фруктами — всё это соседствует, (   Читать дальше...   )Формат: PNGРазрешение файлов: 1298x553 - 3000x5808
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CC117241539FBAD60C1203DB49F8246B06E0EB
 ```
 
 

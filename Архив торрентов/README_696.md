@@ -1,3 +1,75 @@
+###  Публикация: 1348098   (146479) от 26.12.2019
+
+Cisdem Document Reader 4 v4.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem DocumentReader позволяет читать, печатать, сохранять файлы: WPD, WPS, XPS, Visio PDF на Вашем Mac. Приложение позволяет Вам использовать различные стили просмотра с помощью панели инструментов, состоящий из режимов просмотра, панели поиска, навигации по страницам, масштабирования, поворота, а так же функций: сохранить, копировать и т.д. Вы можете персонализировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B571109F3F424BF35352408B371A12D8D8DD64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087488   (146481) от 27.12.2016
+
+MKVToolNix 9.7.0 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146481.jpg" />
+</div>
+
+
+###  Подробнее
+
+MKVToolnix - функциональный набор инструментов для работы с видеофайлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Всё очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в себе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058AC7B7D82939DA39CBBC9783E6DE45C887C118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678214   (146488) от 20.11.2023
+
+Сборник | Книги-компиляции от издательства «Витовт». Часть 1 [500 книг] (2019-2023) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник больших книг от интернет-издательства «Витовт» - настоящая библиотека на вашем жестком диске. Благодаря ей у вас не будет возникать вопрос - а что бы почитать? В сборнике каждый найдет для себя что-то интересное, ведь в нем представлены все жанры, а каждая книга может включать в себя до нескольких десятков произведений. Книги от «Витовт» отличаются высоким (   Читать дальше...   )Жанр: фантастика, приключения, историческая прозаИздательство: ВитовтФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31744223535AD9BB6369DB15B702B04FBC689A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590021   (146493) от 16.12.2012
 
 HQ Wallpapers for a desktop (14.12.12) [Wallpapers]
@@ -6,7 +78,7 @@ HQ Wallpapers for a desktop (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146493.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ New year wallpapers 2013 (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146500.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Arty - Together We Are 025 (13.12.2012) [MP3|320 кб/с]<Trance, Progressive Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146506.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ HQ Wallpapers Perfect Women (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146517.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ magnet:?xt=urn:btih:30C31DB9B52232FA4F1BFC969753EAC1BAB85FBE
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146522.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Nature Wallpapers (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146529.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ Winter Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146538.jpg" />
 </div>
 
 
@@ -183,7 +255,7 @@ Ashampoo WinOptimizer 12.00.40 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146540.jpg" />
 </div>
 
 
@@ -207,7 +279,7 @@ Ableton - Live Suite 11.0.12 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146541.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ magnet:?xt=urn:btih:3F9795E4BA180333D903B69F609568D0A05E8907
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146552.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ Yamb 2.1.0.0 Beta 2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146556.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ Bandicam 7.0.1.2132 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146557.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ Hetman Partition Recovery 2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146561.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ Duplicate File Detective 7.1.70 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146574.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ magnet:?xt=urn:btih:3FE58E20FE7F6F88EBB689EB5F3855D3421BA93F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146575.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ magnet:?xt=urn:btih:674381B19E496EC413D49B96DC982FA35EF234C2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146578.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ Windows Update MiniTool 26.12.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146581.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ Jon Opstad - Black Mirror / Чёрное зеркало: White Bear (Original Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146592.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ magnet:?xt=urn:btih:BE66B6AC514D2DEFCF346FD926AC58659940109B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146607.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ Desktop Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146612.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ Magnet - Snap windows into various sizes and positions 1.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146615.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ Truecaller BETA: определитель номера и запись звон�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146622.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ Wallpapers Sexy Girls (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146627.jpg" />
 </div>
 
 
@@ -559,78 +631,6 @@ Wallpapers Sexy Girls (14.12.12) [Wallpapers 16+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:889F87388872292B0832D221C507864D10FB0E25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087406   (146637) от 27.12.2016
-
-akaEasyMoney 1.0.8 Portable [Multi/Ru] (Авторская раздача)
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146637.jpg" />
-</div>
-
-
-###  Подробнее
-
-akaEasyMoney - программа для учета личных финансов (и не только)Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64394483043AC911305A789BB5247A953EA2885
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678213   (146638) от 20.11.2023
-
-Сборник | Книги-компиляции от издательства «Витовт». Часть 2 [500 книг] (2020-2023) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть глобальной электронной библиотеки от интернет-издательства «Витовт» - это еще 500 омнибусов большого объема, которые не позволят вам остаться без любимых книг.Жанр: фантастика, приключения, историческая прозаИздательство: ВитовтФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE5EF1A81F8FF54988015AC506620071F911F68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590060   (146654) от 16.12.2012
-
-Gilrs Wallpaper Collection (15.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814A584821118F7F8BCF28D9184ECE9574F56FDC
 ```
 
 

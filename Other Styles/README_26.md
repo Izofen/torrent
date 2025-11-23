@@ -1,3 +1,117 @@
+###  Публикация: 586391   (228439) от 08.12.2012
+
+Дидюля - Орнаментальный (2012) [MP3|320 кб/с]<Instrumental, Flamenco, World>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Греческая (03:23)
+02. Сербская (02:35)
+03. Арабское танго (03:33)
+04. Алегрия в танце (03:36)
+05. Шапито (03:46)
+06. Игрушечный злодей 03:32
+07. Линия огня (04:06)
+08. Базара нет (04:23)
+09. Вольный ветер (04:05)
+10. Охота на волка (03:18)(   Читать дальше...   )Жанр: Instrumental, Flamenco, WorldПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B4B81DA19A00FDAB8ACA8E7643D3F89A3A6542
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341804   (228730) от 29.11.2019
+
+White String Orchestra - Traumhafte Balladen im modernen Streichersound - Vol.3 (1997) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe I Can Fly (4:18)
+02. Lonely (3:51)
+03. Time To Say Goodbye (4:05)
+04. When I Die (4:34)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DE4D18573BEC545054E8B6888B149057DAA0F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341800   (228780) от 29.11.2019
+
+White String Orchestra - Aktuelle Hits im modernen Streichersound Vol. 2 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me Softly (4:14)
+02. I Cant Help Myself (3:17)
+03. Where Do You Go (4:17)
+04. My Love (4:06)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, CoverПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2E3A66FA537C9433430E07B0658444A54EAADC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424269   (228782) от 16.11.2020
+
+VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas (2011 Remaster) 4:18
+02. Brenda Lee - Rockin' Around The Christmas Tree (Single Version) 2:05
+03. Justin Bieber - Mistletoe 3:02
+04. Katy Perry - Cozy Little Christmas 3:01(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6963576D16E96152F62B6923FE3D40A8FD03377
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512622   (229245) от 26.11.2021
 
 Звонкий Янтарь - Коллекция (2019) 2альбома [MP3|320 Kbps] <Ethnic, Folk, Electronic>
@@ -6,7 +120,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229245.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229245.jpg" />
 </div>
 
 
@@ -32,7 +146,7 @@ Dolly Parton - Dumplin' (2018) Original Motion Picture Soundtrack [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229679.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229679.jpg" />
 </div>
 
 
@@ -59,7 +173,7 @@ OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229768.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229768.jpg" />
 </div>
 
 
@@ -86,7 +200,7 @@ Fausto Papetti - Isn't it Saxy? (1988) 2CD [FLAC|image + .cue]<Jazz, Easy Listen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_229967.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_229967.jpg" />
 </div>
 
 
@@ -113,7 +227,7 @@ Kirtan Raga - Longing (2016) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230094.jpg" />
 </div>
 
 
@@ -140,7 +254,7 @@ Mike Oldfield - Tubular Bells III (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230963.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230963.jpg" />
 </div>
 
 
@@ -167,7 +281,7 @@ magnet:?xt=urn:btih:1479B478154E2DE38B3069975A5091C8266A98D5
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231026.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231026.jpg" />
 </div>
 
 
@@ -194,7 +308,7 @@ Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231073.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231073.jpg" />
 </div>
 
 
@@ -221,7 +335,7 @@ Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231510.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231510.jpg" />
 </div>
 
 
@@ -248,7 +362,7 @@ magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232236.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232236.jpg" />
 </div>
 
 
@@ -275,7 +389,7 @@ Vangelis - Blade Runner Trilogy, 25th Anniversary (2007) [FLAC|Lossless]<Soundtr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233649.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233649.jpg" />
 </div>
 
 
@@ -302,7 +416,7 @@ J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233688.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233688.jpg" />
 </div>
 
 
@@ -329,7 +443,7 @@ VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233762.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233762.jpg" />
 </div>
 
 
@@ -356,7 +470,7 @@ Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossov
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234118.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234118.jpg" />
 </div>
 
 
@@ -383,7 +497,7 @@ Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234170.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234170.jpg" />
 </div>
 
 
@@ -410,7 +524,7 @@ Dropkick Murphys - Turn Up That Dial (2021) Expanded Version [FLAC 2.0|96/44.1/2
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234871.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234871.jpg" />
 </div>
 
 
@@ -437,7 +551,7 @@ Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional M
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235120.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235120.jpg" />
 </div>
 
 
@@ -464,7 +578,7 @@ Vitaly Kis (Виталий Кись) - Chromatic Dreams (2007) [MP3|320 Kbps] <I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235780.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235780.jpg" />
 </div>
 
 
@@ -491,7 +605,7 @@ Dr. Jeffrey Thompson - Creative Mind System 2.0 (2004) [FLAC|Lossless|tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235970.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235970.jpg" />
 </div>
 
 
@@ -516,7 +630,7 @@ VA - Stranger Things: Season 4 (2022) Soundtrack from the Netflix Series [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236886.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236886.jpg" />
 </div>
 
 
@@ -543,7 +657,7 @@ VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossle
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236915.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236915.jpg" />
 </div>
 
 
@@ -570,7 +684,7 @@ ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237108.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237108.jpg" />
 </div>
 
 
@@ -584,114 +698,6 @@ ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639005   (238475) от 12.06.2023
-
-Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive Rock, Neo-Classical, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saattue [00:11:09]
-02. Kesävihanta [00:04:51]
-03. Valkama [00:07:20]
-04. Rintamaan [00:03:34](   Читать дальше...   )Жанр: Nordic Folk, Progressive Rock, Neo-Classical, NeofolkПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627910   (238916) от 23.04.2023
-
-Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native American, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andino [04:24]
-02. Cultivos [05:16]
-03. La Furia y el Condor [06:15]
-04. Pio Pio [04:38](   Читать дальше...   )Жанр: Native American, WorldПродолжительность: 01:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BDF5F38F33D43E4967CA5C37EFE6D66F5D87CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634611   (239253) от 26.04.2022
-
-Мужской хор ИПК Валаам - Распевы Валаамского монастыря. Часть 2 (2002) [MP3|320 кб/с]<Церковные песнопения>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свете тихий
-02. Преобразуя Воскресение Твое Христе Боже
-03. Хвалите имя Господне
-04. Уст Твоих(   Читать дальше...   )Жанр: Церковные песнопенияПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5FD8349106D24D05B539BCF7BF5454946ABBE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640315   (239264) от 26.04.2022
-
-Мужской хор ИПК Валаам - Распевы Кирилло-Белозерского монастыря (1995) [FLAC|Lossless]<Церковные песнопения>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блажен муж
-02. Свете тихий
-03. Преподобне отче наш Кирилле
-04. Ныне отпущаеши(   Читать дальше...   )Жанр: Церковные песнопенияПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87194FB1425837043BD46B2794AEE7DA6BD2146B
 ```
 
 

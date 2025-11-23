@@ -1,3 +1,183 @@
+###  Публикация: 1518565   (154290) от 20.12.2021
+
+VA - Fireplace Chill - Winter Edition (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menace & Lord - While the Record Plays (Original Mix) (2:50)
+02. Sebastian Bach - Wandering (Original Version) (5:01)
+03. Chambre 37 - A Warm Breeze (Original Mix) (5:49)
+04. Jens Buchert - Raumhafen (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAE3F446FA0B7C7CCB22F432CDB15DB271328AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676888   (154291) от 15.11.2023
+
+Это мой парк / The Park Is Mine (1985) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевик, основанный на одноимённом романе Стивена Питерса... Митч Гарнетт, ветеран вьетнамской войны, не может найти нормальную работу и вынужден терпеть пренебрежение окружающих. Его друг, такой же ветеран, кончает жизнь самоубийством, спрыгнув с крыши городской больницы. В оставленном письме он сообщает Митчу о плане захвата центрального парка перед Днём ветеранов, (   Читать дальше...   )Производство: Канада, HBO Premiere Films, International Cinema, Ramble Film ProductionsЖанр: драма, боевик, триллерРежиссер: Стивен Хиллиард ШтернАктеры: Томми Ли Джонс, Хелен Шейвер, Яфет Котто, Лоуренс Дэйн, Питер Дворски, Эрик Петерсон, Гейл Гарнетт, Дэнис Симпсон, Рег Дрегер, Луис Ди БьянкоПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0873516D7294C526C1C6CF6C441EC1179C5CF7AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600971   (154292) от 29.12.2022
+
+PJ O'Brien - High Cost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Cost of Living (4:14)
+02. Cash (3:36)
+03. Queen of Broken Hearts (4:54)
+04. Silence Is Golden (6:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6DC3A8C41432C38E8C25A830F10CDF7B08DA90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270896   (154293) от 21.12.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (203) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D74594F1234C6D19D0F7E442272CC839604260
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600964   (154294) от 29.12.2022
+
+Andre Camilleri - Layin' Low (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing but the Blues (3:08)
+02. Laying Low (3:16)
+03. Another Cookie from the Cookie Jar (3:12)
+04. All the Cool Kids Are Gonna Be Losers (2:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D13EB34C3E833167BCAA9F8D73ECDDBC66E42C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518534   (154295) от 20.12.2021
+
+SolarFlow - Specter (2020) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SolarFlow, Veela - I Belive in Love (Original Mix) (5:46)
+02. Take It All the Way (Original Mix) (6:00)
+03. Behind a Mirror (Original Mix) (4:16)
+04. Sadness of Rain (Original Mix) (6:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8023F0ADCAF144A7CC2DA45E073D6D3D278D4493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194693   (154296) от 26.12.2017
+
+Журнал | Приусадебное хозяйство №12 [+ Приложения] (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C97CEFE55FE65E75AB0D8B7FE7AE9CEA85C5138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270845   (154297) от 21.12.2018
 
 Нора Робертс | Ева Даллас (Книга 45). Семья на заказ (2018) [MP3, Михаил Росляков]
@@ -6,7 +186,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154297.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:CB848E787B4578523C71FC2BC0C4740D4306486D
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154298.jpg" />
 </div>
 
 
@@ -54,7 +234,7 @@ magnet:?xt=urn:btih:1B580E73E2A432A847C6075055EEF4B14F547480
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154299.jpg" />
 </div>
 
 
@@ -79,7 +259,7 @@ Ocean of Grief - 3 Albums, 2 Singles (2016-2022) [MP3|320 Kbps] <Doom, Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154300.jpg" />
 </div>
 
 
@@ -106,7 +286,7 @@ magnet:?xt=urn:btih:D0CBB45B24004839DC64BFF5DE8F9BCBF8C9B9B6
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154301.jpg" />
 </div>
 
 
@@ -130,7 +310,7 @@ magnet:?xt=urn:btih:A4F31142064932E33397FAD32FAFEDBDD8E56B0C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154302.jpg" />
 </div>
 
 
@@ -154,7 +334,7 @@ magnet:?xt=urn:btih:659DF41DDD19DBB5F54F01CE7CCB0B6DA4C84998
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154303.jpg" />
 </div>
 
 
@@ -178,7 +358,7 @@ H.1, Hevi - Indigo Night (2021) [AAC|~310 Kbps] <Lounge, Chill Hop, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154304.jpg" />
 </div>
 
 
@@ -205,7 +385,7 @@ Warren Wolf - Christmas Vibes (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154305.jpg" />
 </div>
 
 
@@ -232,7 +412,7 @@ magnet:?xt=urn:btih:A48B3D68247672BDC14E3552F62F55A915AC2FC5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154306.jpg" />
 </div>
 
 
@@ -256,7 +436,7 @@ magnet:?xt=urn:btih:79301B61B3887C8C5991F14BB08F577B1AEFCDA4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154307.jpg" />
 </div>
 
 
@@ -281,7 +461,7 @@ Downie 4 v4.0 (beta) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154308.jpg" />
 </div>
 
 
@@ -307,7 +487,7 @@ magnet:?xt=urn:btih:014CF2C0E4F5A315782A67B72A05DEB6AA4DEB4E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154309.jpg" />
 </div>
 
 
@@ -331,7 +511,7 @@ magnet:?xt=urn:btih:42D57A92316AF8189CB9C6637EE3F0C347FE1C35
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154310.jpg" />
 </div>
 
 
@@ -356,7 +536,7 @@ magnet:?xt=urn:btih:340A22D032A0081640DB2D7D14FFF3B0DBE5BD94
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154311.jpg" />
 </div>
 
 
@@ -380,7 +560,7 @@ magnet:?xt=urn:btih:8FAF62462C2DD29D5AF48309462A8DD2131EE6AF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154312.jpg" />
 </div>
 
 
@@ -404,7 +584,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154313.jpg" />
 </div>
 
 
@@ -431,7 +611,7 @@ magnet:?xt=urn:btih:CF92942A261BC6F44B298D80980EAA73414E2A87
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154314.jpg" />
 </div>
 
 
@@ -456,7 +636,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154315.jpg" />
 </div>
 
 
@@ -470,181 +650,6 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D485F91EC26C3E58A313389B9BE5F58EC84CB4C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433851   (154316) от 22.12.2020
-
-Firefox Browser 84.0.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BFECB998BCCE394583FA2DE4E4C1FAD5E0D9BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270916   (154317) от 21.12.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 361 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154317.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0037E63243E4B2E4112BE1ECE28FA7492FDFE33A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194732   (154318) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 18) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вахтанг Кикабидзе  -  Мои года, моё богатство  3:11
-02.  Олег Даль  -  Дороги  4:08
-03.  Юрий Гуляев  -  Из-за острова  4:33
-04.  Галина Ненашева  -  Калинка  3:33(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E24E9C091E4A44266269D688C235F9C977A486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347278   (154319) от 22.12.2019
-
-Emerald Rain - 6 альбомов Discography (1997-2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1998 - Broken Saviours
-1999 - Age Of Innocence
-2000 - Live2KЖанр: Melodic Hard RockПродолжительность: 04:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E98E72CB55AEBA07DED69009BD3A1E6B0E999A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347222   (154320) от 22.12.2019
-
-Records 1.6.10 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Records - Личная база данных и визуальный органайзер
-Records восхитительный и простой в использовании органайзер для создания личной базы данных. Это идеальный компаньон для всего, что вы хотите, чтобы собрать и систематизировать в жизни, включая ваши любимые фильмы, предлагая отличный баланс между легкостью в использовании и мощными функциями. Records использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: Records TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CD0CEF4E9C0A796DBE815108B3898AF429A132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086020   (154321) от 23.12.2016
-
-Демон внутри / The Autopsy of Jane Doe (2016) AC3 5.1 [Solod]
-
->>Остальное
->>Звуковые дорожки и субтитры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой Джейн Доу без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: ВеликобританияЖанр: УжасыРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин, Келли Паркер, Сойерс Джейн, Перри Ив О’ХараПеревод: Одноголосый закадровыйПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F682F3D0600A04BA2CBFE2137F395070BD520D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433844   (154322) от 22.12.2020
-
-Джон Маррс | Пассажиры (2020) [MP3, Ирина Патракова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочный хакер взломал системы управления восьми самоуправляемых машин, с недавних пор ставших нормой для всех жителей Великобритании. Теперь он угрожает их пассажирам смертью. Среди его заложников – угасающая телезвезда; нелегальный иммигрант; молодая беременная женщина; муж и жена, едущие раздельно; ветеран военного конфликта; желающий покончить с собой мужчина; (   Читать дальше...   )Жанр: Детективная фантастикаПродолжительность: 13:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F80EAAF3573F2250D3AF55C4058322FA06CCD25
 ```
 
 

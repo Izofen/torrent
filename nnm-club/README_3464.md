@@ -1,3 +1,81 @@
+###  Публикация: 1722223   (109746) от 10.05.2024
+
+Six Feet Under - Killing for Revenge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks|Hi-Res tracks] <Death, Groove Metal, Death 'n' Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Know-Nothing Ingrate (00:02:22)
+02 - Accomplice to Evil Deeds (00:02:17)
+03 - Ascension (00:04:30)
+04 - When the Moon Goes Down in Blood (00:03:46)(   Читать дальше...   )Жанр: Death, Groove Metal, Death 'n' RollПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56CD0D78CF92954CED8C6B42187F467AEF3F413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722323   (109747) от 10.05.2024
+
+PhotoRoom 4.9.4 (b1368) Mod by CMAPTOC [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109747.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.04.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A5AA1E62819A88A834C66A1638DFE0C5F1BACB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722335   (109748) от 10.05.2024
+
+The Treatment - Wake Up The Neighbourhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Wake Up This Town
+02. Back To The 1970's
+03. When Thunder And Lightning Strikes
+04. This Fire Still Burns(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6384778E3152E5C4CFE350E70DCE0BCE47249A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722343   (109749) от 10.05.2024
 
 The Treatment - Wake Up The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +84,7 @@ The Treatment - Wake Up The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109749.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Jazztick - Super Jazztikong Country (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109750.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ VA - Acid Jazz Beats & Breaks Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109751.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:817FEAB98020F214DF0B54CB10159E00CADC0480
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109752.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ VA - Modern Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109753.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ VA - Smooth Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109754.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ VA - Global Rock Fusion (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109755.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ King Zebra - Between The Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109756.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ Bongfoot - Help! The Humans... (2024) [FLAC|Lossless|WEB-DL|tracks] <sludge meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109757.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ Shannon & The Clams - The Moon Is In The Wrong Place (2024) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109758.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ magnet:?xt=urn:btih:019A361893B75DEB8F6B0056D1FC22FC1E012FC1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109759.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ Rusted Roof - Rustless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109760.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ Meden Agan - My Name Is Katherine (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109761.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ The Bullseyes - Polish Sweethearts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109762.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ magnet:?xt=urn:btih:401C40D79F780F1CDC06BD34EDAC64064898ACAE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109763.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ VA - Amazing Soothing Groovy Light Jazz Romance Playlist (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109764.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ VA - Amazing Soothing Relaxing Lounge Romance Playlist (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109765.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ VA - Best Of Zara Taylor (2024) [MP3|320 Kbps] <Trance, Vocal Trance, Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109766.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ magnet:?xt=urn:btih:BBCCD3C76258FA755AD2EB5BFBEDFB86A96963D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109767.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ Soul Browser 1.4.18 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109768.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ magnet:?xt=urn:btih:AE4A929A5CB7910F374BE9A302FEBCE1B6BE4FED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109769.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ Soul Browser 1.4.18 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109770.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ magnet:?xt=urn:btih:BB0604B80E88C58722EDA2569CA58493FD54B6F8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109771.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ magnet:?xt=urn:btih:BB0604B80E88C58722EDA2569CA58493FD54B6F8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F5D180D60EA7416AC1313875018F7532FC3549
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722185   (109772) от 10.05.2024
-
-Laibach - Opus Dei (1987) Remastered, 2024, Mute [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leben Heißt Leben (Opus Dei) (5:30)
-02. Geburt einer Nation (One Vision) (4:18)
-03. Leben-Tod (3:56)
-04. F.I.A.T. (Let It Be) (5:10)(   Читать дальше...   )Жанр: Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347D50CF5FBE726846D6A218CC69EF8F2FF65F78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722090   (109773) от 10.05.2024
-
-RJ TextEd 16.20 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109773.jpg" />
-</div>
-
-
-###  Подробнее
-
-RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087BEEAFEE95D8C87C3E21F24F2C9F5EBAA44933
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722255   (109774) от 10.05.2024
-
-Hunter - Rock 'n' Roll V.I.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix Rising
-02. Rock 'n' Roll V.I.P.
-03. Hard To Survive
-04. Runaway Ramp(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BF7DCA2769B1799ED6D512AF03B65D4E1B180C
 ```
 
 

@@ -6,7 +6,7 @@ Auslogics BoostSpeed 14.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13951.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Auslogics SSD Optimizer 2.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13953.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 11 PRO 24H2 26100.4351 Update 16 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13969.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:103701EEC384F6E8C4F4507ED7DBFCBBB79BD470
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13976.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Photo Studio PRO v2.8.2.4355 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13993.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FBReader Premium v3.8.15 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14001.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Steinberg - Cubase Pro 14 14.0.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14003.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:CEAA19489976D62F8C00BFE75A03D73AB0D4DDC0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14004.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7CC974FDF66FC8D92AC318361501E6A7533EA4E8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14009.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14014.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ WPS Office + PDF v18.18.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14017.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ IObit Uninstaller Pro 14.4.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14023.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Total Commander 11.55 RC7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14034.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Topaz Gigapixel AI Pro 8.4.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14042.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ StartAllBack 3.9.11 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14047.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (20.06.2025) RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14066.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Activation Program 1.12 b05  Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14071.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Adobe Illustrator 2025 29.6.0.207 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14131.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Adobe After Effects 2025 25.3.0.71 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14139.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ NVIDIA GeForce Desktop Game Ready 576.80 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14142.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ v2rayN 7.12.7 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14156.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D28290F7FA145F3C8FA53C6865F6E260EEAD730E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14166.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Adobe Premiere Pro 2025 25.3.0.84 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14177.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ TuneIn Radio Pro v39.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14188.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Electrical Calculations Pro / Электрические расчеты v10.4.3.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14195.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:A5097220C6E32361917877BCAE4F0FD4ED7B5D59
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14219.jpg" />
 </div>
 
 

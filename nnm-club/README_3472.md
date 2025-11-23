@@ -1,3 +1,84 @@
+###  Публикация: 1721739   (109954) от 08.05.2024
+
+AWaJI Jazz Blues - Superstition (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstition (4:38)
+02. Mr. Cool (8:43)
+03. Jupiter (8:14)
+04. New York (Darkness) (7:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957CF877280955E82C02C89205B03CD3B8CDD45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721740   (109955) от 08.05.2024
+
+Bastardz Music Lab - Episode #64 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Small Man (2:53)
+02. Cognac Or Wine (2:38)
+03. A Warning Measure (2:31)
+04. A Petty Lie (2:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A56BB2D527C539ABD124A1676A4CAC32BD98A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721643   (109956) от 08.05.2024
+
+Jacky Terrasson & Stephane Belmondo - Mother (2016) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Song [3:16]
+02. Hand in Hand [4:42]
+03. Lover Man [4:52]
+04. La chanson d'Helene [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6BA49C12EDF967E29A0CA2D7EB979E15979D0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721636   (109957) от 08.05.2024
 
 Blazing Eternity - Times and Unknown Waters (2000) Released, 2001, Irond Ltd [FLAC|Lossless|image + .cue] <Melodic Black, Death, Doom Metal>
@@ -6,7 +87,7 @@ Blazing Eternity - Times and Unknown Waters (2000) Released, 2001, Irond Ltd [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109957.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Fretting Obscurity - Das Ungluckliche Bewusstsein (2024) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109958.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Bud Freeman - Newport News (1955) 2013, Solid Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109959.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Blaze of Perdition - The Harrowing of Hearts (2020) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109960.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Gene Harris - Live At Otter Crest (1981) 2001, Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109961.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Charles McPherson - Charles McPherson (1971) 2017, Solid Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109962.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Maddix Feat. Feles - My Gasoline (2023) [FLAC|Lossless|tracks] <Tech Trance, Pea
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109963.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ Deicide - Banished By Sin (2024) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109964.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ magnet:?xt=urn:btih:AC16B92D67FFEF5F2E2F59845403C434915E92E2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109965.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ magnet:?xt=urn:btih:4EA62B3FA773BAB7A821A779877B20AB1073AA78
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109966.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ Vhaldemar - Sanctuary of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109967.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ magnet:?xt=urn:btih:FC68EA324B573821CD7E8AC01569C597C0C9BC8A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109968.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ Marching Band - Is It Too Sharp? (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109969.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ Jen Ambrose - Plenty of Nothin' to Do (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109970.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ magnet:?xt=urn:btih:7F36A41F57D9FB52B93652447E43175DE8D68FCB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109971.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ JP Soars - Brick by Brick (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109972.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ The Veer Union - Life Support 1&2 (2013-2023) (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109973.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ magnet:?xt=urn:btih:E925384658383F7C05634035F9929E78DECA93D4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109974.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ Burning Sleeves - Turning the Light On (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109975.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ The Paddy Boy Zimmermann Band - The Paddy Boy Zimmermann Band (2024) [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109976.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ Onus Blues - My Lonely Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109977.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ Son Henry - Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109978.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ S.T.D. - Шум и грязь (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Punk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109979.jpg" />
 </div>
 
 
@@ -601,87 +682,6 @@ S.T.D. - Шум и грязь (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Punk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D403DA15C5B44DA5A965D2B94E9522EBB01C9A19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721617   (109980) от 08.05.2024
-
-Richard Dean - Billionaire Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diving Duck Blues (2:12)
-02. Billionaire Blues (2:28)
-03. Halfway There (3:07)
-04. Good Luck (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8B7D4E8A758B7E38CCDFEF91F44C94458C633D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721482   (109981) от 08.05.2024
-
-Bloodbound - The Tales of Nosferatu: Two Decades of Blood (2004-2024) (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bloodtale (00:01:30)
-02 - Tales from the North (00:04:31)
-03 - Slayer of Kings (00:05:13)
-04 - In the Name of Metal (00:04:25)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F501056DB53CD45BED6FBCF553DA830E8533194
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721752   (109982) от 08.05.2024
-
-Gary Cain - Outside The Lines (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Got The Blues (3:11)
-02. Resting On My Mind (3:14)
-03. Pretty (3:27)
-04. Ain't Giving Up (2:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD80D86AC31FB6F7BAA6E2D4305F5B4C2E1D910F
 ```
 
 

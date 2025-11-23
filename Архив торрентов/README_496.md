@@ -6,7 +6,7 @@ Soul Browser 1.4.16 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110436.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Auslogics BoostSpeed 13.0.0.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110438.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Telegram Desktop 5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110439.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ USB Device Tree Viewer 4.2.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110441.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ TikTok 34.5.4 Mod by Dmitry Nechiporenko + Plugin 1.35 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110443.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ OfficeSuite Pro + PDF 14.4.51682 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110445.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Moldiver | Молдайвер [1993, OVA, 6 эп.] DVDRip 480p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110475.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Opera GX 109.0.5097.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110498.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Vivaldi 6.7.3329.21 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110499.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Adobe InCopy 2024 19.4.0.63 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110500.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Firefox Browser 125.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110501.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110523.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ant Download Manager Pro 2.11.4 Build 87517 (x32) / Build 87518 (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110540.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A7AD0684233F6E7C36D4F8D2A80708A670489BAE
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110541.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Wondershare UniConverter 15.5.8.70 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110544.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Shotcut 24.04.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110550.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Opera One 109.0.5097.68 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110590.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:4C61EDF78B503306D811E89C680DAC02EC4999BD
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110592.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:42FF00BB1580D6CB9201D46E1F812C05B2081DF8
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110602.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Image Uploader 1.4.0 Build 5139 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110603.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:EB157ACC67F1D510A24C57283CEF5CC4082446EE
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110639.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Text Editor Pro 29.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110640.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ File & Image Uploader 8.4.2 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110642.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:582FC767C11F181F1240D18CB0E0CFE5E55D66DF
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110658.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Topaz Gigapixel AI 7.1.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110668.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Topaz Gigapixel AI 7.1.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110669.jpg" />
 </div>
 
 

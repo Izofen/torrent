@@ -6,7 +6,7 @@ IsMyLcdOK 5.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25865.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25865.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Folder Player Pro v5.31 b338 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25869.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25869.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 27.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25874.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25874.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ IsMyHdOK 4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25880.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25880.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ OCCT 13.1.15 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25881.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.60
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25886.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1E492E9E6E99C92FCBD957F9D93AF42E2B30002D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25888.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E2AEC26D45B0C596A0D2351C9D7363968264DCCE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25899.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Archicad 28.1.0 Build 4001 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25908.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25908.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ HandBrake 1.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25920.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25920.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Imagine 1.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25925.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PrivaZer Pro 4.0.100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25940.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Solid Explorer File Manager v2.8.59 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25943.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PicPick Free+Pro 7.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25945.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VidCoder 11.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25947.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25947.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Beyond Compare Pro 5.0.6.30713 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25952.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25952.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Artweaver Plus 8.0.3.2875 [De/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25956.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25956.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Apowersoft Video Download Capture 6.5.6.1 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25972.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25972.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ GPS Compass Navigator v2.20.28 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25975.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25975.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ NewPipe v0.27.6 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25979.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25979.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Far Manager 3.0.6446 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26004.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Ventoy 1.1.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26013.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ SketchUp Pro 2025 25.0.571 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26026.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Music Collection 3.8.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26028.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Shazam v15.11.0-250220 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26031.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Polarr v6.10.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26039.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26039.jpg" />
 </div>
 
 

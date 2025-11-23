@@ -1,3 +1,75 @@
+###  Публикация: 1085989   (154200) от 23.12.2016
+
+ePageCreator 5.9.9.3 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154200.jpg" />
+</div>
+
+
+###  Подробнее
+
+ePageCreator - программа для создания электронных публикаций с эффектом перелистывания страниц, которые можно просматривать на компьютерах под управлением операционных систем Windows и Macintosh, а также на мобильных устройствах IPad / iPhone и Android. Программа позволяет создавать публикации в форматах Flash, HTML5, EPUB, Mobi, в виде автономных исполняемых EXE-файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5F4C9557B1605F5569A1C963698DB8D64E5198
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433841   (154206) от 22.12.2020
+
+FreeCommander XE 2021 Build 840 public x32 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154206.jpg" />
+</div>
+
+
+###  Подробнее
+
+FreeCommander XE - это довольно-таки удобный в работе файловый менеджер, который поможет значительно упростить повседневную работу с компьютером. Эта программа легка в освоении и использовании, и послужит отличной альтернативой стандартному проводнику Windows и другим менеджерам файлов. Функционал инструмента разнообразен, что даст возможность управлять всеми процессами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7479EBDDF875A841F7B8B57A98A0B6D1F10BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518705   (154207) от 20.12.2021
+
+4K Video Downloader 4.19.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1680EAEF08A26F31023B5EFBE69CF815CA3B93F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676880   (154212) от 15.11.2023
 
 PDF-XChange Editor Plus 10.1.3.383 (x64) Portable by 7997 [Multi/Ru]
@@ -6,7 +78,7 @@ PDF-XChange Editor Plus 10.1.3.383 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154212.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Method Man - Meth Lab II: The Lithium (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154214.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ PicPick Free+Pro 7.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154222.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Task Office 6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154223.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Google Chrome 119.0.6045.160 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154229.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Microsoft .NET 8.0.0 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154236.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ HitPaw Watermark Remover 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154237.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:FF7CD7AA34C145EFDB506A5B59DBED202E721F8C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154240.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ Maxthon Browser 5.2.7.100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154247.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:5B820EAD3ABA7C209B4377028947761C00D5781D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154252.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ The Bat! Professional Edition 7.4.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154255.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Permute 3 v.3.9.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154258.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ TunesKit AceMovi Video Editor 4.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154259.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Olga Scheps - 100% Scooter – Piano Only (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154262.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154263.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ ColorSnapper 2 v1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154264.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ FreeCommander XE 2021 Build 840 donor x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154265.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ VisualDiffer 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154277.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ Pixelmator Pro 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154282.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ Flip PDF Professional 2.4.9.43 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154283.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ Topaz Video AI 4.0.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154286.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ AIMP 4.12 Build 1877 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154289.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ magnet:?xt=urn:btih:53048BBCA3AF984275CDBB1CB058DF19BFF79003
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154301.jpg" />
 </div>
 
 
@@ -560,81 +632,6 @@ magnet:?xt=urn:btih:53048BBCA3AF984275CDBB1CB058DF19BFF79003
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F31142064932E33397FAD32FAFEDBDD8E56B0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347335   (154308) от 22.12.2019
-
-Downie 4 v4.0 (beta) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014CF2C0E4F5A315782A67B72A05DEB6AA4DEB4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433851   (154316) от 22.12.2020
-
-Firefox Browser 84.0.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BFECB998BCCE394583FA2DE4E4C1FAD5E0D9BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347222   (154320) от 22.12.2019
-
-Records 1.6.10 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Records - Личная база данных и визуальный органайзер
-Records восхитительный и простой в использовании органайзер для создания личной базы данных. Это идеальный компаньон для всего, что вы хотите, чтобы собрать и систематизировать в жизни, включая ваши любимые фильмы, предлагая отличный баланс между легкостью в использовании и мощными функциями. Records использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: Records TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CD0CEF4E9C0A796DBE815108B3898AF429A132
 ```
 
 

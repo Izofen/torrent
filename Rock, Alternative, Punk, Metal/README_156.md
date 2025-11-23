@@ -6,7 +6,7 @@ Hellfueled - Memories in Black (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112787.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Necrosanct - Desolate (1993) Reissue, 2013, Abhorrent Productions [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112788.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Driving USA (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112793.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ ANTARCTIC - Культура, Часть 1 (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112794.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112800.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Oakfarm - Oakfarm (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112803.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bodyfarm - Malicious Ecstasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112810.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Clarion Void - Failure in Repetition (2024) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112811.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Necrosanct - Incarnate (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112812.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mindwork - Into The Swirl (2009) Reissue, 2013, Divebomb Records [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112813.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mindwork - Eterea (2012) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112814.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Necrosanct - Equal In Death (1990) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112815.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mindwork - Into The Swirl (2009) [FLAC|Lossless|image + .cue] <Progressive Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112816.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Stormhunter - Best Before: Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112826.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Innocence Lost - Oblivion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112833.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:A0F2240EF6809F58E1BFD662F9A077102CEFE1A3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112834.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Workout 2024 - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112839.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Therion - Leviathan III (Producers Edition) (2023) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112851.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aktarum - Trollvengers (2022) 2024 Reissue, Troll Studios  [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112858.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Aktarum - Game of Trolls (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112862.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Menhir - Buchonia (1998) EP Reissue, 2004, Perverted Taste [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112864.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Menhir - Die ewigen Steine (1997) Reissue, 2003, Perverted Taste [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112865.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Menhir - Ziuwari (2001) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112866.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Menhir - Thuringia (1999) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112867.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sleeping Well - Wisdom Of The Ages (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112883.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Holler - Reborn (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112885.jpg" />
 </div>
 
 

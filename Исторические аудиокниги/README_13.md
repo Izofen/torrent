@@ -1,3 +1,27 @@
+###  Публикация: 1632074   (240647) от 09.05.2023
+
+Симона Вилар | Светорада (Книга 1). Светорада Золотая (2023) [MP3, Наталья Беляева]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древняя Русь. IX век. Всякое рассказывали о смоленской княжне Светораде: и красива она, и коварна, и головы женихам любит морочить, а капризам и прихотям ее нет числа. И тем не менее именно к ней посватался молодой киевский князь Игорь. Несмотря на то что Олег Вещий привез ему из Пскова другую невесту – Ольгу. И Ольга готова на все, чтобы разлучить Игоря со Светорадой. (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 17:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1412BD71B2C947677B5C597747FD28918E164EF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625777   (241023) от 11.04.2023
 
 Конн Иггульден | Греческие войны (Книга 1). Врата Афин (2023) [MP3, Станислав Федорчук]
@@ -6,7 +30,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_241023.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_241023.jpg" />
 </div>
 
 
@@ -32,7 +56,7 @@ magnet:?xt=urn:btih:6166842EF83939ED234602656E920E56F1A92432
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241851.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241851.jpg" />
 </div>
 
 
@@ -57,7 +81,7 @@ magnet:?xt=urn:btih:0F9C80812FDB893377A2F8BED42E867EFFDE271E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242729.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242729.jpg" />
 </div>
 
 
@@ -81,7 +105,7 @@ magnet:?xt=urn:btih:3191D2FD9A6955D698FFFFEAADAAC29D3B489744
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244406.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244406.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ magnet:?xt=urn:btih:757CFC014D8813E74492677E95AB4321B4FF3D5A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244952.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244952.jpg" />
 </div>
 
 
@@ -129,7 +153,7 @@ magnet:?xt=urn:btih:406EED54B7DEC160CE649B36697155BF0929CB53
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245608.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245608.jpg" />
 </div>
 
 
@@ -155,7 +179,7 @@ magnet:?xt=urn:btih:F9B1F222A199858E6E9B5B34EA844CDB5FCB7B63
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245967.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245967.jpg" />
 </div>
 
 
@@ -179,7 +203,7 @@ magnet:?xt=urn:btih:0071EF5A8EF9E13AD83DF3C89F5CC9C226EC1A78
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247634.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247634.jpg" />
 </div>
 
 
@@ -204,7 +228,7 @@ magnet:?xt=urn:btih:ED4999580718D7E8FD66721CEABDC24B8815EE35
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249261.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249261.jpg" />
 </div>
 
 
@@ -231,7 +255,7 @@ magnet:?xt=urn:btih:09D90F0DDD708F90A3F61239070DB9D5CCE5C2AF
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250025.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250025.jpg" />
 </div>
 
 
@@ -255,7 +279,7 @@ magnet:?xt=urn:btih:EBF5BCB5AC58C7EC216D9E2BBBC07851AFBEFFEC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250276.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250276.jpg" />
 </div>
 
 
@@ -282,7 +306,7 @@ magnet:?xt=urn:btih:5283B47ED302648E2B4A05D580D29A177572A405
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252513.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252513.jpg" />
 </div>
 
 
@@ -294,6 +318,32 @@ magnet:?xt=urn:btih:5283B47ED302648E2B4A05D580D29A177572A405
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC723024A17B3E8D30FADAFA57A248F16D8C5A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838085   (258072) от 
+
+Оскар Егер | Всеобщая история стран и народов мира. Избранное (2024) [MP3, Константин Корольков, Владимир Капитонов.]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258072.jpg" />
+</div>
+
+
+###  Подробнее
+
+От возникновения первых государств до главнейших событий позапрошлого столетия – фундаментальный труд по мировой истории!
+Живая, вовлекающая подача материала гарантирует слушателям интереснейший рассказ о неоднозначном пути развития человечества.
+Выдающийся немецкий исследователь Оскар Егер в конце XIX века опубликовал фундаментальный труд по мировой истории, в котором (   Читать дальше...   )Жанр: История, Популярно об историиИздательство: АСТПродолжительность: 25:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BECA9DA4B865AAAF2ABE309ABC56F4C945CCDA4
 ```
 
 

@@ -6,7 +6,7 @@ Moon+ Reader Pro v9.9 (b909000) Mod by Lucky Las [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22372.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22372.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BikeComputer Pro v9.1.2 GP Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22373.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VRadio - Online Radio App v2.8.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22374.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22374.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.99 (0404) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22375.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22375.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Balabolka 2.15.0.892 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22376.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22376.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:109409DD3CE40C3AE7852A9F951DBFDF90E0CBF3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22377.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22377.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (0404) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22381.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Youtube Downloader HD 5.9.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22383.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22383.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ W10Privacy 5.2.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22384.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22384.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Any Video Downloader Pro 9.2.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22388.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22388.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ AdGuard Ad Blocker Premium Final [No-Root] v4.9.50 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22389.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22389.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:259794D87C1EFD8F0A4F360D5B105A6CFDEDD974
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22390.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22390.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Moon+ Reader Pro v9.9 (b909000) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22394.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22394.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Master PDF Editor 5.9.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22405.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22405.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Malwarebytes Windows Firewall Control 6.14.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22412.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ LazyMedia Deluxe v3.374 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22413.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (2903) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22427.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22427.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Internet Download Manager 6.42 Build 32 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22435.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Activation Program 1.09 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22454.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Wondershare PDFelement 11.4.12.3412 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22482.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22482.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ FanControl V219 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22496.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22496.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Calibre 8.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22498.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ FreeCommander XE 2025 donor v927 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22500.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22500.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 31.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22505.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22505.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ KiCad 9.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22518.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22518.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ iTubeGo YouTube Downloader 10.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22529.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22529.jpg" />
 </div>
 
 

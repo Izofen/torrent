@@ -1,3 +1,186 @@
+###  Публикация: 1597837   (164557) от 16.12.2022
+
+Приглашение / The Invitation (2022) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164557.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти матери Эви делает тест ДНК и обнаруживает кузена, о существовании которого даже не подозревала. Она получает приглашение от внезапно обретённой семьи на пышную свадьбу в английской глубинке. Эви окружают заботой и вниманием, но вскоре она узнает, какие жуткие тайны стоят за показным радушием родственников.Производство: США, Венгрия / Screen Gems, Mid Atlantic FilmsЖанр: ужасы, триллерРежиссер: Джессика ТомпсонАктеры: Натали Эммануэль, Томас Доэрти, Шон Пертуи, Хью Скиннер, Кэрол Энн Кроуфорд, Алана Боден, Стефани Корнелиуссен, Tian Chaudhry, Кортни Тейлор, Скотт Александр ЯнгПеревод: Дублированный (Лицензия)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1671A8BF9BEA7FD58BAAE516EB7503A666552D1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673642   (164558) от 02.11.2023
+
+Elm Street - The Great Tribulation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Sirens
+02. Take the Night
+03. The Price of War
+04. If Provoked, Will Strike(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AD8CD56E56ACCDBD830B107E99E614E296EB99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516862   (164559) от 13.12.2021
+
+VA - Chillout King Ibiza: Aperitivo Del Mar (2018) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinematic - Memories (Red Carpet Mix) (6:00)
+02. Retro Rider - Fantaisie Sur La Cote (The Del Mar Dub) (6:59)
+03. Adriatic Grooves - Simsalaboom (Blue Sky Cut) (6:31)
+04. The Ocean Piano - Breath of the Sea (Piano Dream Mix) (5:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282071EE390D6CF0374814BC5B06371626BB652A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597847   (164560) от 16.12.2022
+
+Microsoft Office 2021 for Mac LTSC v16.68 VL [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
+Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2022Разработчик: © 2022 Microsoft CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A605B75753D42755C83585EBAB74453D16FBEE97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673600   (164561) от 02.11.2023
+
+Edenbridge - The Chronicles Of Eden (2008) 2CD [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информация: Edenbridge (с англ. — Мост в Эдем) — австрийская группа, исполняющая симфонический пауэр-метал. Лидер группы и основной композитор — Арне «Ланвалль» Сокхаммер, бессменная вокалистка — сопрано Сабина Эдельсбахер.01. Thin Red Line
+02. The Silent Wake
+03. Images In The Sand
+04. For Your Eyes Only(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E76CF4EC8A81883FA8FDB28B0117C2F19E4456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346215   (164562) от 18.12.2019
+
+A.S.M. (A State of Mind) - Color Wheel (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Alternative Rap, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sesame (1:36)
+02. Grape (4:36)
+03. Burgundy (3:09)
+04. Champagne (3:11)(   Читать дальше...   )Производство: Chinese Man Records - CMR048DIGЖанр: Hip-Hop, Alternative Rap, Electronic, R'n'BПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9296F1A4BF6050B1EA3D79C3A5CBECFB74BAEAE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673756   (164563) от 02.11.2023
+
+iPulse 3.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи клиентов использовали iPulse, чтобы следить за производительностью своего Mac с момента его представления еще в 2002 году.
+Используя лаконичный и привлекательный пользовательский интерфейс, iPulse графически отображает внутреннюю работу macOS на рабочем столе, в строке меню или в Dock. Презентация полностью настраивается, поэтому вы можете установить именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.04.2023Разработчик: © 2021 The Iconfactory, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D596F0C290C73FFAFC7B6DCDAC999ED9A367862F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517021   (164564) от 13.12.2021
 
 BusyCal 2021.4.3 [Multi]
@@ -6,7 +189,7 @@ BusyCal 2021.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164564.jpg" />
 </div>
 
 
@@ -31,7 +214,7 @@ WinRAR 6.20 Beta 3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164565.jpg" />
 </div>
 
 
@@ -55,7 +238,7 @@ Mia for Gmail 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164566.jpg" />
 </div>
 
 
@@ -79,7 +262,7 @@ magnet:?xt=urn:btih:81DF81FF9BE2C994239792AAEF9C5E84BA68B1F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164567.jpg" />
 </div>
 
 
@@ -103,7 +286,7 @@ TaskPaper 3.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164568.jpg" />
 </div>
 
 
@@ -128,7 +311,7 @@ Stats 2.6.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164569.jpg" />
 </div>
 
 
@@ -152,7 +335,7 @@ magnet:?xt=urn:btih:8C92C82D982D8A8744471B4619771D2E7F9A4A9C
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164570.jpg" />
 </div>
 
 
@@ -176,7 +359,7 @@ PaintCode 3 v3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164571.jpg" />
 </div>
 
 
@@ -200,7 +383,7 @@ Lanark Artefax - Live - No Bounds Festival 2019 (2019) [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164572.jpg" />
 </div>
 
 
@@ -224,7 +407,7 @@ Noir – Dark Mode for Safari 2023.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164573.jpg" />
 </div>
 
 
@@ -250,7 +433,7 @@ magnet:?xt=urn:btih:51AB48D05403F51E90869044E900D7816B2D68E9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164574.jpg" />
 </div>
 
 
@@ -274,7 +457,7 @@ Galactic Civilizations III (2015) [Ru] (4.01.1/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164575.jpg" />
 </div>
 
 
@@ -298,7 +481,7 @@ magnet:?xt=urn:btih:8630A9FCB217FA617AB36177AFF925D13AB70DBC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164576.jpg" />
 </div>
 
 
@@ -322,7 +505,7 @@ Office 2013-2021 C2R Install + Lite 7.5.0.1 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164577.jpg" />
 </div>
 
 
@@ -349,7 +532,7 @@ GoodNotes 5 v5.7.54 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164578.jpg" />
 </div>
 
 
@@ -374,7 +557,7 @@ Magic Disk Cleaner 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164579.jpg" />
 </div>
 
 
@@ -398,7 +581,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.5962864/dlc) Repack Other s [Deluxe Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164580.jpg" />
 </div>
 
 
@@ -422,7 +605,7 @@ VirtualHostX 8 v8.7.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164581.jpg" />
 </div>
 
 
@@ -448,7 +631,7 @@ Aeonian Sorrow - Into the Eternity a Moment We Are (2018) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164582.jpg" />
 </div>
 
 
@@ -462,181 +645,6 @@ Aeonian Sorrow - Into the Eternity a Moment We Are (2018) [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBFF390C924917F15ECCBB50D14E2E896BB2F37A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516879   (164583) от 13.12.2021
-
-Benko Dixieland Band - A Jazz Szuletesetol Napjainkig (2002) Bencolor [FLAC|Lossless|tracks + .cue] <Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Carey [1:59]
-02. Joshua Fit The Battle Of Jericho [1:51]
-03. Entertainer [3:20]
-04. Long Journey Home [2:13](   Читать дальше...   )Жанр: DixielandПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A023AD6106028C06C3441CFCC6E19037CA5F42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597843   (164584) от 16.12.2022
-
-Бандит / Bandit (2022) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харизматичный преступник Гилберт Галван-младший бежит из мичиганской тюрьмы и укрывается в Канаде. Там он покупает себе новую личность, но вновь берется за старое. Он грабит рекордные 59 банков и ювелирных магазинов, ловко обходя все усилия со стороны полиции и шаг за шагом становясь легендарной фигурой криминального мира.Производство: Канада, Yale Productions, BondIt Media Capital, Buffalo 8 ProductionsЖанр: триллер, драма, криминалРежиссер: Аллан АнгарАктеры: Джош Дюамель, Элиша Катберт, Мэл Гибсон, Нестор Карбонелл, Свен Теммел, Кит А. Болден, Дилан Флэшнер, Оливия д’Або, Майкл Х. Коул, Клер БронсонПеревод: Дублированный (Akimbo production)Язык озвучки: русскийСубтитры: Русские (forced) отдельноПродолжительность: 02:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D24141E526629969DD7A1E397D45A9FC92DAE8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431764   (164585) от 16.12.2020
-
-Довод / Tenet (2020) BDRip [H.264/1080p] [IMAX Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164585.jpg" />
-</div>
-
-
-###  Подробнее
-
-После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени, заставляющую уже произошедшие события идти вспять.Производство: Великобритания, США / Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70A79A03A9A1F2A960E7677179583E14748D5A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517086   (164586) от 13.12.2021
-
-FastScripts 3.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164586.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastScripts - Утилита для быстрого запуска AppleScript-ов и шелл-скриптов в любом приложении. Если нажать на значок FastScripts в строке меню, раскроется список скриптов, для запуска которых нужен всего один клик.
-Помимо этого каждому скрипту можно назначить сочетание клавиш для запуска. При работе с определенным приложением, все доступные для него скрипты будут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1278CAF884E3A2E1CDFA055D291111B4825C15E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673648   (164587) от 02.11.2023
-
-Марина Серова | Частный детектив Татьяна Иванова. Пока сияют звезды (2023) [MP3, Таша Ким]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частного детектива Татьяну Иванову нанял бизнесмен Сарычев, чтобы она разобралась, кто покушается на жизнь его единственного сына Сергея. Случилось уже три покушения: два взрыва и погоня на ночном шоссе. Юноша красив и обаятелен, баловень судьбы и любимец женщин. Неужели это и стало причиной чьей-то ненависти? Да тут еще погибает при взрыве машины близкий друг Сергея. (   Читать дальше...   )Жанр: Современные детективыИздательство: ЛитРесПродолжительность: 06:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E94A580F6C1A5472F7909D8EFB2F3DDEC8D265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346222   (164588) от 18.12.2019
-
-Yojo - Yojo (2013) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Psychedelic Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sundiver (5:56)
-02. VHS (6:26)
-03. Pterodactyl (5:29)
-04. Captain Kirk Had A Bad Day (4:20)(   Читать дальше...   )Жанр: Dark Jazz, Post Rock, Psychedelic Rock, InstrumentalПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2702A1D1F9517965EB6A801B661D04D0253392D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432108   (164589) от 16.12.2020
-
-Довод / Tenet (2020) BDRip [H.264/1080p-LQ] [IMAX Edition]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — секретный агент, который проходит жестокий тест на надежность и присоединяется к невероятной миссии. От ее выполнения зависит судьба мира, а для успеха необходимо отбросить все прежние представления о пространстве и времени.Производство: Великобритания, США / Warner Bros., SyncopyЖанр: фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D2A68B8B91967AF562C0015F09BBA664A12853
 ```
 
 

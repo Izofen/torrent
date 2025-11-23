@@ -1,3 +1,172 @@
+###  Публикация: 1673888   (163022) от 03.11.2023
+
+Принцесса и Руна времени / Princezna zakleta v case / Princess Cursed in Time (2020) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведьма Мюриэль наложила на принцессу Эллен и ее королевство мощное заклятие, которое должно исполниться на двадцатый день рождения, сразу после захода солнца. Чтобы спасти свое царство, принцесса должна раскрыть тайну временной петли, в которой она оказалась, пройти квест и победить черную магию.Производство: Чехия / ProfesionalniVideo, QQ studio Ostrava s.r.o., Three Brothers ProductionЖанр: фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Петр КубикАктеры: Наталия Джермани, Марек Ламбора, Элишка Крженкова, Ян Ревай, Симона Змрзла, Вероника Фрейманова, Роман Зах, Мартин Писарик, Якуб Увин, Мартин ДейдарПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: русские (forced-hardsub)Продолжительность: 01:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097B11F33F17125B234423BB708000EDACC3082A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673877   (163023) от 03.11.2023
+
+Aiseesoft FoneLab for Android 5.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft FoneLab for Android — это популярный инструмент, ставший уже практически незаменимым для пользователей Android-смартфонов, для управления своими мобильными помощниками при помощи ПК. Приложение работает практически со всем контентом или данными, которыми оперирует смартфон: это, конечно, обязательная синхронизация содержимого по кабелю или через беспроводное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5AA810AA13CB209E5EC4B8AD13DC993F406A42B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598358   (163024) от 18.12.2022
+
+Королева-воин / Женщина-король / The Woman King (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевство Дагомея, 1823 год. Элитный женский отряд королевской стражи агоджи во главе с генералом Наниской возвращает женщин, похищенных рабовладельцами из империи Ойо, что грозит спровоцировать войну. А в это время 19-летнюю девушку Нави, которая не хочет мириться с жестоким потенциальным мужем, отец сдает во дворец в качестве подарка королю. Так Нави оказывается (   Читать дальше...   )Производство: США / TriStar Pictures, Eone Entertainment, TSG EntertainmentЖанр: драма, история, боевикРежиссер: Джина Принс-БайтвудАктеры: Виола Дэвис, Тусо Мбеду, Лашана Линч, Шила Атим, Джон Бойега, Джордан Болджер, Хиро Файнс Тиффин, Джимми Одукоя, Масали Бадуза, Джейми ЛоусонПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, Английские (Forced, Full, SDH)Продолжительность: 02:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87DE77D9DFED80E4663470123075EF1A454369F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673945   (163025) от 03.11.2023
+
+Dire Straits - Live 1978 - 1992 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blues Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Blues Rock, Pop RockПродолжительность: 06:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E8804374FD5C9144C00F2257B0296659E39F80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432803   (163026) от 18.12.2020
+
+Opera 73.0.3856.284 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696C687D1AE2047426483BA31CADFF2ED9813E5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517372   (163027) от 15.12.2021
+
+Pixelmator Pro 2.3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 Pixelmator Team LtdПоддерживаемая ОС: macOS 10.15Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A3FA03310053DCE7ABBF7E8884D5A4D5D49B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597863   (163028) от 18.12.2022
+
+Последний клиент / Klienten / The Last Client (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163028.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день, когда новостные ленты сообщают о хладнокровном убийстве беременной женщины и похищении ее новорожденного ребенка, к преуспевающему психологу Сюзанне Хартманн обращается молодой человек с необычной проблемой. Мужчина, с детства лишенный родительской любви, мечтает бесследно покинуть этот мир.Производство: Дания / Deluca FilmЖанр: триллерРежиссер: Андерс Рённов КларлундАктеры: Синье Эгхольм Олсен, Антон Николай Йейле Эберг, Дан Зале, Сара Фанта Траоре, Зилан Мария Будак Раш, Андерс Мосслинг, Эрик Винберг, Карл Линнерторп, Мортен Бо Корш, Эмма Тофт ПедерсенПеревод: Дублированный (iTunes)Язык озвучки: Русский, НемецкийСубтитры: Русские, НемецкиеПродолжительность: 01:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AADCF38F31D7A21D5B49DCFB80719661230339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517470   (163029) от 15.12.2021
 
 VA - Golden Lounge (2021) [AAC|~293 Kbps] <Lounge, Chill Out>
@@ -6,7 +175,7 @@ VA - Golden Lounge (2021) [AAC|~293 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163029.jpg" />
 </div>
 
 
@@ -33,7 +202,7 @@ magnet:?xt=urn:btih:5680C3A0FC73FF3122B684A1A979F3367012485F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163030.jpg" />
 </div>
 
 
@@ -60,7 +229,7 @@ magnet:?xt=urn:btih:E347A303DD0A30F63FFDF43797B5846D49F433EA
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163031.jpg" />
 </div>
 
 
@@ -86,7 +255,7 @@ magnet:?xt=urn:btih:9569CF3F137A12A370134E51B07C407FDE69667D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163032.jpg" />
 </div>
 
 
@@ -110,7 +279,7 @@ AMD Radeon Software Adrenalin Edition 23.11.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163033.jpg" />
 </div>
 
 
@@ -134,7 +303,7 @@ magnet:?xt=urn:btih:F163957D47B4EB2C253A02C60552C6A3B29DB7C2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163034.jpg" />
 </div>
 
 
@@ -158,7 +327,7 @@ SyncBird Pro 3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163035.jpg" />
 </div>
 
 
@@ -182,7 +351,7 @@ magnet:?xt=urn:btih:14D436444F227B96933E9EE1CF594A9F3B232D4C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163036.jpg" />
 </div>
 
 
@@ -206,7 +375,7 @@ magnet:?xt=urn:btih:C374FAA4C395BB21ECD2F1812FBF36CBF237FBB1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163037.jpg" />
 </div>
 
 
@@ -231,7 +400,7 @@ magnet:?xt=urn:btih:7457D4275B28C95B1F9891B75B4AEE64A3315E22
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163038.jpg" />
 </div>
 
 
@@ -255,7 +424,7 @@ magnet:?xt=urn:btih:2A5B038D0966BB013EDFFB0ED8756FE4DD2E2643
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163039.jpg" />
 </div>
 
 
@@ -279,7 +448,7 @@ WonderPen 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163040.jpg" />
 </div>
 
 
@@ -303,7 +472,7 @@ magnet:?xt=urn:btih:873A60B099948B6C9F027714CD1C14EF3C6D37A0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163041.jpg" />
 </div>
 
 
@@ -327,7 +496,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163042.jpg" />
 </div>
 
 
@@ -351,7 +520,7 @@ Omni Toolbox 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163043.jpg" />
 </div>
 
 
@@ -375,7 +544,7 @@ Balabolka 2.15.0.765 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163044.jpg" />
 </div>
 
 
@@ -401,7 +570,7 @@ CUETools 2.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163045.jpg" />
 </div>
 
 
@@ -425,7 +594,7 @@ magnet:?xt=urn:btih:92B60CDB883E2908F76D28DEF570C7E2374C3B8C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163046.jpg" />
 </div>
 
 
@@ -449,7 +618,7 @@ Hookshot 1.23.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163047.jpg" />
 </div>
 
 
@@ -460,183 +629,6 @@ Hookshot - позволяет привязывать окна с помощью 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9FC05B49BA23B576B427C063BC5D4566EE39203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432767   (163048) от 18.12.2020
-
-Microsoft Edge 87.0.664.66 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737554FC03767383240847CE5DF597FF12BE02A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517469   (163049) от 15.12.2021
-
-VA - The Seeds of Lounge, Vol. 4 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eriq Johnson, Samiran Saharia - Nelumbo (5:43)
-02. Lazy Hammock - Trees (5:16)
-03. 351 Lake Shore Drive, Genius Jane - Fuji-san (4:54)
-04. Aiemo, Sandra Hakky - Dreaming Eyes (Vocal Mix) (3:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779932802EABC3D7E46774C41ECB2DF49B64CA3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598320   (163050) от 18.12.2022
-
-Сергей Мусаниф | Цивилизация страуса (2022) [MP3, TED]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта аудиокнига о приключениях нашего современника, Антона Гусева, в недалеком будущем… через 40 лет. Началось все с досадной мелочи, которая в любом другом случае не стоила бы упоминания, но Гусев расстроился. Он слишком хорошо знал, что обычно с таких вот мелочей все и начинается, а потом идет по нарастающей, и чем дальше, тем хуже. Может быть, у других людей все (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 09:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B040CD88108CFA8CFED72148FA43109E46C30365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432618   (163051) от 18.12.2020
-
-Ольга Арефьева - Как я стал клоуном (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163051.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как я стал клоуном
-2. Цирковое представленье
-3. Цирк-цирк
-4. Фант-Азия(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975FCCF7FDB158AA77A83DDC037A1A14A9564FA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517471   (163052) от 15.12.2021
-
-VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 2 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yantra Mantra - Dada Mantra (5:10)
-02. Smooth Deluxe, Nizam Kharda - Duktus (3:55)
-03. Aimée Sol - Can't Get Enough (6:30)
-04. Lazy Hammock - Why Aren't You Listening (3:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4158C416E987931B12F0A2839D432090752BDDC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598330   (163053) от 18.12.2022
-
-LibreCAD 2.2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163053.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreCAD - одно из лучших бесплатных кросс-платформенных приложений для автоматизированного проектирования (CAD) в двухмерной графике. Эта платформа разрабатывалась как бесплатная альтернатива более раскрученного, но платного инструмента AutoCAD, поэтому поддерживает практически все его основные функции и возможности, позволяя решать задачи двухмерного проектирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38598A144AE7C1539D616D497380F56542FC2AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432817   (163054) от 18.12.2020
-
-Иван Охлобыстин | Песни созвездия Гончих Псов [сборник] (2019) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сатирическая проза Ивана Охлобыстина повествует о трагикомических приключениях, казалось бы, обычных героев в простых провинциальных городках. Но проницательный писатель знает: в жизни вообще нет ничего обычного! Смех и слезы, настоящие человеческие драмы и абсурдистские повороты судеб удерживают наше внимание от первой до последней строки этой фантасмагорической (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB60970EB71061B6B2679FD3E787BBE346A2047
 ```
 
 

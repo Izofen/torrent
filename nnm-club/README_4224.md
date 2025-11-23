@@ -1,3 +1,78 @@
+###  Публикация: 490782   (129728) от 01.05.2012
+
+Каникулы в Мексике - 2. Выпуск №41 (2012.05.01) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129728.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464A28845911479FB316D63388CA02C767BBB419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525325   (129729) от 20.01.2022
+
+Дороговцев А.Я. и др. | Теория вероятностей. Сборник задач (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит задачи по основным разделам теории вероятностей и некоторым разделам теории случайных процессов. К задачам даны ответы, к более сложным задачам — указания и решения. Для студентов университетов, педагогических институтов и технических вузов.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F54C4B70893923177CEA3F4E66015217AA68497
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683024   (129730) от 09.12.2023
+
+Chamelion - Legends & Lores (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Conquest [00:02:11]
+02. Hero's Tale [00:05:14]
+03. The Shadowleader [00:05:23]
+04. Faith And Steel [00:06:15](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC8FBF0B688166B31851815741F1603771498AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682918   (129732) от 09.12.2023
 
 Пятеро на одного (09.12.2023) WEBRip [H.264/720p-LQ]
@@ -6,7 +81,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129732.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:9B1819B04A1D3D6DDF454EC5D21177F007F5A68A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129734.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Void - Jadjow (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129735.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Supuration - Promo '91 (1991) Reissue, 2019, Dark Symphonies [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129737.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Mozilla Thunderbird 12.0.1 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129738.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129739.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ Supuration - 9092 (1995) Compilation [FLAC|Lossless|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129740.jpg" />
 </div>
 
 
@@ -185,7 +260,7 @@ Neverland In Ashes - Haunted (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129741.jpg" />
 </div>
 
 
@@ -212,7 +287,7 @@ Rik Emmett - Then Again (2012) Remastered, 2023, Deko Entertainment [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129744.jpg" />
 </div>
 
 
@@ -239,7 +314,7 @@ eWeather HDF погода и барометр v8.5.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129745.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ magnet:?xt=urn:btih:97E311BFBAAE185E003699730E45972E114EF2B5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129746.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129747.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:895CDA71D4DCCA649394CA92CDC7624D4949F515
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129748.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129749.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ magnet:?xt=urn:btih:5BA0F5ED1761B074E91E05D40DF6D8A0607F77A5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129750.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ The Beatles - Abbey Road (1969) remix 2019 remaster [DTS-ES Discrete 6.1 CD-Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129751.jpg" />
 </div>
 
 
@@ -424,7 +499,7 @@ magnet:?xt=urn:btih:68EFA62E499BE777B4052C6A83DD7283CFA08C78
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129752.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ magnet:?xt=urn:btih:E0C62DB8FE6818D04CE3A27C7EF07E0CDF87A577
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129753.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ magnet:?xt=urn:btih:38433F8A9259557ABD0E64B1FDBAA28999310C88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129754.jpg" />
 </div>
 
 
@@ -496,7 +571,7 @@ Buddy Rich - Milestones Of A Jazz Legend (1946 - 1962) 10CD, 2020, The Intense M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129755.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ magnet:?xt=urn:btih:138F4B5C829766F3D6B0B9135F7DEEDD8CF85CAD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129756.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ magnet:?xt=urn:btih:F63104278A0E54FA13CE27E20AA84F290716AC4F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129757.jpg" />
 </div>
 
 
@@ -571,7 +646,7 @@ Dream Drop - Acne Superstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129758.jpg" />
 </div>
 
 
@@ -585,90 +660,6 @@ Dream Drop - Acne Superstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A52996FF4FD26B8DDEB66E91293DEBADF330542E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524835   (129760) от 20.01.2022
-
-Вечные / Eternals  (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [IMAX] [UKR, ENG / UKR, EN Sub] [MVO]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечные — представители расы генетически улучшенных суперлюдей, тайно живущих на Земле. Наделённые невероятными суперспособностями, на протяжении тысячелетий они скрывались от человеческой цивилизации, втайне защищая людей от монструозных девиантов. Однако, последние события и действия Таноса заставили их выйти на свет.Производство: Великобритания, США / Marvel Studios, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Хлоя ЧжаоАктеры: Джемма Чан, Ричард Мэдден, Анджелина Джоли, Сальма Хайек, Кит Харингтон, Кумэйл Нанджиани, Лиа МакХью, Брайан Тайри Генри, Лорен Ридлофф, Барри КеоганПеревод: Многоголосый профессиональныйЯзык озвучки: Украинский, английскийСубтитры: Украинские (Forced), английские (Full, SDH)Продолжительность: 02:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FD609BD1FF69FD5D253CF38D0B1D0066406A0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683054   (129761) от 09.12.2023
-
-Bad Touch - Bittersweet Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Classic-Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slip Away [00:03:27]
-02. This Life [00:02:21]
-03. Spend My Days [00:03:31]
-04. Bittersweet Satisfaction [00:03:28](   Читать дальше...   )Жанр: Hard-Rock, Classic-Rock, Blues-RockПродолжительность: 00:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC96DA18C94372EFEF0F11E889675AC41F3FC83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489945   (129762) от 01.05.2012
-
-James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary, Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In my dreams
-02. 6 weeks
-03. I won't let you go
-04. James Morrison, Jessie J/Up
-05. Slave to the music
-06. Person I should have been
-07. Say something now
-08. Beautiful Life
-09. Forever
-10. The Awakening(   Читать дальше...   )2011Жанр: Soul, Adult Contemporary, Pop, FolkПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3543B3BE5AEF7C0BB4B4E48166E92B75759079
 ```
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1695107   (120406) от 28.01.2024
+
+Fionn Legacy - Rise of the Windlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Departure (01:43)
+02 - Majestic Return (04:15)
+03 - Distant Lands (04:36)
+04 - Farewell (04:39)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448333CB661AFBE130096CC572AE9BBD51628D9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695296   (120407) от 28.01.2024
+
+Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat для PostgreSQL — это мощный, но простой в использовании графический интерфейс PostgreSQL, предоставляющий обширные функциональные возможности для управления базой данных PostgreSQL и ее разработки. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7767B8161385AED810F423767792AB4C31362C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695244   (120408) от 28.01.2024
+
+Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightless (5:07)
+02. Labyrinthine Hex (7:11)
+03. Morningstar (6:57)
+04. Shapshu (4:22)(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320DF0D9E9A8AC6DB00477154B30EA1F85E44C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695178   (120409) от 28.01.2024
 
 Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +84,7 @@ Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120409.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120410.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Greengoat - A.I. (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Stoner Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120411.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120412.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120413.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Grey Wolf - The Icy Mountains (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120414.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Jim Capaldi - The Outside Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120415.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Hanne Boel - Norwegian Recordings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120416.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120417.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ Navicat for SQL Server on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120418.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Rene Huard Project - Blues Calling (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120419.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ magnet:?xt=urn:btih:4A58436A237F9D3A4DF4494EFE184C6226172B8D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120420.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ magnet:?xt=urn:btih:B6FA866743DACABCBB5665DA7F8BD78FB703BB57
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120421.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Krooked Step - As the Crow Flies (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120422.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Mago De Oz - Alicia En El Metalverso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120423.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Grey Wolf - Glorious Death (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120424.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120425.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ magnet:?xt=urn:btih:5EF96CAFD8B701CFDFCB6647B03C033D1AE5DE14
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120426.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120427.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Grey Wolf - We Are Metalheads (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120428.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ In Flames - 2 Albums Singles Collection (2003-2004) 2xCD, EP [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120429.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Bobby Darin - Born Walden Robert Cassotto (1968) [FLAC 24/192|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120430.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ Helgrindur - Helgrindur (2023) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120431.jpg" />
 </div>
 
 
@@ -602,87 +680,6 @@ Helgrindur - Helgrindur (2023) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE4F4A0765061D587BD8B9D98023B6510F2A28CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695347   (120432) от 28.01.2024
-
-Richard Lindgren - Grand Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Fat Nothing (6:08)
-02. Empire In Ruins (5:22)
-03. Argentinian Shoes (4:03)
-04. Lament From A Reservoir (4:51)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152DB4E5C7ADEA78315986429E8B34235B9A8EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695335   (120433) от 28.01.2024
-
-Brad "Guitar" Wilson - Buckle Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucille (3:23)
-02. Can't Always Get What You Want (4:50)
-03. Hoodoo Party (2:40)
-04. Hound Dog (4:16)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B603FBEAE70DF097D12FDC19F858A496A71BAC13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695124   (120434) от 28.01.2024
-
-Caro Emerald - The Shocking Miss Emerald (The Remixes) (2013) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tangled Up (Yarin & Richwood Remix) [00:03:34]
-02. Tangled Up (Yarin & Richwood Remix) (Yarin & Richwood (Extended Version)) [00:04:36]
-03. Tangled Up (Lokee Remix) [00:03:25]
-04. Tangled Up (Kahedi Remix) [00:03:04](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3C17969EF1FCFCAC718384906A6065E57B5285
 ```
 
 

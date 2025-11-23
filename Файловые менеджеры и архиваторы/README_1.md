@@ -6,7 +6,7 @@ Total Commander 11.56 LitePack & PowerPack + Portable 2025.11 by SamLab [Multi/R
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250579.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250579.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ OneCommander Pro 3.103.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250852.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250852.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Advanced Renamer 4.19 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251690.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251690.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Scanner 2.13 Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251928.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251928.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Double Commander 1.1.30 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255695.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ InnoExtractor Ultra 11.2.0.157 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257508.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257508.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ InnoExtractor Ultra 11.2.0.157 Portable by 7997 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257673.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257673.jpg" />
 </div>
 
 
@@ -168,6 +168,30 @@ InnoExtractor - это приложение, которое поможет ва�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5976DD7E23A158FAC325E4092205D4EF21A5AFEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838305   (259786) от 
+
+WinRAR 7.20 beta 2 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259786.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых степень (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCDBB7EE6243EA31678C77CA665326B43D536CC
 ```
 
 

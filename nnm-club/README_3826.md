@@ -1,3 +1,76 @@
+###  Публикация: 1697096   (119158) от 05.02.2024
+
+Никто не расскажет о нас, когда мы умрем / Nadie hablara de nosotras cuando hayamos muerto (1995) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119158.jpg" />
+</div>
+
+
+###  Подробнее
+
+История несчастной алкоголички Глории Дукью, бедной проститутки в Мехико. Первые кадры с ней – оральный секс с несколькими барыгами, когда они толкают наркотики. Что-то идет не так и два коррумпированных правительственных агента и местный бандит погибают. Она улетает в Мадрид, в родной город…Производство: Испания / Canal+ España, Sogepaq, Xaloc, CARTEL (Creativos Asociados de Radio y Televisión) S.A.Жанр: Триллер, драма, криминалРежиссер: Агустин Диас ЯнесАктеры: Виктория Абриль, Пилар Бардем, Федерико Луппи, Анхель Алькасар, Мария Аскерино, Фернандо Дельгадо, Даниэль Хименес Качо, Ана Офелиа Мургия, Гильермо Хиль, Бруно БичирПеревод: Авторский (Антон Алексеев)Язык озвучки: Русский, ИспанскийСубтитры: АнглийскиеПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF6250582F7566989C5BB2FF9C857EDAA6AC475
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697241   (119159) от 05.02.2024
+
+Glarysoft Malware Hunter PRO 1.179.0.799 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
+Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CC8E92B71720A8CCEEF97332D66845A0F40BA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697076   (119160) от 05.02.2024
+
+Д.А. Жолобов | Введение в математическое программирование (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены методы решения задач линейного и дискретного программирования. Теория линейного программирования содержит обоснование симплекс-метода, теорию двойственности. Рассмотрены методы увеличения вычислительной эффективности решения задач большой размерности. Раздел, посвященный дискретному программированию, включает в себя транспортную задачу, методы решения (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МИФИФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39454A27CD1B4D63DD7F42F16E1F020CDB57EDB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697234   (119161) от 05.02.2024
 
 Reg Organizer 9.40 Portable by FC Portables [Multi/Ru]
@@ -6,7 +79,7 @@ Reg Organizer 9.40 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119161.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ DJ BoBo - Greatest Hits (2006) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119162.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ VA - Compilation Electronic part 51 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119163.jpg" />
 </div>
 
 
@@ -84,7 +157,7 @@ magnet:?xt=urn:btih:451FC2F5BE070120AA97012DA95D818A9E958F2F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119164.jpg" />
 </div>
 
 
@@ -108,7 +181,7 @@ magnet:?xt=urn:btih:FD115747E36B6D619B0BCAA10A689CFC4C35F0B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119165.jpg" />
 </div>
 
 
@@ -134,7 +207,7 @@ magnet:?xt=urn:btih:FEE4C726600296B36EBCA0549E4785FB2BB26377
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119166.jpg" />
 </div>
 
 
@@ -158,7 +231,7 @@ Metallica - Master Of Puppets (1986) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119167.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ magnet:?xt=urn:btih:4C431658C7F81E53F5A7B5F275546BC0B0334311
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119168.jpg" />
 </div>
 
 
@@ -210,7 +283,7 @@ Sumatra PDF 3.6.15949 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119169.jpg" />
 </div>
 
 
@@ -235,7 +308,7 @@ magnet:?xt=urn:btih:3E172135126894E9A08634586835E22F9417D200
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119170.jpg" />
 </div>
 
 
@@ -260,7 +333,7 @@ magnet:?xt=urn:btih:840A67BFEDC1C884FE1EC0165B49F619C7B4BC6A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119171.jpg" />
 </div>
 
 
@@ -284,7 +357,7 @@ magnet:?xt=urn:btih:C1E6BD470B4671E4C8AAA3127E853CCD9C6E6C36
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119172.jpg" />
 </div>
 
 
@@ -308,7 +381,7 @@ magnet:?xt=urn:btih:A8EA3A1CC9B67C892EA589ACB029F288C8DA817C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119173.jpg" />
 </div>
 
 
@@ -332,7 +405,7 @@ magnet:?xt=urn:btih:9BFB49C4F9C1AC7E571ABE3982DF6D05BC4103EF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119174.jpg" />
 </div>
 
 
@@ -356,7 +429,7 @@ magnet:?xt=urn:btih:6310EC8FFA309E8F05EC22469D5C3260B4C22652
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119175.jpg" />
 </div>
 
 
@@ -380,7 +453,7 @@ magnet:?xt=urn:btih:B321B08336219E56042C2F4D16ED84C791EDE1A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119176.jpg" />
 </div>
 
 
@@ -404,7 +477,7 @@ magnet:?xt=urn:btih:71421A4446FEF11DC87C91FE5D8DCC59C6ADB80D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119177.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ magnet:?xt=urn:btih:74BA8BD394410D2B497B7792B91C6EDFFEB7EEB8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119178.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ Universal USB Installer 2.0.2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119179.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ Clipboard Master 5.7.1.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119180.jpg" />
 </div>
 
 
@@ -501,7 +574,7 @@ magnet:?xt=urn:btih:7FFE7713B3BBD9F8D8CC6A6DC2AAFEB08088CC04
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119181.jpg" />
 </div>
 
 
@@ -525,7 +598,7 @@ magnet:?xt=urn:btih:9D4DD22EF764EFAE2BBAACAE2831BAD7998AFD85
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119182.jpg" />
 </div>
 
 
@@ -549,7 +622,7 @@ magnet:?xt=urn:btih:838DF0CEFF3B88E76A9197A019C91195B89969E6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119183.jpg" />
 </div>
 
 
@@ -561,78 +634,6 @@ magnet:?xt=urn:btih:838DF0CEFF3B88E76A9197A019C91195B89969E6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03BFD6A1C1AA1C8447282401DB83E8099C366070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697209   (119184) от 05.02.2024
-
-Floorp Browser 11.9.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Floorp Browser – это модифицированная версия Firefox, созданная с акцентом на гибкость и настраиваемость. Браузер предлагает уникальные функции, такие как изменение интерфейса для имитации других браузеров, несколько рядов вкладок и оптимизацию памяти. Floorp Browser также исключает все функции телеметрии Firefox, обеспечивая уважение к приватности пользователей. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B048020BB68B7AD4E4E6C975DB41E75FB0703A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697150   (119185) от 05.02.2024
-
-RAM Saver Professional 24.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119185.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAM Saver Pro - инструмент для профессионального мониторинга, очистки и оптимизации оперативной памяти. Служит для повышения производительности операционной системы, освобождая оперативную память от драйверов и процессов MS Windows для приложений требующих максимальную загрузку процессора и оперативной памяти. RAM Saver Pro: дефрагментирует системную память для быстрого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B61E6E50C464C21786FC352CE3BCABB594DD25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697030   (119186) от 05.02.2024
-
-Проклятие дома с призраками / The Creeping (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна возвращается в дом своего детства спустя много лет. Ее бабушка Люси страдает деменцией, в последнее время ей становится все хуже, и сиделка уже не справляется. Анна, недавно похоронившая отца, старается справиться с горем, ухаживая за бабушкой. Вскоре она понимает, что старый дом хранит мрачную тайну, связанную со смертью дедушки Анны, чей неупокоенный и злобный (   Читать дальше...   )Производство: Великобритания / Cryptoscope FilmsЖанр: ужасыРежиссер: Джэми ХуперАктеры: Риэнн Стил, Софи Томпсон, Джонатан Ньяти, Дэвид Хорович, Джейн Лоу, Филлипа Пик, Талия Блэр, Питер Маккуин, Дениз Хоран, Полин ХуперПеревод: Дублированный (MOYGOLOS)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075CAE49D7CCD5976DF3056C3C6797F2E344894B
 ```
 
 

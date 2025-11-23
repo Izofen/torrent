@@ -1,3 +1,75 @@
+###  Публикация: 1525507   (129698) от 20.01.2022
+
+Стечение обстоятельств (1987) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актриса Вероника, совсем недавно блестяще сыгравшая главную роль, попадает в разряд второстепенных актрис. Болезнь дочери заставляет ее представиться журналисткой и взять интервью у известного профессора, которому она хотела бы доверить своего ребенка. План удается — дочь выздоравливает, а Вероника, уверенная в себе, снова добивается первой роли.Производство: СССР / Рижская киностудияЖанр: ДрамаРежиссер: Вия БейнартеАктеры: Ингеборга Дапкунайте, Лембит Ульфсак, Саулюс Баландис, Антра Лиедскалныня, Мадара Смате, Юлле Кальюсте, Рудольф Плепис, Костас Сморигинас, Улдис Ваздикс, Юрис Лиснерс, Нина Незнамова, Регина Разума, Дзидра Ритенберга, Гунар Цилинский, Леонс Криванс, Светлана Блесс-ПуцеСубтитры: ОтсутствуютПродолжительность: 01:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C9B299F36B48B1FF92C9CD7D7DFF24DA5136FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683166   (129699) от 10.12.2023
+
+Destroyer: The U-Boat Hunter (2023) [Ru/Multi] (1.0/dlc) Scene Rune [Supporter Bundle]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Destroyer: The U-Boat hunter - это уникальный кроссжанровый симулятор эсминца, реалистично изображающий будни эскортных групп, сопровождавших конвои союзников для защиты от немецких подводных лодок во время Битвы за Атлантику. Вы берете на себя командование эсминцем типа «Флетчер». Оцените достоверность изображения приборов и приемов боя, чтобы прочувствовать все (   Читать дальше...   )Тип издания: SceneРазработчик: Iron Wolf Studio S.A.Жанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85116970A7C1141E9796EEF4BD1246EC9F80658C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490455   (129700) от 01.05.2012
+
+Детская литература  | Добрыня и Змей (1987) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российские былины в обработке В.П. Аникина с иллюстрациями И. Архипова.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60C1867DF3CFEF47EABC93EDF40276A0A0F52BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525494   (129701) от 20.01.2022
 
 RAM Saver Professional 22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ RAM Saver Professional 22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129701.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:505E68D64855529C7D6D431FDC8B85859BA18E3A
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129702.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:863818A1AEFF1DDCD73DA672A2187FF089E72938
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129703.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:ABB115062EE19A9F9A9E8811FD5AFBE87E838BC7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129704.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:9A1177F14BEDEE63FD978266223AC0005C8F2D86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129705.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:8368FC83544A5E06757E381AECD713FCAB544F64
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129707.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:497499D031F67BD93332974210CA144F64405A01
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129708.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Google Chrome 97.0.4692.99 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129709.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:96AC76007F5A6613CD5891E95586ABA016D95F1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129710.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Wheel Size v2.10.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129711.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ MAGIX Video Pro X13 19.0.1.138 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129712.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ WinTools.net Premium 22.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129713.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ Java SE Development Kit 17.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129714.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:8C55BD977BE1F8A983C4CD495F401D47C62EB210
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129716.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ VA - Лучшие Хиты Love Radio Часть 8 (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129717.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ magnet:?xt=urn:btih:CA13C7654C0DB2CE618A8DDFB378C7B6DCEC31DA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129718.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ Pixelmator Pro 2.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129720.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ Chamelion - Legends & Lores (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129721.jpg" />
 </div>
 
 
@@ -455,7 +527,7 @@ magnet:?xt=urn:btih:092FD6724D656422FBA035D61BD0614C9D652ADE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129722.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ Tap To Translate Screen v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129723.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ magnet:?xt=urn:btih:B38A8CCD5C0AC35A2ACFCE14CA3164335E35FD57
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129724.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ magnet:?xt=urn:btih:90342C45ADDF7A51B03AE9568520334EA448EBCC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129726.jpg" />
 </div>
 
 
@@ -556,7 +628,7 @@ Six Foot Six - Beggar's Hill (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129727.jpg" />
 </div>
 
 
@@ -570,81 +642,6 @@ Six Foot Six - Beggar's Hill (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1728823D0EBC49C350B799E2352043A7F2E8281E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490782   (129728) от 01.05.2012
-
-Каникулы в Мексике - 2. Выпуск №41 (2012.05.01) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129728.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464A28845911479FB316D63388CA02C767BBB419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525325   (129729) от 20.01.2022
-
-Дороговцев А.Я. и др. | Теория вероятностей. Сборник задач (1980) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит задачи по основным разделам теории вероятностей и некоторым разделам теории случайных процессов. К задачам даны ответы, к более сложным задачам — указания и решения. Для студентов университетов, педагогических институтов и технических вузов.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F54C4B70893923177CEA3F4E66015217AA68497
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683024   (129730) от 09.12.2023
-
-Chamelion - Legends & Lores (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Conquest [00:02:11]
-02. Hero's Tale [00:05:14]
-03. The Shadowleader [00:05:23]
-04. Faith And Steel [00:06:15](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC8FBF0B688166B31851815741F1603771498AC
 ```
 
 

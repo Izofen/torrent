@@ -6,7 +6,7 @@ DLNow Video Downloader 1.54.2025.05.04 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19290.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FreeTube 0.23.5 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19291.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:892DAAB28C513393E5BF86B20FF95A8796E6E331
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19292.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VueScan Pro 9.8.45.10 RePack (& Portable) by elchupacabra (DC 2025.05.03) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19306.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ ZBrush 2025.2.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19329.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Shazam v15.20.0-250424 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19333.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Firefox Browser ESR 128.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19334.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ FastFlix 5.12.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19335.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Firefox Browser ESR 128.10.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19336.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ TikTok Private Plus v39.9.2 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19338.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Firefox Browser 138.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19339.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Fan Control V223 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19342.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Firefox Browser ESR 115.23.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19345.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Firefox Browser 138.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19351.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Notification Widget v1.5.172 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19352.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PrivaZer Pro 4.0.105 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19362.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Tablacus Explorer 25.5.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19375.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ MyLanViewer 6.3.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19376.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Wise Care 365 Pro 7.2.5.698 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19387.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Firefox Browser ESR 115.23.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19392.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Snappy Driver Installer Origin R814 | Драйверпаки 25.03.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19398.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Guru Maps Pro & GPS Tracker v5.7.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19409.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Luminar Neo 1.24.0.14794 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19432.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ MiniTool Power Data Recovery 12.5 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19509.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ TrackChecker Mobile v2.28.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19541.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Desktop Calendar 3.22.233.7103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19546.jpg" />
 </div>
 
 

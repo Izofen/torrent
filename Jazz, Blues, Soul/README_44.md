@@ -6,7 +6,7 @@ Frank Morgan - Mood Indigo (1989) Antilles [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71140.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Art Farmer + Bill Evans - Modern Art (1958, 1959) 2004, Lone Hill Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71141.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Red Mitchell & George Cables - Live At Port Townsend (1992) 2005, Challenge Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71142.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Don Patterson - Steady Comin' At 'Ya (1972 - 1977) 1998, 32 Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71143.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - The Midnighters Vol. I (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71163.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - The Midnighters Vol. II (2025) Signora Ward Records [FLAC|Lossless|Web-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71165.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71197.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Thorbjorn Risager & The Black Tornado - House Of Sticks (2025) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71199.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. II (2023) Signora Ward Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71203.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71219.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71221.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71238.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71240.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71241.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Larry Coryell - Bolero & Scheherazade (1983) Philips [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71299.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Eddie Daniels - Blue Bossa (1972, 1973) 1996, Candid [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71303.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ John Simon Trio - Legacy (1986) 1996, Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71304.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Don Patterson - Boppin' & Burnin' (1968) 1998, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71305.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Art Farmer - Something To Live For: The Music Of Billy Strayhorn (1987) Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71306.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71331.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71332.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Gerry Mulligan/Art Farmer Quartet - In Stockholm & Hollywood (1959) 2010, Solar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71333.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Joe Pass & Paulinho da Costa - Tudo Bem! (1978) 1985, Pablo Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71334.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Red Rodney - Bird Lives! (1973) 1989, Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71335.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Bobby Hutcherson - Classic Blue Note Sessions (1963 - 1970) 7CD, 2024, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71378.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sun Ra - Inside The Light World: Sun Ra Meets The OVC (1986) 2CD, 2024, Strut [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71412.jpg" />
 </div>
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1433212   (155875) от 21.12.2020
+
+Колдовство: Новый ритуал / The Craft: Legacy (2020) BDRip [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новенькую старшеклассницу принимает в свою компанию группа из трёх девчонок и вскоре посвящает её в ведьмы.Производство: США, Канада / Blumhouse Productions, Columbia Pictures, Red Wagon EntertainmentЖанр: Ужасы, фэнтези, драмаРежиссер: Зои Листер ДжонсАктеры: Кэйли Спэни, Гидеон Адлон, Лови Симон, Зои Луна, Мишель Монахэн, Дэвид Духовны, Николас Голицын, Джулиан Грэй, Чарльз Вандерваарт, Дональд Маклин мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D32F4BFF28A2FB5F5DA303C47A3C25093CEC9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270694   (155876) от 20.12.2018
+
+Хоккей. Еврохоккейтур 2018-2019. Кубок Первого Канала 2018. Россия — Финляндия (16.12.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155876.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 декабря 2018 года, воскресенье. 17:00 МСК
+Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир
+Кубок Первого Канала 2018.
+Россия — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A978D1B1698350BB437C6F082628A38EC5BFCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346939   (155878) от 21.12.2019
+
+Athentech Perfectly Clear Complete 3 v3.9.0.1711 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C879363F53A5BFDB534CBB8750EDD83B7DE5CBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600762   (155887) от 28.12.2022
 
 4K YouTube to MP3 Pro 4.8.0 [Multi/Ru]
@@ -6,7 +83,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155887.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Zoc Terminal 7.25.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155888.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ K-Lite Codec Pack Update 16.6.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155889.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ magnet:?xt=urn:btih:D08F1B440845DAB4896AAA120706C9A7D462C9F1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155893.jpg" />
 </div>
 
 
@@ -106,7 +183,7 @@ Monster Shooter – это просто ураганный аркадный эк
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155894.jpg" />
 </div>
 
 
@@ -131,7 +208,7 @@ magnet:?xt=urn:btih:131318B666C60E7DC44824A2D0177F509D90B1FC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155895.jpg" />
 </div>
 
 
@@ -158,7 +235,7 @@ Auto PowerOFF 6.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155897.jpg" />
 </div>
 
 
@@ -182,7 +259,7 @@ UltraEdit 20.00.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155898.jpg" />
 </div>
 
 
@@ -206,7 +283,7 @@ VA - Summer Hemisphere (2018) [MP3|320 Kbps] <Indie, Alternative, Synthpop, Nu D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155908.jpg" />
 </div>
 
 
@@ -233,7 +310,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) [1080p] HDTVR
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155910.jpg" />
 </div>
 
 
@@ -257,7 +334,7 @@ FxFactory Pro 7.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155916.jpg" />
 </div>
 
 
@@ -282,7 +359,7 @@ magnet:?xt=urn:btih:95B24B458AF838D87FC66EC5AAEF4B72EB867213
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155918.jpg" />
 </div>
 
 
@@ -306,7 +383,7 @@ Scherlokk - Files finder 4 v4.1.6 (build 41602) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155922.jpg" />
 </div>
 
 
@@ -330,7 +407,7 @@ FSNotes 6.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155927.jpg" />
 </div>
 
 
@@ -354,7 +431,7 @@ The Clock - The Best World Clock 4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155930.jpg" />
 </div>
 
 
@@ -379,7 +456,7 @@ Master of Typing - Мастер Печати на Китайском  3.2.2 [Mul
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155938.jpg" />
 </div>
 
 
@@ -403,7 +480,7 @@ AVS Video Software 12.9.6.25 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155940.jpg" />
 </div>
 
 
@@ -427,7 +504,7 @@ GraphicConverter 11 v11.1.2 (build 4216) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155944.jpg" />
 </div>
 
 
@@ -451,7 +528,7 @@ magnet:?xt=urn:btih:C2AE58C2FA1E7971999BB5575E0873189068C02D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155949.jpg" />
 </div>
 
 
@@ -478,7 +555,7 @@ Deflection 5.15.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155955.jpg" />
 </div>
 
 
@@ -503,7 +580,7 @@ VA - Stell Recordings: Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House,H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155956.jpg" />
 </div>
 
 
@@ -530,7 +607,7 @@ EtreCheck Pro 6.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155960.jpg" />
 </div>
 
 
@@ -556,7 +633,7 @@ Kryder - Kryteria Radio 321 (Kryder Yearmix) (2021-12-15) [MP3|192 Kbps] <Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155968.jpg" />
 </div>
 
 
@@ -570,82 +647,6 @@ Kryder - Kryteria Radio 321 (Kryder Yearmix) (2021-12-15) [MP3|192 Kbps] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:021A12698E398516B9DDD26109E61C9AF7A08EAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077527   (155969) от 22.12.2016
-
-Люди / Humans (2016) HDTVRip / WEB-DLRip [H.264] (сезон 2, серии 1-8 из 8) LostFilm [MP4|1280x720]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала развернется в параллельном мире, где чрезвычайную популярность приобрели новые гаджеты — высокотехнологичные роботы-слуги, которые внешне пугающе похожи на людей. Одного такого «помощника по хозяйству» приобретает живущая в пригороде семья. Вскоре они осознают, что совместная с машиной жизнь повлечет за собой жуткие последствия.Производство: Великобритания, США, Швеция / Kudos Film and Television, Channel 4, AMC StudiosЖанр: Фантастика, ДрамаРежиссер: Льюис Арнольд, Сэмюэл Донован, Чина Му-ЕнАктеры: Джемма Чан, Том Гудман-Хилл, Кэтрин Паркинсон, Люси Карлесс, Колин Морган, Эмили Беррингтон, Нил Мэскелл, Рут Брэдли, Иванно Джеремайя, Дэниэл Уэбб и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:46:00 серияРеклама: Присутствует заставка и логотип LostFilm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE08D820E75BDB10ED123645DC97AB9AD46CD95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518360   (155981) от 19.12.2021
-
-Loopback 2.2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синхронизация аудио между приложениями на вашем Mac.
-Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере. Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEB08D478A25BC2564139D609D8BAAAAE61CF08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194447   (155986) от 25.12.2017
-
-Фигурное катание. «Ростелеком-Чемпионат России» 2018. Санкт-Петербург (Россия). 1 День (21.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155986.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 декабря 2017 года, четверг
-«Ростелеком-Чемпионат России» 2018 года по фигурному катанию на коньках. Санкт-Петербург (Россия)
-День 1:
-1. Мужчины - Короткая программа(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:05—01:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3086A7FF3E8603BB7B07C0C981ADFA1B5DE4EE3
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1715618   (111514) от 12.04.2024
+
+Marvin Scondo - Road Trip Session Vol. I  (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me Baby (6:20)
+02. Real Good Lovin' (3:08)
+03. Viva La Vida (6:21)
+04. Leaving Las Vegas (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79E598BBDC553953EE61A5F1E374F7B19F78590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715609   (111515) от 12.04.2024
+
+Jeff Gaeth - Pecking Order (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red-Handed (5:18)
+02. Aquamarine (4:38)
+03. Pecking Order (5:06)
+04. Almost Home Again (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD376787D1D06ABCDDF38D9C227CCCF029B389B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715611   (111516) от 12.04.2024
+
+Big Chico - 30 Anos De Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just a Blew in to Your Town (3:08)
+02. Bad Feeling (6:22)
+03. Made My Gateaway (feat. Laretha Weathersby) (6:05)
+04. I Wonder Why (3:06)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B82A6D47FE72FBA5497117737117A7975F75F1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715567   (111517) от 12.04.2024
 
 Ирина Киреева | Я с тобой. Добрые сказки (2008) [MP3, Инна Гомес и др.]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111517.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ Harry Orlove - Mildly Popular (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111518.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Anita O'Day - 1945 - 1950 (2002) Classics [FLAC|Lossless|image + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111519.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Anita O'Day - 1950 - 1952 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111520.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ The Regime - The Regime (1998) Compilation [APE|Lossless|image + .cue] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111521.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Unkreated - Apoptosi (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111522.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ James Carter - Layin' In The Cut (2000) Atlantic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111523.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ magnet:?xt=urn:btih:D4865C89CDBD6CCB342BB65C9F1DA1D8031EF421
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111524.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ VA - Italian Jazzy Mix for Restaurant (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111525.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ magnet:?xt=urn:btih:CA80BE7CFDC2E4C6685403004AC57466B758C65C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111526.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ VA - Top 9 March 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111527.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ VA - Keep It Trance Vol. 20 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111528.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ VA - Bounced Up! (volume 16) (2023) [FLAC|Lossless|WEB-DL|tracks] <Scouse House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111529.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ magnet:?xt=urn:btih:5A695AEE2EB20FCB2FEB90E1342730A8B34C1C16
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111530.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ magnet:?xt=urn:btih:90F3C7C2386808FB158409D91E28DBF3599F4449
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111531.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ Ascent - Gamma (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111532.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ VA - Sexy Feel-Good Intimate Lounge Relaxing Tracks to Chill (2024) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111533.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ VA - Superb Soothing & Inviting Lounge Chill Out Playlist (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111534.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ VA - Greatest Feel-Good Intimate Jazz Tunes to Unwind (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111535.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ Vintage Culture - Live @ Warung Beach Club 2024 (Opening Fiesta) Itajai, Brazil 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111536.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ Jay Heye - Smooth & Easy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111537.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ magnet:?xt=urn:btih:AC639E0420902F9A36968BCCBD0FCF963996DD88
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111538.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ magnet:?xt=urn:btih:38D8B6F8DF66AA45F55F028548C24FD826D3BC49
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111539.jpg" />
 </div>
 
 
@@ -601,84 +682,6 @@ magnet:?xt=urn:btih:38D8B6F8DF66AA45F55F028548C24FD826D3BC49
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14FF2F9AB84D61DC4A03D6F08E0AC65C2D7B3387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715051   (111540) от 12.04.2024
-
-Secta - Panzer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'mon [00:03:46]
-02. Panzer [00:03:45]
-03. Dulce Dinamita [00:04:48]
-04. Todo o Nada [00:03:56](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4B59ACF8B3ADACAC8BD9F8A63AA81B1E101442
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715530   (111541) от 12.04.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. В постели с банкиром (2023) [MP3, Софья Симак]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111541.jpg" />
-</div>
-
-
-###  Подробнее
-
-И знаменитым сыщикам порой докучают проклятые конкуренты. А когда ими становятся друзья, то вообще караул! Давний приятель частного детектива Татьяны Ивановой Андрей Мельников частенько сватает Тане состоятельных клиентов. Но на этот раз решил сам сыграть первую скрипку, оставив Ивановой роль эскорт-девицы при банкире Сысоеве. Мало того, Андрей с особым рвением вмешивается (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 07:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95B04651E43682F2ED532AE50E048FA9EC098E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714619   (111542) от 12.04.2024
-
-Эридан - Не предавай мечты (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, female vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иди вперёд [00:03:42]
-02. Восхождение [00:03:52]
-03. За горизонтом неба [00:04:59]
-04. Время [00:05:11](   Читать дальше...   )Жанр: Alternative rock, female vocalПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4963D4E27D349E3E52A86C569FDC976EA5961F
 ```
 
 

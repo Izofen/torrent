@@ -1,3 +1,51 @@
+###  Публикация: 1602555   (204425) от 06.01.2023
+
+Din's Legacy (2019) [En] (1.013) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_204425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Din's Legacy - изометрическая RPG, выполненная в духе игр старой школы. События развиваются в фэнтезийном мире, где вы играете за героя, обладающего магическими способностями. Побеждая врагов, копятся очки опыта, которые можно потратить на улучшение навыков. Развивайте персонажа по одной из нескольких веток, выбирая свой уникальный стиль игры.Тип издания: LicenseРазработчик: Soldak EntertainmentЖанр: Экшны, Ролевая игра, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9B359DE31590165FD113C9C5B6F681862F6BD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581789   (205214) от 07.10.2022
+
+BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_205214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что ждет человечество спустя примерно девять тысяч лет после даты, известной как Рождество Христово? Это прошлое Земли или ее будущее? Узнайте в классической RPG с элементами action. Действие происходит в мире, называемом Терра, по крайней мере, сами его жители так его называют. Прошлое ли это Земли или её будущее? Точно никому не известно. В ночном небе можно наблюдать (   Читать дальше...   )Тип издания: LicenseРазработчик: Saturn-plus, OrionЖанр: Ролевая игра, Экшны, ФэнтeзиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601490   (205631) от 27.10.2025
 
 A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
@@ -6,7 +54,7 @@ A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205631.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205631.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205658.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Nicktoons and The Dice of Destiny (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205707.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205707.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206016.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206016.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ False Myth (2022) [Multi] (v3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206629.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206629.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Liberte (2023) [En] (1.0.2.b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206769.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206769.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Beacon Pines (2022) [En] (1.0.2) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206997.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206997.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207052.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207052.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Class of '09 (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207132.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207132.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Sylphy and the Sleepless Island (2021) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207629.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207629.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ StarCrawlers (2017) [En] (1.1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207920.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207920.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207954.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207954.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Legend of Grimrock (2012) [En] (1.3.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208105.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208105.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (13.0.0.1/dlc) License EMPRESS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208126.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208126.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211031.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211031.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ World of Haiku (2022) [En] (1.0.0f5) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211329.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211329.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212767.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212767.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Lightracer Spark (2023) [Multi] (1.2.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213989.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213989.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Al-Qadim: The Genie's Curse (1994) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214191.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214191.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214728.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214728.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Shieldwall Chronicles: Swords of the North (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214906.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214906.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218938.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218938.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Paranoia: Happiness is Mandatory (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219032.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219032.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Queen's Wish 2: The Tormentor (2022) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219952.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219952.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Queen's Wish 2: The Tormentor (2022) [En] (1.0.3) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A0F0F0857A207C696CD5BDB67FE3A277B4540E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224211   (220284) от 14.12.2018
-
-Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Multi] (4.0.0.0034/dlc) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преследуйте беглого бога на земле и по морю в сиквеле Pillars of Eternity — ролевой игры, заслужившей высокую оценку критиков. Отправьте свой корабль в опасную экспедицию через огромный неизученный архипелаг Дэдфайр.Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: Role-playing, Adventure, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C21BAE8971416368DF28D13E5CF8388E81AB9E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568060   (220990) от 22.10.2022
-
-Hard West 2 (2022) [Ru/Multi] (1.0.2.0.4192) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard West 2 - это отдающее порохом погружение в загробные тайны Дикого Запада. Вы - знаменитый бандит Джин Картер, опаснее которого не сыщешь на всем Диком Западе. Вы давненько хотели как следует навариться и очень кстати прослышали, что в ваши края движется легендарный "Призрачный поезд" нагруженный государственным золотом. Такой момент упускать нельзя.Тип издания: LicenseРазработчик: Ice Code GamesЖанр: Ролевая игра, Стратегия, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5EEC11C7432332075636971ADC5966C3E795C2
 ```
 
 

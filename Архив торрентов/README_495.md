@@ -6,7 +6,7 @@ Calibre 7.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MAGIX Samplitude Pro X8 Suite 19.1.3.23431 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110349.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Icecream Photo Editor Pro 1.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110350.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Privacy Eraser Free 6.6.3 Build 4909 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110354.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Icecream Video Converter Pro 1.43 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110374.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ HWiNFO 8.01 Build 5430 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110378.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Auslogics Duplicate File Finder 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110380.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ GeoGebra 6.0.840.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110385.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ ibis Paint X 12.0.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110388.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Icecream Photo Editor Pro 1.50 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110395.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Google Chrome 124.0.6367.119 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110397.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Firefox Browser 125.0.3 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110400.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ FireAlpaca 2.11.20 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110401.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Auslogics Disk Defrag Pro 11.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110403.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ FanControl V188 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110405.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Adobe Animate  2024 24.0.2.12 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110408.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Q-Dir 11.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110410.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Auslogics Registry Cleaner Pro 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110412.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tablacus Explorer 24.4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110414.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ LibreOffice 7.6.6.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110416.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Fort Firewall 3.12.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110420.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ ibis Paint X 12.0.5 Lite-Mod by NURIK [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110421.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Telegram Desktop 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110430.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Sandboxie 5.68.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110431.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sumatra PDF 3.6.16059 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110432.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Vivaldi 6.7.3329.24 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110435.jpg" />
 </div>
 
 

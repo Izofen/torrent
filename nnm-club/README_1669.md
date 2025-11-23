@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43749.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B6CF06BCC45CC1152B2F718A41F1EA959D85D1F4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43750.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:411ED79C2145EE696D4D94E431F0B803DCCAFFBF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43751.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8629843015E5DD466F13E3DF74CD697CC3AAE8D0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43752.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:80FF43DF5ABC901035DDE15ECABAC129C990CD19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43753.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B33ED17ED788C62E18E6FA5EE6FD3BF9F7C97345
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43754.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vivaldi 6.9.3447.44 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43755.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:72BCD1A24ACF5A4150714C34B6A388D3F8D65278
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43756.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Telegram Desktop 5.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43757.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Tony Levin - Bringing It Down to the Bass (2024) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43758.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Kylie Minogue - My Oh My (with Bebe Rexha & Tove Lo) (The Remixes) (2024) Single
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43759.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Find Me - Nightbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43760.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - D.Trance 107 (incl. D-Techno 62) (2024) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43761.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Indochine - Babel Babel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43762.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ In Extremo - Wolkenschieber (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43763.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:5223EA1AD1A63F11E289124801D5783E108E2AA0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43764.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:186538B67C529C18B6480565D2BCC8F7E1DCDA08
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43765.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Anjunabeats presents BPM 01 (DJ Mix) (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43766.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:E436A5D05D4D66FCE9D4BCA7305E3617BA2E609C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43767.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Timeless Fairytale - A Story to Tell (2024) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43768.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ The The - Ensoulment (2024) [MP3|320 Kbps] <Pop Rock, Alternative, Indie>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43769.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Summer Trance Vibes (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43770.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Nail - The Nail (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43771.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Flotsam And Jetsam - I Am The Weapon (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43772.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - DJ Hits Vol. 985 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43773.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - DJ Hits Vol. 999 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43774.jpg" />
 </div>
 
 

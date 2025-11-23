@@ -6,7 +6,7 @@
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28090.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:42D71E9955327D09B0F8CA95D93E376449C416DE
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28091.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28091.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ PurpleSchool, Антон Ларичев, Дмитрий Мозулёв | Сов�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28092.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Movavi Screen Recorder 24.5.0 RePack (& Portable) by elchupacabra (x64) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28093.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28093.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:D63589E5A244599DB2EDC61C6E1C4E35BAA5D33F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28094.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28094.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Movavi Photo Editor 24.3.0 RePack (& Portable) by elchupacabra (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28095.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28096.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C8193F30C750CA02B837FFFDE351BC66C2D0988E
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28097.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:0FCE71D36FC51124FCD6F118A1235F55744B96D6
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28098.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28099.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:7D9652E44B5FCA5CB1F321169295BA5AD438D1B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28100.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28100.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:34388E99959EE47F8EB2E929E932299050E2F313
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28101.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28101.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:34388E99959EE47F8EB2E929E932299050E2F313
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28102.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi 2 | The Seven Deadly Sins: Four Knigh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28103.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Reg Organizer 9.61 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28104.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28104.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Spotify 1.2.56.497 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28105.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28105.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.50.7200 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28106.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28106.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Marvel Comics | Marvel Universe на русском языке [Обновляе
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28107.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CCCP VPN - Тест 14 дней бесплатно. Ютуб без реклам
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28108.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ CCCP VPN - Тест 14 дней бесплатно. Ютуб без реклам
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28109.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.21.0/dlc) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28110.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Movavi Video Editor 25.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28111.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.512) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28112.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Garden In! (2023) [Multi] (1.4.5.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28113.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28114.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:1543AD9C094AAA0B91E37B2D738FC13E318B677D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28115.jpg" />
 </div>
 
 

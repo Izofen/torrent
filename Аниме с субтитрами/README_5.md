@@ -6,7 +6,7 @@ Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29711.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ishura | Исура [ТВ-1] [2024, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31669.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31968.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32311.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Wasurenagumo | Li'l Spider Girl | Паучонок [2012, Special] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32405.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Kamonohashi Ron no Kindan Suiri 2nd Season  | Безумные расследо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32521.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Kami no Tou: Koubou-sen | Tower of God: Workshop Battle | Башня Бога: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32550.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Blue Lock vs. U-20 Japan | Синяя тюрьма: Блю Лок [ТВ-2] [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32646.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Yeosin Gangnim | True Beauty | Истинная красота [2024, Web, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32886.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Shin Tennis no Ouji-sama: U-17 World Cup Semifinal | Новый принц те�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33075.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Tasuketsu: Fate of the Majority | Tasuuketsu | Правило большинст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33084.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Yarinaoshi Reijou wa Ryuutei Heika o Kouryakuchuu | На этот раз оде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33097.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sengoku Youko / Ёко из Сэнгоку [2024, TV, 35] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33109.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Natsume Yuujinchou Shichi | Natsume's Book of Friends Season 7 | Тетрадь 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33169.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Love Live! Superstar!! 3 / Живая любовь! Суперзвёзды!! 3 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33173.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MF Ghost (2024) | MF Призрак 2 [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33293.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника миф
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33295.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Raise wa Tanin ga Ii | Yakuza Fiance | Незнакомцы в другой жи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33302.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Kabushikigaisha Magilumiere | Magilumiere Co. Ltd. | Компания Маги-�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33308.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Hoshi Furu Oukoku no Nina | Nina the Starry Bride | Нина в королевс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33309.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Ranma 1/2 (2024) | Ранма 1/2 (2024) [2024, TV, 12 эп.] WebRip 720p 10-bit
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33376.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Ao no Exorcist: Yuki no Hate Hen | Blue Exorcist: Beyond the Snow Saga | Син�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33378.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Party kara Tsuihou Sareta Sono Chiyushi, Jitsu wa Saikyou ni Tsuki / Целит�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33395.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Kimi wa Meido-sama. / You Are Ms. Servant. / Ты — горничная [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33399.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru 2 / Переродившись арис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33401.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Nageki no Bourei wa Intai Shitai / Let This Grieving Soul Retire! / Скорбя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33433.jpg" />
 </div>
 
 

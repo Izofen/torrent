@@ -6,7 +6,7 @@ Microsoft .NET 8.0.3 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63077.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:901AE29C98C21E3163318413C7827A3ABFA54456
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63078.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Microsoft  Visual C++ Runtimes AIO v0.79.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63079.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:42DB7FF7D8601E98C7E5266400D7C5851115A0C5
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63080.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:AC3B853E158B33096FCE9E21F0743B2AF88BBC62
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63081.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Amaranthe - 20 Releases (2011-2024) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63082.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:93C0022EC37767B06D07F998962E753959154601
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63083.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:5E0486BD03BFE282EEDFA5C70C95F5BB5C765F61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63084.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:DDC65B9ACDD185F1B901FC0F8C82A854C69280F1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63085.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:9057F4391E5E3A635A1B3938EBDF4002620E0233
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63086.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:0E4E9CD0BE9370D0A985BC0A8489E0595FF940DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63087.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Adobe Acrobat Reader 2024.001.20604.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63088.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Rhinoceros 8 v.8.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63089.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Reg Organizer 9.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63090.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B150DBB7A4D7376CF7CC2699EDBC70ABA94531E9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63091.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:563D910225B6270667CEA4F982DC216251EE84A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63092.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:1E84C59DDF2E69E9C32498E5012C1CE025C9D885
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63093.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:A900A857816F4424C8C1403B8E9D3714550B0530
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63094.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:6F84CBA71EC93B9D5FC681E8C7BB95967806E0A2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63095.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:3C989AF6A9B18A16FE3E9D147F7279BACA5802B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63096.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ TG Pro (Temperature Gauge Pro) 2.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63097.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8414EDA798DB925575D82BDBDE9AE02746ED68E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63098.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:6CD8C17B705AC235A2E809C6BE5FEFCC047055B9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63099.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:55DA4049C7929A6B95FA47D8BBE3190F4912FDD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63100.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:6DB9D3DF3B242488026A89746BBD102968326408
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63101.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:07E011ACF5340BAE89D1A35A38D640F0BBF1732F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63102.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.9.200 Gol
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19980.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19980.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:454B5674E32E521C0C36C15935538E3A5A878EE0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19981.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19981.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19982.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3CD4018BB053CE322E7908C224FA8481674963F4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19983.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19983.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19984.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19985.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19986.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19986.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ The Last Man Survivor (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19987.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19987.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A3F1E977857A614C3F44A1D42E965AA7CC81DCFA
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19988.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19989.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19989.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19990.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19990.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Adobe Photoshop Lightroom Classic 2025 14.3.0.8 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19991.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19991.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E7969BEDB5CDB0BE8D4176CC0C1F11E36BA412A4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19992.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FreeTube 0.23.4 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19993.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19993.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A43F0CF74D8B0B3B4F8A1B560CFED86FA94B6643
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19994.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19994.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A43F0CF74D8B0B3B4F8A1B560CFED86FA94B6643
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19995.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19995.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:E7C732C55C6A14005A9DD795DE6CA6D34440D181
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19996.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19996.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3415412EF8402588E4882A837E2ABEAB762A740D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19997.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19997.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:5C77A5820EA4FF4F432FD4B184CDFA059B62FD96
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19998.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2011.010.003.007.006/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19999.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Artstation Learning, Javier Perez | Creating a Modular Sci-Fi Environment Using 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20000.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Viking Frontiers (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20001.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20002.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Photogrammetry Course: Photorea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20003.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:BA59661CD8513A8D41EA8484286272D30F808E4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20004.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20005.jpg" />
 </div>
 
 

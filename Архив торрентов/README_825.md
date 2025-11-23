@@ -1,3 +1,80 @@
+###  Публикация: 1431802   (166181) от 15.12.2020
+
+Loopback 2.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудио между приложениями на вашем Mac.
+Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере!
+
+Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте приложений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Rogue Amoeba Software, Inc. AllПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C494DD1AF8C1093896DFFFA27288D46B864A566
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673175   (166190) от 31.10.2023
+
+Acoustica Premium Edition 7.5.1 (x64) Portable by 7997 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392AEB0C182924562A501ABC46DECF3B77002DC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431854   (166193) от 15.12.2020
+
+Alfred 4 Powerpack 4.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+
+Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1585E665A9E1EE2747EACD1C02336B5F03ED7785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345486   (166208) от 15.12.2019
 
 BELOFF [dp] 2019.12.2 [Ru]
@@ -6,7 +83,7 @@ BELOFF [dp] 2019.12.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166208.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ RegCool 1.345 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166214.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ RJ TextEd 16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166223.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ Icecream Video Editor Pro 3.10 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166230.jpg" />
 </div>
 
 
@@ -105,7 +182,7 @@ Maxon Cinema 4D Studio R21.026 (RB290015) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166234.jpg" />
 </div>
 
 
@@ -129,7 +206,7 @@ Audio Ease Snapper 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166235.jpg" />
 </div>
 
 
@@ -153,7 +230,7 @@ Hides 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166246.jpg" />
 </div>
 
 
@@ -177,7 +254,7 @@ SimpleMind − Mind Mapping 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166249.jpg" />
 </div>
 
 
@@ -202,7 +279,7 @@ TinkerTool System 7 v7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166253.jpg" />
 </div>
 
 
@@ -228,7 +305,7 @@ iSnow 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166255.jpg" />
 </div>
 
 
@@ -253,7 +330,7 @@ GeoGebra 6.0.810.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166256.jpg" />
 </div>
 
 
@@ -277,7 +354,7 @@ AnyTrans for iOS 8.8.0.20201214 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166263.jpg" />
 </div>
 
 
@@ -303,7 +380,7 @@ TurboMosaic Pro 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166272.jpg" />
 </div>
 
 
@@ -327,7 +404,7 @@ Apple Remote Desktop 3.9.3 (1A50) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166279.jpg" />
 </div>
 
 
@@ -351,7 +428,7 @@ Workspaces 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166282.jpg" />
 </div>
 
 
@@ -376,7 +453,7 @@ GraphicConverter 11 v11.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166285.jpg" />
 </div>
 
 
@@ -400,7 +477,7 @@ VueScan Pro 9.7.96 (12.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166287.jpg" />
 </div>
 
 
@@ -424,7 +501,7 @@ Infuse PRO 7.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166291.jpg" />
 </div>
 
 
@@ -448,7 +525,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5511.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166296.jpg" />
 </div>
 
 
@@ -472,7 +549,7 @@ WinToUSB Technician 5.0 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166297.jpg" />
 </div>
 
 
@@ -497,7 +574,7 @@ Wing IDE Pro 9 for Mac 9.1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166303.jpg" />
 </div>
 
 
@@ -521,7 +598,7 @@ Adobe Dimension 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166304.jpg" />
 </div>
 
 
@@ -545,7 +622,7 @@ Etcher 1.5.70 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166313.jpg" />
 </div>
 
 
@@ -556,80 +633,6 @@ Etcher – простое и надежное приложение для зап
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:953B7F8515B70D1B0EC443436BD9CE039DFDE9B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345476   (166318) от 15.12.2019
-
-Adobe Character Animator 2020 3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Character Animator позволяет анимировать двухмерных персонажей, созданных в приложениях Photoshop CC и Illustrator CC. Снимайте свои движения и записывайте свой голос с помощью веб-камеры и микрофона. Character Animator отслеживает вашу мимику и движения в режиме реального времени, и ваша улыбка передается персонажу.
-
-Создавайте персонажей с нуля в приложении Illustrator (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2019Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новее,Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5645DCD2A3436D04091B5B970AF4053AC79AABD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597358   (166321) от 14.12.2022
-
-CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166321.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803C643BB2D1B05F90592AFE0C45C6C3C69E0C0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345542   (166323) от 15.12.2019
-
-Loaris Trojan Remover 3.1.6.256 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B16B1870AA8F7107E7C213C50C773B7EDF89E84
 ```
 
 

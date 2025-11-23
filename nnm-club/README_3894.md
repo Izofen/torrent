@@ -1,3 +1,81 @@
+###  Публикация: 1694333   (120926) от 25.01.2024
+
+Jean Paul Rena - A thief known for stealing hearts (Silver edition remaster 2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Thief Known For Stealing Hearts  (3:44)
+02. If Only For A Day  (3:38)
+03. Paper Bag  (4:07)
+04. Spoonful  (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3BE70D8E8327CCBEBA8EF68B5A94B99EB0CB84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694417   (120927) от 25.01.2024
+
+Musify for Mac 3.5.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Musify — лучший конвертер YouTube Music, который может загружать музыку с более чем 1000 веб-сайтов обмена музыкой для прослушивания в автономном режиме без потери качества звука. Такие как: YouTube, Spotify, SoundCloud, Facebook, Instragram и другие. Легко конвертируйте музыкальные файлы mp3, в форматы для  iPhone, iPad, iPod, Samsung и другие устройства iOS и Android. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © Copyright 2023 iTubeGoПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6575CA6F89740BC00B88E2B82E96F3858797005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694343   (120928) от 25.01.2024
+
+Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shark Skin Suit (3:58)
+02. Samosas & Kingfishers (5:15)
+03. A Day In L.A. (4:20)
+04. Killzoni (4:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E72E28684FCBC364151980F5D0DEFA5E7EB165
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694416   (120929) от 25.01.2024
 
 SQLPro for SQLite 2024.10 [En]
@@ -6,7 +84,7 @@ SQLPro for SQLite 2024.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120929.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ MacLoggerDX 6.49 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120930.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ Morkt Stof - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120931.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120932.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120933.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ OmniFocus Pro 3.15.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120934.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ Cognizance - Phantazein (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120935.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ Everdying - Within the Recesses (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120936.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ Everdying - Dimensions of Mortal Frailty (2024) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120937.jpg" />
 </div>
 
 
@@ -239,7 +317,7 @@ Edward De Rosa - Zeitgeist (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120938.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Author 9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120939.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ Keep It 2.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120940.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ magnet:?xt=urn:btih:F6BE39591B227C4EC7D65FE442B234B4B26A261C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120941.jpg" />
 </div>
 
 
@@ -339,7 +417,7 @@ Construct of Lethe - Exiler (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120942.jpg" />
 </div>
 
 
@@ -366,7 +444,7 @@ GarageSale 9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120943.jpg" />
 </div>
 
 
@@ -390,7 +468,7 @@ magnet:?xt=urn:btih:15DFCD94F32741B554A901495B9F4FEEB889705F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120944.jpg" />
 </div>
 
 
@@ -414,7 +492,7 @@ Nomy - Dark Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120945.jpg" />
 </div>
 
 
@@ -441,7 +519,7 @@ Ian Moss - Rivers Run Dry (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120946.jpg" />
 </div>
 
 
@@ -468,7 +546,7 @@ Ivy Gold - Broken Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120947.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ Be Focused Pro - Focus Timer 2.4.1 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120948.jpg" />
 </div>
 
 
@@ -521,7 +599,7 @@ The Blushing Brides - Broken Hearts on Bleecker Street (2024) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120949.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120950.jpg" />
 </div>
 
 
@@ -575,7 +653,7 @@ Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120951.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05D6A1E4EF6F1641A546443EE70F2D65EBE3EC0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694389   (120952) от 25.01.2024
-
-Emerald Table - Book of illusion's fragments (2023) [MP3|320 Kbps] <Gothic, Doom, Alternative Metal, Male-Female-Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The table [00:02:07]
-02 - Elements [00:02:20]
-03 - Blackwood [00:04:18]
-04 - Lost memories of life [00:04:52](   Читать дальше...   )Жанр: Gothic, Doom, Alternative-Metal, Male-Female-VocalsПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F786161870055791715BF86C43D8D01035A00C79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694573   (120953) от 25.01.2024
-
-Tipard Mac Video Converter Ultimate for Mac 10.2.52 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите скачать видео с YouTube, Vimeo и других веб-сайтов по обмену видео на Mac? Вам нужно копировать и конвертировать DVD / видео в любые популярные форматы видео, такие как MP4, FLV, AVI? Вы хотите преобразовать 4K видео в 4K / 1080p, конвертировать 2D видео в 3D-формат? Или хотите повернуть, или улучшить качество видео, чтобы получить неожиданный визуальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2023 Tipard StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EFA33BED2BC2A2CBE1DE783E9FD51B253F9423
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694446   (120954) от 25.01.2024
-
-Construct of Lethe - Corpsegod (2016) Released, 2020, Everlasting Spew Records [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamashtu
-02. Abandoned to Conflagration
-03. A Prayer of Scourges
-04. Ilu Pagru(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5665259F57559BBC196A6E1219349214442B70
 ```
 
 

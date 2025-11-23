@@ -6,7 +6,7 @@ Icecream Slideshow Maker PRO 5.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113881.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SQL Dynamite 2.5.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113884.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Brave Browser 1.63.169 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113886.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Skype 8.114.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113887.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Opera One 108.0.5067.20 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113889.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Google Chrome 122.0.6261.112 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113890.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Skype 8.114.0.214 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113896.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sumatra PDF 3.6.15983 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113901.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Icecream Photo Editor Pro 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113914.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ USB Device Tree Viewer 4.0.5.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113916.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Icecream Video Editor Pro 3.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113917.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Icecream Screen Recorder PRO 7.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113918.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Icecream Video Converter Pro 1.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113919.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ GIMP 2.10.36-1 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113922.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Google Chrome 122.0.6261.112 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113928.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ IceCream Ebook Reader Pro 6.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113931.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ LibreOffice 24.2.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113934.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113936.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Alfred PowerPack 5.5 Beta 2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113938.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Soulver 3 v.3.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113942.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113949.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Dynamic Wallpaper Engine 17.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113954.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Folder Icons 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113964.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Chromium 122.0.6261.112 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113971.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ IObit Uninstaller Free 13.4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113975.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113982.jpg" />
 </div>
 
 

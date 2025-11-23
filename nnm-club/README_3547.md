@@ -1,3 +1,80 @@
+###  Публикация: 1713421   (111904) от 06.04.2024
+
+MORTEN - Tomorrowland Friendship Mix (2024-04-04) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN - The Truth
+02. DJ T. - Dis (2023 Remake)
+03. Eitan Reiter - Pump Up The Jam (DJ T. Remix)
+04. RAFFA GUIDO - Famax(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2EE94C97AA54DD0BD47CD2BDB67FE508304F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713764   (111905) от 06.04.2024
+
+Ты не поверишь! (06.04.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111905.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ты не поверишь!» — информационно-развлекательная программа в жанре светского репортажа, освещающая жизнь богатых и знаменитых со всех сторон. Шикарные особняки и тайный бизнес звезд — на чем они зарабатывают свои миллионы? Новые романы и закрытые свадьбы — как живут семьи знаменитых артистов?
+
+Кто рассорил Агутина и Шамана, когда Буланова снова станет мамой и почему (   Читать дальше...   )Телекомпания: НТВЖанр: ТВ-шоуЯзык озвучки: РусскийПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B34CD3937961CE9FBC6BB6C21BF71AEF002DBBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713120   (111906) от 05.04.2024
+
+Артур, ты король / Arthur the King (2024) TS [H.264] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это было последнее соревнование капитана по приключенческим гонкам Майкла Линднорда, он был полон решимости ничему не позволить встать у него на пути. Собрав первоклассную команду, он не мог и представить, что в 700-километровом забеге у них появится неожиданный попутчик - пес по кличке Артур, встреча с которым изменит не только исход гонки, но и их жизнь.Производство: США / Lionsgate Filmse, One Films, Tucker Tooley EntertainmentЖанр: приключенияРежиссер: Саймон Селлан ДжонсАктеры: Марк Уолберг, Симу Лю, Джульет Райлэнс, Натали Эммануэль, Али Сулиман, Беар Гриллс, Пол Гилфойл, Роб Коллинз, Алани Илонгве, Сиси ВалентинаПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:29Реклама: Присутствуют вставки аудио и видео рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713319   (111907) от 05.04.2024
 
 Чашечка ароматного / A Cup of Flavor (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
@@ -6,7 +83,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111907.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ The Libertines - All Quiet On The Eastern Esplanade (2024) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111908.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:50259058015C91546E250309ACC95CC104B710B1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111909.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ magnet:?xt=urn:btih:A7E81C951065C369F3DF35537D01638BAE2763CF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111910.jpg" />
 </div>
 
 
@@ -105,7 +182,7 @@ Korpiklaani - Rankarumpu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111911.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ Canned Heat - Finyl Vinyl (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111912.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ VA - Митьковская тишина (1995) [FLAC|Lossless|tracks + .cue] <R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111913.jpg" />
 </div>
 
 
@@ -186,7 +263,7 @@ VA - Armin van Buuren - A State Of Trance 1167 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111914.jpg" />
 </div>
 
 
@@ -213,7 +290,7 @@ Apollo 100 (Featuring Tom Parker) - Joy (1972) LP [MP3|320 Kbps] <Pop, Neo-Class
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111915.jpg" />
 </div>
 
 
@@ -240,7 +317,7 @@ magnet:?xt=urn:btih:0B59BD49279C807F4362EEECBADCFFFFF9F4999D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111916.jpg" />
 </div>
 
 
@@ -266,7 +343,7 @@ Fabiana Palladino - Fabiana Palladino (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111917.jpg" />
 </div>
 
 
@@ -293,7 +370,7 @@ magnet:?xt=urn:btih:4A2B2F1507CDAC280294E098E619BCB4919FF392
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111918.jpg" />
 </div>
 
 
@@ -318,7 +395,7 @@ magnet:?xt=urn:btih:4FC650380456ADE5EA1F183EE2C842E16F90BD5D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111919.jpg" />
 </div>
 
 
@@ -342,7 +419,7 @@ Dreamcarnation - Dreamcarnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111920.jpg" />
 </div>
 
 
@@ -369,7 +446,7 @@ Corroded - Studio Albums (6 releases) (2009-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111921.jpg" />
 </div>
 
 
@@ -397,7 +474,7 @@ magnet:?xt=urn:btih:84BECAC875B3B4325247E73FF36E878F67BF03C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111922.jpg" />
 </div>
 
 
@@ -421,7 +498,7 @@ magnet:?xt=urn:btih:84BECAC875B3B4325247E73FF36E878F67BF03C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111923.jpg" />
 </div>
 
 
@@ -448,7 +525,7 @@ Electrolize - Феникс (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111924.jpg" />
 </div>
 
 
@@ -475,7 +552,7 @@ Martiria - The Eternal Soul (2004) Remastered, 2013, My Graveyard Productions [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111925.jpg" />
 </div>
 
 
@@ -502,7 +579,7 @@ magnet:?xt=urn:btih:36EC54B9B9D8C0909E082562547AD162C5984C0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111926.jpg" />
 </div>
 
 
@@ -526,7 +603,7 @@ XYplorer 25.80.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111927.jpg" />
 </div>
 
 
@@ -550,7 +627,7 @@ VA - Sport - Hits for Your Workout (2024) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111928.jpg" />
 </div>
 
 
@@ -574,7 +651,7 @@ Opera One 109.0.5097.38  Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111929.jpg" />
 </div>
 
 
@@ -585,82 +662,6 @@ Opera One 109.0.5097.38  Portable by Cento8 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00A8059C9C88B3D53A45355D85041D3AC4F8E4C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713287   (111930) от 05.04.2024
-
-Пурген - Автаркия (2024) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111930.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Автаркия
-2. Собирай объединяй
-3. Москва третий Рим
-4. Банкирам денег не дадим(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC1DC751A317C89D20D39637A7C090D4ADA1761
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713304   (111931) от 05.04.2024
-
-Emurasoft EmEditor Professional 24.1.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111931.jpg" />
-</div>
-
-
-###  Подробнее
-
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D90201A9E9DC524D1AB1C38848F37B07198DA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713222   (111932) от 05.04.2024
-
-CherryTree 1.1.2.0 (x64) + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111932.jpg" />
-</div>
-
-
-###  Подробнее
-
-CherryTree - функциональная программа, которая позволит вам без проблем вести разного уровня сложности заметки. Из плюсов можно отметить наличие Русской поддержки, подхватывается автоматически после запуска. Вы сможете создавать иерархическую структуру заметом, имеется подсветка синтаксиса, все ваши записи вы сможете защитить паролем, также вы сможете импортировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22744AEA567A855CAB23611DA08DA18C3F5E02F9
 ```
 
 

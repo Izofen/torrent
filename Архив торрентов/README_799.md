@@ -1,3 +1,77 @@
+###  Публикация: 1432760   (162774) от 18.12.2020
+
+Topaz Video Enhance AI 1.8.0 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video Enhance AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video Enhance AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714D11768F095D2FD539F4AEAFF12E9D171A2116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587334   (162780) от 18.12.2022
+
+Аркнайтс [ТВ-1]  | Рыцари ковчега: Прелюдия рассвета | Arknights: Reimei Zensou | Arknights: Prelude to Dawn [2022, TV, 8 из 8] WEBRip 1080p Raw+Rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Arknights происходит в антиутопическом научно-фантастическом мире под названием Терра, где его обитателям своиственны кемономические черты животных или мифологических рас. Регулярные природные бедствия на планете, названные Катастрофами из-за их разрушительности, оставляют после себя ценный минерал — ориджиниум, который заражает жителей прогрессирующей болезнью (   Читать дальше...   )Производство: Япония / Студия Yostar Pictures, IKIF+Жанр: Приключения, фэнтези, экшенРежиссер: Ватанабэ ЮкиЯзык озвучки: Русский многоголосый, закадровый, Японский
+- Amikiri, Cleo-chan, Crowley, Hekomi, Itashi, OkanaTsoy, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 8 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC65965C6F41601885DF01E3B54B81689D828968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580777   (162782) от 18.12.2022
+
+Каким-то образом я стал сильнейшим, прокачивая фермерские навыки | Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как же приятно пожинать плоды своих трудов, когда ты фермер! Эл Уэйн настолько проникся этим созидательным делом, что решил отточить свой навык на максимум и стать лучшим в мире. Но тех, кто ожидает, что это история про бескрайние поля да пестики с тычинками, ждёт сюрприз. Ведь, получив высший уровень, Эл внезапно понял, что его жизнь сделала крутой поворот совсем (   Читать дальше...   )Производство: Япония / Студия Studio A-CATЖанр: Приключения, фэнтези, экшенРежиссер: Нагахама НорихикоЯзык озвучки: Русский многоголосый закадровый, Японский
+- Cleo-chan, Hoopoe, WhiteCrow, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D05E97E4F7118F2D71597618B6B13FC8614D114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517309   (162789) от 15.12.2021
 
 XnViewMP 0.99.6 + Portable [Multi/Ru]
@@ -6,7 +80,7 @@ XnViewMP 0.99.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162789.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Wallpaper Engine 1.4.123 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162790.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ RogueKiller Anti-Malware 15.1.5 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162806.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ HashTools 4.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162811.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ Plexim Plecs 4.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162836.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ Do Your Data Recovery Pro 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162845.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Microsoft Edge 96.0.1054.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162857.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ Opera 82.0.4227.33 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162865.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ NoMachine 7.0.208_4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162867.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ Transcend SSD Scope 4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162873.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ magnet:?xt=urn:btih:0ECFBE709E53CD5C37CD0A1265209564E04F9F14
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162876.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ BusyContacts 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162879.jpg" />
 </div>
 
 
@@ -300,7 +374,7 @@ zCommander - File Manager for Mac 6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162882.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ Adobe Substance 3D Designer 11.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162895.jpg" />
 </div>
 
 
@@ -348,7 +422,7 @@ Mozilla Thunderbird 91.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162905.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ Ventoy 1.0.85 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162906.jpg" />
 </div>
 
 
@@ -398,7 +472,7 @@ Adobe Media Encoder 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162910.jpg" />
 </div>
 
 
@@ -422,7 +496,7 @@ Pale Moon 28.17.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162912.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ Adobe Substance 3D Sampler 3.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162920.jpg" />
 </div>
 
 
@@ -470,7 +544,7 @@ magnet:?xt=urn:btih:49B88D25D9EF462CB7463E043A5E4C6B0EF1E34F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162921.jpg" />
 </div>
 
 
@@ -494,7 +568,7 @@ Audiobook Builder 2 v2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162925.jpg" />
 </div>
 
 
@@ -519,7 +593,7 @@ Monterey Cache Cleaner 17.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162928.jpg" />
 </div>
 
 
@@ -543,7 +617,7 @@ KCNcrew Pack 12-15-21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162935.jpg" />
 </div>
 
 
@@ -554,78 +628,6 @@ KCNcrew Pack - это огромнейший сборник серийников
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FB448AE36BFB102370C3F88A3D5F3AC326EB254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674005   (162942) от 03.11.2023
-
-AnyDesk 8.0.5 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A23DF5C5C9D957E4764B8ADF8E5A2BC2DF71DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673910   (162953) от 03.11.2023
-
-OGWhatsApp 17.55 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162953.jpg" />
-</div>
-
-
-###  Подробнее
-
-OGWhatsApp Pro – это многофункциональная модификация оригинального клиента WhatsApp. Приложение даст возможность пользователям настраивать интерфейс, скачивать темы, добавлять оповещение при заходе пользователей в приложение, иметь анти-удаление сообщений и статусов, сохранять статусы, отправлять файлы неограниченного размера, устанавливать пароли для чатов, пользоваться (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 20.10.2023Разработчик: AlexModsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CE27831F91B5C99B6D74B63152226203DDE7F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432827   (162968) от 18.12.2020
-
-Adobe Zii 2021 - Universal Patcher 6.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией практически всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86627AF1E595E7A10D230552CDC9E8ED82B9EEAB
 ```
 
 

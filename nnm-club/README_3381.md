@@ -1,3 +1,81 @@
+###  Публикация: 1731755   (107588) от 22.06.2024
+
+Antonio Sanchez - Channels Of Energy (2016) 2CD, 2018, CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life [11:01]
+02. Grids and Patterns [10:05]
+03. Imaginary Lines [9:35]
+04. Channels of Energy [14:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497773C5F080EDBB77BBAF768E07C3B780A94439
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731804   (107589) от 22.06.2024
+
+Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Solemn Hour
+02. Faster
+03. Paradise (What About Us?)
+04. Stand My Ground(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE453ECED57EB0AD3DA688220556818DAB701708
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731791   (107590) от 22.06.2024
+
+Поедем, поедим! Северная Осетия: асадо по-осетински, волшебные горы и знаменитое застолье (22.06.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107590.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Алании Федерико Арнальди поднялся на древнюю башню, покатался по бездорожью, поучаствовал в традиционном застолье и попробовал монастырские сыры, а еще приготовил говядину с фасолью и асадо по-осетински.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7956B20ACAE348A1B99C63A20FBBA11C1F38E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731825   (107591) от 22.06.2024
 
 Ночной поезд в Мюнхен / Night Train to Munich (1940) BDRip [H.264/720p] [AVO]
@@ -6,7 +84,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107591.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:2C308EAB49EF868B049F7C8810D9A5F2BFE7BE5B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107592.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ magnet:?xt=urn:btih:AFD22CF096DFC30BC3A132E566842A68E1F44D82
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107593.jpg" />
 </div>
 
 
@@ -79,7 +157,7 @@ magnet:?xt=urn:btih:3B97B7C9BF7C14CFE6D7DF6A8FFB6225DCB1E3AE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107594.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ magnet:?xt=urn:btih:BDFB000C05F708A6909A257F1F90B725A1A6765C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107595.jpg" />
 </div>
 
 
@@ -131,7 +209,7 @@ magnet:?xt=urn:btih:A2EFE25288A43368B8CA1757AD0D769F55B638C6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107596.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ magnet:?xt=urn:btih:25924887B52415C1E1E5BADAF8B44DA0A9DC9396
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107597.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ Lovelorn Dolls - Deadtime Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107598.jpg" />
 </div>
 
 
@@ -209,7 +287,7 @@ Lane 8 - Summer 2024 Mixtape (2024-06-19) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107599.jpg" />
 </div>
 
 
@@ -236,7 +314,7 @@ magnet:?xt=urn:btih:E38E5DFDE1D711FFB1DD047E15028A55B55E5ADE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107600.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ magnet:?xt=urn:btih:8C40759AFC756BFFEAD15DD686F4BD2FC9EA634A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107601.jpg" />
 </div>
 
 
@@ -287,7 +365,7 @@ Manafest - Learning How To Be Human (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107602.jpg" />
 </div>
 
 
@@ -314,7 +392,7 @@ The Used - MEDZ (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, EmoCore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107603.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ magnet:?xt=urn:btih:278035FD6623B6E764C0E93205EF333363C0558C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107604.jpg" />
 </div>
 
 
@@ -367,7 +445,7 @@ Grateful Dead - From the Mars Hotel (1974) 50th Anniversary Deluxe Edition, 2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107605.jpg" />
 </div>
 
 
@@ -394,7 +472,7 @@ magnet:?xt=urn:btih:EB563ED95409C6744AA85A661552746B2231F888
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107606.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ Dezperadoz - Moonshiner (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107607.jpg" />
 </div>
 
 
@@ -445,7 +523,7 @@ magnet:?xt=urn:btih:A2A9001906EF575A28EAB5AF4BDEBC4B6566771B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107608.jpg" />
 </div>
 
 
@@ -469,7 +547,7 @@ magnet:?xt=urn:btih:BA68159606B23C4FD7A1ECB5E1235D4DB4A260A8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107609.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ Draw.io 24.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107610.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ Paul McCartney & Wings - One Hand Clapping (1974) 2 x CD, Reissue, 2024, Capitol
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107611.jpg" />
 </div>
 
 
@@ -546,7 +624,7 @@ Plugin Alliance & Brainworx - bx_glue 1.0.1 VST, VST 3, AAX (x64) RePack by TCD 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107612.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ magnet:?xt=urn:btih:EB1FE76C2B912C4378665D514D3B09727F40D271
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107613.jpg" />
 </div>
 
 
@@ -581,81 +659,6 @@ magnet:?xt=urn:btih:EB1FE76C2B912C4378665D514D3B09727F40D271
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E78116B24565AB479E4277CD550A939E4EAE386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731732   (107614) от 22.06.2024
-
-VA - Двое - Песни на стихи Михаила Танича. Записи 1982 - 1984 гг. (1984) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Валерий Леонтьев - Пароходы
-(И. Николаев)
-02. Манана Тодадзе - Скажи мне все(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CC987FD993FC1CBB184203C8239919D33A9F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731870   (107615) от 22.06.2024
-
-Крокодил Данди в Лос-Анджелесе / Crocodile Dundee in Los Angeles (2001) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы готовы к возвращению Крокодила Данди? В третьей части этого безумно популярного фильма Мик Данди, следуя за своей подругой, журналисткой Сью Чарльстон, переселяется из деревенской глуши Австралии в модный и суетливый Лос-Анджелес. Сью возглавляет лос-анжелесский офис газеты своего отца и пытается выяснить причины гибели одного из лучших журналистов. Данди, которому (   Читать дальше...   )Производство: Австралия, США / Bungalow Productions, Silver Lion Films, Vision View EntertainmentЖанр: боевик, комедия, криминал, приключенияРежиссер: Саймон УинсерАктеры: Пол Хоган, Линда Козловски, Джер Бернс, Джонатан Бэнкс, Алек Уилсон, Джерри Скилтон, Дональд Керр, Серж Кокберн, Аида Туртурро, Пол РодригесПеревод: дублированный, многоголосый & двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH) и другиеПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE15DFC745E19AE690FC8C462CF80FE203CCC7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731800   (107616) от 22.06.2024
-
-Бессмертная история / Histoire immortelle (1968) BDRip [H.264/720p] [Английская версия]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основан на коротком рассказе датской писательницы Карен Бликсен... В Макао девятнадцатого века мистер Клей - богатый торговец в конце своей жизни. Его единственный постоянный спутник - бухгалтер, польско-еврейский эмигрант по имени Левински. Однажды вечером, читая Клэю перед сном, Левински цитирует пророчество Исайи. Клей заявляет о своей ненависти к пророчествам (   Читать дальше...   )Производство: Франция / Albina Productions S.a.r.l., Office de Radiodiffusion Télévision Française (ORTF)Жанр: драмаРежиссер: Орсон УэллсАктеры: Жанна Моро, Орсон Уэллс, Роже Кожьо, Норман Эшли, Фернандо РейПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A420088C5BF54BB90AD10AA79CAD4D8F18B49299
 ```
 
 

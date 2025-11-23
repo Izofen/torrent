@@ -1,3 +1,81 @@
+###  Публикация: 1691711   (123110) от 13.01.2024
+
+Главная дорога (13.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посиделки с алкоголем в салоне авто: чем чреваты возлияния в припаркованном ТС?
+Принудительная остановка: как и чем помочь, если водитель уснул или потерял сознание прямо за рулем?
+Автопутешествие в праздничный и нарядный Татарстан.
+Забыть вещи в такси проще простого, но как их потом вернуть?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3DC842A825D79C9028980717E573730BB7D0A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691736   (123111) от 13.01.2024
+
+Exit Eden - Femmes Fatales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Melodic Metal, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Femme Fatale
+02. It's A Sin (Pet Shop Boys cover)
+03. Run! (ft. Marko Hietala)
+04. Separate Ways (Journey cover)(   Читать дальше...   )Жанр: Symphonic, Melodic Metal, Female VocalПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C912347AE4CE8BB094AF80A25561D18E5714B06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691638   (123112) от 13.01.2024
+
+Navicat Premium 16.3.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E311289051C86623F85036A056887BFDCD34AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691582   (123113) от 13.01.2024
 
 Владислав Гайдукевич | Почему ты никому не нужна (2022) [MP3, Лина Ветлицкая]
@@ -6,7 +84,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123113.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:189656811C5BCC057B8BCCE92F5A51D09E4DD4B8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123114.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ FonePaw iOS Transfer for Mac 6.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123115.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ magnet:?xt=urn:btih:40E8013F96A8874DE85C39080B0C46D2F5A7314E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123116.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ WizTree Enterprise 4.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123117.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ magnet:?xt=urn:btih:E583D654C81F0C172A4D3F1E856B70651F751587
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123118.jpg" />
 </div>
 
 
@@ -155,7 +233,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Mi | Эта глупая свин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123119.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ Green Sun - Compilation (2024) [MP3|320 Kbps] <New Age, Ambient>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123120.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ Reface v4.2.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123121.jpg" />
 </div>
 
 
@@ -230,7 +308,7 @@ magnet:?xt=urn:btih:BC5674BC1BBCF999ECA88BE1F42EBADEEC3B7804
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123122.jpg" />
 </div>
 
 
@@ -254,7 +332,7 @@ magnet:?xt=urn:btih:8F5262693295AB5B94F4FFFD3A7227AC2B2BBD59
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123123.jpg" />
 </div>
 
 
@@ -278,7 +356,7 @@ magnet:?xt=urn:btih:17047DB9BC4F366E89C6487E312B1C052A4E7C57
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123124.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ magnet:?xt=urn:btih:FE8CDB53363FDE3B3BB71AED4EC3E05949B71013
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123125.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ magnet:?xt=urn:btih:13488598352C9B1FD4A342D7C86CEBDF9A165DE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123126.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ NonVisual Desktop Access (NVDA) 2023.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123127.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ magnet:?xt=urn:btih:0643EC8CAF0335C75D54A676AE8357B452EF09F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123128.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ magnet:?xt=urn:btih:8DC8DC2ABADD22AC9328014CE13D927FEA39BB43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123129.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ magnet:?xt=urn:btih:7C6EF8F734CCF2C8126C0BAA757C97ACF6B014D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123130.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Nobody's Fool - Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123131.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ magnet:?xt=urn:btih:30B0B116AA344CA400034BAE667FE417EE9A041E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123132.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ VA - Trance In Motion Vol.370 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123133.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ magnet:?xt=urn:btih:0746957A4B6011EA43AEE41DD04C9EC12F773E24
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123134.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ magnet:?xt=urn:btih:47E6E0562C3F66FB8D56D1ACA4B3FD454718CB9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123135.jpg" />
 </div>
 
 
@@ -564,80 +642,6 @@ magnet:?xt=urn:btih:47E6E0562C3F66FB8D56D1ACA4B3FD454718CB9D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FEFA69F88186335EDB1246C5173500F661ABCA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691600   (123136) от 13.01.2024
-
-ToonMe v0.6.103 Mod by maxi123444 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите превратить ваше селфи в классный мультяшный портрет всего за секунду? Искусственный интеллект к вашим услугам! Немного магии и ToonMe превратит ваше фото в мультяшный рисунок или векторный портрет. То, для чего раньше требовалось несколько дней кропотливой работы профессионального художника, теперь доступно каждому! С ToonMe художником станете выТип издания: ProРелиз состоялся: 11.01.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9526D14DF6FFE9609B7EDA3459A18DE66A133438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691602   (123137) от 13.01.2024
-
-Корона / The Crown (2023) WEB-DL [H.264/1080p] (сезон 6, серии 1-10 из 10) NewStudio, TVShows, LostFilm, HDRezka
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123137.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — хроника жизни королевы Великобритании Елизаветы II. В то время как Британская империя находится в экономическим упадке, а политические интриги становятся причиной непреодолимых разногласий, на престол восходит Елизавета II — наследница короля Георга VI. Будучи главой крупнейшей монархии, королева должна заботиться об обширных территориях и миллионах (   Читать дальше...   )Производство: Великобритания / Left Bank Pictures, Sony Pictures Television Production UKЖанр: драма, история, биографияРежиссер: Бенжамин Карон, Филип Мартин, Кристиан ШвоховАктеры: Клэр Фой, Оливия Колман, Имелда Стонтон, Мэтт Смит, Тобайас Мензис, Доминик Уэст, Чарльз Эдвардс, Джонатан Прайс, Ванесса Кирби, Мэрион БэйлиПеревод: Многоголосый профессиональный (NewStudio, TVShows, LostFilm, HDRezka)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A061659554E2CBE56168893FAB725775546DEDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691791   (123138) от 13.01.2024
-
-Gekijouban Psycho-Pass: Providence | Психопаспорт: Провидение [2023, Movie] WEB-DL 1080p raw+eng
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение трилогии фильмов "Психопаспорт 3: Первый инспектор".
-
-Дeйcтвиe opигинaльнoгo cepиaлa paзвopaчивaeтcя в нeдaлёкoм бyдyщeм, гдe cyщecтвyeт тexнoлoгия, пoзвoляющaя мoмeнтaльнo измepить и oцeнить личнocть и cocтoяниe paccyдкa чeлoвeкa (пoчти кaк cтpaницa в coцceти, тoлькo eщё быcтpee). Bcю пoлyчeннyю тaким oбpaзoм инфopмaцию зaпиcывaют и oбpaбaтывaют, (   Читать дальше...   )Производство: студия Production I.G / プロダクション・アイジーЖанр: приключения, фантастикаРежиссер: Сиотани НаоёсиПеревод: CrunchyRollЯзык озвучки: Японский; Английский; НемецкийСубтитры: Английские; Русские; Multi-SubПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B94B0C6692404EF452DFF0E5436AA0524C0C44
 ```
 
 

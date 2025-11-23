@@ -6,7 +6,7 @@ Squid - рукописные заметки v4.3.0 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21969.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21969.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:73EC4ACBC0CBBAA635F29770DA69207497FC35A2
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21970.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21970.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E9D07E312555229965F44FB5EF6BB7C11CF22FF0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21971.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21971.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4CF39CAC5AFA62065C1F18C762EC59D9CAE85D7A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21972.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21972.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C0EB943EAB8F04DC410D03FA10FEFAD523243656
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21973.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21973.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7B25F9E8E3C5BD04122027A99683CC8E10C592F3
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21974.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21974.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6DBFE8DC4C36E27AE81AF4DE075A37752AD728A5
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21975.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21975.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6E183D2E47816F6F755CF426A76FBE614892DBCC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21976.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21976.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Imagine Earth (2021) [Ru/Multi] (1.19/dlc) Repack FitGirl [Green Planet Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21977.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21977.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7F3281D0D3B55CA20AAB881A298840E0581B092B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21978.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21978.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A5467C03A82E7E4FBE429DE6EDF9A43B01D38844
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21979.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21979.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21980.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21980.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Display Driver Uninstaller 18.1.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21981.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21981.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ UltraSearch Professional 4.6.4.1107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21982.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:220BD9C4D5DA58E5A94AC2BDEA64BA5288FA89D7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21983.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21983.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:67CAAA84AB96E3DAF7D01731666D3406DD48355A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21984.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:03A38BF6DDFE3145E4AC5835713EE8A98CB457ED
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21985.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21986.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21987.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21987.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ eWeather HD - weather app v9.0.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21988.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21988.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:2BA911537E4B9B5A732E2D87B0ABE649065748CB
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21989.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21989.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:4B7DBC06D165FFA4BC65AD843B87AF5205BA8DC5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21990.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21990.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Plus Messenger (Telegram+)  v11.9.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21991.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21991.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:63D5755DADD5C9AB95B4BFE0EE5BEB983596E70A
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21992.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21992.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:3B64124C3C0BB09F6919E6871CD4FB5DC0B390EC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21993.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21993.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:A97E1110D57CB6464609452E65BE04D4F80AF7BF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21994.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21994.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ECO HOLE (2021) [Ru/Multi] (1.06) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30637.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30637.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30639.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30639.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Reus 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30653.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30653.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Montezuma's Revenge - The 40th Anniversary Edition (2025) [Multi] (1.0.0.1.229) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30661.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30661.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30662.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30662.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30666.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30666.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cursed Digicam (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30670.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30670.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30671.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30671.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30685.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30685.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Terra Exodus (2025) [En] (43.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30692.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30692.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Decepticon [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30707.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Among Ashes (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30746.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30746.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30766.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30766.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30779.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30799.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30799.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30812.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30814.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ WWE 2K24 (2024) [Multi] (1.24/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30815.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30871.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Running With Rifles (2015) [Ru/Multi] (1.98.1/dlc) Repack Pioneer
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30875.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30881.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1a) License GOG [VR]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30895.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30897.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30897.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack FitGirl [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30907.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294.40/dlc) Repack Decepticon [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30918.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30925.jpg" />
 </div>
 
 

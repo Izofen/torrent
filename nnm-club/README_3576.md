@@ -1,3 +1,78 @@
+###  Публикация: 1710648   (112658) от 27.03.2024
+
+Газета | Аргументы и Факты. Москва №13 (27 марта - 2 апреля 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная газета «Аргументы и Факты Москва» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое. В 1990 году за самый большой тираж в мире (33,5 млн. экземпляров) была внесена в книгу рекордов Гиннеса. Еженедельник «АиФ» рассчитан (   Читать дальше...   )Жанр: Популярное изданиеИздательство: АО "Аргументы и Факты"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBCC42A3294989FCC24AFA293D7AF9791C95226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710413   (112659) от 27.03.2024
+
+VA - Happy Father's Day - Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitesnake - Here I Go Again 87 (4:36)
+02. ZZ Top - La Grange (3:50)
+03. Foreigner - Feels like the First Time (3:13)
+04. Tom Petty And The Heartbreakers - American Girl (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 04:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3AD333D1692BD6D99DD0CE0A8306B1EA20584B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710477   (112660) от 27.03.2024
+
+Ужасный секрет доктора Хичкока / L orribile segreto del Dr. Hichcock (1962) BDRip [H.264/720p] [VO] [Restored]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон. 1885 год. Доктор Бернард Хичкок ведёт двойную жизнь. В клинике при помощи своего нового анестетика он проводит хирургические операции. Возвращаясь домой, Хичкок по ночам удовлетворяет свою тайную и ужасную страсть некрофила, доводя свою жену Маргариту при помощи новой сыворотки до состояния, близкого к смерти. Но однажды, во время одной из таких мрачных любовных (   Читать дальше...   )Производство: Италия / Panda FilmЖанр: ужасыРежиссер: Риккардо ФредаАктеры: Барбара Стил, Роберт Флеминг, Сильвано Транквилли, Мария Тереза Вианелло, Харриет Медин, Аль Кристиансон, Нат Харли, Нил Робинсон, Ховард Нельсон РубьенПеревод: любительский одноголосыйЯзык озвучки: русский, итальянский, английскийСубтитры: русские (Bellena), английскиеПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A89123877AB20D2FD2B051A76214EBA8FD4905F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710659   (112661) от 27.03.2024
 
 Преподобный Ефрем Сирин | О Рае (2010) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +81,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112661.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:1CB2C7AE4CAF621C346A2BBCB34589173C49A58B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112662.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:B8BA9135586B9DE5C709E1608D59F656E60E8515
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112663.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ The Cure - Paris (Live At Le Zenith 1992 - 30th Anniversary Expanded Edition) (2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112664.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ VA - Redux Selection Vol. 4 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112665.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ Modern Heroes - Magic-The 1st Album (2024) [MP3|320 Kbps] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112666.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ magnet:?xt=urn:btih:BE89A2BF932140218662AA7AC7C3EDF98D7E4A3A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112667.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ magnet:?xt=urn:btih:14B700C50581627AE6AFD0C1C9C73B3DBEC33942
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112668.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ HWiNFO 8.00 Build 5400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112669.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ MediaMate for Mac 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112670.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Google Chrome 123.0.6312.86 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112671.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112672.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ Progressive Downloader 6.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112673.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ magnet:?xt=urn:btih:4BACA3FBFF26E0CC10C9140EFBC14663D12CE3DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112674.jpg" />
 </div>
 
 
@@ -359,7 +434,7 @@ Findroid | ArGate (Книга 1). Покоритель иного мира (2024
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112675.jpg" />
 </div>
 
 
@@ -385,7 +460,7 @@ Chasys Draw IES 5.30.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112676.jpg" />
 </div>
 
 
@@ -409,7 +484,7 @@ magnet:?xt=urn:btih:9EBB7B13218F18A217BA91A91F77A6DC6BEA0455
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112677.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ OmniReader Pro for Mac 2.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112678.jpg" />
 </div>
 
 
@@ -457,7 +532,7 @@ magnet:?xt=urn:btih:E50282DE079DC3AF5C4D1F6D4CF523355F9BCF54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112679.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ Ukrainian Masters: Bortkiewicz, Kosenko, Skoryk - Violin Sonatas (2024) [FLAC|Lo
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112680.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ PortableApps.com Platform 29.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112681.jpg" />
 </div>
 
 
@@ -534,7 +609,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka (1980) [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112682.jpg" />
 </div>
 
 
@@ -561,7 +636,7 @@ HDCleaner 2.066 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112683.jpg" />
 </div>
 
 
@@ -572,78 +647,6 @@ HDCleaner – многофункциональный программный пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF964A5925837127382D040B9F9A2AB2E80ED371
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710463   (112684) от 27.03.2024
-
-TechSmith Camtasia 2023 Studio 2023.3.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2024Разработчик: © 1995 - 2024 TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7050F1B657EB4D7359EB659CD64824DE5E5E0DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710487   (112685) от 27.03.2024
-
-Журнал | Караван историй №4 (апрель 2024) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112685.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Караван историй» – ежемесячный журнал, в котором публикуются материалы о ярких личностях, любовных историях знаменитостей, захватывающих приключениях и самых неординарных событиях века. Издание иллюстрируется эксклюзивными фотографиями, часто из личных архивов героев. «Караван историй» – это легкое, интересное и познавательное чтение.Жанр: Женский журналИздательство: АО " Издательство семь дней "Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AF5D3F788102F74ABEA41CD89669B66D308951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710349   (112686) от 27.03.2024
-
-Ужасный секрет доктора Хичкока / L orribile segreto del Dr. Hichcock (1962) BDRip [H.264] [VO] [Restored]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон. 1885 год. Доктор Бернард Хичкок ведёт двойную жизнь. В клинике при помощи своего нового анестетика он проводит хирургические операции. Возвращаясь домой, Хичкок по ночам удовлетворяет свою тайную и ужасную страсть некрофила, доводя свою жену Маргариту при помощи новой сыворотки до состояния, близкого к смерти. Но однажды, во время одной из таких мрачных любовных (   Читать дальше...   )Производство: Италия / Panda FilmЖанр: ужасыРежиссер: Риккардо ФредаАктеры: Барбара Стил, Роберт Флеминг, Сильвано Транквилли, Мария Тереза Вианелло, Харриет Медин, Аль Кристиансон, Нат Харли, Нил Робинсон, Ховард Нельсон РубьенПеревод: любительский одноголосыйЯзык озвучки: русский, итальянский, английскийСубтитры: русские (Bellena), английскиеПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1DC695EB1A14057433D6710410D0B9189BF42B
 ```
 
 

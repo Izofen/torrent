@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69979.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Neue Hits '90 - Die Internationalen Super-Hits (1990) 2 CD [OGG Vorbis|480 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69990.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anastacia - Not That Kind (25th Anniversary) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69992.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - 80! (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69998.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Hammer Hits (1991) 2 CD [OGG Vorbis|480 Kbps] <House, Soft Rock, Europop, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70031.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Top Hits Only Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70033.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - I Love Tocata 80s (2012) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70068.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Modern 80's - The Best Of Discopop Vol.4 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70111.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Modern 80's - The Best Of Discopop Vol.2 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70173.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DOS - 80s Forever (DJ Friendly Edition) (2013) [MP3|320 Kbps] <Italodance, Euro-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70178.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ DOS - 80s Forever (DJ Friendly Edition) (2013) [FLAC|Lossless|WEB-DL|tracks] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70290.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Billboard Top Hits 1978 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70540.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70555.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Billboard Top Hits 1977 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70567.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:7F4491ED213700004BC81C11888F63EEE0686BD9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70627.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:138C0C8891AC00A196443BA15C7C8AE6B0B3C469
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70654.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:4B3FD1CAEE2634BE2E95721120FCD7CE921891B0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70699.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5E000050E4E31C61D33B890669FC57A2C567DA38
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70777.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5DAB63971CB53C0F4345446C059CC31FC5C59EF4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70779.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B98E63FDDF21D391FD5027A001FB8013C7C6537C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70782.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:4BFB327039F7126CE256AD847CA851B8231E17E6
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70783.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:E53FDFE1FA687D4CE20C2C52BFF07B35047CAF97
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70784.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:DB71D3080FBF46A50DA6DC52DDBF18326CFC3279
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70797.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:6BC2E7EA91660968316CA4012121627834051FE0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70823.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:68176993333486B5EDD4BB247DE17E866512F7ED
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70849.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:E4AF1A4932D59C997514BCBD91D60FDA3714351F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70929.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sapho - El sol y la luna (1987) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39485.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Barbra Streisand - The Broadway Album (1985) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39750.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kylie Minogue - Tension II (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39983.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paul Anka - Paul Anka Gold Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40279.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Pop Heroes (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40280.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Army Of Lovers - Sexodus (2023) 2 x CD, Reissue, 2024, Maschina Records [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40480.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Olivia Newton-John - Physical (1981) Deluxe Edition, Remastered, 2021, Primary W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40620.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Paul McCartney, Wings - Band On The Run (1973) SHM-CD, Japanese Edition, Reissue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40852.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Paul And Linda McCartney - Ram (1971) SHM-CD, Japanese Edition, Reissue, Remaste
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40857.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Re
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40858.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Paul McCartney - McCartney (1970) SHM-CD, Japanese Edition, Reissue, 2024, MPL �
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40864.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Wings - Wings Wild Life (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40866.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Chris De Burgh - 50 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41196.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - RetroFutur 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41558.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - RetroFutur (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, Rav
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41567.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Let's Party (1988) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, Disco, Funk, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41994.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Mylene Farmer - Nevermore (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42089.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sting - Brand New Day (1999) Expanded Edition, 2024, A&M [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42214.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Modern Talking - Modern Talking 40 (2024) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42261.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Cher - Forever Fan (2024) Compilation, Remaster [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42397.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Maite Kelly - Nur Liebe (2024) [FLAC|Lossless|image + .cue] <Pop, Schlager>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43144.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - 10s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43557.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - 00s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43561.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Kylie Minogue - Tension (2023) (Bonus Deluxe Edition) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43566.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Various Artists - 80s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43675.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Nancy Sinatra - Nancy In London (1995) Definitive Reissue, 2024, Boots Enterpris
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43986.jpg" />
 </div>
 
 

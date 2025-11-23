@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9391.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9392.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FB36B85E73DB8EDCE6AFECB978E7ED3EA743D30E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9393.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:61A66F1CE879049714A947697D7D7CE66D50AB67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9394.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C6BD3663ED793AC071E22CC7C550A2277B716DD4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9395.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Golden Earring - 31 Albums, 3 Box Set (1965 - 2022) (91 CD) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9397.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D085474E4C91E8D5E05020EEAEEA271799BFB8B8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9399.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:55D4FF628A5DF30BC5E36FDDA7D3A2E246135218
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9406.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:EA3C3560CEF6D96F94E68DACA282EC4CF11EBA73
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9407.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:6DFE54E302DBEA8C32E17D4947722461B89F55BF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9408.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ PicPick Free+Pro 7.4.0 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9409.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:591A8C9DB4AD16E18ABA0D5E46A5222C107E2DAB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9410.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:CAD277ACD9E62941976B3F4AB1A0C98967224016
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9411.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:5125F3224C3875B0240FB2067CB00C82A7F713F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9412.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:1502CCBB05770A1B1BD952B20A623B0A24C0A54C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9413.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MediaInfo 25.07 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9414.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:6471F7144617A2E53F7EF7E38BE2E6B0C268E461
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9415.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:31355A2A467E1777E86D9303ACD5D0F45BA73590
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9416.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:062A04838A2302BE9C56B4BE1AB09937D2F28148
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9417.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:00A7B9BD67D687C43C16C510C24D2180F7495F63
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9418.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Forest 6174 (2025) [Ru/Multi] (build 19378140) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9419.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Heart Rate Plus: Pulse Monitor v2.9.5 Mod by FeralFox [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9420.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A13DC8FE4654EB59B1D11173EA3303BC0A7C7663
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9421.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:374C14298B3792A1627CD297280C3816A5CE7D02
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9422.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:0FE4F07EEC802B82627A469B3A5F012397FFEE8B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9423.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9424.jpg" />
 </div>
 
 

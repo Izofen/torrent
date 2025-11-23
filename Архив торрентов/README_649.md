@@ -6,7 +6,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137886.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Comedy Woman. Новогодний выпуск  (2015.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137895.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ iFinance 4.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137900.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0BC45304BF5CAE5BD27F5626DCA87875CA8FF946
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137903.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Privacy Eraser Free 6.1.0 Build 4789 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137904.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1B024D892CFC2D5E2B730B62F537F407B5F9F0A6
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137909.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Wondershare Repairit 5.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137911.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Waltr 2 v2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137912.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:05D2B5162C47DC85B70A1D04A67586239CBCB47C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137919.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Sandboxie plus 1.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137922.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:66C1367312D58161263F535E45904FA7C4C30EFD
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137926.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:A620723A3D2D7FB51FA2C846DFF88361AFC2A853
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137934.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DxO FilmPack 5 Elite 5.5.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137935.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ABViewer Enterprise 14.1.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137939.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:D41FE0CD25786582CD8E7968A89CF0FCE2C8732E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137952.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ BELOFF 2020.12 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137962.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Photo Lab PRO v3.12.78 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137964.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ FastStone Image Viewer 6.1 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137966.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Photo to Coloring Book v1.5.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137972.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:7721E5DA6CE198667BB78D785D330E811F9C8C7F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137973.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:ED48645C6DE16F45A5AF9F1F6342C05D57CEA724
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137988.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ MiniTool Partition Wizard Technician 12.3 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137993.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ High-Logic FontCreator Professional 15.0.0.2951 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137996.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Comedy Woman. Новогодний выпуск (2016.12.31) WEB-DL [H.264/720p-
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138002.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PictureThis - Plant Identification v3.70 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138005.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:BF9BA1DB9D50BFC5BE670CCA3C6EEFC5DE95F497
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138007.jpg" />
 </div>
 
 

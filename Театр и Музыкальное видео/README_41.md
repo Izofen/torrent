@@ -1,3 +1,81 @@
+###  Публикация: 1665458   (182012) от 30.09.2023
+
+Two Steps From Hell - Europe Tour 2022 (2023) CamRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись дебютного концертного тура Two Steps From Hell, прошедшего летом 2022 года под руководством авторов проекта Томаса Бергерсена и Ника Феникса.
+Музыкальная программа первых европейских гастролей включает 28 лучших композиций, накопившихся за 16 лет существования проекта.
+Относительно студийных/альбомных версий, живое выступление имеет ряд (   Читать дальше...   )1 Empire of Angels
+2 Cannon in D Minor
+3 After the Fall
+4 Unbreakable(   Читать дальше...   )Жанр: Симфоническая Рок-ОпераПродолжительность: 02:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9CCADF1848D099EB8CDDA3B8E26681160FB07D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427730   (182145) от 29.11.2020
+
+Квартирник НТВ у Маргулиса. Группа Отава Ё (28.11.2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_182145.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Отава Ё» — коллектив единомышленников, играющих в стиле фолк-фьюжн и народной песни, который появился абсолютно спонтанно в 2003 году. На тот момент никто из участников не предполагал, что этот эксперимент выльется в самостоятельную группу. Они прошли путь от уличных концертов и даже стали «городской достопримечательностью» Петербурга до экспериментов с русской (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89044A08C28AAE13C26FDB01B034278057ACFEE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445550   (182168) от 24.11.2022
+
+Эзоп (1981) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_182168.jpg" />
+</div>
+
+
+###  Подробнее
+
+По пьесе Гильерме Фигейредо "Лиса и виноград". История о греческом рабе Эзопе, подарившем мировой литературе свои гениальные произведения и о его глупом хозяине, обладающим деньгами и властью, но лишенном доброты и порядочности.
+Философ Ксанф возвращается домой из путешествия. По дороге он нашёл уродливого человека по имени Эзоп с кольцом шее. Эзоп становится (   Читать дальше...   )Производство: СССР, ЛентелефильмЖанр: драма, история, телеспектакльРежиссер: Олег РябоконьАктеры: Александр Калягин, Олег Табаков, Любовь Полищук, Валентин Гафт, Наталья Каресли, Юрий Мальцев, Владислав ПазиСубтитры: отсутствуютПродолжительность: 01:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACAEE91896C585BA1E4B01DDF90928D15A85694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427409   (183057) от 28.11.2020
 
 T.Rex - Wembley Empire Pool (18th March 1972, Evening Concert) (2020) WEB-DLRip [H.264/720p-LQ] [PR]
@@ -6,7 +84,7 @@ T.Rex - Wembley Empire Pool (18th March 1972, Evening Concert) (2020) WEB-DLRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183057.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183057.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:E5F5DC791493A10E8115B3BE17EB2B0C7AF3C99E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186202.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186202.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:553E760D8C23CD6A6CBA0CFD11180703A241F8F2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188038.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188038.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:B216750EB91A3FF6784EEFC8B2190626EB3065C1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189094.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189094.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ magnet:?xt=urn:btih:4C63005CB87D18A3335A1D55CD89F41B85B5540B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190134.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190134.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ magnet:?xt=urn:btih:862BACF6B2865AEFBD11C339F16FF3BEC4925699
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190429.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190429.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ magnet:?xt=urn:btih:DD1214B0D535F75B4D8DBA2DEA2F08DF553AA3AE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191026.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191026.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ magnet:?xt=urn:btih:EB2D342F307CA55825C8768998A4EA4061357B54
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191473.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191473.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ Asia – Axis XXX Live San Francisco (2015)  DVD5 (Recorded Live at the Regency 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192586.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192586.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ magnet:?xt=urn:btih:BA0DD003D230BD470273967FE3C3226202D280EE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192634.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192634.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ Asia – Resonance / The Omega Tour (2010) DVD5 (Live In Basel, Switzerland)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192663.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192663.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ Two Steps From Hell - Wacken Open Air 2023 (2023) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193515.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193515.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ magnet:?xt=urn:btih:59B3DE1FA3A1C8F9EB94D8465F301CD774AEA9AB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193691.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193691.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ magnet:?xt=urn:btih:8884CB63F9C558AF0600F7C7E2C93DD02F388D05
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194300.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194300.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Golden Voice of ENIGMA - МИР Сибири (2023) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195555.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195555.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ Original ENIGMA Voices LIVE 2019 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196204.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196204.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ magnet:?xt=urn:btih:9A5EDA772B44A353742CE940AC54B50DAF7F299F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196451.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196451.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ magnet:?xt=urn:btih:D099CB0796794F94811C89EDA6E9ECA21AB35F5E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196656.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196656.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ magnet:?xt=urn:btih:A6AA3A59567FD85C0DE5E944F4497A973793B866
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196866.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196866.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ magnet:?xt=urn:btih:7DA5D74A0502D2094152929D66221FFEC3323AE5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197172.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197172.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ magnet:?xt=urn:btih:BD4238F66B88570E95EFD2B1CEC6ABDB821CDE42
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197270.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197270.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ magnet:?xt=urn:btih:F23E89C962F275C59ADA0BFB60850855A7178EE7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197409.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197409.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ magnet:?xt=urn:btih:F92B18B6424E934996A5042EF35A2E38F3A0A1D7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197427.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197427.jpg" />
 </div>
 
 
@@ -599,78 +677,6 @@ magnet:?xt=urn:btih:F92B18B6424E934996A5042EF35A2E38F3A0A1D7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C108ADB6053CA0118958FC3AA7FA5D9E6E6CD30C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632265   (198653) от 09.05.2023
-
-SHAMAN – «Я русский» (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198653.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сцене «Крокус Сити Холла» — 100-й концерт «Я русский» певца, композитора и автора песен Ярослава Дронова, более известного как SHAMAN. Его песни стали народными хитами, они передают дух и жизненную силу России. Артист исполнил как мегапопулярные «Я русский», «Ты моя», «Исповедь» и легендарные «Улетай», «Танцы на стеклах» и «Дельтаплан», так и совершенно новые (   Читать дальше...   )Производство: Россия | ООО «ФРИМОУШН»Жанр: PopПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721A4368BE9DB214723CCCE365BE9D1E308915D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889904   (199297) от 26.04.2023
-
-Umbra Et Imago – 20 (2011) 2xDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199297.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 июля Umbra Et Imago отметила свое 20-летие. В рамках празднования дня рождения группа выступила с большим концертом в "Crystal Ballroom" в Карлсруэ. Шоу включало в себя как акустическое выступление, так и роковую часть. Кроме того, музыканты выпустили новый сингл "Davon geht die Welt nicht unter", который они окрестили "юбилейным леденцом". (   Читать дальше...   )Жанр: Gothic MetalРежиссер: Gregor SkowronekПеревод: Не требуетсяПродолжительность: 01:06:22 + 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D313A93CD3615F21E51E3948F1F803158769EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621265   (200255) от 07.04.2023
-
-Патхан / Pathaan (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипы из фильма "Pathaan" : "Besharam Rang" и "Jhoome Jo Pathaan"Производство: Индия, Yash Raj Films Pvt. Ltd.Жанр: музыка, клипыПеревод: отсутствуетЯзык озвучки: индийскийСубтитры: русские, английские (на слова песен)Продолжительность: 00:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900488F5537956487A5C048C60430D4B84ED9CAB
 ```
 
 

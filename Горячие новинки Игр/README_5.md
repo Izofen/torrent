@@ -6,7 +6,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121441.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121443.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121444.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhance
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121447.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121586.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (Build 20188271/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121588.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121651.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121653.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125823.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (1.0.0/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125884.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lethal Honor - Order of the Apocalypse (2025) [Multi] (Build 20336899) Scene Run
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125910.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hyperviolent (2023) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125927.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dead Silence - Echoes of the Damned (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125937.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126067.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Spindle (2025) [Multi] (Build 20355770) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128808.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.1) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128812.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Legacy (2025) [Ru/Multi] (build 20303577) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136714.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136874.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136875.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.2/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136895.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Baby Steps (2025) [Ru/Multi] (HotFix 2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136925.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Legacy (2025) [Ru/Multi] (0.4971) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136987.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Rose of Wind (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150705.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mind Diver (2025) [Ru/Multi] (1.0.93) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150706.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Keeper (2025) [Ru/Multi] (1.0.0.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151616.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161795.jpg" />
 </div>
 
 

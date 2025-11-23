@@ -6,7 +6,7 @@ Autodesk AutoCAD 2025 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59255.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1A27DCC06544F35A7CE356B530E4A764BFBF37D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59256.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E5E468BF06B18EA8D11D860F363E98CB8BCEFE18
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59257.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:376A28989811CA446181585962C3EE013D0DA466
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59258.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0E77523BC1CFD1A94651D1A069A31FF0EF7DF0D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59259.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ GWENT: Rogue Mage / ГВИНТ: Маг-Отступник (2022) [Ru/Multi] (1.0
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59260.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1C41EF6EB8CC904E16ABC340615D2EF8749B4878
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59261.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3DB6DD0AB1002A81D1E7BBB160B52C2E449EDB45
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59262.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59263.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:7E54E3D28DF93ED430DAAB7E9BE7E14DB742FFF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59264.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:768A74B08AF39941E42E8FADF1635087FB9898B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59265.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9473F2278876580C7BBE353687DCA3DD7E643385
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59266.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:1F209964BCB566D121C87EF9E3F312CA06550A54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59267.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:FFB44FC4B0F0FEADFC0041681EC3C8B0A6463F2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59268.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:26CFD60CD829D8B3049BF9D5FC237761340F94C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59269.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:8F24974EBCE9BAB8CB49A40BA832B2A1F69F8B6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59270.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:454D13EA6764FE783487978627E248AA18E6E3FC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59271.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:454D13EA6764FE783487978627E248AA18E6E3FC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59272.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:8CB4516EEAE4F10511ED320A0C9CE08B3706CA7B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59273.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ O&O Defrag Professional 28.0 Build 10014 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59274.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:690456DA444E0368C92D4585EC9D3CFC13DEA1CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59275.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Macrorit Partition Expert 8.1.6 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59276.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Wise Registry Cleaner Pro 11.1.4.719 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59277.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Mullvad Browser 13.0.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59278.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:61D1FAA4F8930EB6D6A333CEC550892B4ABF9A99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59279.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Google Chrome 124.0.6367.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59280.jpg" />
 </div>
 
 

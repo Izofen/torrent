@@ -1,3 +1,51 @@
+###  Публикация: 1570759   (210185) от 19.08.2022
+
+The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [PS4] [EUR] 6.72 [HEN] [License / 1.62 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведьмак 3: Дикая Охота» – ролевая игра нового поколения, действие которой разворачивается в удивительном фэнтезийном мире, где необходимо принимать сложные решения и отвечать за их последствия. Мир охвачен войной. Армия империи Нильфгаард стирает все на своем пути, стремясь добраться до самого сердца Северных королевств. Движимый глубоко личными мотивами знаменитый (   Читать дальше...   )Тип издания: LicenseРазработчик: CD Projekt REDЖанр: RPG, AdventureЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0323B6D8068776E0E010AB735DCDAFD0217889C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568897   (210327) от 18.08.2022
+
+Manhunt [Uncensored] (2004) [Xbox360] [PAL] [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шокирующая жестокость и откровенные сцены насилия сделали эту игру одним из самых скандальных проектов в истории индустрии развлечений и вызвали небывалый общественный резонанс. Америка полна мрачных индустриальных городков, где царит вседозволенность. В Карцер-Сити ценят только острые ощущения, самое сильное из которых – игра с человеческой жизнью. Нет ничего более (   Читать дальше...   )Тип издания: LicenseРазработчик: Rockstar NorthЖанр: Stealth, Action-adventure, Survival horrorЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AE380EC21AC58D7BBE388F66029933AD59CD35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569598   (210505) от 14.08.2022
 
 Tom Clancy's Ghost Recon: Wildlands (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.31 / DLC] [Ru/En] [Ultimate Edition]
@@ -6,7 +54,7 @@ Tom Clancy's Ghost Recon: Wildlands (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.3
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210505.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210505.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Prey (2017) [PS4] [EUR] 9.0 [HEN] [License / 1.12 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210958.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210958.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ The Quarry (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211205.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211205.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Cuphead Delicious Last Course (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DL
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211418.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211418.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ NBA 2K22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.13] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211431.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211431.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ MX vs ATV Legends (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211435.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211435.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Martha Is Dead (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211447.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211447.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Farm Together (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211514.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211514.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Minecraft (2019) [PS4] [EUR] 9.00 [HEN] [License / 2.35 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212055.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212055.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Farming Simulator 22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.10 / DLC] [Ru/Mu
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212468.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212468.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ GRID Legends (2022) [PS4] [USA] 5.05 [HEN] [License / 3.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212650.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212650.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ CROSS✝CHANNEL ～For all people～ (2014) [PS3] [JAP] 4.55 [Cobra ODE / E3 ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212841.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212841.jpg" />
 </div>
 
 
@@ -296,7 +344,7 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [PS4] [EUR] 9.
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212950.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212950.jpg" />
 </div>
 
 
@@ -320,7 +368,7 @@ Project CARS 2 (2017) [PS4] [EUR] 6.72 [HEN] [License / 7.10] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213055.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213055.jpg" />
 </div>
 
 
@@ -344,7 +392,7 @@ LEGO The Hobbit (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213106.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213106.jpg" />
 </div>
 
 
@@ -368,7 +416,7 @@ Conan Exiles (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.78 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213269.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213269.jpg" />
 </div>
 
 
@@ -392,7 +440,7 @@ Aragami 2 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213290.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213290.jpg" />
 </div>
 
 
@@ -416,7 +464,7 @@ Far Cry Classic (2014) [PS3] [USA] 4.21 [PSN]  [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213983.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213983.jpg" />
 </div>
 
 
@@ -441,7 +489,7 @@ Alan Wake Remastered (2022) [Switch] [EUR] 14.1.2 [eShop / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214239.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214239.jpg" />
 </div>
 
 
@@ -465,7 +513,7 @@ Spider-Man: The Movie (2002) [PS2] [NTSC] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214591.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214591.jpg" />
 </div>
 
 
@@ -489,7 +537,7 @@ Need For Speed: Carbon (2006) [Xbox360] [Region Free] FreeBoot [License / 13 DLC
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214677.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214677.jpg" />
 </div>
 
 
@@ -513,7 +561,7 @@ MorphX / Симбионт (2010) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214928.jpg" />
 </div>
 
 
@@ -537,7 +585,7 @@ NieR:Automata The End of YoRHa Edition (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215073.jpg" />
 </div>
 
 
@@ -561,7 +609,7 @@ BIT.TRIP RUNNER 2: Future Legend of Rhythm Alien (2013) [Xbox360] [RegionFree] F
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215386.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215386.jpg" />
 </div>
 
 
@@ -572,54 +620,6 @@ BIT.TRIP RUNNER 2: Future Legend of Rhythm Alien - это самый быстр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C79B1CD6D7D1DA2D5D855676D94F35A9F095795
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966558   (217315) от 18.12.2015
-
-MultiMan Singstar X-Mas Edition (2015) [PS3] 4.xx [Repack] [Ru/En]
-
->>Консольные Игры
->>Тех. раздел Консолей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний Multiman SingStar Replacement данная версия игрового менеджера отображается в PSN как приложение SingStar официальных прошивок, с этим менеджером вы не засветитесь в PSN мультиманом, но всё равно необходимо использовать ПСН патч, для отключения кастомных вызовов. Устанавливайте и наслаждайтесь безопасным доступом в PSN и игре онлайн.Тип издания: RepackРазработчик: Arch, Lightra1nЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7E70FD35FF58BE4AC77A35E72E605E0AB55DDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400758   (218551) от 24.10.2022
-
-Assassins Creed Odyssey (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.56 / DLC] [Ru/En]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершите настоящую одиссею, отправившись в невероятные приключения в мире, где у каждого решения есть последствия. Собственная семья приговорила вас к смерти, вам предстоит пройти долгий путь от изгоя до легендарного героя Греции и раскрыть тайну своего прошлого. Море и горы находятся в вечном противоборстве в охваченном войной мире, облик которого определили и (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft QuebecЖанр: Ролевая игра, Приключение, ЭкшенЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7ECB74B775D9CF9F666E368CFD1B95BDAF5D50
 ```
 
 

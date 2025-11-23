@@ -1,3 +1,75 @@
+###  Публикация: 1704622   (114244) от 05.03.2024
+
+Нефариус / Nefarious (2023) BDRip [H.265/1080p] [10-Bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114244.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день запланированной казни осужденного серийного убийцы к нему в тюрьму приезжает врач, чтобы провести психиатрическую экспертизу. Тот с порога заявляет, что умереть всё равно не сможет, так как является демоном, а психиатр перед уходом совершит три убийства.Производство: США / Believe Entertainment (II)Жанр: ТриллерРежиссер: Чак Конзелман, Кэри СоломонАктеры: Джордан Бэлфи, Шон Патрик Флэнери, Том Омер, Гленн Бек, Дэниэл Мартин Берки, Марк Де Алессандро, Камерон Арнетт, Джеймс Хили мл., Сара Эрнандес, Джаррет ЛеМастерПеревод: Дублированный (Футурум), профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AACE389F7AAD583CBB737243E1575DA9F9E18CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526259   (114245) от 05.03.2024
+
+Необратимость. Полная инверсия / Irreversible - Inversion Integrale (2020) BDRip [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114245.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как на молодую женщину зверски нападают в переходе, ее бойфренды — нынешний и бывший — не в силах сдержать гнев, отправляются собственноручно восстановить справедливость.Производство: Франция / 120 Films, Eskwad, Les Cinémas de la ZoneЖанр: Триллер, драма, криминал, детективРежиссер: Гаспар НоэАктеры: Моника Беллуччи, Венсан Кассель, Альбер Дюпонтель, Филипп Наон, Джо ПрестиаПеревод: Двухголосый профессиональный (CP Digital)Субтитры: ФранцузскиеПродолжительность: 01:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F91364E2058FD2A13ED45ADEF0AC6E47A829429
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572616   (114246) от 05.03.2024
+
+Takt Op. Destiny | Такт. Опус Дестини | Такт. Опус Судьба [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка есть свет, что освещает людские сердца… но однажды этот свет украли. Мир изменился, когда на землю упал чёрный метеорит: он принёс с собой ужасных монстров, Д2, которые сразу же принялись захватывать планету и людей. Со временем выяснилось, что этих чудищ привлекает музыка — и её запретили. Но потом появились те, кто смог противостоять захватчикам. Мьюзикарты (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Ито ЮкиЯзык озвучки: Японский, русский (AniLibria, AniPlague)Субтитры: Русские (AniLibria, SovetRomantica)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4D4C2EBA326C8165BB75A2CADDE5D66D96808B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704568   (114247) от 05.03.2024
 
 Команданте / Comandante (2023) BDRip [H.264/1080p] [MVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114247.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:6672A19E1C658A783FA9601EF39BF08F1B5BE104
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114248.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:707185E4EC20DB9654E113CD8C7E772B6BB1F4CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114249.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:085A49D5D8619DA831D57DF96CC47D6319E0A239
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114250.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Total Commander 11.03 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114251.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:307F70B12074AAB1097D0B4D1E1060250C6308C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114252.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:F2CC33FDAB741E0C28AF023CF458C6EB585D6113
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114253.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:F03706D43D2BD3621E464C512E187A5DDDBD5951
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114254.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:F03706D43D2BD3621E464C512E187A5DDDBD5951
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114255.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:C9369CF98128B1A9163E8A3462B6A6A666442418
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114256.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:2229F6C0F23692B9B2FCEE16D0F2B48C784D0AB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114257.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:FBCE111408765C63D8D75EBF8862D796D8BFB342
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114258.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:FBCE111408765C63D8D75EBF8862D796D8BFB342
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114259.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:3BFA0F5AE1872B050ACEF3EFFB9FF03B25AC0E9B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114260.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ Ableton - Live 12 Suite 12.0 (x64) (R2R) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114261.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:A1E0C6BD9CCD8666A36815ED2CB6CA47B19522EF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114262.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ KMS Tools Portable by Ratiborus 05.03.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114263.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ True Stalker (2023) [Ru/Multi] (1.5) Repack/Mod AP-PRO Team
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114264.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ Adobe Photoshop 2024 25.5.1.408 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114265.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114266.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:0BCE6041222655554FC6A7A901BEF384FD9EB4CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114267.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:02E080E3F20F22E0368932AB4D81420DA7AFAEBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114268.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ magnet:?xt=urn:btih:84C53E7A3D0067B34155B4A969CB9C4BACB4C356
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114269.jpg" />
 </div>
 
 
@@ -551,78 +623,6 @@ magnet:?xt=urn:btih:84C53E7A3D0067B34155B4A969CB9C4BACB4C356
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF1D9633FA300E1606C5EB4173A5B7C6E7E62D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704690   (114270) от 05.03.2024
-
-Бедные-несчастные / Poor Things (2023) BDRip [H.264] [MVO]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Викторианский Лондон. Сумасшедший хирург Годвин вылавливает из Темзы тело молодой беременной женщины, прыгнувшей с моста, пересаживает ей мозг её собственного нерожденного младенца и реанимирует. Белла поначалу передвигается как сломанная кукла и имеет весьма ограниченный словарный запас, но быстро учится. Чтобы наблюдать за ней, Годвин призывает на помощь студента-медика (   Читать дальше...   )Производство: Ирландия, Великобритания, США, Венгрия / Element Pictures, Fox Searchlight PicturesЖанр: драма, комедия, фантастикаРежиссер: Йоргос ЛантимосАктеры: Эмма Стоун, Уиллем Дефо, Рами Юссеф, Марк Руффало, Кэтрин Хантер, Ханна Шигулла, Маргарет Куолли, Вики Пеппердин, Джек Бартон, Чарли ХискокПеревод: Многоголосый профессиональный (Jaskier), Авторский (Ю. Сербин  18+)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 02:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCB54590919D408FD8262141B20A7A8FBB3332D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704556   (114271) от 05.03.2024
-
-The Mobius Machine (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114271.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Mobius Machine бросает игроков в огромный инопланетный мир, кишащий опасностями. Игроки прокладывают свой путь через разнообразные ландшафты, от обломков разбившегося космического корабля до пышных плавучих лесов, сражаясь по пути с враждебными существами и неисправными машинами. Исследование - ключевой момент в The Mobius Machine. Взаимосвязанный мир позволяет (   Читать дальше...   )Тип издания: RepackРазработчик: Madruga WorksЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE79CD013EEB9FF18208576F263993C5A335AD14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704598   (114272) от 05.03.2024
-
-Аргайл: Супершпион / Argylle (2024) WEB [H.264] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писательница Элли Конвей заканчивает уже пятый роман о приключениях шпиона Обри Аргайла, который борется со зловещей тайной организацией. Когда женщина отправляется на поезде к маме, к ней подсаживается развязный длинноволосый мужчина и сообщает, что он — настоящий шпион, а Элли в своих книгах угадала многое из происходящего в действительности, и им немедленно нужно (   Читать дальше...   )Производство: Великобритания, США / Apple Original Films, Marv Films, Cloudy ProductionsЖанр: боевик, комедияРежиссер: Мэттью ВонАктеры: Брайс Даллас Ховард, Сэм Рокуэлл, Брайан Крэнстон, Генри Кавилл, Кэтрин О'Хара, София Бутелла, Дуа Липа, Ариана Дебоуз, Джон Сина, Сэмюэл Л. ДжексонПеревод: Дублированный (Bravo Records Georgia / Movie Dubbing, звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 02:19:00Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
 ```
 
 

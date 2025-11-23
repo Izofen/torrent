@@ -6,7 +6,7 @@ FreeTube 0.23.9 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2680.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2685.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ TechSmith Snagit 25.3.1 build 7988 (x64) RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2782.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ TechSmith Camtasia  25.2.3 Build 11943 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2786.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ ASCOMP Screencapt 2.004 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2816.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Master PDF Editor 5.9.94 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2818.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ SoftPerfect RAM Disk 25.8 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2821.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hard Disk Sentinel PRO 6.30.3 Build 13402 Beta RePack (& Portable) by elchupacab
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2823.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ O&O DiskImage Professional 21.1.184 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2991.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ IObit Uninstaller Pro 15.0.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3012.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ iDownerGo Video Downloader 10.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3019.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ GerbView 11.20 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3022.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Futuremark PCMark 10 Professional Edition 2.2.2737 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3031.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ CPU Temp 1.8.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3044.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3071.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ashampoo UnInstaller 16.00.02 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3216.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ OneCommander Pro 3.101.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3218.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Download Master 7.2.1.1737 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3223.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Ashampoo WinOptimizer 28.00.14 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3226.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Total Commander 11.56 Extended 25.9 Full / Lite RePack (& Portable) by BurSoft [
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3228.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ AOMEI Partition Assistant Technician Edition 10.9.0 RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3238.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ MobiKin Backup Manager for Android 2.0.24 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3245.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Microsoft Activation Scripts (MAS) 3.7 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3247.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Icecream PDF Candy Desktop PRO 3.15 RePack (& Portable) by elchupacabra [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3331.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ IObit Uninstaller Pro 15.0.0.13 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3343.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ MyLanViewer 6.5.8 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3350.jpg" />
 </div>
 
 

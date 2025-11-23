@@ -6,7 +6,7 @@ Slurm (Слёрм), Дмитрий Горчаков | Микросервисы �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173512.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:33C005F74055B0F5ADFFD17F4E002FDBBBC6DF4E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173521.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C66E791C176A30063548DA1946F21ED9B02A23B9
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173537.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:13B356F1401CE89947D2FC530F076F08F0F985A1
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173605.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:5490372C82DC156927F4CCB97B1F9E7A645263D3
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173864.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ FlippedNormals, David Saiz | Hard Surface Modeling for Games (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173965.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Udemy, Barry C Donovan | Fantastic Faces - A Course for Photographers (2025) PCR
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173983.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Granich.Design, Вадим Гранич | Графсистема Воздух (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174230.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174230.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Обратная с
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174234.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Dream & Draw Art School, Анастасия Козлова | Волшебный 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174250.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174250.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:FC5392710834A50BE21FB8A3393F9E51DA6CD0FB
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174512.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:CD95A58D9290A8EAACF50D5820F3845A2C160E6E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174658.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174658.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ XYZ School | Blender 2.8 Intro (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174670.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174670.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:5EC4EE5EB2C73B5A26FE8A40A2F678AE02E29B5E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174674.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174674.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:622B1D9A705CE29B71EA65CD34AF1AEDA6BBCDB3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174678.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174678.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Schoolism, Bobby Chiu | Цифровое рисование с Бобби Чу /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174712.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174712.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Tolkovoprod, Анастасия Мазуровская | I am designer. Тари
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174788.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174788.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174789.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174789.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Skillshare, Simon Van Den Hende| Основы скриптинга на Python �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174873.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174873.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Udemy, MrBriit | End-To-End Machine Learning Projects&Deployment Mastery 2021 (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174893.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174893.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Gumroad, Evolving CG | Создание малыша Йоды / Creating Baby Yo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174907.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174907.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Skillbox, Наталья Кисельникова | Кто я и чего хоч
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174934.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175447.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175447.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Udemy, Krista King | Станьте Мастером Теории Вероятн
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175606.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175606.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ ArtStation, Rico Cilliers | Введение в скульптинг в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175612.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175612.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:F7A5756887D238D5FA194E8D8030635CEDE904ED
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175621.jpg" />
 </div>
 
 

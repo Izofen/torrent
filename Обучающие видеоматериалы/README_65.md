@@ -6,7 +6,7 @@ ArtStation, Realtime GraphX | Create Next Gen AAA Characters for Unreal Engine (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160984.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ New masters academy, Glenn Vilppu | Foundations of Composition (2016) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161010.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Skillshare, Marco Bucci | Digital Painting 3 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161021.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161030.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:5DECB57C1898581E2031F79A13DC8D5135427A1A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161032.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Skillshare, Dave Bergin | Character Creation in Cinema 4D and Daz Studio (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161044.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ JUG Ru Group | Heisenbug 2023 Autumn. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161051.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161179.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ ZartSchool, Павел Зубов, Татьяна Зубова | Море на �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161213.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Enterclass, Елена Куракина | Розы акрилом (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161252.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:667D2ABDD49BFA63F72542C1B280C95C31A1E2E8
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161272.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:2491363FED9306FFAD98F06D89132B2DC2E866C8
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161297.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:119730C6E02239BAB798A21F9797C12FF86BB125
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161353.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:F990F1BE197EAA4755718135D5D3326A919463C1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161360.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:81948D63ACBF4752B620EA843E5F25C11A3F998C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161406.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:2DE135A052C4338B5996CAC106AF30B291C62672
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161414.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Skillbox, BangBang, Tagline, Илья Митрошин и др. | Скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161526.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Skillbox, Eight, Наиля Синицына и др. | Рекламная фо�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161543.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:88E795CCFEDC7F89E3D820E2544B2E843C2E5B1E
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161545.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Community Traders, Сергей Привалов | Программируем т
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161634.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B3087F0773A4B3F7F4C4503D9A2EA23AC15F5C4C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161652.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Yiihuu, Wingfox, Ji Yu | Creating a AAA Character from Scratch: A Nameless Samur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161658.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:636234E04A31A6F97AC160C86BB0EC1BFF4BE3BE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161677.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Udemy, Banza Academy | SQL для нетехнических специалис�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161688.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Udemy, Luis Ramirez Jr | Complete Modern PHP Developer Course in 2023 (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161725.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Study Kvo, Саня Кво | Марафон по UX UI дизайну мобил
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161747.jpg" />
 </div>
 
 

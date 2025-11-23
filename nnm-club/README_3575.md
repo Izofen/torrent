@@ -1,3 +1,75 @@
+###  Публикация: 1710469   (112632) от 27.03.2024
+
+Джей Джаямохан | Детский нейрохирург (2022) [MP3, Андрей Каминский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как протекают рабочие дни в детском нейрохирургическом отделении? В своей книге Джей Джамохаян, врач Оксфордской больницы, подробно описывает этот мир со всеми его победами и поражениями. Автор рассказывает, как проходят многочасовые операции, о своих маленьких пациентах и их родных, и о том, через что приходится им пройти. Вы узнаете, чем мозг ребенка отличается (   Читать дальше...   )Жанр: Популярно об медицинеИздательство: БОМБОРАПродолжительность: 08:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F248274F1DBB77E6A52ABC1750B47638A836F05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710712   (112633) от 27.03.2024
+
+MarkMyWords 2.10.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112633.jpg" />
+</div>
+
+
+###  Подробнее
+
+MarkMyWords предлагает простые функции форматирования и структурирования содержания статей, которые будут опубликованы в «Интернете» и остаются независимыми от платформы при использовании текстовых документов.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © Xelaton SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D4092D4B0E4DBACBB9627094493A71387836CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710495   (112634) от 27.03.2024
+
+Журнал | Таинственные истории №06 (286) (2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112634.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D30FD8C5EB1BFDB72266D5945D137461F0C36D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710493   (112635) от 27.03.2024
 
 Журнал | Таинственные истории №05 (285) (2024) [PDF]
@@ -6,7 +78,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112635.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:69FB7A6B86A132574811C49A755723CC72560928
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112636.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ VA - Finger-Picking Masters (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112637.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:0F6C23EB3EA4E318296D456099B73021B6F7A9A6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112638.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Cryptosis - The Silent Call (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112639.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ Tribuzy - Execution (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112640.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ Cookie 7.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112641.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ Ramsey Lewis - Sky Islands (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112642.jpg" />
 </div>
 
 
@@ -211,7 +283,7 @@ magnet:?xt=urn:btih:7D5E703C8DB01416BAEAA70F30402DCCEA776FF9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112643.jpg" />
 </div>
 
 
@@ -238,7 +310,7 @@ Skiltron - Beheading the Liars (2008) [APE|Lossless|image + .cue] <Celtic Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112644.jpg" />
 </div>
 
 
@@ -265,7 +337,7 @@ Cryptosis - Bionic Swarm (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112645.jpg" />
 </div>
 
 
@@ -292,7 +364,7 @@ Cyber Space - Cyber Space Plays A Tribute To Hotsound (2011) [MP3|320 Kbps] <Spa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112646.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ VA - I Love Rock 'N' Roll: Anthems for Hard Times (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112647.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ VA - Trance In Motion Vol.373 (2024) [MP3|320 Kbps|image + .cue]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112648.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:4E236F18182B9FC042CD3FCBA73068714E610B98
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112649.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Stars In Toledo - Ascendance (2024) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112650.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ magnet:?xt=urn:btih:F3977C6728CBA3CD7270B3EE2DC208BD5AD1AADC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112651.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ Jettison 1.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112652.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka Two Colors (1989) [
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112653.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ Monkey's Audio 10.60 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112654.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ ViWizard Audio Capture for Mac 2.1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112655.jpg" />
 </div>
 
 
@@ -550,7 +622,7 @@ magnet:?xt=urn:btih:58DF4007A887A001A2723ABB44A4036F9CD8C13D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112656.jpg" />
 </div>
 
 
@@ -577,7 +649,7 @@ VA - Father's Day: Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112657.jpg" />
 </div>
 
 
@@ -591,81 +663,6 @@ VA - Father's Day: Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E221C97A43E0384EA400D4AFDA1F98D7094CA0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710648   (112658) от 27.03.2024
-
-Газета | Аргументы и Факты. Москва №13 (27 марта - 2 апреля 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная газета «Аргументы и Факты Москва» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое. В 1990 году за самый большой тираж в мире (33,5 млн. экземпляров) была внесена в книгу рекордов Гиннеса. Еженедельник «АиФ» рассчитан (   Читать дальше...   )Жанр: Популярное изданиеИздательство: АО "Аргументы и Факты"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBCC42A3294989FCC24AFA293D7AF9791C95226
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710413   (112659) от 27.03.2024
-
-VA - Happy Father's Day - Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitesnake - Here I Go Again 87 (4:36)
-02. ZZ Top - La Grange (3:50)
-03. Foreigner - Feels like the First Time (3:13)
-04. Tom Petty And The Heartbreakers - American Girl (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 04:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3AD333D1692BD6D99DD0CE0A8306B1EA20584B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710477   (112660) от 27.03.2024
-
-Ужасный секрет доктора Хичкока / L orribile segreto del Dr. Hichcock (1962) BDRip [H.264/720p] [VO] [Restored]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон. 1885 год. Доктор Бернард Хичкок ведёт двойную жизнь. В клинике при помощи своего нового анестетика он проводит хирургические операции. Возвращаясь домой, Хичкок по ночам удовлетворяет свою тайную и ужасную страсть некрофила, доводя свою жену Маргариту при помощи новой сыворотки до состояния, близкого к смерти. Но однажды, во время одной из таких мрачных любовных (   Читать дальше...   )Производство: Италия / Panda FilmЖанр: ужасыРежиссер: Риккардо ФредаАктеры: Барбара Стил, Роберт Флеминг, Сильвано Транквилли, Мария Тереза Вианелло, Харриет Медин, Аль Кристиансон, Нат Харли, Нил Робинсон, Ховард Нельсон РубьенПеревод: любительский одноголосыйЯзык озвучки: русский, итальянский, английскийСубтитры: русские (Bellena), английскиеПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A89123877AB20D2FD2B051A76214EBA8FD4905F
 ```
 
 

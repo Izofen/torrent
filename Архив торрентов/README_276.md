@@ -6,7 +6,7 @@ Wireshark 4.2.4 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61487.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ O&O Defrag Professional 28.0 Build 10006 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61490.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Mp3tag 3.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61492.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Macrorit Disk Scanner 6.7.2 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61493.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ CrystalMark Retro 1.0.0 RC2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61494.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ ExtraDisks 24.3.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61496.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ MediaInfo 24.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61503.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Psiphon 3 build 181 (27.03.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61504.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ LibreOffice 7.6.6.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61506.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MediaHuman YouTube Downloader 3.9.9.90 (0321) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61507.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Topaz Gigapixel AI 7.0.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61508.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ LibreOffice 24.2.2.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61511.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Macrorit Partition Extender 2.3.2 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61520.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ HWiNFO 8.00 Build 5400 + Portable (28.03.2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61521.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Topaz Video AI 4.2.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61522.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0EC232A101C4F341619042FD015ED5F4F41EE08B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61534.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Office Installer & Office Installer+ 1.11 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61536.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ OCCT 12.1.18 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61584.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tails 6.1 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61586.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Topaz Video AI 5.0.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61592.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:9815993A00AA4DC833C567F5703F177DF4433AD2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61593.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ LDPlayer 9.0.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61598.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ XviD4PSP 8.1.70 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61604.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Adobe Bridge 2024 14.0.3.200 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61606.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Illustrator 2024 28.4.0.82 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61617.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:689A83ABF79D1B63FA64A1BADF799D6FE63077F1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61620.jpg" />
 </div>
 
 

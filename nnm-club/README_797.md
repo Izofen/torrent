@@ -6,7 +6,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21048.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D100C0F2FA634B10AFA45F5CE4F6ED9DB155247E
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21049.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Gary Moore - Compilation (1973-2021) [MP3|320 Kbps] <Blues rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21050.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:77845F42B2183867BC50D95E0B6FF423318577E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21051.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Xiaomi Home (Ранее. MiHome) v10.4.700 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21052.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F5F88F2DFD765C2BBD00962A3D1F38271E4B5AF9
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21053.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ XnConvert 1.105.0 + Portable (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21054.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ OpenVPN 2.6.14 (18.04.2025) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21055.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:71A027030574B0C419BC8806DEA21D11EED37AB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21056.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21056.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D2A13E8F527BA6A99F9D2DDB14BFE23AB8D0E80E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21057.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ MAGIX Vegas Pro 22.0 Build 248 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21058.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:3836FAF47BB66CAC4C7062930695D4E0C11AC8E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21059.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:BA0CCD812598AC93F42D6ECA527AB65159E5A4F2
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21060.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Google.ru уйдёт в прошлое: поисковик переведёт п
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21061.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21061.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21062.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Topaz Photo AI Pro 3.6.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21063.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21064.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21064.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21065.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7639CE8EC54D490C5A33DCA7A0BB1DE050FA2F95
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21066.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:E150DA6D0AE6BF2AEE4488DC49117B2B3704ED2C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21067.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21067.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21068.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21069.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:7B1FA102009D81B9AE225D2DD82062187FA94A4D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21070.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:18F7AC089B2C4C17B21171DDF51E63AC04161D70
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21071.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21071.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:EA87C37ECA631C124BD511496439735AC1238AAA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21072.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21072.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sophie Zelmani - Best of (1995-2025) Compilation Album [MP3|320 Kbps] <Pop, Rock
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21073.jpg" />
 </div>
 
 

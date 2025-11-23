@@ -1,3 +1,27 @@
+###  Публикация: 1835647   (251710) от 07.11.2025
+
+YT Downloader 9.18.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251710.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAB450F93E154F65350102068FCC411FBD11F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835646   (251711) от 
 
 4K Downloader 5.19.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +30,7 @@
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251711.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251711.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Any Video Downloader Pro 9.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251779.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251779.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Ant Download Manager 2.16.2 Build 91828 (91829) + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251947.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251947.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ TeamViewer 15.40.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252155.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252155.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ YT Downloader 9.18.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252313.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252313.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ VCap Downloader 0.1.40.6802 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252366.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252366.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ Ant Download Manager Pro 2.16.2  Build 91826 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252367.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252367.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:BF77D9E6AED0C743A997FAF17696C067C4CC3A1A
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252438.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252438.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:CE9502A8FD11819E989C5A2C9FB6C63EC63AFCCC
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252489.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ Lacey 3.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252564.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252564.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ qBittorrent 5.1.3 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253077.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253077.jpg" />
 </div>
 
 
@@ -271,7 +295,7 @@ YT Downloader 9.18.2 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253104.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253104.jpg" />
 </div>
 
 
@@ -295,7 +319,7 @@ magnet:?xt=urn:btih:FFDBB99C0A962D1626594E3A25ABF68786BDD527
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253108.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253108.jpg" />
 </div>
 
 
@@ -319,7 +343,7 @@ MyLanViewer 6.6.5 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253111.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253111.jpg" />
 </div>
 
 
@@ -343,7 +367,7 @@ MediaHuman YouTube Downloader 3.9.18 (1111) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254129.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254129.jpg" />
 </div>
 
 
@@ -367,7 +391,7 @@ MediaHuman YouTube Downloader 3.9.18 (1111) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254224.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254224.jpg" />
 </div>
 
 
@@ -391,7 +415,7 @@ Google Chrome 142.0.7444.163 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254234.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254234.jpg" />
 </div>
 
 
@@ -415,7 +439,7 @@ qBittorrent 5.1.3 Portable by stalkerok (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254316.jpg" />
 </div>
 
 
@@ -440,7 +464,7 @@ Firefox Browser 145.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254363.jpg" />
 </div>
 
 
@@ -464,7 +488,7 @@ Radmin VPN 1.3.4570.5 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254400.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254400.jpg" />
 </div>
 
 
@@ -490,7 +514,7 @@ magnet:?xt=urn:btih:ED60F836D9FADE1EB160E8AF4547FDB6F9555D4D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254489.jpg" />
 </div>
 
 
@@ -514,7 +538,7 @@ Advanced IP Scanner 2.5 Build 4594.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254643.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254643.jpg" />
 </div>
 
 
@@ -539,7 +563,7 @@ MassTube Ultra 21.2.1.179 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255577.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255577.jpg" />
 </div>
 
 
@@ -563,7 +587,7 @@ AnyDesk 9.6.5 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255586.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255586.jpg" />
 </div>
 
 
@@ -587,7 +611,7 @@ Throne (ex. NekoRay / NekoBox) 1.0.8 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255618.jpg" />
 </div>
 
 
@@ -600,30 +624,6 @@ Throne – это программное обеспечение, которое 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBB7B242AF81CEFCF7A32E989D2F0002489C48A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836851   (255642) от 13.11.2025
-
-4K Video Downloader+ 25.4.2.0258 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255642.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CB1CEBDE3B0462A5756679E04946FAA1CB408C
 ```
 
 

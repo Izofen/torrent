@@ -6,7 +6,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29239.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3D8EC297AFE9E726E12CCAAA8BF172EF298AC98D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29240.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bandicam 8.1.0.2516 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29241.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29241.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B8D102717E7875ED6EAB61BDC884BD777E681718
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29242.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C8F386A6918A63FC395B3BFE20F12D3DF1FE951C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29243.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C26D34ECC0E41D23F703D121490B2D65BA154DA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29244.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C26D34ECC0E41D23F703D121490B2D65BA154DA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29245.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:ACCD1D9F04DFC115F0500EB1C3A4EEC12068FD3F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29246.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29246.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:ACCD1D9F04DFC115F0500EB1C3A4EEC12068FD3F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29247.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:6FE169BE67204D728761D3EF002A7F6A5CE3F9BF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29248.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29248.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:28E01FDDBA14E527521E7B83ABF27B2B977C8D9F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29249.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29249.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:7642AEAD13A6536F6E04CBFF9682876C4767C274
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29250.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29250.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:4DE50B2778F9886572379BB3FFDEC7526D375A1F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29251.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29251.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:07BD654600C3497868A3BAD3711DB0577D91C86A
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29252.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29252.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Auslogics Driver Updater 2.0.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29253.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29253.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Active@ Disk Editor 25.0.7 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29254.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:9A347BB0236260BDE93E1D2843F13EEF6577C82C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29255.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D6535CBB5082E15FE5B2B6AFB7BD71C5A34CEA91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29256.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Car Music Mix 6 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29257.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29257.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29258.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29259.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Win Movie Maker 2025 9.9.9.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29260.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:EE35A40BD5DB319239116C8EB996308BFE420CD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29261.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:D185998C1F5A072A7F7D27C773CE162C6669C865
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29262.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.97 (2701) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29263.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29263.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:0D0D2B28D57A5A7DFE91CED484C88252B6FACF83
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29264.jpg" />
 </div>
 
 

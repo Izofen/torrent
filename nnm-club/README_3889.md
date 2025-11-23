@@ -1,3 +1,78 @@
+###  Публикация: 1694733   (120796) от 26.01.2024
+
+Виктор Драгунский | Денискины рассказы. Надо иметь чувство юмора (сборник) (2008) [MP3, Владислав Галкин, Ольга Будина, Мария Голубкина, Татьяна Веселкина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Драгунский писал для детей, создавая удивительный мир солнечных зайчиков, искрящихся глаз и звонкого детского смеха. Светлый, радостный и неповторимый мир, где нет места для скуки и уныния. В рассказах Виктора Драгунского - чудеса обыденной жизни, не замечаемые нами в каждодневной суете, и едва уловимое ощущение счастья при взгляде в наивные и такие мудрые (   Читать дальше...   )Жанр: приключения, детская прозаЯзык озвучки: русскийИздательство: ВимбоПродолжительность: 01:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FD3DB5BB61AD433E983893C580B84D3419C0EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694642   (120797) от 26.01.2024
+
+Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive [00:03:58]
+02. Stone Heart [00:04:42]
+03. Blame It on Me [00:03:33]
+04. I’m on Your Side [00:05:07](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694634   (120798) от 26.01.2024
+
+Борис  Кригер | Мишель Монтень. Субъективность опыта (2023) [MP3, Андрей Канаев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига посвящена творчеству выдающегося французского философа и писателя Мишеля Монтеня, чьи эссе олицетворяют собой особый тип литературного произведения. Книга стремится осветить, как формировался и развивался жанр эссе, а также какие аспекты мудрости и человеческого опыта нашли отражение в работах Монтеня. Книга погружает читателя в глубины субъективного опыта (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1084001D34B2665EC1B70069D93C73FB10BAC98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694651   (120799) от 26.01.2024
 
 Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Industrial Metal>
@@ -6,7 +81,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120799.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Byron - Chapter II: The Lotus Covenant (2024) [MP3|320 Kbps] <classic melodic me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120800.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Tower Pro 10 v.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120801.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ VA - Armin van Buuren - A State Of Trance 1157 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120802.jpg" />
 </div>
 
 
@@ -112,7 +187,7 @@ OmniGraffle Pro 7.22.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120803.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ magnet:?xt=urn:btih:253A26439DC4CC02A302929BE7FAEF7BADD0C60E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120804.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120805.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ VA - Music News vol.334 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120806.jpg" />
 </div>
 
 
@@ -211,7 +286,7 @@ WizTree Enterprise 4.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120807.jpg" />
 </div>
 
 
@@ -235,7 +310,7 @@ VA - Compilation Electronic part 47 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120808.jpg" />
 </div>
 
 
@@ -262,7 +337,7 @@ magnet:?xt=urn:btih:E55A3BD72FEB05BBAFBFB69BDFAD496B1EEA2721
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120809.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ ExamDiff Pro Master Edition 14.0.1.22 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120810.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ magnet:?xt=urn:btih:CFF282D46B295F0E355DD4B2D9681E362CB05EC7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120811.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ Ableton Live Suite 11 v.11.3.21 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120812.jpg" />
 </div>
 
 
@@ -360,7 +435,7 @@ magnet:?xt=urn:btih:6E253D37D2D53783DBF2C92AE534FF3A8A0C6A55
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120813.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ Bon Jovi - Bon Jovi (1984) Deluxe Edition, 2024, UMG Recordings, Inc. [FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120814.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ magnet:?xt=urn:btih:0C1B5E390542E2F570FC618ECB65201F7CC7AC22
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120815.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ magnet:?xt=urn:btih:27FAED49D40CFD13FA5EDD02D475BF572A170435
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120816.jpg" />
 </div>
 
 
@@ -462,7 +537,7 @@ magnet:?xt=urn:btih:9B6AB6446A8B85A6039FE8738CEDDA2ADB6B23BE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120817.jpg" />
 </div>
 
 
@@ -489,7 +564,7 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [MP3|320 Kbps] <Mel
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120818.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ Wondershare PDFelement Pro OCR 10.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120819.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ Emurasoft EmEditor Professional 23.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120820.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ magnet:?xt=urn:btih:EC86DBF97DA1A387F604745C7F702E6C48A12701
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120821.jpg" />
 </div>
 
 
@@ -576,78 +651,6 @@ magnet:?xt=urn:btih:EC86DBF97DA1A387F604745C7F702E6C48A12701
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66338FA700B9F1306B7E2FEBE27FADA321C0C518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694609   (120822) от 26.01.2024
-
-Мэри Бет Кин | Да – тогда и сейчас (2023) [MP3, Марина Гладкая]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда семьи Глисон и Стенхоуп становятся соседями, чувствующая себя одинокой на новом месте Лена Глисон ищет компании соседки, но холодная и неуравновешенная Энн Стенхоуп желает, чтобы её оставили в покое. Дружба завязывается между их детьми – Кейт и Питером, младшей дочерью Лены и единственным ребёнком Энн. С годами детская привязанность перерастёт в нечто большее… (   Читать дальше...   )Жанр: современная зарубежная литератураПеревод: Екатерина МатерновскаяИздательство: СиндбадПродолжительность: 11:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE0BD7014AAB34C4CF85D31D2D35778756AF3F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694702   (120823) от 26.01.2024
-
-HWiNFO 7.69 Build 5340 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120823.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEAE12C25398626381ADC650CD3FD8A95792801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694759   (120824) от 26.01.2024
-
-Тролли 3 / Trolls Band Together (2023) BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [UKR, EN / EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Розочка узнает, что её возлюбленный Цветан когда-то был частью её любимого бойз-бэнда «Братаны» вместе со своими четырьмя братьями. Группа распалась, когда Цветан был ещё младенцем, и с тех пор он не видел своих братьев, но когда одного из них похищают неизвестные злодеи, Цветан и Розочка отправляются в путешествие, чтобы наконец-то воссоединить семью с помощью волшебной (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Уолт Дорн, Тим ХейцАктеры: Джастин Тимберлейк, Анна Кендрик, Зои Дешанель, Давид Диггс, Кристофер Минц-Плассе, Эндрю Рэннеллс, Трой Сиван, Кунал Найяр, Кевин Майкл Ричардсон, Кид КадиПеревод: Дублированный (укр. Rakuten)Язык озвучки: украинский, английскийСубтитры: английские (Full, SDH, Commentary)Продолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95575FA83CD47CC39DFE0123D0D3BD57C5D1A51
 ```
 
 

@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43619.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DA3EA9781E660FFA39044ACD3A4EDEFC5E8F4A1D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43620.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6DF03ED607FEDB05B941D2879AE26741835C1E57
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43621.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack dixen18 [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43622.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Pink Floyd - Gilmour Age Compilation (2024) [MP3|320 Kbps] <Progresive Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43623.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:17BA2A4E3F913A5DB8C57D40A9D66F0B0FEFF6C7
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43624.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:069E718F6FBBA02CC457FC69B0F49643BC8B5686
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43625.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:3349CF1568B5F0004DB3A7A30BACA7315672FB0F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43626.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:176323E812C84F38D13F8800BD8D784316E06988
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43627.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A442D677E617B5F682A5502B63B05079F4497E35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43628.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43629.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4CF4261A0948197FC8CA0C5C2374C2C0C12BDD8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43630.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:34271872F40563AE946807EE2CB759CA7268054F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43631.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:F1FA28B6FB10C7D7D93C7DDF6F18CA2F710D2E3A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43632.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ HulaVPN - Fast Secure VPN 14.3.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43633.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:18E097C11726B5E7B393BF1C086C88239E50682A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43634.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F6A186D2B360B6A2B40FD13B32A5595D5EF0F3A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43635.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FEED64CFDD9FFE167AF9893BFD273D37985C23E3
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43636.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:D61A5242A1D086D84BBCF15D816F046495640431
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43637.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Repack FitGirl [Digital Collec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43638.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:EAA9C3954BDE6F9AD3331F604591C237E07A1158
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43639.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:EAA9C3954BDE6F9AD3331F604591C237E07A1158
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43640.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Spyro 2: Ripto’s Rage! (1999) [Ru] (2.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43641.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:174404233873119B1AD6D6F5B87F8C03C5365696
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43642.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:174404233873119B1AD6D6F5B87F8C03C5365696
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43643.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:62966A735AF4004B6072DDDCF5710AD041AE3473
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43644.jpg" />
 </div>
 
 

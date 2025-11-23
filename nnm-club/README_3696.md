@@ -1,3 +1,75 @@
+###  Публикация: 1702544   (115778) от 25.02.2024
+
+20/22 (2024) WEBRip [H.265]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студент журфака — Данил, отправляется добровольцем в зону проведения СВО, устав от столичного лицемерия. Он сам из Севастополя, и знает про соседнее государство чуть больше, чем его друзья. Его антивоенно настроенная девушка — Алиса, поняв, что ждет ребенка, решает уберечь своего молодого человека от фатальной ошибки и едет за ним, чтобы вернуть. Найти любимого в (   Читать дальше...   )Производство: Россия / Первый канал, BBG PRODUCTION, Военкино, Администрации ДНРЖанр: военный, драма, мелодрама, боевикРежиссер: Андрей СимоновАктеры: Аристарх Венес, Дарья Кукарских, Александр Югов, Алексей Шевченков, Владимир Карпук, Дмитрий Богдан, Ринат Есеналиев, Валентин Смирнитский, Сергей Черданцев, Хильда КарменСубтитры: Русские (forced, на украинскую речь)Продолжительность: 02:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B1BCB48BE2C569E0B68E06DA3834E311459634
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577763   (115779) от 25.02.2024
+
+Exanima (2015) [En] (0.9.0.5) License GOG
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте мир, сражайтесь, выживайте и открывайте тайны в этой уникальной и безжалостной трехмерной ролевой игре, события которой разворачиваются в оригинальном маломагическом мире жанра «темного фэнтези». Внимание разработчиков Exanima к деталям и стремление достичь предельной реалистичности помогут вам окунуться в происходящее с головой и сполна насладиться динамикой (   Читать дальше...   )Тип издания: LicenseРазработчик: Bare Mettle EntertainmentЖанр: Ролевая игра, Экшны, ФэнтeзиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D308B4E48BAF872BC67006110C9F168879E8A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529984   (115780) от 25.02.2024
+
+Besiege (2020) [Ru/Multi] (1.26-20573) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Besiege - это основанная на физике игра, в которой вы строите средневековые осадные орудия и разрушаете с их помощью огромные крепости и мирные деревушки. Создайте машину, способную сокрушать мельницы, стирать с лица земли батальоны доблестных солдат, а также перевозить ценные ресурсы. Защищайте свое изобретение от пушек, лучников и всего, что найдется в арсенале (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderling StudioЖанр: Симулятор, Стратегия, SandboxЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD857C408F1CE143DEE409F27341E35ACC2BCEF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702575   (115781) от 25.02.2024
 
 Вонка / Wonka (2023) BDRemux [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115781.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:EED4A8F5910C295A08586B231F5D7412E17AAFF4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115782.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:6D1843BDF10AA695EC200DE182FB3F25872B7D70
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115783.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:2EFFE714F8F03F378E73759164CF12D0C65EE2E2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115784.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:2EFFE714F8F03F378E73759164CF12D0C65EE2E2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115785.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Heretic's Fork (2023) [Ru/Multi] (1.0.71/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115786.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:49267F0FE52E7BE39B8BE24A6395B193C772488E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115787.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ NCA: каждый пятый ребёнок в Британии – латент
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115788.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ NCA: каждый пятый ребёнок в Британии – латент
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115789.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:BE009482672AAC862D3960F9BF4F6E4EA2210A68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115790.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:1B0110FCF5C42D8C5633E78B137319A946B5BD88
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115791.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:C2E3674D9BE50EE5ADAC91E2194679AE245BDA57
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115792.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:923BBA42EF77465D8CBE1AF09204C2E45717D1DE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115793.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:ED81D520667FF427ED92F233DE0706E24AC902C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115794.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:F4AA4BA762DB80D0CDC53CE91227C4D665D233A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115795.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ magnet:?xt=urn:btih:E2E553CAE25EE6D6E23E1C58169EF42DFF33E382
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115796.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ Dissolving of Prodigy - Lamentations of Innocents (1995) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115797.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115798.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115799.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ MGMT - Loss of Life (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Psychedel
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115800.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ Video Converter X2 for Mac 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115801.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ Dark Fortress - Studio Albums (8 releases) (2001-2020) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115802.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ Traveler - Prequel To Madness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115803.jpg" />
 </div>
 
 
@@ -566,84 +638,6 @@ Traveler - Prequel To Madness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85FE3E92A7526D7112A3C58B4C86E3ACC83FF2CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702113   (115804) от 24.02.2024
-
-Suede - Bloodsports (2013) Deluxe Edition, 2024, Edsel [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barriers [00:03:42]
-02. Snowblind [00:04:03]
-03. It Starts and Ends with You [00:03:51]
-04. Sabotage [00:03:45](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Indie PopПродолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5B5506082505408D4F2774192EB955F6C11DBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702266   (115805) от 24.02.2024
-
-Газета | Моя Семья №7 (1206) (февраль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115805.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Моя Семья» задумана как газета о человеческих отношениях. Редакция делает упор на историях из жизни, поэтому многие наши публикации читаются как романы. Главной основой публикаций являются письма читателей, что делает «Мою Семью» уникальной — все наши истории подлинные.Жанр: Семья, дом, бытИздательство: ООО "Издательство "Моя Семья"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169477F104FEA90F0DF457DD43776253BF63D13E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702299   (115806) от 24.02.2024
-
-Mike Zito - Life Is Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Man (3:51)
-02. Life Is Hard (4:34)
-03. Have A Talk With God (4:34)
-04. Forever My Love (6:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14AC44D3A556E9861ACDBB71D3A6FC4ECBF09FC
 ```
 
 

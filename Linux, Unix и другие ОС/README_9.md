@@ -1,3 +1,29 @@
+###  Публикация: 1624801   (251905) от 31.05.2023
+
+TrueNAS CORE 13.0-U4 [x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251905.jpg" />
+</div>
+
+
+###  Подробнее
+
+TrueNAS CORE (ранее FreeNAS) — это бесплатная операционная система для хранения данных на базе ОС FreeBSD с открытым исходным кодом, которая дает возможность создать собственный сервер для хранения данных без затрат на программное обеспечение.
+
+Для нормальной работы системы TrueNAS на компьютере должно быть, как минимум 8 ГБ оперативной памяти, если планируется установка (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566773   (252022) от 26.05.2023
 
 Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
@@ -6,7 +32,7 @@ Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252022.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252022.jpg" />
 </div>
 
 
@@ -30,7 +56,7 @@ Ophcrack 3.4.0 (Взлом паролей Windows)[x86] (3xCD)
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253568.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253568.jpg" />
 </div>
 
 
@@ -56,7 +82,7 @@ Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255157.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255157.jpg" />
 </div>
 
 

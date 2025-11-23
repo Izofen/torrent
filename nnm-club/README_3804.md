@@ -1,3 +1,75 @@
+###  Публикация: 1698354   (118586) от 08.02.2024
+
+Icecream PDF Editor Pro 3.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92A27B9FAA566E64360A7AEEEFB29BDFE8D4FA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698310   (118587) от 08.02.2024
+
+Lucky Patcher 11.1.6 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lucky Patcher (Лаки патчер) – отличное решение если вам вдруг нужно вырезать лицензию из приложений. Некоторые игры и программы имеют стандартный код взаимодействия с Google Play, но при этом очень сильные инструменты защиты от изменения. Лаки патчер сканирует ваше устройство и собирает информацию про все установленный приложения, а потом сортирует их в удобные списки, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 30.01.2024Разработчик: ChelpuSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B56D07213D7927C9038A1C400308F7E90FB6D93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698251   (118588) от 08.02.2024
+
+Хавьер Кастильо | Снежная девочка (2023) [MP3, Анастасия Тереля]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк. 1998 год. Парад в честь Дня благодарения. Аарон Темпелтон всего на секунду выпустил руку своей дочери. В следующее мгновение ее уже не было рядом. Полиции удалось найти лишь одежду и отрезанные волосы девочки. Никаких следов. Никаких улик. Ни одного свидетеля. Кира как будто растворилась в воздухе. История наделала много шума в СМИ, и начинающая журналистка (   Читать дальше...   )Жанр: детектив, триллерИздательство: INSPIRIAПродолжительность: 11:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A4D2F7BB24A9F1A48916485214111ACFD359CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698350   (118589) от 08.02.2024
 
 OpenNumismat 1.9.6 + Portable [Multi/Ru]
@@ -6,7 +78,7 @@ OpenNumismat 1.9.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118589.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ Speedtest от Ookla 5.3.1 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118590.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:69837BF8854369134545EA8A7CF31B7DDE03A78E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118591.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:8E772E45C0736ECFB6176A654581BAF00B821CE4
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118592.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:3DA08B2D8F7B629ACCAA76E3AE378B409E8FEB5D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118593.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:A9C046A460D43B134C6BD7A8DCAFF6808D14C077
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118594.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:AFB3DD5C49301D5E3C9F5C1D1E33C96A47CC3723
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118595.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ Smart AudioBook Player 10.6.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118596.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ UFO - Lights Out (1977) 2CD, Remaster, 2024, Chrysalis Records [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118597.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Easy Data Transform for Mac 1.46.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118598.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:2A24C87E921664554C1D42565932FE1081D1EC81
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118599.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:BCCAA3A90C0B37A14BAA1E61E224854B02965F1A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118600.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ RocketSim for Xcode Simulator on Mac 12.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118601.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ DxO FilmPack 7 for Mac v.7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118602.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ DxO PhotoLab 7 ELITE Edition 7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118603.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:A7B24BB9F41205677533C3DAB1F373E842B5042F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118604.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ Icecream Screen Recorder Pro 7.35 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118605.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118606.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:D244FD88639F8C4A4C2B1A679A93D04B1B438224
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118607.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:D244FD88639F8C4A4C2B1A679A93D04B1B438224
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118608.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:90B7F282BF0A8C9E6CCF9119D296CF47E6871802
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118609.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ magnet:?xt=urn:btih:3FB3C7E10F305C0CB0A5A1D64253BE2698B87DCB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118610.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ Icecream Image Resizer Pro 2.14 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118611.jpg" />
 </div>
 
 
@@ -552,81 +624,6 @@ Icecream Image Resizer - это программа, созданная для и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3D7BEF54276EEE4E10CC251B369155FD2913796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698206   (118612) от 08.02.2024
-
-JetBrains WebStorm for Mac 2023.3.3 Intel/ARM [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118612.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebStorm - Легкий, но мощный IDE, прекрасно оборудованный для комплексной разработки на стороне клиента и на стороне сервера разработки с Node.js. WebStorm поможет вам писать код лучше благодаря умному завершению кода, на лету обнаружения ошибок, мощной навигации и рефакторингу. Поддержка новейших технологий IDE обеспечивает поддержку первого класса для JavaScript, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2000-2024 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CF8C9B9581A4430DC3301B33F77D5315361FA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698042   (118613) от 08.02.2024
-
-Дюймовочка (1964) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о девочке, величиной в один дюйм - Дюймовочке. После ряда приключений она находит свою судьбу в стране эльфов.
-Однажды вдове, мечтающей иметь ребенка, Старый Волшебник подарил ячменное зернышко, исполняющее самые заветные желания. Зернышко проросло, и в распустившимся цветке появилась крохотная девочка, которую мать назвала Дюймовочка. Дюймовочка жила счастливо (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, фэнтезиРежиссер: Леонид АмальрикАктеры: Галина Новожилова, Елена Понсова, Михаил Яншин, Сергей Мартинсон, Виктор Авдюшко, Эраст Гарин, Эммануил Каминка, Иван Власов, Ирина Потоцкая, Тамара ДмитриеваСубтитры: отсутствуютПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A03FE4B268F76E49E5493FCD30ED14F9216247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697719   (118614) от 08.02.2024
-
-Л. А. Исаченкова и др. | Сборник задач по физике. 7 класс (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник является составной частью учебно-методического комплекса по физике для 7 класса. Пособие содержит все виды задач различных уровней сложности, примеры решения и оформления типовых задач, а также ответы к количественным задачам.
-
-Адресуется учащимся 7 класса учреждений общего среднего образования.Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: АверсэвФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788F03E5A4273292D910277B8BB02626FC4C7AB3
 ```
 
 

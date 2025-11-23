@@ -1,3 +1,78 @@
+###  Публикация: 1703145   (115206) от 28.02.2024
+
+Kakutou Bijin Wulong | Fighting Beauty Wulong | Боевая красавица Улун [2005, TV, 25 из 25] DVDRip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115206.jpg" />
+</div>
+
+
+###  Подробнее
+
+За всё время существования боевых искусств не нашёлся бы такой мастер, который смог позволить себе жить спокойной и размеренной жизнью. Настоящий воин обязан быть готов в любой момент отстоять честь своей школы, сразив противника, жаждущего опорочить его учение. В наши дни нелёгкое бремя защитницы доблестного имени своей семьи пало на плечи юной Мао Ран. Девушка (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: боевые искусства, комедияРежиссер: Судзуки ЁсиоПеревод: ANGREЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70933E974577C33C584FC2089B9C53D6544D2BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703296   (115207) от 28.02.2024
+
+IObit Driver Booster Pro 11.3.0.43 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3BDF6B4A4E1BDC81DB4FFA2587D97D8E6AC0E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703127   (115208) от 28.02.2024
+
+Лагерь на свежем воздухе [ТВ-1] | Yuru Camp | Laid-Back Camp [2018, TV, 12 из 12 + 3 SP] BDRip 1080p 10bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите ли вы ходить в походы? Пленяет ли вас запах костра и еды, готовящейся на нём? Готовы ли вы часами слушать шорох листьев или шум реки? А спать в палатке или в спальном мешке под открытым небом? Если вам это по душе, и вы не боитесь трудностей, которые могут встретиться во время похода, то это аниме вам точно понравится! А может быть оно даже вдохновит вас повторить (   Читать дальше...   )Производство: Япония / Студия C-StationЖанр: Комедия, повседневностьРежиссер: Кёгоку ЁсиакиЯзык озвучки: Русский (Crunchyroll), (AniDUB); ЯпонскийСубтитры: Русские (софтсаб надписи/полные); Английские (софтсаб полные)
+Субтитры RUS (TV): ASS; (внешним файлом); перевод: Crunchyroll
+Субтитры RUS (SP): ASS; (внешним файлом); перевод: YakuSub Studio
+Субтитры ENG (TV+SP1): ASS; (внешним файлом); перевод: Asenshi(   Читать дальше...   )Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B9F656E784D782A251EFA3FFE235A2CEC205F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703194   (115209) от 28.02.2024
 
 Лиза Франкенштейн / Lisa Frankenstein (2024) WEBRip [H.264/1080p] [DVO] [AD]
@@ -6,7 +81,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115209.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Google Chrome 122.0.6261.95 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115210.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ ExtraDisks 24.2.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115211.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ CPU Temp 1.5.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115212.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ VA - Electronic compilation part 59 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115213.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Google Chrome 122.0.6261.95 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115214.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:FBC8131AEDCCCDE813D1AA260ED24587A463C4DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115215.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ NetLimiter 5.3.8.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115216.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ Viktoria Mullova, Tchaikovsky / Sibelius, Boston Symphony Orchestra, Seiji Ozawa
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115217.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:AEE03D34F0F60C29B49CC3136D1D0F6D55D3AEC6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115218.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:5470B1CCEBF01CA778CFA0352407AF0F19F96542
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115219.jpg" />
 </div>
 
 
@@ -278,7 +353,7 @@ AI Beauty / ИИ Красота v1.52 Mod by CVXUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115220.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ magnet:?xt=urn:btih:C15870034AC95591FD83CD90709C1355535741CF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115221.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ magnet:?xt=urn:btih:D2E903A17BB025DE675CA0D04D1C5370116897E3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115222.jpg" />
 </div>
 
 
@@ -350,7 +425,7 @@ magnet:?xt=urn:btih:91330BF94720A408FBB0A80719AB8C15E5837225
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115223.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:1ED6C34C6089C9D3D3CAC627B9F2653757F7963E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115224.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ Stepik, Алексей Лобзов | Docs as Code: Пишем тексты ка
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115225.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ Topaz Video AI 4.2.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115226.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ magnet:?xt=urn:btih:7C8D61A7A7F1A3AB78927B1EB76A820C4CB84594
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115227.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ magnet:?xt=urn:btih:E02912D5CBD9EB9A7B22EA0C2F67BBB17EBCC16A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115228.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ magnet:?xt=urn:btih:05E28F7BAFE195D3AAFF1AF5E8E26310A0008394
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115229.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ StartAllBack 3.7.5 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115230.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ magnet:?xt=urn:btih:F8DD250F17C097181CDB7F724819BA057CD101BB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115231.jpg" />
 </div>
 
 
@@ -558,78 +633,6 @@ magnet:?xt=urn:btih:F8DD250F17C097181CDB7F724819BA057CD101BB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C841BCEED2BA0C068F2F7EFF2196E6CBCEACE7A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703325   (115232) от 28.02.2024
-
-Таксист / Такси Делюкс / Mobeomtaeksi / Taxi Driver (2023) HDTV [H.264/1080i] (сезон 2, серии 1-16 из 16) black HD
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь выпускника военно-морской академии изменилась в тот момент, когда маньяк убил его мать. Теперь парень работает таксистом в необычной фирме, сотрудники которой принимают от клиентов заказы на месть.Производство: Южная Корея, Creative Leaders Group 8, Studio SЖанр: триллер, криминалРежиссер: Пак Чун-уАктеры: Ли Джэ-хун, Исом, Ким И-сон, Пхё Е-джин, Ли Ю-джун, Чан Хёк-чин, Чха Джи-ён, Пэ Ю-рам, Ким Хён-мук, Пак Сон-унПеревод: Дублированный (black HD)Язык озвучки: Русский, КорейскийСубтитры: отсутствуютПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5550E2384A2D651AE6F1F791770951F02F85F7D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703356   (115233) от 28.02.2024
-
-Дом, в котором я живу (1957) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115233.jpg" />
-</div>
-
-
-###  Подробнее
-
-1935 год. Новый дом на окраине Москвы заселяется новоселами. С этого начинается простой сюжет о судьбах людей разных профессий и увлечений. Впереди страшные годы всеобщей немоты, на смену которым приходит война, а вместе с ней горечь утрат, холод, голод, расставания. Конец войны возвращает радость жизни. По-прежнему светит в окна солнце, летит тополиный пух и, как (   Читать дальше...   )Производство: СССР, киностудия им. М. ГорькогоЖанр: драма, мелодрама, военныйРежиссер: Лев Кулиджанов, Яков СегельАктеры: Валентина Телегина, Евгений Матвеев, Михаил Ульянов, Владимир Земляникин, Жанна Болотова, Римма Шорохова, Павел Шальнов, Нинель Мышкова, Николай Елизаров, Юрий МясниковПеревод: не требуетсяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F0C427223106518879FB5D841F12E5C8F62998
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703105   (115234) от 28.02.2024
-
-Каждый вечер в одиннадцать (1969) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115234.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам рассказа азербайджанского писателя Анара "Я, ты, он и телефон". Как-то вечером, в компании своих друзей холостяк Стас ради развлечения позвонил по номеру, цифры которого назвали его друзья (1-3-2-7-1-6), поставив шуточное условие: "Если ответит женщина, ты на ней женишься". Отозвался в самом деле приятный женский голос. Стас не решился (   Читать дальше...   )Производство: СССР, к/с "Мосфильм", т/о "Луч"Жанр: мелодрамаРежиссер: Самсон СамсоновАктеры: Маргарита Володина, Михаил Ножкин, Лариса Виккел, Изольда Извицкая, Зоя Степанова, Михаил Бовин, Алексей Головин, Леонид Каневский, Михаил Селютин, Алла БудницкаяПеревод: не требуетсяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFED53287A3C53666B93D91B6D51FA47693CB492
 ```
 
 

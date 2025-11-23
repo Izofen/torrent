@@ -6,7 +6,7 @@ Bon Jovi - Forever (2024) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48500.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48776.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D43A91DE32B0C47E4A33EC5AB01C43497E11E47F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48966.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Animal ДжаZ - Ян (2024) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48977.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:21253CD5BB31F81A8EBC6DE72FEB576E26245ACE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49006.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Classic Rock 100 Epic Songs (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49070.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Red Hot Chili Peppers - Unlimited Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49233.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:5A397AF2C34EC49E4719362E87FB85D56AB21047
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49487.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:E5D0F4FA7EAF2D25A204D35633F99EF3512E44CD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49503.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Gabriels - Fist of the seven stars act 4 Five Forces (2024) [MP3|320kbps|tracks]
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49505.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Nothing But Thieves - Dead Club City (2024) Extended Deluxe [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49507.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Nikolo Kotzev - Nikolo Kotzev's Nostradamus (2024) The Rock Opera [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49511.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Paul McCartney - One Hand Clapping - The Backyard (One Hand Clapping Sessions) (
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49531.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:1A3F79C5CE89182CD6090FBA59BF6A8F9FBA54F9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49560.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ U.F.O. - You Are Here (2004) Deluxe Edition, 2024, Cleopatra Records [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49604.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Falcon Trails - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49608.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Palace - Reckless Heart (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49611.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Deep Purple - =1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49654.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Deep Purple - =1 (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49676.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Now or Never (NoN) - 3 Albums (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49707.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ TKO - Total Knock Out: The Complete TKO (2024) 5CD Boxed set [FLAC|Lossless|WEB-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49721.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:1C8B55A89C9393DEA07DF53D48B2A4D8554E7CDC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49814.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Amorphis - Tales From The Thousand Lakes: Live At Tavastia(2021) (2024) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49824.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Ghost Inside - Searching for Solace (2024) [FLAC|Lossless|tracks + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49915.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mr.Big - Ten (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49922.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ ANTARCTIC - Культура. Часть 2 (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49925.jpg" />
 </div>
 
 

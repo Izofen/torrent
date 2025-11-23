@@ -1,3 +1,75 @@
+###  Публикация: 1703053   (115388) от 27.02.2024
+
+Захват (2021) HDTVRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спецназовец в отставке Платонов работает спортивным тренером в пансионате и изо всех сил старается привыкнуть к тихой жизни без войны. Но многолетняя служба в горячих точках так просто его не отпускает: каждую ночь ему снится Ближний Восток и полные ужаса глаза девушки, которую когда-то ему не удалось спасти. Встретить Новый год и от души повеселиться в пансионат (   Читать дальше...   )Производство: Россия, ВодолейЖанр: боевикРежиссер: Александра БутькоАктеры: Павел Трубинер, Игорь Лифанов, Андрей Носков, Юлия Галкина, Вера НеустроеваПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974C6DEA69ADE2D5286FDCD182696EB95D43793C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702913   (115389) от 27.02.2024
+
+FastCopy Pro 5.7.1 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115389.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E64FBAD69EC8CE1A129D7369BA9D28D0250695
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702914   (115390) от 27.02.2024
+
+П.М. Бородин, Е.Н. Воронина (ред) | Естественно-научные предметы. Практическая молекулярная генетика для начинающих (2023) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генетика - одно из приоритетных направлений современной биологии. Цель книги "Практическая молекулярная генетика для начинающих" - познакомить школьников с этой наукой, её достижениями и применением этих достижений в повседневной жизни, с профессиями, связанными с генетикой. Особенность этого курса - большое количество практических заданий и ролевых игр, (   Читать дальше...   )Жанр: БиологияИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5A66F46090755F23BE7F0E9E50213D4656527F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703103   (115391) от 27.02.2024
 
 Ashampoo WinOptimizer 26.00.24 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -6,7 +78,7 @@ Ashampoo WinOptimizer 26.00.24 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115391.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:0BD3ABA9F910902AB4E77CB10476FAF7E4816B60
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115392.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:6743A072482080F6D412E8E85DCF5BFF3FAF5DE3
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115393.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ StartAllBack 3.7.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115394.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:C86375309BC5346DD0DA574753E1A9BECF7DEC87
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115395.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:21B081B2194B266F672AE4F126CEC8354D6F8D6E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115396.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:4301173D096A5BB96F089961A63A0FD4A77D72FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115397.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:CAD77965ED05E1DCB6F158FDE246D3270763A19A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115398.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:8CFB81661D598D420F5BFA8BB7A5D2A78900CD43
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115399.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:72C2666180D34281BEB9B8552F97179987074C3C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115400.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:A6C38F3CF0921663D4AC9DD9EA765F08BD8E75D5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115401.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Adobe Media Encoder 2024 24.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115402.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:8AA29CAD5D15CDBC85EF5928E9DD7FFBFE316CB8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115403.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:30A11041BE37674183F1EED71025487F77D3F884
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115404.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:FA238B42F6A88B63899AE0333C090554D4076982
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115405.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ FFmpeg Batch AV Converter 3.0.4 + Portable [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115406.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ magnet:?xt=urn:btih:1DF6E2F5C2D4E5E2E96E0B55F386DA18BE718418
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115407.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:7FCD55C08D30AFB4169F02FEC819F66C59D902C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115408.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115409.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ magnet:?xt=urn:btih:861A378197F454538B639B025CF8A6E044F99D28
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115410.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ magnet:?xt=urn:btih:DD5AA723F39045ABFF9BA1D62E6703DB7811DB26
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115411.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ magnet:?xt=urn:btih:A98ED2D34DDA35CBF4EF2883E09FFAF535ED6451
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115412.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ magnet:?xt=urn:btih:80B7732DC837155DE59ACD99106CB57E1923A420
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115413.jpg" />
 </div>
 
 
@@ -565,80 +637,6 @@ magnet:?xt=urn:btih:80B7732DC837155DE59ACD99106CB57E1923A420
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5641F294CC10DDCDFE85A035062D5B5E324CB3D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702983   (115414) от 27.02.2024
-
-78RePack 1.9.5 New (WimLib 1.14.4) Portable by conty9 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115414.jpg" />
-</div>
-
-
-###  Подробнее
-
-78RePack (утилита для конвертации архивов Wim/Esd/Swm/Rwm) это GUI для WimLib (альтернативный @MS набор библиотек для работы с wim-архивами). GUI сделан с помощью скрипта PECMD2012. Возможности утилиты: преобразование архивов Wim/Esd/Swm/Rwm, просмотр информации выбранного архива, проверка архива на целостность, распаковка архива в выбранную папку. Работает независимо (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0BFFF1BDB61318C16108AEE9D44239D7E1F474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702934   (115415) от 27.02.2024
-
-StartAllBack 3.7.5 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115415.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48999FD9A3A2B93FACA4BAB37FD0AE0993C414F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703106   (115416) от 27.02.2024
-
-Udemy, Alexey Belov | Как пройти Junior Python собеседование (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подготовьтесь к успешному старту в мир Python-разработки с нашим уникальным курсом "Python Junior: Мастер-класс по Прохождению Собеседований". Этот курс предоставляет вам все необходимые инструменты и знания для уверенного прохождения собеседований и получения первой работы в качестве Junior Python Developer.
-
-Получите ключи к своему будущему в Python-разработке. (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B7B609514F5F19596DBB7C1ECFF39286F6E604
 ```
 
 

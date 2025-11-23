@@ -6,7 +6,7 @@ Bettye Lavette - Interpretations: The British Rock Songbook (2010) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67213.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Saori Yano - Saori Yano (2003) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67214.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Saori Yano - 02 (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67215.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67231.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67235.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67237.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67251.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dudley Taft - The Speed of Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67252.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gurf Morlix - The Taste of Ashes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Fo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67253.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ellen Lebowitz - Invitation to Yesterdays (1998) Rockmoss Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67254.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lightnin' G-Bird - I Was Fool About You (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67255.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ged Wilson - Regular Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67259.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cristina Vane - Hear My Call (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Count
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67261.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gil Laine - Screw You! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Singer & Son
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67262.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Marina Rocks - Marina Rocks S.O.S. Texas (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67271.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blues2Men - Helleluyah (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67279.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Larry Vuckovich - City Sounds, Village Voices (1981) 2003, Quicksilver Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67287.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Amy Ryan Band - Brighter and Brighter (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67291.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Chasin' the Train - Signals (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67298.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Andrew Duncanson - California Trap (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67306.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Michel Legrand - Happy Radio Days (2004) Erato [FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67377.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jeff Linsky - California (1996) Concord [FLAC|Lossless|tracks + .cue] <Latin Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67435.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Terry Smith - Fall Out (1968) 2006, Sunbeam Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67449.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Smooth Jazz Sounds 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67461.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Samantha Fish - Paper Doll (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67470.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ David Starr - MUST BE BLUE (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67474.jpg" />
 </div>
 
 

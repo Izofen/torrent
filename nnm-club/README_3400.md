@@ -1,3 +1,75 @@
+###  Публикация: 1729639   (108082) от 12.06.2024
+
+Celemony - Melodyne Studio 5.4.0.036 STANDALONE, VST 3, AAX (x64) Repack by R2R [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта программа позволяет работать с записанными монофоническими аудио данными в привычном музыканту виде - редактирование и изменение звучания производится путем регулирования непосредственно музыкальных и мелодических характеристик аудио. А именно, программа читает исходный моно аудио материал, производит его анализ, на основе которого представляет аудио данные в (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30924185D20D4FEF26B75417CD3ECE9CB84C7D4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729324   (108083) от 12.06.2024
+
+Астрал. Ночь в могиле / Siksa Kubur / Grave Torture (2024) TS [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древнее поверье гласит, что люди, которые много грешили, после смерти подвергаются чудовищным пыткам прямо в могиле. Сита решает проверить легенду и находит самого грешного человека при смерти. Скоро она сможет доказать, что после его смерти ничего не произойдет. Как только он умирает, девушка просит оставить ее вместе с ним на одну ночь в могиле.Производство: Индонезия / Come and See Pictures, Rapi Films, Legacy PicturesЖанр: ужасыРежиссер: Джоко АнварАктеры: Фарадина Муфти, Реза Рахадиан, Видури Путери, Музакки Рамдхан, Кристин Хаким, Сламет Рахарджо, Фачри Албар, Хэппи Салма, Арсвенди Бенин Свара, Ниниек Л. КаримПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:47Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729763   (108084) от 12.06.2024
+
+WinCatalog 2024.7.5.612 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108084.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A69EFD935C6BA211AB09DD2374B55594DF6364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729721   (108085) от 12.06.2024
 
 Firefox Browser ESR 115.12.0 Portable by PortableApps [Ru]
@@ -6,7 +78,7 @@ Firefox Browser ESR 115.12.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108085.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Material Pods: батарея AirPods v6.60 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108086.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:62989F55BC9A373D69C2C6748068C83F19C21CE4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108087.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Google Chrome 126.0.6478.57 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108088.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ The Alan Parsons Project - Eye In The Sky (Sessions) (1982) Reissue, Remastered,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108089.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Pencil Photo Sketch : Drawing v2.0.83 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108090.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Peter Wilson - Touch (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108091.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:C34A26257AD7443BD35BF2B80C72CC090E01919F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108092.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ Margo Guryan - Words And Music (3CD Boxset) (2024) [FLAC 16,24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108093.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ Lorelei K - Gucci Doom (2023) Deluxe Edition, 2024, Idol Records [FLAC 16,24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108094.jpg" />
 </div>
 
 
@@ -260,7 +332,7 @@ Hellway Train - Borderline (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108095.jpg" />
 </div>
 
 
@@ -287,7 +359,7 @@ Barry Manilow - Barry Live In Britain (Live at The Royal Albert Hall) (1982) Rem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108096.jpg" />
 </div>
 
 
@@ -314,7 +386,7 @@ Tony Hadley - The Mood I'm In (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108097.jpg" />
 </div>
 
 
@@ -341,7 +413,7 @@ Liar Thief Bandit - ICON (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108098.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ Remedy - Pleasure Beats the Pain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108099.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ Gone til Winter - The First Season (2011) Compilation [MP3|320 Kbps] <Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108100.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ Big Head Todd and The Monsters - Her Way Out (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108101.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ Gone til Winter - Gone til Winter (2009) Demo [MP3|320 Kbps] <Gothic Metal, Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108102.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ Blue Grooves Trio - Afternoon Cafe Jazz BGM (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108103.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ Frunkyman - The Frunk Is Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108104.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ Scott Gilman - So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108105.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ Collateral - Should've Known Better (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108106.jpg" />
 </div>
 
 
@@ -584,7 +656,7 @@ Freak Kitchen - Everyone Gets Bloody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108107.jpg" />
 </div>
 
 
@@ -598,87 +670,6 @@ Freak Kitchen - Everyone Gets Bloody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2C4D5EC7EDA9240EB206EB6DDDE680CD7859A45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729292   (108108) от 10.06.2024
-
-Strange Fruit - Once So High (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely-Lonely (6:47)
-02. Ragged Soul (7:16)
-03. Once So High (4:22)
-04. Driving Me Mad (7:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13042C4FA5EB599F7AD2AFF4B180565D1D91EB53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729150   (108109) от 10.06.2024
-
-Bob Recchione - Bellissima (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I See Your Face (5:00)
-02. Summer Blues (5:00)
-03. It Seems to be the End (5:00)
-04. Sneaking Around (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0441FFD2FB6D2955920FA922CCCE7411CAF616A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729154   (108110) от 10.06.2024
-
-Mighty Joe Belson - The Doodle Cats: 2020 Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2020 Blues (5:48)
-02. Spring Swing (3:50)
-03. Candlelight Memories (4:38)
-04. Bel-Stones (Doodle Cats Theme Song) (3:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E27E423DDDA8CDCAA497BD5E50D802D2E727272
 ```
 
 

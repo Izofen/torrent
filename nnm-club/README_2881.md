@@ -1,3 +1,75 @@
+###  Публикация: 472888   (84420) от 25.03.2012
+
+Призрачный гонщик 2 / Ghost Rider: Spirit of Vengeance (2011) [H.264/720р-LQ] HDTVRip [Звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается на задворках Восточной Европы, где главный герой Джонни Блэйз безуспешно пытается справиться со своим проклятием. Его принимает на работу некая секта, которая пытается заполучить дьявола в тот момент, когда он пытается вселиться в тело его смертного сына на дне рождения мальчика.Жанр: Фэнтези, Боевик, ТриллерРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Николас Кейдж, Кирен Хайдз, Виоланте Плачидо, Джонни Витуорт, Кристофер Ламберт, Идрис Эльба, Фергус Риордан, Спенсер Уидлинг, Сорин Тофан, Яцек КоманПеревод: Дублированный (Звук с TS)Язык субтитров: корейскийПродолжительность: 01:35:32
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472109   (84421) от 25.03.2012
+
+Неудержимые / The Expendables (Расширенная версия / Unrated) (2010) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд профессиональных наёмников и отчаянных парней во главе с Барни Россом получает непростое задание — любой ценой найти и уничтожить кровавого тирана-диктатора, нагнетающего страх на мирное население и сеющего хаос в южноамериканской стране.Отправляясь на выполнение нелёгкой миссии, закалённые огнём и водой, прошедшие не одну войну, люди Росса попадают в самое пекло. Отныне им придётся выживать: сплотиться и достигнуть цели, либо отчаяться и погибнуть. И всё же эти храбрые, поистине невозмутимые ребята готовы реализовать даже не реализуемое. Но не всё так просто, как кажется на первый взгляд…Жанр: Боевик, Триллер, ПриключенияРежиссер: Сильвестр Сталлоне / Sylvester StalloneАктеры: Сильвестр Сталлоне, Джейсон Стэтхэм, Джет Ли, Дольф Лундгрен, Эрик Робертс, Рэнди Кутюр, Стив Остин, Дэвид Зайас, Жизель Итье, Харизма КарпентерПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: АнглийскиеПродолжительность: 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11CA117069FE217C45C20E4B79FBC773C79EE37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450384   (84422) от 25.03.2012
+
+Река / The River (2012) WEB-DL [H.264/720p-LQ] (Сезон 1, 1-8 серии из 8) [Кириллица]
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84422.jpg" />
+</div>
+
+
+###  Подробнее
+
+В джунглях Южной Америки пропала небольшая экспедиция, отправившаяся разыскивать затерянное племя в верховьях Амазонки. Они не отвечали на вызовы и не прибыли в контрольную точку. Через некоторое время вторая группа исследователей решила отправиться на поиски пропавшей экспедиции. Им предстоит пройти через неимоверные испытания, чтобы понять, что же произошло на (   Читать дальше...   )Жанр: Ужасы, Драма, ПриключенияРежиссер: Жауме Серра, Кеннет Финк, Дин УайтАктеры: Брюс Гринвуд, Джо Андерсон, Лесли Хоуп, Элуиз Мамфорд, Пол Блекторн, Томас Кречманн, Дэниэл Зацапа, Шон Паркес, Паулина Гайтан, Джеф ГалферПеревод: Многоголосый закадровый, профессиональный - «Кириллица»Субтитры: Русские, английские (отдельным файлом)Продолжительность: 8х ~ 00:43:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473132   (84423) от 25.03.2012
 
 [Mod] The Elder Scrolls V: Skyrim - Компиляция модов [Ru] 2012
@@ -6,7 +78,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84423.jpg" />
 </div>
 
 
@@ -34,7 +106,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84425.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ KeyGen Music(MP3) - 3139 треков (2000-2012) [MP3|192 кб/с]<8bit>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84426.jpg" />
 </div>
 
 
@@ -91,7 +163,7 @@ magnet:?xt=urn:btih:27131E4E7B94487944A5977DBB6BB45EEBA23388
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84429.jpg" />
 </div>
 
 
@@ -115,7 +187,7 @@ VA - Beauty And The Beast Compilation (2012) [MP3|320 кб/с]<Symphonic, Black,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84431.jpg" />
 </div>
 
 
@@ -148,7 +220,7 @@ VA - XXXL Братва на воле (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84433.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:6D96C855986949BA5672EBCA10E696B3C125AEA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84434.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:6D96C855986949BA5672EBCA10E696B3C125AEA8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84435.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Neneh Cherry - Man (1996) [FLAC|Lossless]<Pop-rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84439.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ Neneh Cherry - Man (1996) [FLAC|Lossless]<Pop-rock>
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84441.jpg" />
 </div>
 
 
@@ -287,7 +359,7 @@ magnet:?xt=urn:btih:D7087801F2B4AAB4043992EC98A9C2550BA0843A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84442.jpg" />
 </div>
 
 
@@ -315,7 +387,7 @@ Markus Schulz - Global DJ Broadcast Top 20 March (2012) [MP3|320 кб/с]<Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84445.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:8AC46EDCE0675C460D8788CF62904DC906CC5063
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84450.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:6E7597696C031F2F7C499326A5B652BA1A1A5E94
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84451.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:1A3D1C30B0F303AC109025EF27E143CE9D59DE0C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84456.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:BD106CF01162C451198D20C789260CE34FA04A99
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84457.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:8A2DC370283B826F98BB547AE40BE7668631C0B3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84459.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ VA - Здравствуйте, гости! (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84460.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ magnet:?xt=urn:btih:2A371698A5F8FECDD9DF30896E30A4EBDE53F46B
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84463.jpg" />
 </div>
 
 
@@ -527,7 +599,7 @@ VA - Весенний муз-отрыв радио Record 6 (2012) [MP3|192 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84464.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ magnet:?xt=urn:btih:1069A43D31680B8B45788170B6973788742DE75A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84469.jpg" />
 </div>
 
 
@@ -588,7 +660,7 @@ magnet:?xt=urn:btih:38A151C2AD01A7526D1BD326C433F1FA197C7AC5
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84473.jpg" />
 </div>
 
 
@@ -612,7 +684,7 @@ VA - Armada Vocal Trance Sessions 2012 - 01 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84474.jpg" />
 </div>
 
 
@@ -630,79 +702,6 @@ VA - Armada Vocal Trance Sessions 2012 - 01 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BD2955147A8F8CA37913E4C589D844FB6D6C346
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473425   (84479) от 26.03.2012
-
-[EN] Гитлер - Мертвый или Живой / Hitler - Dead or Alive (1942) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84479.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма положены реальные события. В начале Второй мировой войны известный американский бизнесмен предложил награду в миллион долларов для привлечения Гитлера к ответственности, живого или мертвого. Бизнесмен нанимает трех гангстеров, которых для этого освобождают из тюрьмы...Жанр: Триллер, ПриключенияРежиссер: Ник ГриндАктеры: Уорд Бонд, Дороти Три, Уоррен Хаймер, Пол Фикс, Расселл ХиксПеревод: ОтсутствуетПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5C323F2B33F0F35A9C58AE8324359A86837F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473692   (84481) от 26.03.2012
-
-Месье Верду / Monsieur Verdoux (1947) [720p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84481.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз гениальный лицедей открывает неожиданные стороны своего комического дара. Его герой завоевывает сердца и банковские счета богатых вдовушек и старых дев, а затем убивает своих несчастных жертв.Жанр: драма, комедия, криминалРежиссер: Чарльз ЧаплинАктеры: Чарльз Чаплин, Мэди Коррелл, Эллисон Роддан, Роберт Льюис, Одри Бетц, Марта Рэй, Ада Мэй, Изобел Элсом, Марджори Беннетт, Хэлена ХейПеревод: Многоголосый закадровый, АвторскийПродолжительность: 02:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB8DB7A9AC40B16EAD65FD4EF9B769C5B89E87A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473063   (84482) от 26.03.2012
-
-[RePack] Rayman Origins {1.0.32504} [En] 2012 l R.G. Repacker's
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра повествует о похождениях персонажа Рэймена в своем сказочном мире. Rayman Origins является приквелом, в котором рассказывается о первых бедах вселенной Рэймена и о том, как он ее спасает. Под управление игрока попадут сам Рэймен, его друг Глобокс и два мага Тинси.
-Возрождение культового платформера – прошло 15 лет с момента выхода первой игры про Рэймена и вот он снова на сцене – с классическими персонажами внутри и красивейшей 2D графикой.Тип издания: RePackЖанр: ArcadeЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAD2F3D7347781D5A3AC657F7299A585A1E923E
 ```
 
 

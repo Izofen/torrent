@@ -6,7 +6,7 @@ The Dawning Clocks of Time: Remake (2024) [En] (1.0.0.0701.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49094.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ducky: The Brave (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49128.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49142.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49253.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Until Then (2024) [Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49308.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49388.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Apollo Justice: Ace Attorney Trilogy (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49390.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Under The Waves (2023) [Ru/Multi] (01.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49416.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49421.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49460.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49476.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49643.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49693.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49695.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Antichamber (2013) [Ru/En] (build 296940) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49830.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49840.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49863.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49865.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49888.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49903.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49965.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Last Alchemist (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49976.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49990.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50027.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50088.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50166.jpg" />
 </div>
 
 

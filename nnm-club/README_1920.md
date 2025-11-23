@@ -6,7 +6,7 @@ Topaz Video AI 5.2.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50275.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F463011CA66EDE8A77B9A78E79EDC26F5F6B2517
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50276.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50277.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ LibreOffice 24.2.5.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50278.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8DF1F2F7D8E7F9BD65012443FD699F4FDB5C42A1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50279.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9FB0D9FFC3939941C492481A88893025A676C883
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50280.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ MediaHuman YouTube Downloader 3.9.9.93 (0711) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50281.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:A65DB729321B94F31D8E188810FBA26F7E19AC15
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50282.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C7946E98972DFE08E7BE60C44C6F51576947B398
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50283.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9896E285364C49771145626D40B63049499EEE35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50284.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5992F0BC77D138FA764682775453BC6A269CDF77
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50285.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0.2/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50286.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:05D63F23B47C3693DBB661E588951CAAB0F80B2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50287.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:86DE3038CC613EE14FD315C24FA69B611FADFFE3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50288.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:A3C90B6AD361CF865D5B721B05E2CFA103D95260
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50289.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FC86FAA7CA07A504A432A0C665EC8EC409BFAF0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50290.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:7484185F09A18D4AD4230915FD01D6E7A90574C4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50291.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:DC44F61B8B2E10CEB3B86FC12F5958B8CFBFE809
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50292.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:591ED769A6596A16666619078094C9A488D56ED3
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50293.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Office Tool Plus 10.13.10.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50294.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:CEDD673B2CCE47A30466602D23B8FBA829C78A03
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50295.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.11.4448/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50296.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (14569299
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50297.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:3945428ABEEE32E61092B21916A680CFDF90C207
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50298.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:EF9A625C1B904789A23A1DFE3B5ED675E894FF99
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50299.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:8FEF488BEBB27E1C6CA1DD5DAADC19E11411FEF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50300.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1658252   (191477) от 07.09.2023
+
+MediBang Paint Pro 29.1 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191477.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сути, MediBang Paint является графическим редактором, в котором авторами реализованы классические инструменты для создания рисунков: кисть, карандаш, различные художественные элементы, приемы и фильтры. Возможности приложения позволяют превратить, в умелых руках, монитор вашего устройства в настоящий цифровой холст. Тот набор инструментов, что предлагает этот (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD740EFB8B4F1FC34B6A2EECACC3918EA87328DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588482   (191588) от 04.11.2022
+
+E-Phonic - Invader 2 1.0.10 VSTi 3 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой, но мощный - Invader 2 - это 8-голосный полифонический синтезатор. Он был разработан таким образом, чтобы его было легко программировать, в то же время предлагая широкий спектр звуков и возможностей.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C544D434F3C08837B5C4B1791BA2507DD1170D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588198   (191821) от 03.11.2022
+
+VoosteQ - Material Comp 1.7.1 VST, VST 3, AAX (x64) RePack by MOCHA [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ультрасовременный компрессор, оснащенный технологией ”DFP”, на разработку которой VoosteQ потратил 3 года, чтобы досконально воспроизвести нюансы аналоговой схемы.
+Технология обработки сигналов уровня Mastering может быть достигнута при чрезвычайно низкой загрузке процессора.
+Внутренняя обработка полностью 64-разрядная и воспроизводит звуки с невероятной прозрачностью.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6D1EF3D052C39C92A5397DB5518E4E599D7785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587977   (191929) от 02.11.2022
 
 ACDSee Photo Studio Ultimate 2023 16.0.3.3188 [En]
@@ -6,7 +80,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191929.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191929.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ W.A. Production & K391 - Put Me On Drums 1.0.1 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192008.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192008.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Pineapple Pictures 0.7.2 Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192091.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192091.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ iZotope - Nectar 3 Plus 3.8.0 VST, VST3, RTAS, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192241.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192241.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ iZotope - Relay 1.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192344.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192344.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ Credland Audio - StereoSavage 2.0.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192358.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192358.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ W.A. Production CHORDS Pro + Notes 1.0.0 VSTi, VSTi3, AAX RePack by TeamCubeadoo
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192601.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192601.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ Unfiltered Audio - Instant Delay 1.3.0 VST, VST3, AAX RePack by TeamCubeadooby [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192670.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192670.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ AliveColors 10.0.4853 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193384.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193384.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ GOM Player Plus 2.3.90.5360 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193824.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193824.jpg" />
 </div>
 
 
@@ -250,7 +324,7 @@ SoftOrbits Sketch Drawer Pro 10.01 (акция Comss) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193943.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193943.jpg" />
 </div>
 
 
@@ -274,7 +348,7 @@ Adobe Substance 3D Designer 13.0.2 build 6942 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194184.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194184.jpg" />
 </div>
 
 
@@ -298,7 +372,7 @@ Blackmagic Design Fusion Studio 18.5.1 Build 4 (x64) RePack by AlekseyPopovv [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194316.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194316.jpg" />
 </div>
 
 
@@ -322,7 +396,7 @@ Green Screen Wizard Professional 12.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194334.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194334.jpg" />
 </div>
 
 
@@ -346,7 +420,7 @@ MediaHuman Audio Converter 2.2.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194388.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194388.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ PhotoInstrument 7.7 Build 1052 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194596.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194596.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ Reallusion Cartoon Animator 5.01.1121.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195464.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195464.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ MAGIX Sound Forge Pro Suite 17.0.2 Build 109 RePack by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195524.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195524.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ Reallusion iClone 8.3.1815.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195886.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195886.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ PhotoDiva Pro 5.0 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196459.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196459.jpg" />
 </div>
 
 
@@ -492,7 +566,7 @@ Aiseesoft Video Enhancer 9.2.56 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196570.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196570.jpg" />
 </div>
 
 
@@ -516,7 +590,7 @@ PhotoDiva Pro 5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196584.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196584.jpg" />
 </div>
 
 
@@ -540,7 +614,7 @@ PT Portrait 6.0.1 (x64) Studio Edition RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196803.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196803.jpg" />
 </div>
 
 
@@ -551,80 +625,6 @@ PT Portrait - это графический редактор, предназна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3608FA0CC70088BBC61AD19B7CCFBDA54976B7F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641000   (196842) от 20.06.2023
-
-ВидеоМОНТАЖ 17.0 Portable by conservator [Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196842.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВидеоМОНТАЖ - это невероятно доступный и удобный видеоредактор, позволяющий с лёгкостью создавать эффектные видеоролики и увлекательные фильмы в домашних условиях. Всего за 5 шагов вы получите отличное видео с красивыми переходами, титрами, эффектами и фоновой музыкой.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D602044F0A35027B024E1530253089259C40218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639354   (197078) от 13.06.2023
-
-LibFredo6 13.9a for Sketchup 2017-2023 Win (x64) [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197078.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibFredo6 — это общая библиотека плагинов, используемая большинством расширений Fredo6 и многими другими. LibFredo6 заботится, среди прочего, о обогащении моих расширений несколькими возможностями, такими как параметры по умолчанию, языковой перевод, проверка плагинов на наличие обновлений, ведение журнала трассировки и т.д. Это НЕ автономный плагин. Его необходимо (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A75CECF1F1A0F085CC0903D3539760E866F056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639731   (197126) от 14.06.2023
-
-PhotoDiva Pro 5.0 Portable by Spirit Summer [Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197126.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDiva — одна из лучших программ для ретуши портретных фотографий. Подойдет начинающим фотографам и тем, кто хочет быстро улучшить снимки.
-Даже если вы хорошо выглядите, фотография не всегда может показать ваше истинное лицо, иногда даже наоборот, почему-то получаются неудачные снимки.
-Избавляйтесь от засветок, удаляйте любые дефекты на коже и случайно попавших (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10623276068A9EF1E7828C20472BC126A3CC228
 ```
 
 

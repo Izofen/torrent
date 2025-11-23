@@ -1,3 +1,177 @@
+###  Публикация: 1084888   (154030) от 23.12.2016
+
+Бханте Хенепола Гунаратана | Медитация на восприятии. Десять целительных практик для развития внимательности (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга — краткий и ясный комментарий к «Гиримананда-сутте», учении Будды о десяти восприятиях. Утверждается, что медитация на этих восприятиях служит не только главной цели буддийской практики — полному и окончательному освобождению от страданий, но и относительной цели исцеления от болезней. В книге рассказывается, как приступить и проводить такие медитации. (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 04:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6914EA6F063DD438BD3F875F2B2C096D11ED55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270662   (154031) от 21.12.2018
+
+Оркестр КУШ - Второе издание (2018) [MP3|320 Kbps] <New Russian Music, Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время (Ч.1)
+02. Время (Ч.2)
+03. Время (Ч.3)
+04. Испанские страдания(   Читать дальше...   )Жанр: New Russian Music, Instrumental, Easy ListeningПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A0183D8E3EEC5C3B5376C49FBB78F1574B61B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433873   (154032) от 22.12.2020
+
+Udemy, Reuben Ward | Создание игры в жанре "Королевская битва" с использованием Unreal Engine 4 Blueprints / Create a Battle Royale game using Unreal Engine 4 Blueprints (2019) PCRec [EN  ...
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все играли в игры в жанре "Королевская битва" (Battle Royale), такую как Fortnite. Возможно, вы всегда задавались вопросом, как сделать свою собственную такую же игру, но обнаружили, что уроки были слишком длинными и не доходили до сути.
+Я хочу положить конец тому, чтобы разработка игр была утомительной и скучной. Вот почему в конце 8-ми часовой серии уроков (   Читать дальше...   )Производство: UdemyЖанр: Разработка игрЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 07:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B722229A72EC41E996E6F08E7F6E6002C5096E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194742   (154033) от 26.12.2017
+
+Athentech Perfectly Clear + WorkBench 3.5.6.1140 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78094C7BBFE461E1C58AE8738990C678CC39A0AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518697   (154034) от 20.12.2021
+
+Firefox Browser 95.0.2 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B98F61FB09B68499FBB6040FC62B674FF42E6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601003   (154035) от 29.12.2022
+
+Finder Windows 1.5.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Finder Windows — это плавающая панель, которая дает вам мгновенный доступ к списку открытых окон Finder в любое время. Это решает ежедневную «борьбу» с попытками добраться до нужных папок среди постоянно меняющегося беспорядка открытых окон. Теперь вы можете просто мельком взглянуть на список и выбрать нужное окно. Или мгновенно закройте те, которые вам больше не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2022 Finder Windows.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3209A860DECFAE70CBE8A23D4D5077A7AE2AC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046442   (154036) от 23.12.2016
+
+Вячеслав Коротин | Флоту - побеждать! (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154036.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Флоту - побеждать!» - этот приказ адмирала Макарова изменит историю Русско-японской войны. Ибо в сознание лучшего флотоводца Российской империи внедрен наш современник, русский моряк из XXI века.
+С его помощью легендарный адмирал избежит гибели на борту броненосца «Петропавловск» и превратит порт-артурскую трагедию в величайший триумф русского флота!
+Он сорвет высадку (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800E1319EE0A8D798765E6182D548E1E8451F3A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194707   (154037) от 26.12.2017
 
 Журнал | Про кухню №1-2 (112) (январь 2018) [PDF]
@@ -6,7 +180,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154037.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:C23466859510D429E9F9125C1B6C9DEACBF31ED0
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154038.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ Windows 11 Manager 1.3.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154039.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ magnet:?xt=urn:btih:72A23F0F2CCC3A6653E4C782AF32602B39A80D5F
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154040.jpg" />
 </div>
 
 
@@ -102,7 +276,7 @@ magnet:?xt=urn:btih:D6AB2189BDAD4CE23A033B4469D8AD66F147E1E4
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154041.jpg" />
 </div>
 
 
@@ -126,7 +300,7 @@ magnet:?xt=urn:btih:CBD7F7D8807AFE5C6C6D3AD35A62EB8F19C4FBE3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154042.jpg" />
 </div>
 
 
@@ -150,7 +324,7 @@ magnet:?xt=urn:btih:F241E95BD52F7A37188DA940CB9552FCCA6E53E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154043.jpg" />
 </div>
 
 
@@ -175,7 +349,7 @@ Christmas Wonderland 11 / Рождество. Страна Чудес 11 (2020) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154044.jpg" />
 </div>
 
 
@@ -199,7 +373,7 @@ magnet:?xt=urn:btih:74BA1FCCEEE8EF1C5C1B87B23858FC03989208F3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154045.jpg" />
 </div>
 
 
@@ -223,7 +397,7 @@ magnet:?xt=urn:btih:0C7508F72A697AC626CDC3D3E1FC89A0CCD74200
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154046.jpg" />
 </div>
 
 
@@ -247,7 +421,7 @@ magnet:?xt=urn:btih:ED522823AAD8E36FDD3C35526FD2917E836EAE96
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154047.jpg" />
 </div>
 
 
@@ -271,7 +445,7 @@ Aiseesoft Mac PDF Converter Ultimate 3.2.80 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154048.jpg" />
 </div>
 
 
@@ -295,7 +469,7 @@ magnet:?xt=urn:btih:405B35469A06D5CBBCFCF2B063BC76D3A77AA03B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154049.jpg" />
 </div>
 
 
@@ -319,7 +493,7 @@ Wondershare PDFelement 9.3.2.2044  Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154050.jpg" />
 </div>
 
 
@@ -343,7 +517,7 @@ magnet:?xt=urn:btih:B3FE5666818E09024E66B77FBB6069AEB90D9054
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154051.jpg" />
 </div>
 
 
@@ -369,7 +543,7 @@ magnet:?xt=urn:btih:80FBCC36D1325BDB9F911E7186214E7AFC6C1DF3
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154052.jpg" />
 </div>
 
 
@@ -394,7 +568,7 @@ magnet:?xt=urn:btih:E689B22549A28E9013EB786253D6DB495C670E42
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154053.jpg" />
 </div>
 
 
@@ -418,7 +592,7 @@ foobar2000 1.3.14 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154054.jpg" />
 </div>
 
 
@@ -442,7 +616,7 @@ magnet:?xt=urn:btih:01BBDF2820F52F23653E1D1533BB4520849EF9D4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154055.jpg" />
 </div>
 
 
@@ -454,183 +628,6 @@ magnet:?xt=urn:btih:01BBDF2820F52F23653E1D1533BB4520849EF9D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE4CE97D33F131CD5EAA17F70AE0D8C845A7410B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347079   (154056) от 22.12.2019
-
-Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1990 - Strength Of Heart
-1992 - Gary Hughes
-1998 - In Your Eyes (EP)(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 06:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786524471CEF3543DD932E297A11FECE72DC39CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194533   (154057) от 26.12.2017
-
-Формула E. Сезон 2017-18. Этап 1. Гонконг (Китай). Гонка 1 (02.12.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154057.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 этап электрической формулы Formula E на городской трассе в Гонконге.Телекомпания: Eurosport 1 UKЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EE28E55A3B3B0B478FFA9948561400F8AD9E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518701   (154058) от 20.12.2021
-
-RegCool 1.300 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6D16C90868F1B98665A08BA3B3CB1518A0E3E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601004   (154059) от 29.12.2022
-
-VA - The Christmass Tea: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabrielle Chiararo - Don't Know Why (03:16)
-02. Brazil Beat - Walk On By (02:50)
-03. Alyssa Zezza - Maxine (03:28)
-04. Alyssa Zezza - September (05:11)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A1A04A6FB52B9C5CBD0556474F28BED75872F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676985   (154060) от 15.11.2023
-
-Исчезнувшая в звездах / Xiao shi de ta / Lost in the Stars (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже две недели Хэ Фэй безуспешно разыскивает жену, пропавшую на тайском острове, куда они приехали на годовщину свадьбы. Внезапно объявляется женщина, утверждающая, что она и есть супруга Хэ Фэя и, обидевшись, провела две недели на соседнем острове. Мужчина пытается доказать полиции, что это самозванка, но все её документы в полном порядке, и даже находятся подтверждающие (   Читать дальше...   )Производство: Китай, Beijing Tianhua Huawen Motion Picture Investment Co., Beijing Weimeng Chuangke Network Technology, Beijing Yitong Chuanqi Film CultureЖанр: детектив, триллер, криминалРежиссер: Цуй Жуй, Лю СянАктеры: Чжу Илун, Ни Ни, Дженис Мань, Ду Цзян, Кэй Хуан, Чэнь Мэнци, Скотти Кокс, Юй Чэнцюнь, Мэн Чжисюй, Чжан ИвэньханьПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: английские, китайскиеПродолжительность: 01:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DF092381E71EFB5265B39232FCC3ECEC9E5F64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270956   (154061) от 21.12.2018
-
-Блондин – приманка для убийцы / Blonde Koder fur den Morder (1969) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154061.jpg" />
-</div>
-
-
-###  Подробнее
-
-На пляже отеля убивают молодую женщину и похищают у неё дорогое ожерелье. Её муж нанимает детективов для расследования. Все подозрения падают на молодого художника, живущего по соседству с отелем…Производство: Германия (ФРГ), Италия / Maris Film, PACЖанр: ТриллерРежиссер: Харольд ФилиппАктеры: Дин Рид, Фабио Тести, Ини Ассманн, Леон Эскин, Вернер Петерс, Риккардо Гарроне, Марио Брега, Элен Шанель, Феми Бенусси, Ренато БальдиниПеревод: Одноголосый закадровый (Сибирский)Субтитры: ОтсутствуютПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64868D240880AEFC68263CFE78E3F5039700E4A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347108   (154062) от 22.12.2019
-
-Badhoven - 4 альбома Discography (2001-2019) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2001 - Behind The Masquerade
-2005 - Believe
-2013 - Obsession(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 02:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4B7C8421DFE34110D54FE62F472F64097E0C30
 ```
 
 

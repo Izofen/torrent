@@ -1,3 +1,78 @@
+###  Публикация: 1692575   (121004) от 25.01.2024
+
+Японские физики добились квантовой когерентности при комнатной температуре — это упростит квантовые компьютеры
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_121004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласованные квантовые состояния боятся любых помех, что усложняет реализацию квантовых компьютеров. Для снижения шумов их охлаждают до запредельно низких температур, но в идеале квантовые системы должны работать при комнатной температуре, без чего невозможно их массовое применение. Возможно, в этом поможет новая работа японских учёных, которые смогли добиться квантовой (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694224   (121005) от 25.01.2024
+
+FITLAB (ФИТЛАБ) | Эффективный автосервис. Курс руководителя. Курс для автосервисов (2023) WEB-DL  [RU]
+
+>>Автомобили
+>>Автомобильные обуч.видео
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записи четырех дней курса руководителя автосервиса от FITLAB (ФИТЛАБ).
+Скачано из офиса фитлаба сотрудниками.
+Этот курс малополезен для руководителей автосервисов так как заточен под франшизу, целыми днями разбирают бумажки.
+Ведущий в сервисе никогда не работал, верхушек нахватался и умничает - инфа сотка из пероисточника.(   Читать дальше...   )Производство: FITLAB (ФИТЛАБ)Жанр: ОбучениеЯзык озвучки: РусскийПродолжительность: 22:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A851BC3C9222BD9A7F16451DD46D21597924FDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694149   (121006) от 25.01.2024
+
+Сармат (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оперативник главного управления по контролю за оборотом наркотиков МВД России Артём Стеклов совместно с коллегой из Сочи проводит операцию по задержанию Костика, сына крупного сочинского наркоторговца Виктора Хромова. В результате операции Костика арестовывают, а Артем дает против него показания. Опасаясь мести преступников, семью Артема направляют в безопасное место. (   Читать дальше...   )Производство: Россия / Berg Sound, MacCoffeeЖанр: боевикРежиссер: Ефрем НазаровАктеры: Максим Щеголев, Сергей Комаров, Майя Вознесенская, Сергей Холмогоров, Сергей Бадюк, Олег Каменщиков, Олег Доброван, Андрей Давыдов, Василий Шлыков, Нино ДеисадзеСубтитры: ОтсутствуютПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687252FDC01A24BA6D657E6ED034815846FB148A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694231   (121007) от 25.01.2024
 
 FITLAB (ФИТЛАБ) | Психология управления персоналом. Курс для автосервисов (2023) WEB-DL [RU]
@@ -6,7 +81,7 @@ FITLAB (ФИТЛАБ) | Психология управления персона
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121007.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:91BA484A9B63DF9A010A41914AA5602407003C5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121008.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ AR Ruler App: Линейка Рулетка v2.7.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121009.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ Chromium-Gost 121.0.6167.85 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121010.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ CCP Games | Артбук по вселенной игр EVE  / EVE - Source (201
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121011.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ FITLAB (ФИТЛАБ) | Звонки в автосервисе. Курс для 
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121012.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ Wise Auto Shutdown 2.0.6.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121013.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ FITLAB (ФИТЛАБ) | Переговоры и точка. Курс для ав
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121014.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:57F4BE43CAB1E4564AC0A302EB895B2F575DB4F6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121015.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ magnet:?xt=urn:btih:7E4D06B0EE7E53E1D146D18900CBC1D4D85FA1EE
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121016.jpg" />
 </div>
 
 
@@ -256,7 +331,7 @@ magnet:?xt=urn:btih:37CD841CCE1EB11BC073A7E98A678E349030AC0E
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121017.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ magnet:?xt=urn:btih:3CF3BD66642CB280DA349947611DA1D7E43FCC4A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121018.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ PhotoTune - Улучшитель фото v4.4.9 Mod by maxi123444 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121019.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ Transcend SSD Scope 4.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121020.jpg" />
 </div>
 
 
@@ -353,7 +428,7 @@ magnet:?xt=urn:btih:8197DBF8ACACF5A48FFE8A69520936340F1C4D71
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121021.jpg" />
 </div>
 
 
@@ -377,7 +452,7 @@ magnet:?xt=urn:btih:81D69DFE178506C4F0BC75CAD7BF819C3BB0B4D7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121022.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ magnet:?xt=urn:btih:97B9D3F63F7CB275FD9F8FCFBF05A4277B1381AD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121023.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ magnet:?xt=urn:btih:565E9DF81579FE0F5A162DC0C0F2DEDA2C705DAB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121024.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ magnet:?xt=urn:btih:5892501590C061FED4DAC94EFD352C4FED249E06
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121025.jpg" />
 </div>
 
 
@@ -478,7 +553,7 @@ magnet:?xt=urn:btih:67FEA475C8629DAA4898CAC4D8340F25184EBAA5
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121026.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ magnet:?xt=urn:btih:DC66950D1FCD1927CDB447035CAF38DED067662D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121027.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ magnet:?xt=urn:btih:771CF3360E5F86F70F6F192693C9F0D647A6D4BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121028.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ FITLAB (ФИТЛАБ), Сергей Петров | Школа механика (
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121029.jpg" />
 </div>
 
 
@@ -564,80 +639,6 @@ FITLAB (ФИТЛАБ), Сергей Петров | Школа механика (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8835420EB22D726B9D6F3064620BCF5FB7D634B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694170   (121030) от 25.01.2024
-
-Заветное желание / Wish (2023) WEBRip [H.265/1080p]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аша — остроумная идеалистка, которая загадывает настолько сильное желание, что на него отвечает космическая сила — маленький шарик безграничной энергии по имени Звезда. Вместе они противостоят самому грозному правителю Росаса, королю Магнифико. Защищая своих близких, Аша доказывает, что, когда воля одного отважного человека соединяется с магией звезд, могут происходить (   Читать дальше...   )Производство: США, Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Крис Бак, Фон ВирасунторнАктеры: Ариана ДеБос, Крис Пайн, Алан Тьюдик, Анжелика Кебрал, Виктор Гарбер, Наташа Ротуэлл, Дженнифер Кумияма, Харви Гильен, Нико Варгас, Эван ПитерсПеревод: Дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: 01:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3F857D73048484AE17AD643443388F09CD2F17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694533   (121031) от 25.01.2024
-
-CCP Games | Артбук по игре EVE Online: Фрегаты / Frigates of EVE Online - The Cross Sections (2017) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это прекрасно иллюстрированное руководство с подробными изображениями двадцати восьми самых знаковых кораблей EVE Online предлагает беспрецедентный взгляд на фрегаты каждой фракции с замысловатыми вырезами и сложными лором.
-
-Серия артбуков по играм EVE: Артбук EVEЖанр: АртбукЯзык: АнглийскийИздательство: Dark HorseФормат: CBRКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAB37758B18C61F2E6CEE8FB5952D585F143589
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694498   (121032) от 25.01.2024
-
-DefenderUI 1.16 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121032.jpg" />
-</div>
-
-
-###  Подробнее
-
-DefenderUI - бесплатная программа, являющаяся альтернативной графической оболочкой для настройки антивируса Безопасность Windows. Программа включает возможность изменять все настройки безопасности и поведения встроенного в Windows антивируса. DefenderUI значительно повышает удобство использования и открывает многие скрытые функции безопасности Microsoft Defender.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658B616F6AF57C7627D35ECCCA260A14EEE0EDBF
 ```
 
 

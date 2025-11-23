@@ -6,7 +6,7 @@ VA - Dance Report, Vol. 1 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12437.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Sel
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12438.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:455290FFBE9DA7993E990CDA59335B32BD3D213E
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12439.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:482BC3E00665077ECD57DB6C7226B3AF2BA51A2B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12440.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MassTube Ultra 20.1.6.135 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12441.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.27 [Nightly] Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12442.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ DjVu Reader & Viewer (читалка) v1.0.132 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12443.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:8EB3D27C6D27C4A540DB541490AFD3872EF0FEC6
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12444.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:7EF5779CB35B057D62D40D8142FE00A32FACA8C4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12445.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:5CB16DEDB3EB10D3EA4FF5C2A9A2AEC96D3019C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12446.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:9B3E4557814ABB7F7E659EC84A468811DB4DC451
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12447.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:8678F34C44357A4256FA0F1BFFCE767E12CA7684
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12448.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:C0D33C2F4886660056D1078BCFD5B006A743E42A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12449.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12450.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12451.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:D79730577DE44C036FB30823517EB6C7B100A094
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12452.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:1EA41703237E7C1E370CD82B1B0F1B8F01F34645
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12453.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:6D26C7FE857F50574195587C44A79BE88308CE97
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12454.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:6225DE8CEDDB7438EA0677DAB1177AB560656087
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12455.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:6F1F969B741B175611735F168CAD3A76E87CD151
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12456.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:961E602C43BD28258A7033BC34276894B8B778E0
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12457.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Assault On Proxima (2023) [En] (1.02) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12458.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ ByeByeDPI v1.5.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12459.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:8DDF19DDC84EFBC52E4C8241AEB337411999E11D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12460.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:F9318F4039639D4C1C59DDA3C9FFB11E516B3CA0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12461.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B6DFE190740523A317B80B3FDBBFD12B3F24397F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12462.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Battery Guru: Monitor & Health v2.3.18 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24179.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24179.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GIMP 3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24183.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24183.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tixati 3.33.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24186.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24186.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.3.55554 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24195.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24195.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIMP 5.40 Build 2669 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24201.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24201.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CCleaner 6.34.11482 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24207.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24207.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24209.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24209.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows 11 PRO 23H2 22631.5039 Update 17 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24212.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24212.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Vanced Tube v5.3.80.188 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24218.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24218.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24221.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24221.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FE20936C06DDA0A3831CF52BCE23C15C950D9F1A
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24234.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Windows 11 PRO 24H2 26100.3476 Update 13 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24236.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24236.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VMware Workstation 17 Pro 17.6.3-24583834 [x64] (bundle)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24238.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24238.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 14.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24243.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ WinTools.net Premium 25.3.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24245.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ ExtraDisks 25.3.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24252.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24252.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Solid Explorer File Manager v2.8.60 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24257.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24257.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Firefox Browser 136.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24260.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MobiPDF: Редактор и сканер PDF  v11.3.266927 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24261.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Revo Uninstaller Mobile v3.4.111G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24268.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24268.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ StartAllBack 3.9.6 build 5261 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24271.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.3.10 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24274.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24274.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ GIMP 3.0.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24277.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24277.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Wise Care 365 Pro 7.2.3.696 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24284.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24284.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ RUTUBE - видео, шоу, трансляции 30.1.4.TV-androidtv [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24291.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SIV (System Information Viewer) 5.80 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24298.jpg" />
 </div>
 
 

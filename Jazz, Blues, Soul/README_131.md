@@ -6,7 +6,7 @@ Jeff Liberman - Celebrate the Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149864.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ana Gazzola - Brazilian Blues (2018) [MP3|320 Kbps] <Vocal Jazz, Soul, Blues, Bo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149896.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Courtney Pine - Black Notes From The Deep (2017) Freestyle Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149906.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Damon Smith's - A Boogie Woogie and Blues Christmas Album (2020) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149929.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Erroll Garner - 1953-1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149940.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bad Mileage - A Bridge Too Far (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149943.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Etienne Charles - Creole Christmas (2015) [FLAC|Lossless|tracks + .cue] <Afro-Ca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149945.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Andy Lindquist - Dead in Your Lies (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149957.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ London Gay Big Band - Freedom (2018) [MP3|320 Kbps] <Vocal Jazz, Soul>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150000.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Whizkey Brothers & Sona MacDonald - Eine Hommage An Billie Holiday (2018) [M
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150023.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ V.A. - Electro Swing Elite Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150079.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ John Di Martino's Romantic Jazz Trio - Music Of The Night (2016) [MP3|320 Kbps] 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150096.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Christmas Lights - Smooth Jazz Instrumental Music (2018) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150249.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Habaka - Heritage Blue (2016) [MP3|320 Kbps] <Blues, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150371.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ JunkBelly - On the Inside (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues-Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150376.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Eiji Kadota - The Flow (2014) Innsbruck Records [FLAC|Lossless|WEB-DL|tracks] <F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150410.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Billy Harper Quintet - Live On Tour In The Far East, Vol. 1 (1992) SteepleChase 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150430.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Billy Harper Quintet - Live on Tour in the Far East Vol. 3 (1995) SteepleChase [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150434.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Casiopea - Made in Melbourne (1994) Pioneer[FLAC|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150452.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Mike Zito & Albert Castiglia - Blood Brothers:  Live in Canada (2023) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150499.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Acid Jazz Classics, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150516.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ George Benson - Invitation (1990) ORO [FLAC|Lossless|image + .cue] <Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150527.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Aperitivo Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150534.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Acid Jazz & Funky Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150545.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Acid Jazz Today 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150546.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Arnvid Meyer - Right Out Of Kansas City (1959 - 1973) 5CD, 2008, Stunt Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150568.jpg" />
 </div>
 
 

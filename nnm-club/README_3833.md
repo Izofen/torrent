@@ -1,3 +1,78 @@
+###  Публикация: 1696889   (119340) от 04.02.2024
+
+Skype 8.112.0.206 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DD2461876F85803EE6AF2B455563F2B595936F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696819   (119341) от 04.02.2024
+
+James Blake - Playing Robots Into Heaven (Endel Focus Soundscape) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Neo-Soul, Future-Garage, UK-Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me (Pt. 1 / Endel Focus Soundscape) [00:02:36]
+02. Tell Me (Pt. 2 / Endel Focus Soundscape) [00:03:30]
+03. Tell Me (Pt. 3 / Endel Focus Soundscape) [00:03:07]
+04. Tell Me (Pt. 4 / Endel Focus Soundscape) [00:03:16](   Читать дальше...   )Жанр: Electronic, Neo-Soul, Future-Garage, UK-BassПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77AF07F8BB83935BFA367C551868F754E8FEC42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696784   (119342) от 04.02.2024
+
+PictureThis - Plant Identification v3.77 Mod by youarefinished [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 31.01.2024Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25DC27CB83617796FFBD7E01DB0D569EF5678FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696879   (119343) от 04.02.2024
 
 А.А. Харламов (ред.) | Специальный физический практикум [3 книги] (1977) [PDF]
@@ -6,7 +81,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119343.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Simply Piano: Learn Piano Fast v7.22.7 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119344.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:624312BC00112ECCA9987F1CEB3358EADBAB912E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119345.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Paul Mauriat - Bossa Nova Wave (1991) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Lis
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119346.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Love Music Zone - Sexy Valentine’s Day 2024 [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119347.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Rock Identifier - Stone ID v2.3.36 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119348.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ Eguana - Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ambient Chil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119349.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ Telegram Desktop 4.14.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119350.jpg" />
 </div>
 
 
@@ -209,7 +284,7 @@ Eventide - Blackhole Immersive 1.1.3 VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119351.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ VA - Music News vol.337 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119352.jpg" />
 </div>
 
 
@@ -260,7 +335,7 @@ magnet:?xt=urn:btih:18B410B2BA0091ABAA61FE61FBEBA7A8C130FBFA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119353.jpg" />
 </div>
 
 
@@ -284,7 +359,7 @@ magnet:?xt=urn:btih:32B89E2286AD3B0C49EE4DC1FAB57851C48918C8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119354.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ magnet:?xt=urn:btih:2E58C093F9EA29727523EE3506650B44D525B74C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119355.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ Paul Mauriat - Souvenirs D'Ete (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Classica
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119356.jpg" />
 </div>
 
 
@@ -360,7 +435,7 @@ Kmfdm - Let Go (2024) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119357.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ Paul Mauriat - Iberia (1990) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119358.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ Paul Mauriat - Nagekidori (1987) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listenin
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119359.jpg" />
 </div>
 
 
@@ -441,7 +516,7 @@ Paul Mauriat - Love Sounds Journey (1988) [OGG Vorbis|480 Kbps] <Jazz, Pop, Clas
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119360.jpg" />
 </div>
 
 
@@ -468,7 +543,7 @@ Avi Rosenfeld - Very Heepy Very Purple XV (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119361.jpg" />
 </div>
 
 
@@ -495,7 +570,7 @@ Steinberg - WaveLab 12 Pro 12.0.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119362.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ WinContig 5.0.2.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119363.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ Mullvad Browser 13.0.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119364.jpg" />
 </div>
 
 
@@ -568,7 +643,7 @@ magnet:?xt=urn:btih:B54A7DE5174DFBDA5897E4071B87083C473ADD27
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119365.jpg" />
 </div>
 
 
@@ -579,78 +654,6 @@ magnet:?xt=urn:btih:B54A7DE5174DFBDA5897E4071B87083C473ADD27
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C121754304300B954328F6B9EA09BF3BA105F2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696695   (119366) от 04.02.2024
-
-В курсе / In the Know (2024) WEB-DL [H.264/1080p] (Сезон 1, серии 1-6 из 6) Jaskier
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лорен Каспиан — ведущий программы ″В курсе″, третьей по популярности интервью-передачи на общественном радио. Он благонамеренно лицемерный негодяй. К тому же он стоп-моушн марионетка.Производство: США / Bandera Entertainment, ShadowMachine, Universal Animation StudiosЖанр: мультфильм, ток-шоу, комедияРежиссер: Брэндон Гарднер, Майк Джадж, Зак ВудсАктеры: Зак Вудс, Дж. Смит-Камерон, Карл Тарт, Кэйтлин Рейли, Майк Джадж, Чарли Бушнелл, Кайя Гербер, Кен Бёрнс, Даниэла Вега, Тиган КуинПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Английские, ИспанскиеПродолжительность: ~ 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6880E5DB7A7C74A97DD9005C0E125C60DE2EDFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696832   (119367) от 04.02.2024
-
-Асса (1987) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надеясь на яркую и безбедную жизнь, девушка связывает свою судьбу с криминальным авторитетом. Но есть и другая жизнь — свободная и с музыкой, жизнь мальчика Бананана. И две эти жизни трагически сталкиваются.Производство: ССCР / Круг, МосфильмЖанр: драма, мелодрама, криминал, история, музыкаРежиссер: Сергей СоловьевАктеры: Сергей Бугаев, Татьяна Друбич, Станислав Говорухин, Натан Эйдельман, Анатолий Сливников, Герман Шорр, Илья Иванов, Александр Баширов, Виктор Цой, Сергей РыженкоСубтитры: ФранцузскиеПродолжительность: 01:16:02 + 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C823C5AD516B55EDE3B2DB9E57AA90AA0F842F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696478   (119368) от 04.02.2024
-
-Объяснялкины (2023) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья, которая снимает образовательное шоу, подписывает контракт со стримингом, и согласно договору персонажи не могут стареть и умирать, а также должны жить в квартире пожилых родителей. Батёк, Мамуля, Дед и Бабуля в каждой серии отвечают на вопрос, который им задаёт Сынуля. Когда-то семья считала это шоу ламповым и получала удовольствие от съёмок, но теперь им (   Читать дальше...   )Производство: Россия, Nerds, Плюс СтудияЖанр: мультсериал для взрослых, комедия, рисованныйРежиссер: Евгений БлинниковАктеры: Дмитрий Сыендук, Виктория Зайцева, Полина Авдеенко, Егор Лоскутов, Александр Васильев, Александр Койгеров, Алексей Макрецкий, Валерий Чеботаев, Елизавета Чабан, Иван ЧабанПеревод: Не требуется (Русский)Субтитры: Русские (Full, SDH)Продолжительность: 8 x ~ 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7706956097509878B52C1FB67B85F98C70CDDE
 ```
 
 

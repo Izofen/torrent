@@ -1,3 +1,75 @@
+###  Публикация: 1562900   (212659) от 12.07.2022
+
+MLUSB Mounter: Менеджер файлов 1.64.001 Mod by ~Timozhai~ [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212659.jpg" />
+</div>
+
+
+###  Подробнее
+
+MLUSB Mounter - это разработанный в Японии файловый менеджер для управления и организации файлов на смартфоне или планшете. Вы можете легко создать резервную копию и просто копировать важные фотографии, видео и музыку со смартфона или планшета на USB-диски и USB-флеш-накопители, а также SD-карты через USB-картридер (далее называемые USB-устройствами). Также вы можете (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 12.07.2022Разработчик: メディアロジック (Media Logic, corp.)Поддерживаемая ОС: Android 2.2+Язык интерфейса: Русский, Английский, Японский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E5A4E1E5F6310ABC380DF42BA9722EDB791C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438140   (212679) от 11.07.2022
+
+Звук. Музыка и подкасты v4.14 Premium [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звук всегда на одной волне с вами. Скачивание музыки еще никогда не было таким доступным. Отдыхайте, учитесь, работайте, медитируйте и путешествуйте под подходящее музыкальное сопровождение, развлекательные или познавательные подкасты от аудиосервиса. Скачать Звук — это значит установить музыкальный плеер на свой телефон.Тип издания: Пиратка (Premium)Релиз состоялся: 24 июн. 2022 г.Разработчик: ZvukDevЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC980F01794E26BAF8C61C8B746AFD036E9134BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562887   (212690) от 11.07.2022
+
+Авто Кликер / Auto Clicker 4.0.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auto Clicker - это невероятно простой в применении автоматический кликер для устройств с системой Android. Вы сможете сделать игры с мобильного устройства ещё более простыми. Приложение Auto Clicker позволит вам автоматизировать различные монотонные задачи. Особенно полезна данная программа для игр, в которых вам нужно щёлкать или нажимать без остановки, чтобы выиграть. (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 03.05.2022Разработчик: Karta StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6956773887BD83C50A227CA69201265B2F9B79AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562780   (212717) от 10.07.2022
 
 2Do - Reminders & Task Planner 2.15 Mod by Scream [Ru/Multi]
@@ -6,7 +78,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212717.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212717.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Nova Launcher Prime 7.0.57 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212857.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212857.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:9F878B6AB9A2608F25F6D7371D84D04B1778C363
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212892.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212892.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Quasar IN-8: Виджет часов v1.5.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212914.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212914.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ IP Webcam Pro 1.15.0r.768 Mod by Android+ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212966.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212966.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Background Eraser (InShot Inc.) v2.111.28 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212978.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212978.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ NashStore 0.0.6 + Lite-Mod by Алексей МОДНЫЙ + ATV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213033.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213033.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Lockscreen Widgets 1.18.1 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213040.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213040.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:E963874DCCF2FC8E4B5B01B13F58FF3EBD290723
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213255.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213255.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Voice Translator. Translate v1.5.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213358.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213358.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:954C3DE88682E569779AFC51EB99A2BBB1ADBC3C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213361.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213361.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ F-Secure FREEDOME VPN v2.7.4.9292 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213395.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213395.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ TapScanner v2.7.47 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213401.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213401.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ Computer Launcher Win 10 Prime v4.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213411.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213411.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ Dolby ATMOS For Android (D4A) - Большой сборник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213569.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213569.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Prisma – Art Photo Editor v4.3.8.561 Premium [Ru/Multi] (обновляема�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214218.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214218.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ Photomath Plus 8.27.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214355.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214355.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ Luminous - Poweramp Skin 8.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214637.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214637.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:18831444C7EE41D1E75407D1B5FB8853706C29E9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214739.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214739.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ GymRun 10.0.1 Premium Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215018.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215018.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:4BFA4D7280A31DE8243613CE25AD8F3C2EBA47CD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215397.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215397.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ magnet:?xt=urn:btih:0A5F29D5A39EF7CC11EDB38F17D4DF5D83503BDA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218559.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218559.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ magnet:?xt=urn:btih:30E70270C78F7528D9D6ECDB1682B1363185909B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218772.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218772.jpg" />
 </div>
 
 
@@ -560,78 +632,6 @@ magnet:?xt=urn:btih:30E70270C78F7528D9D6ECDB1682B1363185909B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F71D814338296FFA9916B15F1DB47DD0E26B9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343290   (219515) от 05.12.2019
-
-Fitness Point Pro v2.8.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fitness Point - это простое приложение, чтобы следить за своим прогрессом в тренажёрном зале. Нет запутанных меню или перегруженных информацией экранов. Только все, что вам нужно! Составьте индивидуальный тренировочный план внутри приложения или выберите из множества готовых!Тип издания: Pro с Маркета (Paid)Релиз состоялся: 27.10.2019Разработчик: Zero One GmbHПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF22620AE28951396ABDC796D62A6654F24E3719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058581   (219832) от 18.12.2016
-
-Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для управления, отслеживания спортивной деятельности, сна, мониторинга и синхронизации данных Xiaomi браслета Mi Band, весов Mi Scale и Mi Band Pulse.Тип издания: FreeРелиз состоялся: 18.12.16Разработчик: Xiaomi TechnologyПоддерживаемая ОС: Android 4.3 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F945DBFA76BE050CED9BB624BC0A125BFC4DC14D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832782   (220696) от 30.10.2025
-
-Smart Tools 2 v1.2.3 Mod by TryRoon [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Tools® 2 - это расширенный набор инструментов. «Smart Tools 2» включает в себя все функции существующих «Smart Tools», поэтому мы рекомендуем новым пользователям приобрести это приложение. «Smart Tools 2» = «Smart Tools» + больше инструментов + больше возможностейТип издания: ModРелиз состоялся: 30.10.2025Разработчик: Smart Tools co.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D480289A267AF9E7DEDDD95322EF975793A8BD50
 ```
 
 

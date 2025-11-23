@@ -1,3 +1,75 @@
+###  Публикация: 1702412   (115934) от 24.02.2024
+
+Д. Р. Макэлрой | Неведомый мир. Магические существа, легенды и суеверия со всего света (2021) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115934.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлена подборка самых удивительных и живучих верований народов мира: истории о могущественных богах и героях, страшных чудовищах и добрых духах; городские легенды и суеверия. Многие из них широко известны, а о других читатель, возможно, узнает впервые. Описания удобно сгруппированы по регионам и оформлены красивыми иллюстрациями.Жанр: мифология, мифы / легенды / эпос, фольклорПеревод: Дарья СмирноваЯзык: русскийИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C81B4B08F70D29D479CA60E575F15B5F418F03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702322   (115935) от 24.02.2024
+
+Solium Infernum (2024) [Ru/Multi] (1.0) Scene SKIDROW
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Solium Infernum - увлекательная пошаговая стратегия, действие которой разворачивается на огненных ландшафтах Ада. Черпая вдохновение в эпической поэме Джона Мильтона "Потерянный рай", игра втягивает в жестокую борьбу за вожделенный трон Темного Властелина. Дьявольская смесь дипломатии, обмана и военных действий разворачивается на фоне сложной и динамичной (   Читать дальше...   )Тип издания: SceneРазработчик: League of GeeksЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C56B19CA0E8D87971647CCC2B507E1461B6E4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701903   (115936) от 24.02.2024
+
+Летят журавли (1957) BDRemux [H.264/1080p] [Criterion Collection]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о людях, в чьи судьбы безжалостно вторглась война. Не все смогли с честью вынести это испытание. В центре киноповести - трагическая история двух влюбленных, которых разлучила война.Производство: СССР / МосфильмЖанр: Военный, мелодрама, история, драмаРежиссер: Михаил КалатозовАктеры: Татьяна Самойлова, Алексей Баталов, Василий Меркурьев, Александр Шворин, Светлана Харитонова, Константин Кадочников, Валентин Зубков, Антонина Богданова, Борис Коковкин, Екатерина КуприяноваПеревод: Не требуется (русский)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74975DF2DF9C0D61F16850CFD96D1B4F67669889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 752383   (115937) от 24.02.2024
 
 Стивен Кинг | 1922 (2014) [MP3]
@@ -6,7 +78,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115937.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:E3DCBE381F9BE89B58188882A98FAE4A8E0FCB9E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115938.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:E43FDD6C38D1813300CDFFB4CFE402F38756F5C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115939.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:B1A13E4496F1892E71967BB008FC00A0D0070011
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115940.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:48D45E1FE47F8DEA4D2565C8F3161AC0430B1470
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115941.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:F1FE5538D020B71BB8687BDCDE0EBC5D3CE166DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115942.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Areaweb | Laravel — создание крутого API (2024) WEB-DL [AD] [RU
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115943.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:5D86D6DEE67A8959E87BE206B1E1F55710E1BD60
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115944.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:79E72A04286A8FF2FE62E2DB2D7D1E2FDD0C5E32
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115945.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:7461F7987F4E0B01ED1BDE50F2E9AB06CBA4FE78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115946.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:A786BBADB5924A9CCE403938B60DE16D8B1D5BE0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115947.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Raffo VFX, Patreon | Уроки с сайта Patreon по VFX в Blender (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115948.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ Cryptology School | Cryptology 10 (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115949.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:D1DFEA4F59BA9C5488EF561F696DD57854ACA08A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115950.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115951.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:4364E83102DFA836EC2BDC9603A6612B056C803F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115952.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ ZBrush 2024.0.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115953.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:4DF52940AF6690679C1BDEC7BAD2EB15EFDEF504
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115954.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:EB85042797FA310FB825B8146837BE009C479EF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115955.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:A8905B28ECE052C13BF5459666B8E8FF685B3BC6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115956.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115957.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ CrystalDiskMark 8.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115958.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:9F2A99A9B98AE0C42B328B43BAE0F3931B359EBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115959.jpg" />
 </div>
 
 
@@ -552,87 +624,6 @@ magnet:?xt=urn:btih:9F2A99A9B98AE0C42B328B43BAE0F3931B359EBD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43C08D0CBFA567235D8AAE50D79D167850C1353F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701960   (115960) от 23.02.2024
-
-Konrad Zolnierek (Zołnierek) - Jazz-Rock Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fingerprints (5:53)
-02. Scafender (7:13)
-03. Finish (8:44)
-04. Wrinkle (7:11)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27B6F3EF8B088089D98350B68939CB8915518A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701957   (115961) от 23.02.2024
-
-Austrian Death Machine - Quad Brutal (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Pain, No Gain 04:06
-02. Conquer 03:08
-03. Hey Bro Can You Spot Me? 03:49
-04. Judgement Day 04:06(   Читать дальше...   )Жанр: Modern Groove MetalПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C918551E7726BF117621ED5E4DC40553976502EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702040   (115962) от 23.02.2024
-
-Rifforia - Axeorcism (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Game That You Don't Understand (3:34)
-02. Sea of Pain (3:30)
-03. Well of Life (4:29)
-04. Built to Destroy (3:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390EF00F7AC7BC2D39DB59C4422C50543D567027
 ```
 
 

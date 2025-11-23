@@ -1,3 +1,84 @@
+###  Публикация: 464856   (96025) от 09.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96025.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 6
+Название: Avto Wallpapers Pack 6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4A011C6FD5DC9E5D517ACE7C7D8E895EC34FC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464874   (96026) от 09.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 62
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96026.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 62
+Название: Desktop Wallpapers Pack 62
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736FCB50EF206A441F5887CD7B4B2B893FB879AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464744   (96027) от 09.03.2012
+
+Мэтью Гэбори | Сердце Феникса [2003] [RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевство мертвых Харония стремится покорить мир живых с его неповторимыми землями, о которых пекутся Хранители. До сих пор Грифоны, Пегасы, Аспиды, Единороги и другие волшебные существа обеспечивали покой и гармонию во всех государствах Миропотока, но вторжение Темных Троп нарушило равновесие. Единственный, кто в силах помешать шествию злых сил, - юноша, почти подросток, Януэль и не подозревает о выпавшей на его долю великой миссии.2003Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2DD8DD8F082EE7F687C6E3B23A5B90EEE7E9A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465207   (96032) от 09.03.2012
 
 Myon and shane 54 - International departures 119 (2012) [MP3|320 кб/с]<Trance, Progressive House>
@@ -6,7 +87,7 @@ Myon and shane 54 - International departures 119 (2012) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96032.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ VA - Greenosophy (2012) [MP3|~237 кб/с (V0)]<Ambient , Downtempo , Electronic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96033.jpg" />
 </div>
 
 
@@ -72,7 +153,7 @@ magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96034.jpg" />
 </div>
 
 
@@ -100,7 +181,7 @@ magnet:?xt=urn:btih:538F42E4878A650DC7D6987711F9CD6B33634943
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96036.jpg" />
 </div>
 
 
@@ -124,7 +205,7 @@ Symphonix - The Usual Suspects Remixes (2011) [MP3|320 кб/с]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96038.jpg" />
 </div>
 
 
@@ -155,7 +236,7 @@ magnet:?xt=urn:btih:C175591FCACFDA02112B0CA4C1FEBA129CA16320
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96041.jpg" />
 </div>
 
 
@@ -179,7 +260,7 @@ AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96043.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ magnet:?xt=urn:btih:E597C66839AA0E9D031D80E72769FDEE8D05928C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96044.jpg" />
 </div>
 
 
@@ -236,7 +317,7 @@ VA - Hip-Hop для Любимой (2012) [MP3|320 кб/с]<Hip-Hop, Rap>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96045.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ magnet:?xt=urn:btih:0390ECC62746501F523913688A0BC55F57B1816D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96050.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ magnet:?xt=urn:btih:33794C303E6732672581C8DACA7327FA34EF9BC1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96052.jpg" />
 </div>
 
 
@@ -317,7 +398,7 @@ magnet:?xt=urn:btih:5556D30A00E83B31EFEF5A63E719275EC4DAADFA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96054.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ VA - Cosmos Just Now Beat (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96055.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ VA - Горячая Танцевальная Сенсация (2012) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96056.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ magnet:?xt=urn:btih:8681CE57681B58C6AE5929CA5068DC49441D7F7B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96059.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ magnet:?xt=urn:btih:EB140A0B72D8769EBC2D0935A1D3F0D4543E5A06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96061.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96061.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ VA - The Sweetest Taboo Vol.1 (2009) [FLAC|Lossless]<Lounge / Chillout / Downtem
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96062.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96062.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ VA - The Sweetest Taboo Vol.1 (2009)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96063.jpg" />
 </div>
 
 
@@ -516,7 +597,7 @@ magnet:?xt=urn:btih:05566D884C6B48E70A6F683E00C27B25619D9C6D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96065.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ magnet:?xt=urn:btih:768D878CF3B68154FA757431FAC12D7349276C0B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96068.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ Armin van Buuren - A State of Trance 551 (2012) [MP3|256 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96069.jpg" />
 </div>
 
 
@@ -598,7 +679,7 @@ VA - Generation of Psytrance Vol.8 (2012) [MP3|320 кб/с]<Psychedelic / Full O
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96072.jpg" />
 </div>
 
 
@@ -631,7 +712,7 @@ magnet:?xt=urn:btih:F8A23B9079126A7BC12FFDBDD6938165DEFFD41A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96073.jpg" />
 </div>
 
 
@@ -642,88 +723,6 @@ magnet:?xt=urn:btih:F8A23B9079126A7BC12FFDBDD6938165DEFFD41A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D5B950EE24236FBDD7ABC41C8BFE69ACAE017A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464756   (96078) от 09.03.2012
-
-VA - Шоферской Хит 6 (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кафе - Комплект свободы
-02. Спартак Арутюнян - Опа, Магадан
-03. Александр Антимиров - Я тебя забыл
-04. Александр Кузнецов - Амулет
-05. Борис Шварцман - Лето на Урале
-06. Алена Андерс - Пацан
-07. Ирина Круг - Осеннее кафе
-08. Александр Вестов - Жизнь-монета
-09. Св.Питерская и Г.Жаров - Таежная
-10. Григорий Заречный - Зодиак2012Жанр: ШансонПродолжительность: 06:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366CB18109D4DA6ACDCB3EA71A20A81AB70D6CEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465256   (96083) от 09.03.2012
-
-В. Роман | "Аэрокобры" над Кубанью [2006] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена истории создания истребителя Р-39 «Аэрокобра» и применении его «ранних» моделей Р-39К, L и М советскими ВВС в боях над Кубанью. Рассматриваются особенности конструкции и ЛТХ самолета, пути поставок в СССР, хроника боевых действий авиаполков ВВС РККА и ВВС ВМФ. Приведены подробные чертежи в масштабе 1:48, схемы, карты, 21 цветное и 51 ч/б фото.
-Впервые публикуется окраска самолетов советских асов А.И. Покрышкина, Б.Б. Глинки, В.М. Дрыгина и др. Издание предназначено для любителей истории авиации и моделистов.2006Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72185CE6D257A894040D8B5101FAB031C43D1B2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464945   (96085) от 09.03.2012
-
-Майский снег (1988) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Провинциальный город Грузии. Эпизод из жизни подростков: их мечты, шалости и взаимоотношения со взрослыми.Жанр: КиноповестьРежиссер: Зураб ИнашвилиАктеры: Леван Турманидзе, Тинатин Кобаладзе, Ника Чхаидзе, Гурам Лордкепанидзе, Этер Геловани, Георгий Берозашвили, Ника Джапаридзе, Георгий Кацаридзе, Гаюз Зедгенидзе, Бердиа ИнцкирвелиПеревод: Профессиональный (многоголосый)Продолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E93A93385AB2D233285CD115F050E4D8F47106
 ```
 
 

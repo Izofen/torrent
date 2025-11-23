@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47779.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ My Lovely Wife (2022) [Ru/Multi] (1.1.14f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47780.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:538645422DB2FD0814608707FB6B04D46244DF20
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47781.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BFB48F6BBA2BEC79BAFC631F2A7E5EEF754A1C62
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47782.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47783.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:DCBCF56AC4FADDE8DD569E4E2B8198641A53AE1F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47784.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ AIMP 5.30 Build 2563 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47785.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mecha Knights: Nightmare (2021) [En] (1.620/dlc) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47786.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:04730358D1232819340C85E7B73925096339CC90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47787.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47788.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:40E01FF992D58C7402E4F120525C5DACBDA1451B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47789.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VideoProc Converter AI 7.2 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47790.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ AOMEI Backupper Technician Plus 7.4.0 WinPE by Updated Edition [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47791.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:39AEE47CB8471DD3CA301ED2B96D05C1F5F460FE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47792.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:353BAC147CC6D362E40D71369AC06BD6853EABB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47793.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ UBOAT (2019) [Ru/Multi] (2024.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47794.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:362DCE3A2A4F38B130E6218E3516D1F705AD7DBC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47795.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47796.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:5CC614ED9AF99F67B57410087F344EEFE4EC0175
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47797.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:8A982C99BE0DFA02D209E669F83E67884277EB97
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47798.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:CDD79F51C2436A37FC69B3BB2683C7CE52F8CA23
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47799.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:EDE9F00D2FAFC56F65CA2020843D361F469C78EF
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47800.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sefki Ibrahim | Hyperreal 3D Character Creation Course [Tutorial] [EN/EN Sub] (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47801.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:ED439CCBE19C51EAA5566E02D79FB1F3F99824A4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47802.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:A4E9034895B5BE2A2037B628B2D32E80E2E77FD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47803.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:7FAACC557DF4E9DE20A24ADC92CAC7BB90F5FFA2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47804.jpg" />
 </div>
 
 

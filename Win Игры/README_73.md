@@ -6,7 +6,7 @@ Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21153.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21153.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21155.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21155.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21157.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21157.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Anno 1800 (2020) [Ru/Multi] (9.2.972600/dlc) Repack seleZen [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21164.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21164.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.0 Build #39119/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21169.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AI Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21170.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21170.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0.53951) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21186.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack FitGirl 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21255.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21262.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Barotrauma (2023) [Ru/Multi] (1.8.6.2/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21267.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21276.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21285.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Forever Skies (2023) [Ru/Multi] (build 18071558) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21357.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21357.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitiv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21375.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21375.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.4.0.22794) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21390.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.2.75454/dlc) Repack Decepticon [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21393.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21393.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Echo Point Nova (2024) [Ru/Multi] (1.41) Repack Let'sРlay [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21400.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Reignbreaker (2025) [Ru/Multi] (1.0.1 HotFix) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21406.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) Repack Let'sРlay [Final Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21480.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21480.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21483.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21483.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Dead Age 2 (II) (2020) [Ru/Multi] (1.118) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21492.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21500.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21500.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14932/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21501.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.24L) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21511.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Into the Necrovale (2024) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21521.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Sandwalkers (2024) [Ru/Multi] (2.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21536.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21536.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Caramba Switcher Corporate 2024.08.01 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38964.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KMSAuto++ Portable 1.9.9 b06 by Ratiborus [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40036.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Activation Program 1.13 Portable by Ratiborus [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40950.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_40950.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ KMS_VL_ALL v53 + AIO Portable 53 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41551.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ ZD Soft Screen Recorder 12.0.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41765.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ ZD Soft Screen Recorder 12.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41789.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ FontLab 8.4.2.8950 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42237.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Mirillis Action! 4.41.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43347.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ BananaDefenderBlocker 1.0.0.2 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43494.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Start11 Version 2.1.1.0 Business Edition [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44053.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Caramba Switcher Lab 2024.08.01 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44115.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Digital Clock 5.0.1 Final + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44140.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ DesktopOK 11.35 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44200.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Colors Pro 3.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44286.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ HyperSnap 9.5.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44291.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Extreme Picture Finder 3.66.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44406.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DefenderKiller 12.6 Portable by Vlado [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44485.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ ApowerREC 1.7.2.11 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44503.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Oofhours Media Tool 29.08.2024 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44856.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ PasteBar 0.6.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45074.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ File Viewer Plus 5.3.0 RePack (& Portable) by elchupacabra [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45170.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Punto Switcher 4.5.0 Build 583 RePack (& Portable) by KpoJIuK [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45429.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VovSoft 3D Box Maker 1.0 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45435.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ MediaInfoXP 2.47 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46392.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Punto Switcher 4.5.0 Build 583 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46633.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Punto Switcher 4.5.0 Build 583 RePack (& Portable) by elchupacabra [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46856.jpg" />
 </div>
 
 

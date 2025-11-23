@@ -6,7 +6,7 @@ ReRoad (2020) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49339.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B293E434AA149B8F3831129D4541B6F5BDDC228E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49340.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:372AC94345103CEDD1162D42EFAA20EE8F786345
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49341.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:FF018F51FCF8E3166E54C5C621C84C77ABE86B68
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49342.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E8BDDC3A3BB166A57128CDD741B22095BE42AA44
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49343.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:26A9CDDAD24DCE5649D9160C44C04B4BAEC3BF97
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49344.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:13A2849D13F6A65D71310EA337B57ADF5D92A76B
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49345.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:D3C5BE3E9CB25D9D241D56E4988BC82BFACC7533
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49346.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:5FE8F1ABA2607CE0FDF1907A9A3289BEA33E19A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49347.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:4572016FDCB7ACAB8608F0DF488D3E718483E9D2
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49348.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0F35C95DFDCDDE4964B92D2DF7211A882F1D5541
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49349.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:29F601403F7AB408B2E2ECEC8429823F750FA570
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49350.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:0371AC8A9E7F4E36CB544C1454016811876FCF8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49351.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Superscout (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49352.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:7A5D255029E5A2130E266FC0F1CD9C90F0EAB4A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49353.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ OpenVPN 2.6.12 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49354.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:E742094D2777C5CEA8654D8483C64E247E4BF5D3
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49355.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:29099A5CCDA78232EAED3CB8D92784C918140C22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49356.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:1BF9405C7D71422211DB1BB195CA1A144635A3BF
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49357.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:3ED8A794F8A7B78A56E8F3665388F29EFD10B442
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49358.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:DAB3F67EECF62A209294B8C394B1580906305B83
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49359.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:F708DF84CF4D80D4D5E101B37C94E6719B8E6878
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49360.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Stories from the Outbreak (2024) [En] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49361.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:525C4A24DC60F75E131D48D6BE861DE9D349B77D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49362.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ KMS Tools Portable by Ratiborus 27.06.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49363.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:22854B0987812C43A38643C64294BABE55392FC9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49364.jpg" />
 </div>
 
 

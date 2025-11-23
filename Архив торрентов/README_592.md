@@ -6,7 +6,7 @@ Glarysoft Malware Hunter PRO 1.176.0.796 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128253.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ OCCT 12.1.13 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128254.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128270.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Wondershare PDFelement 10.1.10.2563 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128271.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B8092BB8E8F686BCBD6D17034E25DAD0FF903C22
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128282.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ NIUBI Partition Editor 9.9.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128284.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Telegram Desktop 4.12.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128286.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ IObit Uninstaller Pro 13.2.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128291.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Viber 21.5.0.3 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128301.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Aiseesoft Video Converter Ultimate 10.8.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128302.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ WinToUSB Technician 8.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128305.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ The Bat! Professional 10.5.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128309.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Adobe Acrobat Pro 23.8.20421 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128312.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Skype 8.110.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128367.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PhotoRoom v4.7.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128375.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CherryTree 1.0.3.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128392.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Topaz Video AI 4.0.6 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128394.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VueScan Pro 9.8.22 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128405.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ IObit Uninstaller Pro 13.2.0.5 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128419.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Topaz Video AI 4.0.7 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128424.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CareUEyes 2.2.11.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128434.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ FanControl V175 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128436.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ IrfanView 4.65 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128443.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ MassTube Plus 17.0.0.502 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128444.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Master PDF Editor 5.9.81 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128456.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ ToonMe 0.6.99 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128458.jpg" />
 </div>
 
 

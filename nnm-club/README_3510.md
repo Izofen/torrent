@@ -1,3 +1,78 @@
+###  Публикация: 1718559   (110942) от 25.04.2024
+
+Google Chrome 124.0.6367.79 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDF55A941343A15EE16AC6555CE14469F3FAA50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718017   (110943) от 25.04.2024
+
+Механический Пёс - Benzin (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroclash, Breaks, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Queen [00:05:48]
+02. Electrical [00:05:13]
+03. Never look back [00:05:13]
+04. Old school [00:04:39](   Читать дальше...   )Жанр: Electroclash, Breaks, IndustrialПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA0DC27F537FBF548C12139440BBAEED93C687F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718549   (110944) от 25.04.2024
+
+Photo Lab PRO v3.13.7 Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 18.04.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7359DCAB208E44AB018AE3CE6DF99CF8E277D306
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718533   (110945) от 25.04.2024
 
 Neil Young & Crazy Horse - Fu##in' Up (2024) [MP3|320 Kbps] <Classic Rock, Country Rock>
@@ -6,7 +81,7 @@ Neil Young & Crazy Horse - Fu##in' Up (2024) [MP3|320 Kbps] <Classic Rock, Count
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110945.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Duplicate Cleaner Pro 5.22.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110946.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ English LinDuo HD v5.32.0 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110947.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ GPS АнтиРадар v43.0 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110948.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Glary Utilities Pro 6.9.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110949.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Arcade Tycoon: Simulation Game (2021) [Ru/Multi] (2.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110950.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ Comodo Dragon 123.0.6312.123 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110951.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:A5B4E3029D52A8EC28780750744CE1BF35B89912
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110952.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ Google Chrome 124.0.6367.79 Stable Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110953.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ Outdooractive v3.16.6 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110954.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:E1FFCAA48C504BE2800D24FBA40DECB5182C22BD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110955.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ Wise Disk Cleaner 11.1.1.826 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110956.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ Macrorit Data Wiper 7.1.1 Pro / Unlimited / Technician Edition RePack (& Portabl
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110957.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ LibreWolf 125.0.2-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110958.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ Accept - Humanoid (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110959.jpg" />
 </div>
 
 
@@ -374,7 +449,7 @@ VA - Anjunadeep presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110960.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ Shawn Kellerman - Kell's Kitchen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110961.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ Walt Dickerson Quartet - To My Queen Revisited (1978) 1987, SteepleChase [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110962.jpg" />
 </div>
 
 
@@ -455,7 +530,7 @@ magnet:?xt=urn:btih:DAD3FAD73717F6DA91D91F95C67B3837CB8540D6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110963.jpg" />
 </div>
 
 
@@ -480,7 +555,7 @@ Blue Sun - Festival (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110964.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ Brace For War - Chromium Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110965.jpg" />
 </div>
 
 
@@ -534,7 +609,7 @@ The Biarritz Boys - Inside Clean Waves (2023) [FLAC|Lossless|image + .cue] <Surf
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110966.jpg" />
 </div>
 
 
@@ -561,7 +636,7 @@ Baker Gurvitz Army - Hearts On Fire (1976) Japanese Edition, Reissue, 2005, Stra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110967.jpg" />
 </div>
 
 
@@ -575,87 +650,6 @@ Baker Gurvitz Army - Hearts On Fire (1976) Japanese Edition, Reissue, 2005, Stra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D99251DE941D2CF96EAD057E284F1B4677EDCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718265   (110968) от 24.04.2024
-
-U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Embarkation
-02. Mission No. X
-03. 24/7
-04. Mean Streets(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A55D62CA8AC5044E4A2B73413159B02A1B037
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718256   (110969) от 24.04.2024
-
-Strom - En Orkan Pa Var Sida (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - En Orkan Pa Var Sida (04:12)
-02 - Blodsprangda ogon (03:34)
-03 - Aristokrat (04:19)
-04 - Kicken (04:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744D716415AB051DB473854C77676F458163287C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718264   (110970) от 24.04.2024
-
-Jean-Jacques Milteau - Key To The Highway (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maggie's Farm (3:25)
-02. Chain Of Fools (3:15)
-03. New Key To The Highway (3:06)
-04. Rainy Night in Georgia (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B15948604CCDD1D9658B9578849F746E13A7EB5
 ```
 
 

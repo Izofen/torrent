@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3768.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Unseen Fears 7: Inner Darkness / Невидимые страхи 7: Тьма
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3769.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Silent Installer Builder 6.4.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3770.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C1E3F623416C64EA586A3EAD5028DD430D2A6BB2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3771.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:762145EB65710059862E54CD5A4735EFD9A38142
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3772.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ FL Studio Producer Edition 25.1.5.4976 - All Plugins Edition + Addons (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3773.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3774.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:FC84ABFF268962F7B3BC35B93EDC93F4CA672D5B
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3775.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ NirLauncher Package 1.30.20 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3776.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D69AF472720C0D36F9F0F616A26BD6609FC54BD9
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3777.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:95B78144F60D73BD0D57C8306828B59F1B02C0F7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3778.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:D66D430339ECC0D41CABE4C68C7999BB5222D22E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3779.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Folder Guard Pro 25.9 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3780.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:ADFF07C6A02E9289F2F638592AD994B98D768865
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3781.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:86F800A10AED353F975488C169A287FB18FCC539
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3782.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:73EB93B007EE66065810E972F95C3B551CED2973
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3783.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:54DA64EF2BD1D79AD287A12D98A86EB15A75785B
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3784.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:68D8EF8E72A095ECBBEDC51E165B89ABDB0424F7
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3785.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:CA577BD7D78CEC94D55DA277AEC38D77DE0EF9E2
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3786.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:7539497B1B139A4E1E2A64EE64B8A204D21E49F9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3787.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:96F38D7E025B249708D5189FCB09165411620839
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3788.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:51FF07385E72521DD5144AD1E43894E9ED9CBD86
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3789.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:6263B46901D61A20DDDB46CCE890BF75F869D3B5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3790.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:FC191FDDBAC64C3144D4441F08356621886C9E3B
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3791.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:05E804B45C50801C3B48CF0500012BD339A7EEFA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3792.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.1/dlc) Repack Let'sРlay [Complete]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3793.jpg" />
 </div>
 
 

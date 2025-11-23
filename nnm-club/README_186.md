@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4898.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1130AA8D160F247DBAFB5BF9C05862AB93A866DC
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4899.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4900.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6D9F300EEF2F16B1BC8A9EE958E7C93FC6FE2520
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4901.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:014C6730A128AEE6CD80F1C07E6CC6D8C9BB9B56
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4902.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9A68B46D6D8DEC3D18509A307F3C90ADB66F23E6
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4903.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Windows 11 25H2 вышла на финишную прямую
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4904.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Windows 11 25H2 вышла на финишную прямую
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4905.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B8577018B79EFF217A294FF1C43B240ACA7BE380
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4906.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:3F51D492FA333190A86CCF1B21E0213DBD778E66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4907.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:3E793F8F9CB5FE3909DA212A37B777B6CE104C70
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4910.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:414252F62EFEF6BAEF024B1DBDEC64781ACE3436
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4911.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:291796E8A17392AC79D1E3E51D6FC590FA94E26B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4912.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:EE3D87212B05522C354C5EC422DECCC74FC7A1D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4913.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Electronic Garden, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4914.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:E0C12AA7EBDF122D417E57BEE6AC1F5E6A1B6D2F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4915.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:2A3291978FCE470385FB9A4AD50C2A2EBD2BCD15
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4916.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:FFA44476C7E0D7A915A510A7E6A257034F62EE9D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4917.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ J. Heyrovsky, J. Kuta | Zaklady Polarografie (1962) [PDF] [Cz]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4918.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:3FDA1012C2E52A0AF9387BD9FB6BEA5947337E6E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4919.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:EE47772D6069E13B9EE10763F7C8A33A448249AD
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4920.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:FEE27511182AF48D12E06928F1B0637B0CB20820
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4921.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:78344CA49DA31DF7943507B4DCECE022665A2E97
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4922.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:3381165EBA36848AE5E78799326C9D02EC05C3AF
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4923.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Lillian Axe - Fields Of Yesterday (1999) Reissue, 2004, CD-Maximum [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4924.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:7F4335AD27A3A8EF6691F9C6CDE9A0D47B03BF50
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4925.jpg" />
 </div>
 
 

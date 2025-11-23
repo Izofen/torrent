@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13748.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52B3F22C5E026E8E8B86B90A3C27D198FBD48D08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13749.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:52B3F22C5E026E8E8B86B90A3C27D198FBD48D08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13751.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F3CE842789C26252E7B394A2AD79217B23187235
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13752.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Katainaka no Ossan, Kensei ni Naru / From Old Country Bumpkin to Master Swordsma
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13756.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:562C7A07B703C79D83EDC6D7B7CFE2D7E6A71AC9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13757.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:44DDD828904694608FBBA3D2094E5C8DA3D92EC6
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13759.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:7EB8C0CB5BBDF99793C862B43390CEE01FB01633
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13760.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C7E3F212F35FBED41FF78B19DA7CA7C32E6B6ABF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13761.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Altus 5.7.1 (Альтернатива WhatsApp Desktop) [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13762.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13763.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13764.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13765.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:81146A5DE5C3371E0305CDD9E052105E4EB4009F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13766.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Ventusky: Прогноз погоды v44.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13767.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Victoria 3 (2022) [Ru/Multi] (1.9.2/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13768.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:95071C041798D361873C473CBFAD1FD22BF743B4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13769.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Yao-Guai Hunter (2023) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13770.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:4E3C7F99D28B0DFA2D87FD9FC802B58B8BF47BE7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13771.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E22B088E0893610828408BEFED002FC443027FC5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13772.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:AB1F55C3DE86CD834393030B10FE7DAE6309BD36
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13773.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:E68304157B296D26D6CE24B6B9DF28B03F5B127B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13774.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:1DE55A3B9D164B3C0C4CC6E8DCC8D357D6AF3CC9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13775.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:470B0A60E79844FD19012BEEE345EB935DC2169C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13776.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:1CB29279636A6B24FDECF59606B30622CEB908B1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13777.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:650CB840B5343FDDE046A970F6C705E3A45F35E0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13778.jpg" />
 </div>
 
 

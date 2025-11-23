@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13215.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8265F5FA5D67A2C62601FD55C4F68D6B7CB11F30
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13216.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5756BDD8D7DEF2C34FDA2A3A52060EF54F81CBF0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13217.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0975660FC3B55A958F3E812BA13741B7F5AD5429
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13218.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Far Cry (2004) [Ru] (1.40) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13219.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ LIMINAL SHIFT (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13220.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13221.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BFEE63BE1887AA31FB436BFB95F06F3D4B26B0D4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13222.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B71B8F270436FE8D3B9ADB62E5596E2914B7755E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13223.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:FFBABAAA558183719B1A2F1069B7C5EB6EA77F33
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13224.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:33E8D3A44A18860D883E528E485EECCA475D9592
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13225.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:33E8D3A44A18860D883E528E485EECCA475D9592
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13226.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:89207EF577CDA1DCB5ABA1387031F88EE0054230
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13227.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13228.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:7AAF49AC581FE5D08B2B85C9476660B306E9A5A0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13229.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:DC022CE19BFC572979CC5B3C028CF14DCE6F6396
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13230.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Warhammer 40,000: Space Marine II (2) (2024) [Ru/Multi] (8.0.0.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13231.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:602D5AAEACC9C27961D44B6CD9E9D41F3CB72DDB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13232.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:398531BECCD29CA16012467A8B415092C0377507
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13233.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Total Commander 11.55 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13234.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:00FB82344980520B5E765F65E6F868D2FF7D16D1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13235.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ A Rank Party o Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu o Meza
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13236.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:F6F26C28BA3982973B56B5EE58FCD53FECD10013
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13238.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ WinRAR 7.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13239.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:FFC71F34519DCD94D84533B830C42EE10A57345F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13240.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Ibiza Dance Party 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13242.jpg" />
 </div>
 
 

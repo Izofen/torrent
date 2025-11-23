@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77152.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DE47B8B23C8817FD5B39A699488E3DBE69A8E0C5
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77513.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B55D8058954E9F2BE92A9A9B8EA48EC974A0C550
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77746.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AEE1E776EFC756CF2411A313C06CB96F2E6DD0D9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77918.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:AA03053B74D84E191FF5AE3F7DD0C37074E8F039
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77931.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:74F8A3EE17D291A8A5C688C16D6902DDFB336747
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78018.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:7D3BFCD68FD3976E0F2F2B4A559BA3B1348BB911
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78708.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:250A9E687299806F8E19A45F5F467429D1361656
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78709.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Playboy: разденьте девушку / Undress a Woman (26.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78824.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Playboy: разденьте девушку / Undress a Woman (27.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78851.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:23BE565A8AA9892C788022E11B3B11353972E329
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78971.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:699169046177C8DF544357284AB5A191C5E62A65
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78977.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:05F8E7657C6D1EDDA347E70A20774D85049FE473
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78999.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:7ED08CA0B3642964F178E0150311F873C8D7A5B4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79305.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7ED08CA0B3642964F178E0150311F873C8D7A5B4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79321.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7ED08CA0B3642964F178E0150311F873C8D7A5B4
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79342.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:2DE4E38E7E903C00C5BFAAE150C0226493A89B25
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79376.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:E6FABFF50A463DF552EE8A0D94D51BC7DC50F9E7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79607.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:DE220247174207AB938849BEC74917360799486B
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79751.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:132778AB70C4E613F4861A5DF2D9C51692CAAB78
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79762.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Playboy: разденьте девушку / Undress a Woman (03.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80046.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Playboy: разденьте девушку / Undress a Woman (04.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80253.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:00695029AF3E56D24AC05BB3584179D3A2EB038C
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80426.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:7747B3CE08C57C02536F5EC6E1662CBE4B67E904
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80569.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:773F4535EC7DC5898EE24574F351EEE6B2DCA427
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80596.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:3282C4A58CCD534B555B851314A7648F06A76FCE
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80686.jpg" />
 </div>
 
 

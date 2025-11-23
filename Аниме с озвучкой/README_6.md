@@ -6,7 +6,7 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36158.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Inazuma Eleven | Одиннадцать Молний [2008, TV, 127 эп.] WEB-D
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36299.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A3AF409F2BF98A8DF5AA1A182AAF94184EE3679B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36540.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:91DEB4F489D038E12CC4B3E90D3A96175EADE366
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37030.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1DD19D46B626BAC3E22F994FDBEA866DFBF1E49D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37100.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37125.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37477.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37791.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37805.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37934.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37953.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38708.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38809.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Unnamed Memory | Безымянная память [ТВ-1] [2024, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38819.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39170.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39586.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39774.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39846.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40087.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40608.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:59C19EBB8CA50C56B09EECD4EBC4EA6ED13F8ACA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41182.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Girls Band Cry | Плач девичьей группы [2024, TV, 13] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41256.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:D0CAFEF6F1A90E3E52413E2843B72AE7E170803F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41308.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Hyakkano | Сто
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41350.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:0EE5803CF5B480FAD9207B83510A7841D9CF1ABE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41532.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:48789425349E6204C8980CA7B9AF733C2C8A9241
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41718.jpg" />
 </div>
 
 

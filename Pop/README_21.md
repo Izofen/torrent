@@ -6,7 +6,7 @@ VA - 40 Italo Dance Tunes 2014 (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59823.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Italo Dance Top Charts (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, I
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59910.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Spring Car Music Hits 2024 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59968.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Arabesque - 40th Anniversary Best (2017) Japan [FLAC|Lossless|tracks + .cue] <Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60011.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Inna - El Pasado (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60131.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Mega Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60447.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - 100 Greatest Covers of All Time - Cover Versions (2024) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60655.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ V.A. - 70's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60763.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7ED9F8BC93ABB4AFA239BC1BB1F0A1EAB966EC36
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60967.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Anastacia - 10 альбомов (2000-2023) 11CD [FLAC|Lossless|image + .cue | t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61054.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ V.A. - 80's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61186.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Голос мой услышь (2024) [FLAC|Lossless|WEB-DL|tracks] <pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61291.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Best Songs: The 70s (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61375.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Gigi D'Agostino - Sound of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <EuroDance,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61379.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:D8451ED4B4F27B6CF4E22A8C794CE7F257B8A525
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61408.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Cherry Laine - The Singles Collection - Projects, Versions & New (2023) Compilat
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61804.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Sandy Marton - Maxi And Singles Collection (2023) Compilation [FLAC|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61808.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Alan Barry - Maxi & Singles Collection (2023) Compilation [FLAC|Lossless|image +
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61811.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Lobo - The Caribbean Disco Show (1981) LP [MP3|320 Kbps] <Disco, Reggae, Funk-So
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61911.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Workout Gym Motivation 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61915.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Army Of Lovers - Sexodus (2023) [FLAC|Lossless|image + .cue] <Pop,	Europop, Synt
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61941.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Mike Mareen - The Maxi-Singles Collection Part 3 (2023) Compilation, Remastered 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62021.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Gazebo - Maxi & Singles Collection Part 1 (2023) Compilation [FLAC|Lossless|imag
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62118.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:5EE90E1471C4531295CF9A7CACFB5E1AA2FCB9BF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62125.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Gazebo - Maxi & Singles Collection Part 2 (2023) Compilation [FLAC|Lossless|imag
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62128.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Bravo Hits 13 (1996) 2CD, Compilation  [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62218.jpg" />
 </div>
 
 

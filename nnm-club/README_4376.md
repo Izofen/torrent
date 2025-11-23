@@ -1,3 +1,78 @@
+###  Публикация: 1679812   (134883) от 27.11.2023
+
+WPS Office + PDF 18.4.1 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134883.jpg" />
+</div>
+
+
+###  Подробнее
+
+WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.11.2023Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1962715EDCD298ADE94AF00D2BD3A1036B24DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680053   (134885) от 27.11.2023
+
+Smart Launcher 6.3 build 036 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Launcher - лаунчер являющийся одним из самых лучших в своём сегменте за счёт качеств, возможностей и функционала, и как следствие, очень популярным у пользователей мобильных устройств, что предпочитают искать и находить альтернативы стандартному и далеко не идеальному варианту. Людям предлагается максимальное удобство управления, что выливается в возможность (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.11.2023Разработчик: Smart Launcher TeamПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED7CDA126095F56C5B6050CD56AB96538984F9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679195   (134886) от 27.11.2023
+
+VA - Dance Hits Winter Selection (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepsan - Beating Heart [03:09]
+02. Anup4m - Heaven [02:42]
+03. Kvant - Late Night [05:44]
+04. Anka - The Ocean [02:33](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E384A53172EE96697334CC7AE70C4075C5F726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679877   (134887) от 27.11.2023
 
 Квартирник у Маргулиса. «Корней» (26.11.2023) WEBRip [H.264/1080p]
@@ -6,7 +81,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134887.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Easy Data Transform for Mac 1.45.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134888.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:0CE7304C4EF4DF6F24F1E0888928B6DB98155499
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134889.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ VectorStyler for Mac 1.1.111 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134890.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Best HD Wallpapers Pack (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134891.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:6273F6EBF1A75DB9707D1309CAE17C350DC3100A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134892.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:FFCC749155149FAD92A024CCF2EDED59D5F8F7FB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134894.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:4D4A1B4A0A637B1C1908425AA627922AF3167B7C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134895.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134899.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ Desktop Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134900.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ Arty - Together We Are 027 (22.12.2012) [MP3|320 кб/с]<Trance, Progressive Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134902.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ Fort Firewall 3.10.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134903.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [MP3|320 Kbps] <Ne
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134905.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ Birds Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134906.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ magnet:?xt=urn:btih:168A17E1819BE79C6DAA41D1E1BB09E13AF3799E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134907.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ Nature Wallpapers (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134908.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ CADintosh X 8.8.6 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134909.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ magnet:?xt=urn:btih:05972FAF8553DBD38F6E99E8A627CDEF28DC20B5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134911.jpg" />
 </div>
 
 
@@ -462,7 +537,7 @@ Ghost Train Orchestra & Kronos Quartet - Songs & Symphoniques: The Music of Moon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134912.jpg" />
 </div>
 
 
@@ -489,7 +564,7 @@ France Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134914.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ magnet:?xt=urn:btih:AFCA4093339ED66A96EEC325F67F8E8C6C9896C3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134915.jpg" />
 </div>
 
 
@@ -538,7 +613,7 @@ Google Chrome 115: Privacy Sandbox заменяет сторонние cookies �
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134916.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134916.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ Rodents wallpaper (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134918.jpg" />
 </div>
 
 
@@ -573,81 +648,6 @@ Rodents wallpaper (22.12.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DF92542D465BEF08B0264797F7D0A4704FFA467
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680028   (134919) от 27.11.2023
-
-Мужчина получше / The Better Man (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пристрастие Джима Сондерса к азартным играм заставляет его пренебрегать женой и ребенком. Однажды ночью, когда он был в салуне, Мигель Гомес, мексиканский преступник, за которого предложена награда в 1000 долларов, врывается в дом Джима....Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: Роллин С. СтарджонАктеры: Роберт Торнби, Джордж Стэнли, Энн Шефер, Чарльз БеннеттПеревод: Немой с интертитрами (В. Сачков)Язык озвучки: немойСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1235536DC76A9AB65221640604008D90CBDB632
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593640   (134920) от 24.12.2012
-
-Animal Wallpapers (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B6A4759971751842A1635CB5DCE7B34F5407D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679953   (134921) от 27.11.2023
-
-Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mothers Talk (live) [00:04:23]
-02 - Broken Head Over Heels (live) [00:07:45]
-03 - Memories Fade (live) [00:05:23]
-04 - Mad World (live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 01:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D27BA7CCF9EDADE3D73037A37241DF999888958
 ```
 
 

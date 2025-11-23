@@ -1,3 +1,77 @@
+###  Публикация: 483293   (88667) от 15.04.2012
+
+Тони Седдон | Сетки. Креативные решения для графических дизайнеров [2009] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Креативно разработанная и правильно примененная сетка это то, что отличает обычную композицию листа от действительно яркой и "цепляющей". Эта книга поможет дизайнерам обрести вдохновение и отшлифовать умение создавать великолепные композиции страниц и разворотов. Сетка присутствует на всех страницах книги. Журналы, буклеты, многостраничные издания представлены не просто лучшими разворотами, а композиционными листами с видимой сеткой, подробными комментариями, детализирующими процесс работы и точными параметрами сеток.Вы поймете, как дизайнер использовал модульную сетку для создания узнаваемого ритма страниц и разворотов, не теряя при этом динамики и гибкости изображения. Книга "Сетки" действительно необходима графическим дизайнерам, чья творческая деятельность связана с созданием плакатов, упаковки и многостраничных изданий.2009Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B442DD8687E286B28B33C22E71F6D7A668B297F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483637   (88669) от 15.04.2012
+
+О.Л.Соболева и др. | Новый букварь для дошкольников и первоклассников [2011] [DOC]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта невероятно добрая, фантазийная, веселая, красивая книга сделана для того, чтобы он захотел читать и испытал радость чтения. Об уникальных техниках раскрепощения детской речи, о взлете воображения и творчества у ребенка, о громадном развивающем потенциале этой книги мы ничего вам не скажем — вы все сами увидите и почувствуете.2011Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F4CEFB556871BE832F6E84D4D33E1396AA00D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482042   (88670) от 15.04.2012
+
+Касабланка / Casablanca [70th Anniversary Edition] (1942) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставивший родину американец Рик Блэйн, владелец игорного клуба в Касабланке, случайно встречается с покинувшей его несколько лет назад возлюбленной, Ильзой, которая приехала в город вместе со своим нынешним мужем, борцом антифашистского сопротивления Виктором Лазло.
+
+По их следу идут немцы, и Ильза пытается упросить Рика отдать принадлежащие ему важные документы, которые позволят Виктору бежать из Касабланки, чтобы продолжить свою борьбу.Жанр: драма, мелодрама, военныйРежиссер: Майкл КёртицАктеры: Хамфри Богарт, Ингрид Бергман, Пол Хенрейд, Клод Рейнс, Конрад Фейдт, Сидни Гринстрит, Петер Лорре, С.З. Сакалл, Мадлен ЛеБо, Дули Уилсон, Джой Пейдж, John Qualen, Leonid Kinskey, Курт Бойс, Louis V. Arco, Leon Belasco, Trude Berliner, Оливер Блейк, Монте Блу, Джино Коррадо, Franco CorsaroПеревод: Многоголосый закадровый, АвторскийПродолжительность: 01:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48458476016BBF05552E1E47180690A7BE493019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483354   (88673) от 15.04.2012
 
 Николай Берг | Ночная смена. Остров живых [2012] [FB2]
@@ -6,7 +80,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88673.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ magnet:?xt=urn:btih:7514B16197BD887F3289A775A538CFABAB0C7799
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88674.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ magnet:?xt=urn:btih:7514B16197BD887F3289A775A538CFABAB0C7799
 >>Обучающее Видео для родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88676.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ magnet:?xt=urn:btih:C774D6E3B7629AA67F4096C1042F76EB5542CA88
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88678.jpg" />
 </div>
 
 
@@ -106,7 +180,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88680.jpg" />
 </div>
 
 
@@ -136,7 +210,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88681.jpg" />
 </div>
 
 
@@ -161,7 +235,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88683.jpg" />
 </div>
 
 
@@ -186,7 +260,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88684.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ magnet:?xt=urn:btih:95C28A8F17E51714A59C37D2F65BE2DD41EA364D
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88685.jpg" />
 </div>
 
 
@@ -234,7 +308,7 @@ magnet:?xt=urn:btih:DF8A870EF81EA75641812E2155CCD1D3392F699A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88687.jpg" />
 </div>
 
 
@@ -264,7 +338,7 @@ magnet:?xt=urn:btih:DF8A870EF81EA75641812E2155CCD1D3392F699A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88689.jpg" />
 </div>
 
 
@@ -289,7 +363,7 @@ Jewel Legends: Tree of Life (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88693.jpg" />
 </div>
 
 
@@ -313,7 +387,7 @@ magnet:?xt=urn:btih:DE813E8D4C7B526CB59799E4FCD4FCF0B3FA12ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88694.jpg" />
 </div>
 
 
@@ -337,7 +411,7 @@ magnet:?xt=urn:btih:DE813E8D4C7B526CB59799E4FCD4FCF0B3FA12ED
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88697.jpg" />
 </div>
 
 
@@ -361,7 +435,7 @@ magnet:?xt=urn:btih:6B8F665B0BBE665DB7CB0B8A535CC32AA553AC75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88700.jpg" />
 </div>
 
 
@@ -385,7 +459,7 @@ magnet:?xt=urn:btih:F0CC9267D8B4B021DB458688D8A49E57F28C77B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88701.jpg" />
 </div>
 
 
@@ -409,7 +483,7 @@ magnet:?xt=urn:btih:B4FE66A835E57C0FBF5C995D7F6EF5AF96F17355
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88702.jpg" />
 </div>
 
 
@@ -433,7 +507,7 @@ magnet:?xt=urn:btih:E5123027F2666914AAE5BB8B62E14E0A41B3E7FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88703.jpg" />
 </div>
 
 
@@ -457,7 +531,7 @@ magnet:?xt=urn:btih:E5123027F2666914AAE5BB8B62E14E0A41B3E7FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88706.jpg" />
 </div>
 
 
@@ -481,7 +555,7 @@ magnet:?xt=urn:btih:E5123027F2666914AAE5BB8B62E14E0A41B3E7FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88708.jpg" />
 </div>
 
 
@@ -505,7 +579,7 @@ magnet:?xt=urn:btih:E5123027F2666914AAE5BB8B62E14E0A41B3E7FE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88709.jpg" />
 </div>
 
 
@@ -529,7 +603,7 @@ magnet:?xt=urn:btih:BA0933A773D7C99CFEA3F867B0F02A19DABBBF7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88711.jpg" />
 </div>
 
 
@@ -555,7 +629,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88714.jpg" />
 </div>
 
 
@@ -569,87 +643,6 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482579   (88721) от 15.04.2012
-
-Властелин Колец: Битва за Средиземье / The Lord of the Rings: The Battle for Middle-earth (P) [Ru] 2004
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы всегда мечтали составить кампанию Фродо и Сэму на их пути в Мордор, заглянуть в палантир Сарумана, попасть в пещеры Мории? Вам снилась битва в Хельмовой Пади и сражение у стен Минас-Тирита? Ваш сон стал реальностью: перед вами уникальная стратегия в реальном времени, созданная по мотивам знаменитой трилогии Толкина; игра, определяющая новые стандарты для своего жанра.
-Полный контроль над войсками, любимыми героями, ходом сражения. Выберите сторону Добра или Зла, перепишите историю Средиземья по-своему!Тип издания: ПираткаЖанр: StrategyЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391EA63330495231E31146A65EA7470FCF60DA20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482853   (88722) от 15.04.2012
-
-Autodesk 3ds Max Design v.2013 (32 bit) [Английский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk® 3ds Max® Design предоставляет мощные интегрированные средства 3D-моделирования, анимации и рендеринга, которые позволяют художникам и дизайнерам сосредоточиться на творчестве, а не на технических проблемах.
-
-В основе продуктов лежит одна технология, но предоставляются разные наборы инструментов: один для разработчиков игр, художников по визуальным эффектам (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483444   (88724) от 15.04.2012
-
-Сергей Шеин | M6419B Конфигурирование, управление и обслуживание Windows Server 2008 R2 [2012] PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс охватывает ключевые навыки, необходимые всем, кто работает с Windows Server 2008 R2, может быть использован для систематизации знаний перед сложными курсами по Windows Server 2008 R2. Кроме того, программа курса поможет ознакомиться с наиболее заметными отличиями компонентов Windows Server 2008 и Windows Server 2008 R2.
-
-Обращаю внимание на то, что программа курсов М6419А и данного М6419В имеет существенные отличия!
-
-Это рабочая запись реального курса, сделанная преподавателем самостоятельно. Не вебинар! При подготовке этого видеоурока ни один копираст не пострадал.
-
-Курс проводился на территории УЦ "COMPAREX Academy".Жанр: АдминистрированиеПродолжительность: 22:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514967078600F02F05D8731B23A715E9D3494BBC
 ```
 
 

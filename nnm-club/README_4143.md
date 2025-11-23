@@ -1,3 +1,79 @@
+###  Публикация: 1684873   (127405) от 17.12.2023
+
+Александр Гримм | Токийский полукровка (Книга 1). Разборки в средней Тосэн! (2023) [MP3, Сергей Васильев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127405.jpg" />
+</div>
+
+
+###  Подробнее
+
+ВНИМАНИЕ: Автор не пропагандирует преступный образ жизни. Если после прочтения книги, вы, решите исполнить какую-нибудь незаконную фигню, то вы идиот, а я умываю руки.
+Знакомьтесь, это Антон. Бывший боец ММА. Почему бывший? – спросите вы. Всё просто, он неслабо облажался и теперь истекает кровью из распоротого грязной финкой брюха. Антон корчится от режущей боли (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастика, Бояръ-анимеИздательство: ЛитРесПродолжительность: 08:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9390EC5AF67C2265D10ECCA83E720CA470A34077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527197   (127406) от 17.12.2023
+
+Пэм Муньос Райан | Эхо (2020) [MP3, Иван Литвинов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127406.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о любви, человечности, красоте и музыке, развернувшаяся на фоне Второй мировой войны и объединившая несколько поколений детей из разных уголков мира.
+
+Когда юный Отто заблудился в лесу, на выручку ему пришли три таинственные девушки. Они подарили мальчику музыкальный инструмент и пообещали, что придёт день, и он спасёт чью-то душу от неминуемой гибели.
+(   Читать дальше...   )Жанр: Книги для подростков, Современная зарубежная литератураПеревод: Майя Д. Лахути, Константин И. Мольков, Антонина А. ВасильеваИздательство: ЭксмоПродолжительность: 10:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5443484F81E842B05704646DF3548FA51A34DC34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560956   (127407) от 17.12.2023
+
+Антуан де Сент-Экзюпери | Le Petit Prince / Маленький принц (2006) [MP3, Clotilde Tonnerre]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127407.jpg" />
+</div>
+
+
+###  Подробнее
+
+…Всегда этим взрослым нужно всё объяснять! Желательно в фактах и цифрах. И совершенно бесполезно говорить об удавах, о джунглях и о звёздах. Но однажды и в их жизни появится Маленький принц и скажет: «Пожалуйста… нарисуй мне барашка!» И тогда прощай всякое здравомыслие! Главного ведь глазами не увидишь, не пощупаешь, не измеришь. Главное можно почувствовать только (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиЯзык озвучки: французскийИздательство: АРДИСПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340BA74811399579F3AC115BB65A33CC3E4358B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684863   (127408) от 17.12.2023
 
 Подшивка журнала | Сваты. Заготовки №1-12 (январь-декабрь 2023) [PDF]
@@ -6,7 +82,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127408.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:9A995A1D1F6D930F3CA6774218E6A637CADA3DB1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127409.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ magnet:?xt=urn:btih:C551BA63872FBEB069F6638FA368265AB18F1CCD
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127410.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:5349A1D50F63B2589D314B64A679C2412C8168BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127411.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ magnet:?xt=urn:btih:46D7286FC653E6CCC8D4AA76B5AB98D2B02B51D4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127412.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ magnet:?xt=urn:btih:B24DA9A427F3B46BFF655A47B0F9F80FAEDDB5BB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127413.jpg" />
 </div>
 
 
@@ -152,7 +228,7 @@ magnet:?xt=urn:btih:CFF7D389E697B7DA92B4760EB1DC15195CE2943D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127414.jpg" />
 </div>
 
 
@@ -178,7 +254,7 @@ Karimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127415.jpg" />
 </div>
 
 
@@ -205,7 +281,7 @@ VA - Heavy Electric Guitar (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127416.jpg" />
 </div>
 
 
@@ -232,7 +308,7 @@ magnet:?xt=urn:btih:3E9DFCB433C2DC7970F6DB77041DBE1709CBB971
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127417.jpg" />
 </div>
 
 
@@ -256,7 +332,7 @@ magnet:?xt=urn:btih:18126232B07E1A89D9E7ACB3069B11070D3143DB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127418.jpg" />
 </div>
 
 
@@ -282,7 +358,7 @@ Ted Rosenthal - The 3 B's: Plays the Music of Bud Powell, Bill Evans, Beethoven 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127419.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ magnet:?xt=urn:btih:D26A06A9CE807CA59A793B1817650C46B0446C33
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127420.jpg" />
 </div>
 
 
@@ -333,7 +409,7 @@ magnet:?xt=urn:btih:5E5CB913E23700D9824F0A6D06685D2356AD508F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127421.jpg" />
 </div>
 
 
@@ -357,7 +433,7 @@ VA - The Best Christmas Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127422.jpg" />
 </div>
 
 
@@ -384,7 +460,7 @@ magnet:?xt=urn:btih:0A1D84C8D61CA605B89D6457420EECA8F4A6B281
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127423.jpg" />
 </div>
 
 
@@ -410,7 +486,7 @@ magnet:?xt=urn:btih:1642AB6EBC4507CF176939DD72C22FE3BBA498C8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127424.jpg" />
 </div>
 
 
@@ -434,7 +510,7 @@ magnet:?xt=urn:btih:D7728AEBF6A251D7093BCB1453871E54F2721245
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127425.jpg" />
 </div>
 
 
@@ -458,7 +534,7 @@ magnet:?xt=urn:btih:C9E3086050B1825BCD76C33EFC44C69C2877FF77
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127426.jpg" />
 </div>
 
 
@@ -482,7 +558,7 @@ magnet:?xt=urn:btih:A1D54C58837E78F6CC1624A9162C207AFCBA42EA
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127427.jpg" />
 </div>
 
 
@@ -506,7 +582,7 @@ magnet:?xt=urn:btih:2131FE56B89EB0882AA526F832D66CDCF2F6A5DE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127428.jpg" />
 </div>
 
 
@@ -530,7 +606,7 @@ magnet:?xt=urn:btih:D69F3D44749D4E66B882848B5924A93A7855E8BE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127429.jpg" />
 </div>
 
 
@@ -554,7 +630,7 @@ magnet:?xt=urn:btih:851A783C18E072B64C43E9ED7ED25BDD08FE17F5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127430.jpg" />
 </div>
 
 
@@ -565,79 +641,6 @@ magnet:?xt=urn:btih:851A783C18E072B64C43E9ED7ED25BDD08FE17F5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B3FB6A6A6A5C592F24F9899DD9758187BD13A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684896   (127431) от 17.12.2023
-
-Ледяная грудь / Les seins de glace (1974) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127431.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сценария роман Ричарда Мэтисона 1953 года «Кто-то истекает кровью»... Сценарист Франсуа Роллен знакомится на пустынном берегу в Ницце в январе с Пегги Листер и влюбляется в неё. Пегги - загадочная женщина. Когда Франсуа встречается с её другом Марком Рильсоном, тот, в качестве предупреждения, выдает её секрет: как только мужчина сближается с ней, она превращается (   Читать дальше...   )Производство: Франция, Италия, Lira Films, Belstar Productions, Capitolina Produzioni CinematograficheЖанр: драма, детектив, триллерРежиссер: Жорж ЛотнерАктеры: Ален Делон, Мирей Дарк, Клод Брассёр, Николетта Макиавелли, Андре Фалькон, Фьоре Альтовити, Эмилио Мессина, Мишель Пейрелон, Филипп Кастелли, Жан-Пьерр Лоррен, Жан Луизи, Марк ДарсакПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1D292EC5580BD2EEAE9235AAFADF966B94F96F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553428   (127432) от 17.12.2023
-
-Наталья Щерба | Часодеи (Книга 3). Часовая башня (2019) [MP3, Юлия Яблонская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127432.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Часовая башня» – третья книга знаменитой серии молодёжного фэнтези «Часодеи» о юной волшебнице Василисе Огневой, умеющей управлять временем.
-Все ключники должны попасть во Временной Разрыв и найти Расколотый Замок. Василиса готова сделать всё, чтобы доказать умение управлять временем. Но Елена Мортинова обязательно встанет на её пути. Сможет ли девочка противостоять (   Читать дальше...   )Жанр: Детская фантастика, Книги про волшебниковИздательство: ВИМБОПродолжительность: 11:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCE1D46A14452CD55EB51A6E0DE976817FC7C97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684890   (127433) от 17.12.2023
-
-Журнал | Новый очаг №07 (зима 2023/2024) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Новый очаг» (в прошлом "Домашний очаг") адресован современным женщинам, для которых одинаково важны и интересная работа и уютный домашний очаг. В журнале - всё о семье и детях, здоровье и диетах, обустройстве дома и интерьера. Полезные советы, вкусные рецепты и последние новости дома и семьи. Секрет успеха издания в том, что каждая женщина может (   Читать дальше...   )Жанр: Женский журналИздательство: ООО "Фэшн Пресс"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723DECEF2978ED75F1FE7B3755BBC74CF706A159
 ```
 
 

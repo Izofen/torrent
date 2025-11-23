@@ -1,3 +1,75 @@
+###  Публикация: 589306   (150443) от 14.12.2012
+
+Паранорман, или Как приручить зомби / ParaNorman (2012) DVD5
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Производство: США | Laika EntertainmentЖанр: Мультфильм, Ужасы, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Крис Батлер, Сэм ФеллАктеры: В ролях: Коди Смит-МакФи, Таккер Албрицци, Анна Кендрик, Кейси Аффлек, Кристофер Минц-Плассе, Лесли Манн, Джефф Гарлин, Илэйн Стритч, Бернард Хилл, Джоделль Ферланд ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: английский, русский, чешский, греческий, эстонский, латышский, литовскийПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0C59E495AC321F108657AAEEC0DC3ACD7A3074
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434325   (150446) от 24.12.2020
+
+The Bat! Professional 9.3.2.0 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150446.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0DEBA85CF59413A02D9E9C82515B9B9DCC43C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968741   (150450) от 25.12.2015
+
+Autorun Organizer 2.15 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autorun Organizer - продвинутый менеджер автозагрузки для Windows, с его помощью можно наглядно оценить время загрузки системы, отключить ненужные программы, а также выстроить очередь для оптимизации процесса загрузки программ при старте системы. Отключенные записи проверяются программой на предмет их повторного появления и автоматически отключаются при повторном (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1746D45A62F0533A8913927A022E13B8D6C9A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968886   (150455) от 25.12.2015
 
 Apple iMovie 10.1 [Multi/Ru]
@@ -6,7 +78,7 @@ Apple iMovie 10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150455.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ Everything 1.4.1.1015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150457.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:EB354BE1FDDA697E2E2FF8B3A07249BC533A4491
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_150459.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_150459.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ R-Studio Network Edition 8.15 Build 180091 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150467.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Topaz Photo AI 2.1.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150472.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Full Uninstall 2.12 Final [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_150474.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_150474.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ TweakNow WinSecret Plus! 4.9.16 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150482.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ NVIDIA GeForce Experience 2.8.1.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150495.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ AAF DCH Optimus Sound 6.0.9075.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150496.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Wise Disk Cleaner 11.0.6.820 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150506.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Icecream Photo Editor 1.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150508.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Topaz Video AI 4.0.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150512.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Zoner Photo Studio X 19.2309.2.507 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150513.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ n-Track Studio Suite 10.0.0.8231 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150515.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ Perfectly Clear WorkBench 4.6.0.2616 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150529.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150530.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150541.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ Emurasoft EmEditor Professional 23.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150564.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ AIDA64 Extreme Edition 6.92.6632 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150600.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ magnet:?xt=urn:btih:F1675E9A397552A3C2CA6EFC604608704171BAD6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150604.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ ZBrush 2024.0.0.1 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150615.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ Audacity 3.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150616.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ IObit Uninstaller Pro 13.2.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150625.jpg" />
 </div>
 
 
@@ -554,79 +626,6 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63BDA8B4B8A747ED6EBF65D011514508BF7460B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677394   (150629) от 17.11.2023
-
-WSCC (Windows System Control Center) 7.0.7.4 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150629.jpg" />
-</div>
-
-
-###  Подробнее
-
-WSCC (Windows System Control Center) - портативная программа, представляющая собой оболочку, которая объединяет в себе пакеты Sysinternals Suite и NirLauncher. Все утилиты входящие в данный набор, разделены по категориям в зависимости от назначения, а также присутствует возможность запуска некоторых встроенных средств Windows.
-При первом запуске программа попытается (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFD1CFBA99F6C9C45247F45998A9A436A03ED89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677337   (150640) от 17.11.2023
-
-Total Commander 11.02 (17.11.2023) Portable by MiG [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портативная сборка Total Commander 11.02 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 11 появился новый мультимедиа (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785203983D5061A6C95DFB2C33865E3E971B4EC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677307   (150643) от 17.11.2023
-
-Topaz Photo AI 2.1.2 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4192045488A9A4884DEC8C5904B42954F8EEBF
 ```
 
 

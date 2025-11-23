@@ -1,3 +1,81 @@
+###  Публикация: 1681942   (131909) от 05.12.2023
+
+Убийцы цветочной луны / Killers of the Flower Moon (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вскоре после Первой мировой Эрнест Беркхарт, отслуживший во Франции поваром, приезжает искать удачи в Оклахому, где находится крупная резервация индейцев племени осейдж. В тех краях живет его дядя Уильям Хэйл, который носит прозвище Король — он землевладелец, скотопромышленник, друг индейцев и большой человек. Король убеждает Эрнеста посвататься к Молли Кайл, молодой (   Читать дальше...   )Производство: США / Appian Way, Apple Studios, Imperative EntertainmentЖанр: драма, мелодрама, криминал, детектив, вестерн, историяРежиссер: Мартин СкорсезеАктеры: Леонардо ДиКаприо, Роберт Де Ниро, Лили Гладстоун, Джесси Племонс, Танту Кардинал, Джон Литгоу, Брендан Фрейзер, Кара Джейд Майерс, Дженей Коллинз, Джиллиан ДионПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), украинские, английские (Forced, Full, SDH) и др.Продолжительность: 03:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82455BE0754D9F5045AE515F80108508D5A654CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681953   (131911) от 05.12.2023
+
+Самогон Саныч | Самогон для чайников. Надёжные рецепты (2023) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли приготовить самогон без запаха, не вызывающий похмелья и головной боли? Определенно да!
+
+Рецепт идеального самогона вы найдете в этой книге. Она написана экспертом самогоноварения, известным блогером, разработчиком и коллекционером рецептов домашних алкогольных напитков.
+(   Читать дальше...   )Жанр: кулинария, сделай самИздательство: ПитерФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2551259C4837CA372DBE2170B9060F6B216C65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681971   (131912) от 05.12.2023
+
+Дмитрий Лаврик | TypeScript - интенсивный практический курс (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель курса: Изучить и осмыслить ключевые возможности, которые даёт нам TypeScript, переключить мозг на строгую типизацию и статический анализ кода, научиться применять TypeScript на практике.
+
+Для продуктивного участия желательно хорошее понимание основ JavaScript, в том числе тем, связанных с объектно-ориентированным программированием.
+(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 18:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CD1737AEDB2CCC71AD6A4CD3F174C45E3F2852
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595723   (131914) от 29.12.2012
 
 С.Б. Губницкий | Новый полный курс шахмат для новичков и не очень опытных игроков [2010] [DJVU]
@@ -6,7 +84,7 @@
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131914.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:5131468B2DB01DCF3366FBF8C5D44E37FABCE1A7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131915.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ magnet:?xt=urn:btih:AF6FD7ED2CB3BD2FEFDF619B58B341BFEB9BF101
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131917.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ magnet:?xt=urn:btih:C552B93B692F94CB558E28A3BFC35DC7ECE08183
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131918.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ Udemy, Zeon Horizon | 3Ds Max MasterClass : Only 3D course that teaches everythi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131919.jpg" />
 </div>
 
 
@@ -134,7 +212,7 @@ magnet:?xt=urn:btih:136244580422CDA31EA73F8FFF70B93902BEA6C3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131920.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (2.33/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131921.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ magnet:?xt=urn:btih:A988EFB623D35F0D5A3D093B52980DA752A4D326
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131922.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ magnet:?xt=urn:btih:3F94CCFEFDD7FAA9AEAF2CE0675B0E2C12A5FF70
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131924.jpg" />
 </div>
 
 
@@ -230,7 +308,7 @@ magnet:?xt=urn:btih:A4C42DC5D93B134D6194BC30B3F816EA8E64C6CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131925.jpg" />
 </div>
 
 
@@ -254,7 +332,7 @@ SMART Utility 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131926.jpg" />
 </div>
 
 
@@ -287,7 +365,7 @@ SMART Utility - приложение, которое считывает данн
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131927.jpg" />
 </div>
 
 
@@ -311,7 +389,7 @@ magnet:?xt=urn:btih:AEAC04B459F3031366E467A63872A5060AC6ED59
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131928.jpg" />
 </div>
 
 
@@ -335,7 +413,7 @@ magnet:?xt=urn:btih:1C26EC7AE0CA022DEFF3008008EE14AC85D33835
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131929.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ World Racing 2 (2022) [Multi] (1.5.3-20231108) License GOG [Champion Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131930.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ magnet:?xt=urn:btih:AE8571F69BD59E2B36E771FDD22223D233AE0093
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131931.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ magnet:?xt=urn:btih:AE8571F69BD59E2B36E771FDD22223D233AE0093
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131933.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ magnet:?xt=urn:btih:70FEB909C65789E77BCCE26FA986E0C43EF681E9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131934.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ magnet:?xt=urn:btih:270E79FBB4B00B82E9A137A9CB17E604D5BF403B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131935.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ magnet:?xt=urn:btih:270E79FBB4B00B82E9A137A9CB17E604D5BF403B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131937.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ magnet:?xt=urn:btih:7DE5B452E995789DB9AEB9161CC57797EB49E081
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131939.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD BoxSet[MP
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131940.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD BoxSet[MP
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131941.jpg" />
 </div>
 
 
@@ -579,80 +657,6 @@ VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD BoxSet[MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5A6F0E50044B5EE50B39BA815BC08F289425BE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595819   (131942) от 29.12.2012
-
-MeeSoft Diagram Designer 1.25 + Samples [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131942.jpg" />
-</div>
-
-
-###  Подробнее
-
-MeeSoft Diagram Designer - простой бесплатный векторный графический редактор для создания диаграмм, блок-схем, плавающих графиков, иллюстраций и слайд шоу. Diagram Designer - это настраиваемые шаблоны объектов, проверка орфографии, импорт и экспорт WMF, EMF, BMP, JPEG, PNG, MNG, ICO, GIF и PCX, просмотрщик слайд шоу, простой графический плоттер для прорисовки математических изображений.
-Создание блок-схем может быть отличным способом для внесения ясности в процесс принятия решений. Другое дело, что порой очень нелегко найти бесплатный инструмент для выполнения такой задачи. Пакет Diagram Designer может стать таким искомым инструментом. Чтобы начать работу над блок-схемой, необязательно быть искушенным специалистом – вы выбираете нужный элемент на боковой панели, перетаскиваете его на рабочий лист и добавляете подпись. Повторяйте эту процедуру, пока не создадите визуальную схему всего процесса по порядку. Вот, собственно, и все. Хотя, если вы хотите добавить дополнительные картинки, всегда можно загрузить готовые (   Читать дальше...   )Название программы: MeeSoft Diagram DesignerЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681962   (131943) от 05.12.2023
-
-Хоккей. НХЛ 2023-2024. Вашингтон Кэпиталз - Аризона Койотс (04.12.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131943.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 декабря 2023, вторник. 05:00 МСК. Стадион: Маллетт-Арена (Темпе, США), 14 600 зрителей (100% при вместимости 14 600)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Кайл Реман (Стеттлер, Канада); Линейный: Трэвис Туми (Канада); Линейный: Кил Марчисон (Кловердейл, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A24D79ABC01AB90C29D41C8FE3E72D1D25FC1FBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595825   (131944) от 29.12.2012
-
-Рисованная графика - Artworks by Jeffrey Scott Campbell
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Jeffrey Scott Campbell.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D44E48E06EF46969B2D840E00154349BA64B3DB
 ```
 
 

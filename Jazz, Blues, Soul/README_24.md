@@ -6,7 +6,7 @@ BunnyDad - Past Journey (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66019.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Los Angeles Side Hustle - Los Angeles Side Hustle (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66020.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Clementine Moss - Clem & Clearlight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66021.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kjartan Hesthagen, Ledfoot, Markus O. Klyve, Tim Scott McConnell - Plain Simple 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66022.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ David Cooper - David Cooper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66023.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Leo Cookman - Everyone Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66024.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Fred Hostetler - Blues Back Pages (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66025.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Chris & Mike - unique (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66026.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Electric Church - Used and Abused (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66036.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ David M'ore - Holy Sinners & Sinful Saints (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66037.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gentlemen's Blues Club - Gbc Vol. 4 - Preacher's Cadillac (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66038.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Great Jazz Trio - At The Village Vanguard (1977) 2000, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66043.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Michael Kaeshammer - The Pianist (2015) Self-Released [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66091.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ V.A. - Best of BOSSA NOVA COVERS (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nov
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66095.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66109.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66119.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mindi Abair - Based On A True Story (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66124.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Renee Rosnes - Renee Rosnes (1988, 1989) 1990, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66155.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Big Dave & The Dutchmen - Big Dave & The Dutchmen (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66156.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Adam Douglas - Companions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66157.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Shack - Suitcase Full of Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66173.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bluedog - we keep the fire burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66176.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ John Haydock - Thunder on the Outskirts of Town (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66177.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Josh Harp - Chicago Sessions V.1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66178.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Barrel Dawg - Howlin' Good Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66179.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Rhian Elin - Better Late Than Never (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66181.jpg" />
 </div>
 
 

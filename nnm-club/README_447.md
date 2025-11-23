@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11861.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Partition Assistant Technician Edition 10.8.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11862.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8243D2B5DF624E40CA82481AEE4E0DD39B576C8D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11863.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Palworld (2024) [Ru/Multi] (0.6.2.76269) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11864.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EB3B695244599054BB70D6D0126BA4C66B7C18AE
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11865.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:970AD40F0EFBCD5E2714BE91D4A85E78B78FF1C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11866.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:640C912E79070E2ACCD85D49D5D5B5962F1ED217
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11868.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ The Vault: Logic Puzzle Box (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11869.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E6AB118F0FE21F1B99FE3DDB32C82E8298DA5042
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11870.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:E6AB118F0FE21F1B99FE3DDB32C82E8298DA5042
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11871.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:C84E85310361549B1F52CDEE24BFB23D65CA523D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11872.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F2E9D59C55F2D56C9563CE3D64F8B3CF6BA188E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11873.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F2E9D59C55F2D56C9563CE3D64F8B3CF6BA188E0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11874.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:4887983E361BFC5F53D3A9AC8842A604730F2DEB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11875.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:49B5F1E045CA360D0073C80C78888C444FCF50C7
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11876.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FC951C2984162D0EE262506C04204CD04F9141E8
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11877.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:ABF4A901B737F57993FE2BFC0E0618B8779D622C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11878.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:F7B1C773297C54FF27F8710B0CB8C51B590E8856
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11879.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D672E479F2853BB5D08478FEFB11C45C01DB495B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11880.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:8C35F6787CA2E53CF875146D5581F827C17AFE33
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11881.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B0E821C2127BDB7DF8BEC8C3E6339C9EF363DCF4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11882.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Build 18713680/dlc) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11883.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:CC6851145E06897E19515396881513205D4491C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11884.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Windows 11 3in1 x64 24Н2 (build 26100.4652) by ivandubskoj 09.07.2025 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11885.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:C16D64A2AB53A744772E1FA6251A6E722A1A1409
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11886.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:65DAF52F8F7656E2BC16DA73557091714877C350
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11887.jpg" />
 </div>
 
 

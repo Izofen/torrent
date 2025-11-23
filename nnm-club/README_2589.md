@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68062.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3188C8BE257D1F0810690AEAFE8E80D3E4DFDC2C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68063.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:66F0A25D48E6FA583F7D5B4F387D5FAFA3073CCD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68064.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Aborted - Vault Of Horrors (2024) [APE|Lossless|image + .cue] <Death Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68065.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1EE1565F050C714BF7380C6A8F78C557BBA89A19
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68066.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Yandel - Sinfonico  (En Vivo) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68067.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Fear Factory - Digimortal (2001) Reissue, 2007, Roadrunner Records [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68068.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:2C61AD82AB41787CCC189D858E1922E8D80FBBB6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68069.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gene Krupa And His Orchestra - 1945 - 1946 (2002) Classics [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68070.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Fear Factory - Obsolete (1998) Reissue, 2018, Roadrunner Records [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68071.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:0477A67F198C6A30DC595C8C3F6DAC80051ACF0F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68072.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:066134D070967E9A12AEC908A3EA845D9FE8316F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68073.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:F3A70A55EFA0979230E97F0E7E204DB4C6E9E1CD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68074.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Siberian Dixieland - The Scent Of The Era (2024) Apollon & Evterpa [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68075.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Top 14 January 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68076.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Behind Crimson Eyes - An Exodus From Eden (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68077.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:20EE13026CA52E7F0FB16716092D413AECE9BFF7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68078.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Dream Theater - The Broadcast Archives - Classic Live FM Broadcast Recordings (2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68079.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:F3C56068E5B599190D6B3EAA6BBEF86F9FB391C0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68080.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:BD5386D48DDD52C37B6A13DEBB52904DEF0E3F3D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68081.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68082.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Luminaries 01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Tec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68083.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NightKill - Survive The Night (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68084.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Telepathy - Transmissions (2025) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68085.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Plen - Состояние ночи (2025) [MP3|320 Kbps] <Emo, Shoegaze, Grunge>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68086.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68087.jpg" />
 </div>
 
 

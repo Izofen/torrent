@@ -6,7 +6,7 @@ Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, So
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35411.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Taylor Dayne - Greatest Hits (1995) CD, Compilation, Club Edition [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35434.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:715EC4072F786E820B473D12CAC9F2F4464EEFFC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35437.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:03AC81EF637F762B366775D9396D0E6E406F9479
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35502.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:B4E4720B07BECDA627862122698B29E1EBC313CB
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35510.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Patrick Cowley - From Behind (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35518.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35614.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Mu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35622.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Naomi Sharon - Obsidian (2023) Extended, 2024, OVO Sound [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35630.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - трибьют арбенина (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35719.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:3378CAEA96A810322B9E135B6846FC46EA1FD97B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35734.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Hottest Hits 100 Greatest Songs of All Time (2024) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35749.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Союз 19 Альбомов (1998-2007) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35775.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:631E2D89283AC8029B869F0444739BE34BBC2AEB
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35807.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Michael Jackson - Love Never Felt So Good (2014) [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35962.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36155.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Bette Midler - Sings The Rosemary Clooney Songbook (2003) [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36448.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Android (Marc Hartman and Imro van Hetten) - Spaceman's Return (2022) [FLAC|Loss
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36476.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:F8E2B942F279AF691276800D46D84FF6FC4454D2
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36490.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Boney M. - Christmas With Boney M. (2007) Compilation, Reissue, Remastered [FLAC
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36498.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:A6929F028C5960314B2BCC068E7701417CB8484C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36511.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Пахмутова: Любовь моя – спорт (1980) [MP3|320 Kbps
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36584.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36595.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36596.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Bee Gees - 3 Albums (2020-2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36703.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Союз 8 Альбомов (1994-1997) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36800.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Союз 16  (1995) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41201.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B0E5627C3B2B9DC372E5BB37A1A2DEC1846A9948
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41202.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ableton - Live 12 Suite 12.1 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41203.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Dwarven Realms (2022) [En] (1.0.100) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41204.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A3CB85BE288CEF69B273DDF18801C5FEEE84529E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41205.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:CE72C8555B668A96350A400014EF6F6ED670E36A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41206.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E9FBB1979A7E6EA2DB9FC73A3A2E7D5DB94A62B5
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41207.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41208.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41209.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41210.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Udemy, GameDevHQ Team, Jonathan Weinberger  | The Complete Unity C# Game Develop
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41211.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:4988F288EB3F0085A1E6F951D54FCDBAB48F11F0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41212.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Dark Sky (2024) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41213.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41214.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41215.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41216.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:12CF9CD291875C0C2B7D06B3F76150D007A6B715
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41217.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41218.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Udemy, GameDevHQ Team, Jonathan Weinberger | The Complete Unity C# Game Develope
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41219.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41220.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:7665346EA6148AFDB224728564840E2C78610BA0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41221.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Microsoft Office 2024 Professional Plus 16.0.17928.20148 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41222.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:DC0FD4BE756907E43B18BFF449838131D1173652
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41223.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 8.9 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41224.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:E313125759DA18D85FC2129532F524FEA5BE134B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41225.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:7525E18CD7F002F88532E08D6DFB213E9B14C8C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41226.jpg" />
 </div>
 
 

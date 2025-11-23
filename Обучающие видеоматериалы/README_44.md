@@ -6,7 +6,7 @@ react.gg, ui.dev (ex. Tyler McGinnis) | The interactive way to master modern Rea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128170.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alexunder Hess | Figma Pro Secrets (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128175.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fit-Standard, Владимир Лапин | Техника выполнения 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128180.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:70A473D806DB4CEBE6B11AEF632E17871B476329
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128248.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Motion Science, Cameron Pierron | AE Volume II: Intermediate Techniques (2019) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128252.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Artefactoschool, Константин Стерхов | Пора цветения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128263.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Motion Science, Cameron Pierron | AE Volume I: The Fundamentals (2019) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128274.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ CG Education, Максим Шаров,  Алиса Арифи | Геймифик
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128289.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Ben Marriott | Motion Foundation (2023) WEB-DL [AD] [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128311.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:C9E15CEF06801BAD66178538BFF315A77FF01A0B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128334.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:EF88A830B3A016A28AC2B79404BA0286A14080CF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128342.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Gastrosmile, Венера Хабирова | Желудок – ты как? (20
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128426.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:61C0D2643E2B53CB2B7F853A0E300F620AF2A0CF
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128450.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Domestika, Luke Adam Hawker | Artistic Architectural Drawing with Ink (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128457.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:4CB06C6970F1AD6B6E3F2C16FE9010A3760B86BF
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128462.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128476.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ CyberYozh, Евгений Ивченков, LastByte | Анонимность и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128628.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:CE7B08CF3FAAA5585DDDE375D2A4635E86640A83
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128635.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:30D5F5C22D9A3072F681F44789E3E37FDF1040AC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128639.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Enterclass, Сергей Курбатов | Осенний Павловск (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128720.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:9A963CC1D06E2DEE522D4349490F51A6B6F9F51D
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128741.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:44B90994B0394313E00AD550F864B616CF3E63C2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128783.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Domestika, David Drazil | Architectural Drawing: From Paper to Photoshop (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128785.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128878.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:0524233D86D5C90AFA7660ADA654EAE3723E020B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128921.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ PhotoCASA, Сергей Парышков | Креативные приемы в 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128974.jpg" />
 </div>
 
 

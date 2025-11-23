@@ -1,3 +1,84 @@
+###  Публикация: 1764073   (102751) от 05.12.2024
+
+The Brisbane Project - Ode To The Alley (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lude Mood (2:34)
+02. Blow A Fuse (4:28)
+03. S.O.S. (3:39)
+04. Ode To The Alley (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7934BAD4E612EF48F1B3DFA9E5B3402D7762592
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764052   (102752) от 05.12.2024
+
+Anna Black - Jammin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire It Up (4:02)
+02. Blues Man (6:55)
+03. Drinkin' Daddy (6:17)
+04. Bird (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8161CEE4BAA906432056DE4AE7010808A3701B86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764162   (102753) от 05.12.2024
+
+Athena XIX - Everflow Pt 1: Frames of Humanity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frames of Humanity (04:06)
+ 02. Legacy of the World (03:55)
+ 03. The Day We Obscured the Sun (04:20)
+ 04. The Seed (04:41)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDF309E5FC518597403BA22195DCCEA8424B2F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764063   (102754) от 05.12.2024
 
 Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +87,7 @@ Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102754.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102755.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102756.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Chocolate George - House of Make Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102757.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102758.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102759.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102760.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102761.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102762.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102763.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ magnet:?xt=urn:btih:E11E30A29AC34C36B222BA0A8669C35B2210B73D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102764.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102765.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ Greg Koch - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102766.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ Smooth Jazz All Stars - Smooth Jazz Renditions of Lady Gaga (Instrumental) (2024
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102767.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ Maleficium Arungquilta - Транс для сестры (2013) [FLAC|Lossless|im
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102768.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ Maleficium Arungquilta - Касание сквозь стекло (2011) [FLAC|L
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102769.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ VA - Gaming Music 2024: EDM For Players (2024) [MP3|320 Kbps] <Dance, Club, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102770.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ magnet:?xt=urn:btih:48C5D865190480C534E30F6649D6A4DA02E34E2E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102771.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ Radioactive - Reset (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102772.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ Fans Of The Dark - Video (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102773.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102774.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ VA - Future Sounds. EDM 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102775.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ Page 99 - 99.3 FM (2024) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Wes
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102776.jpg" />
 </div>
 
 
@@ -609,87 +690,6 @@ Page 99 - 99.3 FM (2024) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Wes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6634A8A2A13622A4B2A099C7AE64CFE1841FF427
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764076   (102777) от 05.12.2024
-
-The Weekend Blues Band - Misunderstood (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Lounge Blues (3:40)
-02. Guilty of Love (3:48)
-03. Misunderstood (4:01)
-04. Too Nice to Rock (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676ED28EDB957093FA4049B87B78B6557111E92E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763857   (102778) от 03.12.2024
-
-Michael Lington - Everything Must Change (2002) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off the Hook (3:57)
-02. In the Shade (4:26)
-03. Through the Fire (4:44)
-04. The Moment (4:03)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E342F1DEA326AB0DBB188589B1057EB08E843322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763824   (102779) от 03.12.2024
-
-VA - Fusion Funk Excursions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AdrianoMaria - Trio Elètrico (7:51)
-02. AdrianoMaria - Isn't She Lovely (6:29)
-03. Afronauti - Ghost Friends (4:26)
-04. Apollo Beat - Luna 22 (2:50)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, FunkПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52AF3CB6A0A75D716ADCE41055A077E2745299E
 ```
 
 

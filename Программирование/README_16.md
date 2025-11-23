@@ -1,3 +1,77 @@
+###  Публикация: 1635548   (197983) от 26.05.2023
+
+Илья Григорьев | AnyLogic за три дня. Практическое пособие по имитационному моделированию (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первое практическое пособие по программе AnyLogic от ее разработчиков. AnyLogic является уникальным программным продуктом, поддерживающим все три методологии имитационного моделирования: системную динамику, дискретно-событийное и агентное моделирование, а также позволяющим создавать многоподходные модели.
+Книга содержит подробные пошаговые инструкции по построению (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C9703D604A802EA9608FF1C881297A3ADFFDC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634611   (198113) от 21.05.2023
+
+Брюс Тейт | Семь языков за семь недель. Практическое руководство по изучению языков программирования (2014) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с семью языками программирования вы исследуете наиболее важные из современных моделей программирования.
+Вы познакомитесь с динамической типизацией, которая делает языки Ruby, Python и Perl такими гибкими. Постигнете систему прототипов, лежащую в основе языка javascript. Увидите, как сопоставление с образцом в языке Prolog сказалось на формировании языков Scala (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.Н. КиселевФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52232B4D3FA04921A22C08FD420A0B8444C237E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634395   (198156) от 20.05.2023
+
+П.В. Евдокимов, Е.В. Дубовик | Справочник C#. Кратко, быстро, под рукой (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный справочник содержит ключевую информацию о С# в удобной и наглядной форме. Структура справочника позволяет быстро и легко находить нужную информацию, получать примеры использования тех или иных элементов и конструкций С#. Рассмотрены основы синтаксиса С# и первые программы на С#. Отдельное внимание уделено внимание таким темам, как: интерфейсы, структуры и (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC00D40D57FA4CACCD3B75BC33F7830A43B4314
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633991   (198222) от 18.05.2023
 
 Марк Прайс | C# 10 и NET 6. Современная кроссплатформенная разработка, 6=е издание (2023) [PDF]
@@ -6,7 +80,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198222.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198222.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Cliff Sharif | Game Development with Unreal Engine 5 (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198287.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198287.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198365.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198365.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ Qaifi Khan | ReactJS for Jobseekers: The Only Guide You Need to Learn React and 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198495.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198495.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Sulekha AloorRavi | Metaprogramming with Python (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198580.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198580.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ David Tschumperle, и др. | Digital Image Processing with C++ (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198713.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198713.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ magnet:?xt=urn:btih:82013087BFBA75C1A63D569140BFAF55FB3E3EE6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199160.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199160.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:632E2FE5A8CFE2299B56A299E73939A6B5255A38
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199316.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ Andreas Wittig | Amazon Web Services in Action, Third Edition: An in-depth guide
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199352.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199352.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ Slobodan Dmitrović | Modern C++ for Absolute Beginners: A Friendly Introduction
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199383.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199383.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199386.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199386.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ Carl-Hugo Marcotte | An Atypical ASP.NET Core 6 Design Patterns Guide: A SOLID a
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199398.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199398.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199400.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199400.jpg" />
 </div>
 
 
@@ -322,7 +396,7 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199499.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199499.jpg" />
 </div>
 
 
@@ -346,7 +420,7 @@ Jimmy Engström | Web Development with Blazor: A practical guide to build intera
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199569.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199569.jpg" />
 </div>
 
 
@@ -370,7 +444,7 @@ magnet:?xt=urn:btih:5201FC0A76EF47A6B440B2B2C9347E66FDAD67D7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199576.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199576.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ magnet:?xt=urn:btih:E45388AAB55F5166FD3656531B891A31A5C037CF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199623.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199623.jpg" />
 </div>
 
 
@@ -418,7 +492,7 @@ Aristeidis Bampakos | Learning Angular: A no-nonsense guide to building web appl
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199687.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199687.jpg" />
 </div>
 
 
@@ -442,7 +516,7 @@ magnet:?xt=urn:btih:C9DD7E1F88AB2A6D542EA50B61E4731255F32612
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199742.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199742.jpg" />
 </div>
 
 
@@ -466,7 +540,7 @@ magnet:?xt=urn:btih:C871CDEEB3EFD55CFC11898B838EAB6F6588AD63
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199773.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199773.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ magnet:?xt=urn:btih:C68A51D8D88E593F08371CD4D02FF126359DF6EE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199897.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199897.jpg" />
 </div>
 
 
@@ -514,7 +588,7 @@ magnet:?xt=urn:btih:BC36E853D5F7C4F603BD88CB964494B4F4F1568A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199960.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199960.jpg" />
 </div>
 
 
@@ -538,7 +612,7 @@ magnet:?xt=urn:btih:38AEFF11FF945EB09F9BBB12FC8AC396D5EAEAD5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200058.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200058.jpg" />
 </div>
 
 
@@ -549,80 +623,6 @@ Unreal Engine 5 – популярный игровой движок, котор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF3B92481FAE8A5DDA4528529F66F262AADA8278
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625586   (200127) от 10.04.2023
-
-Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of React’s core features (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор написал это краткое руководство, чтобы помочь вам освоиться в мире программирования React. Простые объяснения, актуальные примеры и четкий, лаконичный подход делают это быстрое руководство идеальным ресурсом для занятых разработчиков.
-
-Эта книга раскрывает основные концепции React и объединяет его ключевые особенности с четким кратким изложением, тем самым (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD740ABE6BB1F932B2DDE90AA28D071315F70F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625466   (200129) от 10.04.2023
-
-Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200129.jpg" />
-</div>
-
-
-###  Подробнее
-
-С развитием DevOps, недорогих облачных вычислений и контейнерных технологий подход Java-разработчиков к разработке сегодня кардинально изменился. Это практическое руководство поможет вам использовать преимущества микросервисов, бессерверных и облачных технологий с применением новейших методик DevOps для упрощения процесса сборки и создания высокопроизводительных (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D576D958A0E4D52F725A0B03306FE13F6D99FB55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625567   (200138) от 10.04.2023
-
-Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как автоматизировать модульные тесты Python 3 с помощью библиотек автоматизации, таких как doctest, unittest, nose, nose2, pytest и selenium. В этой книге рассматриваются важные концепции автоматизации тестирования программного обеспечения и демонстрируется, как автоматизировать, организовывать и выполнять модульные тесты с помощью Python. Она также знакомит (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188A29F2BC8A5BC37883E7E0A037EB0C3643FE72
 ```
 
 

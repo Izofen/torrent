@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103410.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Halloween Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103444.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Nothing But... Trancetopia Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103446.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Interplay ADE 2024 (Extended DJ Mixes) (2024) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103479.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jaime Narvaez - Joyous Cosmology EP (2019) [FLAC|Lossless|tracks] <Deep House, P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103498.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ BCee - These Are The Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103541.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ DJ Nelly - Lose Control (2022) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103544.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Free To Dance, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103555.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - John Digweed - Live in (Stereo) (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103565.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Agoria - Unshadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103592.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Black Hole Trance Music 10-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103668.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Armin van Buuren - A State Of Trance 1194 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103674.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Black Hole House Music 10-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103675.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Summer Fresh 002 (2024) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103679.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Pet Shop Boys - Alternative (1995) 1st Holland Press [APE|Lossless|image + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103691.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Pet Shop Boys - Release (2002) 1st Holland Press [APE|Lossless|image + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103694.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - PornoStar Sessions Ibiza (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103698.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Aphex Twin - Selected Ambient Works Volume II (2024) Expanded Edition, 2024, War
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103749.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Cyclone B - War (2024) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103759.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Always Progressive, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103765.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Pretty Little Deep-House Friends, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103768.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - The Best Ethnic Deep Tribal House Rhythms (2024) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103784.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Deep House Essentials: Edition 2024 (2024) [MP3|320 Kbps] <House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103793.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Find Your Harmony 2024 Part 2 - NATURE (2024) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103801.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Suanda Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103803.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Dancewood Records - Six Years (2024) [MP3|320 Kbps] <Trance, Progressive, E
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103805.jpg" />
 </div>
 
 

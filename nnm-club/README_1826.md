@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47831.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D7CB6393D78DFBF9AB1585F357A604391753015F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47832.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47833.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:62D6870F253F33F7F89E0F26FB37358131B26AFB
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47834.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:93BD6F2CB0EE21839693E427C7423F658DFA02C0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47835.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DBCBB1A9E173AB1C26C6F87CC91B43BCAFAC8947
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47836.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47837.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47838.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Pepakura Designer 6.0.3 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47839.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:28B63AFA2EBDD738898256AD0F9393D8A7251C6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47840.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:FC3062261164638BB2CAD6FCC1CE7D7EBD42D8D4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47841.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ WizTree Enterprise 4.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47842.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ SweetScape 010 Editor 15.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47843.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - 80's Emotion: Electro Pop and Italodisco Collection (2024) [FLAC|Lossless|W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47844.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ George Vondriska | Настройка и использование фуганк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47845.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ KStars 3.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47846.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:6296BD863F55A2E504BB510E75C1E4E8C890513F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47847.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:97E11C72CDF1EDCED216F2350089BEE3E97B035F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47848.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:98C2BC2AA1063D3863F1AEA4A6531B0D5E82EB49
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47849.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F4507741E0B06070CF2E032E81D7A86D38D92BE9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47850.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sumatra PDF 3.6.16600 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47851.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:6D6A1692156DBD26226C132E2ABDC16379CCBA9E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47852.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Super Life (RPG) (2019) [En] (2.2) Scene TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47853.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:3E6A6057F9B1963BE656F1570B56B3630B1EC426
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47854.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:3C74032FC0473C0DD463E5FDBD897858E8A9112B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47855.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:41C5914E1B650B73F73599545AA8976999FCFE77
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47856.jpg" />
 </div>
 
 

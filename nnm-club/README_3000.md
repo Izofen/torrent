@@ -1,3 +1,90 @@
+###  Публикация: 485838   (90371) от 23.04.2012
+
+(Linux)  Botanicula (L) [Ru/Multi] (2012)
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Причудливое творение от чешской студии Amanita Design, подарившей поклонникам жанра самобытные и необычайно красивые квесты «Саморост» и «Машинариум».
+
+В двух словах, Botanicula — это история о последнем семени умирающего дерева, изнуренного нашествием злобных паразитов. А если подробно, то это интереснейшие исследования, множество занимательных забавных головоломок, незабываемые знакомства со странными (симпатичными и не очень) существами, чарующая музыка… И все это — на одном необыкновенном огромном растении!
+
+Встречи с вами ждут пять обаятельных главных героев. В их приятной компании вы совершите путешествие с вершины древа к его корням, по дороге заглянете в пчелиный улей, посетите муравьиное гнездо, побываете в мрачном дупле и других таинственных местах. Особых сложностей по пути как будто не предвидится, однако сам он будет длинным, очень-очень длинным — шутка ли, более 150 игровых сцен!
+
+Будь вы хардкорный геймер или отчаянная домохозяйка, задорный подросток или убеленный сединами почтенный профессор биологии (   Читать дальше...   )Разработчик: Amanita DesignЖанр: Adventure / Point-and-click / PuzzleЯзык озвучки: Ru/MultiЯзык интерфейса: Ru/Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9A6D96A4968A988CDD02AA624A6D1A145C7DB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485335   (90373) от 23.04.2012
+
+Linux GamePack 12.04 (L) [Русский] (2012)
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux GamePack это сборник содержащийТип издания: LЖанр: СборникЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC351144E20A6BD8DE0FD63D8DE3355353F480A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487511   (90375) от 24.04.2012
+
+Running Wild - Shadowmaker (2012) [FLAC|Lossless]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piece Of The Action (4:36)
+02. Riding On The Tide (4:25)
+03. I am Who I am (4:52)
+04. Black Shadow (5:19)
+05. Locomotive (4:40)
+06. Me & The Boys (5:03)
+07. Shadowmaker (4:38)
+08. Sailing Fire (4:23)
+09. Into The Black (4:51)
+10. Dracula (7:25)Жанр: Heavy MetalПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486725   (90376) от 24.04.2012
 
 Король гор и другие (1969) VHSRip
@@ -6,7 +93,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90376.jpg" />
 </div>
 
 
@@ -33,7 +120,7 @@ BitTorrent 7.6.1 Build 27098 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90377.jpg" />
 </div>
 
 
@@ -57,7 +144,7 @@ BitTorrent - клиентская программа пиринговой сет
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90379.jpg" />
 </div>
 
 
@@ -81,7 +168,7 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90380.jpg" />
 </div>
 
 
@@ -113,7 +200,7 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90382.jpg" />
 </div>
 
 
@@ -137,7 +224,7 @@ magnet:?xt=urn:btih:EAD7A20268F0757BAE9C44E9BDC5C2EF9029775E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90384.jpg" />
 </div>
 
 
@@ -161,7 +248,7 @@ magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90386.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90389.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ magnet:?xt=urn:btih:9C839EFB28FAE8AEEAF452F0441B3A77B2EEF507
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90392.jpg" />
 </div>
 
 
@@ -234,7 +321,7 @@ Fantasy wallpapers 001
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90397.jpg" />
 </div>
 
 
@@ -258,7 +345,7 @@ VA - Greatest Ever! Prog Rock (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90399.jpg" />
 </div>
 
 
@@ -291,7 +378,7 @@ Revo Uninstaller PRO 2.5.8 RePack (& Portable) by KpoJIuk [Мульти, ест�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90400.jpg" />
 </div>
 
 
@@ -315,7 +402,7 @@ Revo Uninstaller — утилита для удаления нежелатель
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90401.jpg" />
 </div>
 
 
@@ -339,7 +426,7 @@ magnet:?xt=urn:btih:4477654AEBDAAAA16826C160A12C93EB5FB7B22C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90405.jpg" />
 </div>
 
 
@@ -363,7 +450,7 @@ NG: Омар-монстр / Monster lobster (2000) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90407.jpg" />
 </div>
 
 
@@ -387,7 +474,7 @@ Intel начинает поставки процессоров нового по
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90408.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Ivy Bridge — это первые процессоры Intel, производ�
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90409.jpg" />
 </div>
 
 
@@ -437,7 +524,7 @@ magnet:?xt=urn:btih:8A841668277F2E7438659BAF0F531487140E3FDE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90410.jpg" />
 </div>
 
 
@@ -462,7 +549,7 @@ VA - В Машину! Русский Vol.2 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90412.jpg" />
 </div>
 
 
@@ -495,7 +582,7 @@ magnet:?xt=urn:btih:B05B399A0FB1C855B836EECD4F80B23E611C7357
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90414.jpg" />
 </div>
 
 
@@ -519,7 +606,7 @@ magnet:?xt=urn:btih:03D3A156105D033BCD04CFE4123DC95791B16B3A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90418.jpg" />
 </div>
 
 
@@ -543,7 +630,7 @@ magnet:?xt=urn:btih:94A29E054772E452B2494A75F3B7D3D357DB4657
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90421.jpg" />
 </div>
 
 
@@ -567,7 +654,7 @@ Fleet Foxes - Fleet Foxes (Special Edition) 2 CD (2008) [MP3|320 кб/с]<Indi-R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90422.jpg" />
 </div>
 
 
@@ -578,98 +665,6 @@ Fleet Foxes - Fleet Foxes (Special Edition) 2 CD (2008) [MP3|320 кб/с]<Indi-R
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487345   (90425) от 24.04.2012
-
-Chloe Agnew (Celtic Woman) Walking In The Air (2005) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking in the Air [3:39]
-02. Nella Fantasia (Featuring David Agnew) [3:44]
-03. Someday [4:20]
-04. Vivaldi's "Rain" [2:17]
-05. The Prayer [4:19]
-06. Panis Angelicus [3:56]
-07. Going Home [4:04]
-08. Vincent - Starry, Starry Night [4:37]
-09. One World [3:49]
-10. To Where You Are [3:57](   Читать дальше...   )Жанр: Музыка, CelticРежиссер: Bart van SinderenАктеры: Chloe AgnewПеревод: ОтсутствуетПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487228   (90429) от 24.04.2012
-
-Naked Music Recordings - Коллекция (21 диск, 35 винилов) (1999-2010) [MP3|~148-320 кб/с]<Deep House, Downtempo, Future Jazz, Nu Disco, Lounge>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Naked Music– это звукозаписывающий лейбл танцевальной музыки, расположенный в Нью-Йорке и Сан Франциско. Появился в 1992 году как Нью-Йоркская звукозаписывающая компания, когда Дэйв Буншофт (Dave Boonshoft) и Джей Дэйнс (Jay Danes) добились стремительного успеха на андерграунд сцене со своими релизами на таких независимых лейблах как OM, Francois Kevorkian's Wave imprint и UKs XL records. Naked Sound был рожден как пересечение дэнса, соула и электронной музыки. В 1998 году компания стала настоящим звукозаписывающим лейблом.
-Лейбл известен сериями миксов и компиляций Nude Dimensions и Carte Blanche, а также сольными альбомами таких артистов как Blue Six, Miguel Migs и Lisa Shaw01. Blue Six - Luxury (4:09)
-02. Blue Six - You Play Too Rough (4:45)
-03. Blue Six - If You Turn Your Back On Love (4:38)
-04. Blue Six - You Used To Rock (4:33)
-05. Blue Six - C'Mon (4:19)
-06. Blue Six - Noesis (4:50)
-07. Blue Six - I Tried To Tell You (5:08)
-08. Blue Six - Anything Is Possible (3:38)
-09. Blue Six - Bittersweet (4:21)
-10. Blue Six - One More Night (5:48)(   Читать дальше...   )Продолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305E63EE709EF123F52561791F671F8BD417F9EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486369   (90434) от 24.04.2012
-
-Сборник | Все ответы к Государственной Заключительной Аттестации (ДПА) 2012 г. 9 класс [UKR] [2012] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие поможет учащимся успешно подготовиться к государственной итоговой аттестации для 9 класса.
-Пособия построены по такому принципу: номер варианта контрольной работы, правильные ответы на тестовые задания с комментариями (в случае необходимости) и развернутый ответ на творческие задачи. Кроме того, в пособии приведены картосхемы с выполненными заданиями. Пособие предназначено для учащихся и учителей2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4480E505BD038D668122F57365CD301F8A46F2F5
 ```
 
 

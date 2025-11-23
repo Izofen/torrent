@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70558.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:286C8AC91932A5ED0D7417D21A1BE411128877BA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70559.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StaxRip 2.44.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70560.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70561.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:84E75A1EC4D380373866CE73E20381F038050014
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70562.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9BA9D79ECF27A035265E573E17541D61E5E32DF7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70563.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E29E1C583494440F4249C3B21CC795ED3F547F5F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70564.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Best of Trippy Code Melodic Techno & Progressive House Vol.1 (2025) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70565.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:6CA4F78782D10CB07450049A152B63FD3C648253
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70566.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Billboard Top Hits 1977 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70567.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:7F4491ED213700004BC81C11888F63EEE0686BD9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70568.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Jazzystics - It's a Mistake (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70569.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Exploration Tales #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70570.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:10E4008905CAFA14ADA7DF08DAD6DAA099509DE8
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70571.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:7DB4F8E17299E7711E4708730A717F95FB2F867F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70572.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:F82FBE39BBD66901575E7B86C06AA932272F9173
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70573.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:86BE5210AD8B17F2B6F318998E2CA06A1121A634
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70574.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:52A57726160F135FC35C5B5D7CF13C419C3CF295
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70575.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Porsche Sprint Challenge Southern Europe. Кубок Порше. Эшторил 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70576.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:2701CC2B7C3A2CD9AAB6069008C8C2E29A809986
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70577.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:500F9299AA55B95ADDDE1D3427D990CABD590E28
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70578.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dinah Washington - Milestones Of A Legend (1956 - 1962) 10CD, 2017, The Intense 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70579.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Bill Evans - The East End (2011) 2019, Jazzline [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70580.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:4B4585FA1D5D28FCC728A81517F188DDA2BF1530
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70581.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Phil Woods Quintet - American Songbook II (2007) Kind of Blue Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70582.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:B99E603305963CECFAAD4DD8C541A35C2D1D7759
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70583.jpg" />
 </div>
 
 

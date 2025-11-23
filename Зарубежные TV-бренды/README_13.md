@@ -6,7 +6,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151059.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BA5CE39F595881665F784992802C4D0A6522E72A
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151177.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Discovery: Мятеж: / Mutiny: Survival On The Oceans (2017) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151185.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:2D3FEA27BD919235A01EF01657B05500BC9DCFA4
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151247.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ NG: История Эмиратов / History of the Emirates (2019) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151334.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ NGW: Дикая Аляска: Арктическое лето / Wild Alaska. Arc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151460.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ NG: Службы безопасности портов: Гамбург / Port Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151507.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:45480C307B95CA06F98B25D18FB677A520823D9C
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151630.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:4F993E454B9417F12DF5A93A82E422BB57C28014
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151871.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Animal Planet: Летающие челюсти. Прогулка с белыми
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152151.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152218.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152360.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Animal Planet: Беловежская пуща: первозданный лес 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152642.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:38BECA198928E522C51D82A281A0AC920772BD32
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152735.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ NG: Дикая природа России / Wild Russia (2009) HDTVRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152773.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ NG: Доисторические монстры Гитлера / Hitler's Jurass
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153250.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ NG: Суперсооружения: Саграда Фамилья / Megastructur
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153324.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7CF495BAA2C59F0F26B61E46E8B569A65A153B58
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153378.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:FDE68504C58EE7C44BD2B7005682D74DAE707081
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154871.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154962.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ NG: Загадка Кероса / Keros: The mystery of the broken figurines (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155030.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:3778FDA93C9654104DED9D046094D035753DF9FA
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155373.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155421.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ NG: Расследования Авиакатастроф / Спецвыпуск
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155565.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155568.jpg" />
 </div>
 
 

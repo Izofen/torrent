@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37534.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C623494EA524EE11FB29B2C2A8EDD816A95CDDCD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37535.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Format Factory 5.20.0 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37536.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A88DFD8B79723A24C9CA34E14B822E468975F99F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37537.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/Multi] (1.0.6/1.1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37538.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1 Build 12 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37539.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:784FA50754F0886AD413EC6146301A31AA2E06ED
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37540.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ MiniTool Power Data Recovery 12.2 Full (Standard-Deluxe-Enterprise-Technician) R
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37541.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37542.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Format Factory 5.20.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37543.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:1F61BB0B95A09B52376C0199E642CA259ECD0C5B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37544.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Blind Guardian - Studio Albums (13 releases) (1988-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37545.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37546.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37547.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37548.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:143713DF31BC85D597DCCD8AB5A97157C9CF70A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37549.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:143713DF31BC85D597DCCD8AB5A97157C9CF70A0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37550.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:F8E16456806899ADC955A95FEEFB46E4BBD34B6A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37551.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ MageSlayer (1997) [Ru/En] (1.1) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37552.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37553.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:F5F25B75D26B787954635FD51205C3DDF2EBE8B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37554.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:02A081B507E2BE3721BAC8FC872B368065A421C9
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37555.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Microsoft Activation Scripts (MAS) 2.8 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37556.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:7E7BCC0CF4CAFC4B73D4436EFB1AE5C48EC1984B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37557.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kaspersky Free 21.19.7.527 (a) Repack by LcHNextGen (12.11.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37558.jpg" />
 </div>
 
 

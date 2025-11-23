@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66814.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D85B848894F3095E25A5615902C5C7B2982E0D0F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66815.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:45875025991BCE9EBA603DBC1055A857F0E9CC26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66816.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5E277C684F542AC7C898C5C655FA5C95A7D40CE3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66817.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Nora En Pure - Purified Miami (Jungle Island Miami, Miami Music Week, United Sta
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66818.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Soul Eater NOT! | Пожиратель душ! Другая история (2011
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66819.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Echosoul - The Time of the Dragon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66820.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Psycho Busters | Психо Нарушители (2006) [7 томов, 32 гла
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66821.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ GT-R: Great Transporter Ryuji | Великий Водитель Рюдзи (2012
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66822.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:63CDCFF5222114B827F9638BD0C4BFF830D20678
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66823.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:9BF0FB5655EF4BEE4DB790B6D252C62F8B8C904C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66824.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:6C91EAC12447AD931E2C80D995D08B8628647C88
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66825.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66826.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Concrete Age - Awaken the Gods (2025) [MP3|320 Kbps] <Melodic Death, Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66827.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gamaran | Гамаран (2009) [22 тома, 194 главы] [Манга] [Ру
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66828.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Echosoul - The Time of the Dragon (2025) [MP3|320 Kbps] <Progressive Heavy, Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66829.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Running Death - Overdrive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66830.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Lewis Nash - Stompin' At The Savoy (2005) M&I Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66831.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Legacy of Payne - Spawn of Creation (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66832.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:9CA5ADF1CA29B02B7BDF5D94540E702FE0457532
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66833.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Blood Incantation - Timewave Zero (2022) EP [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66834.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Shad Shadows - Wunderkammer Desire (2025) [MP3|320 Kbps] <Darkwave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66835.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Darwin's Game | Игра Дарвина (2012) [30 томов, 121 глава + 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66836.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ GTO - Shonan 14 Days | Крутой Учитель Онидзука: 14 дней
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66837.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Majo to Kishi wa Ikinokoru | Ведьма и рыцарь выживают (2021
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66838.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Shounan Junai Gumi | Крутой учитель Онидзука: Ранние 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66839.jpg" />
 </div>
 
 

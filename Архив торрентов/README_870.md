@@ -1,3 +1,102 @@
+###  Публикация: 1670391   (172144) от 20.10.2023
+
+Folder-Factory 7.5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folders Factory — сделай уникальными свои папочки в OS X.
+«Вам надоели угрюмые одинаково синие папки? С помощь Folders Factory вы сможете легко изменить их цвет, добавить картинки, написать текст или даже сделать оттиск наподобие системных папок».
+Речь идет о замечательном приложении — Folders Factory.
+Единственная и главная функция этой программы — создание уникальных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2023Разработчик: © 2012-2023 TryBestПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A95AED783784036D7A36E1EA1F697DC18B1667F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661882   (172161) от 19.10.2023
+
+Ad Infinitum (2023) [Ru/Multi] (1.0.4.270196/dlc) Repack Other s [Supporter Edition]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда реальность становится кошмаром, кошмары становятся реальностью. В этом психологическом хорроре вам предстоит сразиться с чудовищами, которые поселились в вашем сознании. Сможете ли вы сохранить рассудок? Вы оказались заперты в стенах собственного дома и лабиринте траншей Первой мировой войны. Теперь вы пытаетесь собрать воедино обрывки собственного прошлого (   Читать дальше...   )Тип издания: RepackРазработчик: HekateЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71D9E9DE32F9645A9953D28857B312E6C04D94D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670092   (172162) от 19.10.2023
+
+Rufus 4.3 (Build 2090) Stable + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49FAC5A6453EF4ED33DC42D4EB65796553E7E43B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670188   (172172) от 19.10.2023
+
+Reg Organizer 9.31 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641DA18EA60AEE0EF3A315D3C03F6CC5341DB0AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670039   (172199) от 19.10.2023
 
 Parallels Desktop Business Edition 19 for Mac 19.0.0 [Multi/Ru]
@@ -6,7 +105,7 @@ Parallels Desktop Business Edition 19 for Mac 19.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172199.jpg" />
 </div>
 
 
@@ -31,7 +130,7 @@ CCleaner 6.17.10746 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172210.jpg" />
 </div>
 
 
@@ -55,7 +154,7 @@ magnet:?xt=urn:btih:154DE64C6C29C39B8A994A4F1B6C9E8901AE9D9F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172230.jpg" />
 </div>
 
 
@@ -80,7 +179,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7110 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172231.jpg" />
 </div>
 
 
@@ -104,7 +203,7 @@ WinNTSetup 5.3.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172233.jpg" />
 </div>
 
 
@@ -128,7 +227,7 @@ Adguard for Mac 2.12.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172234.jpg" />
 </div>
 
 
@@ -152,7 +251,7 @@ Windows 11 Manager 1.3.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172235.jpg" />
 </div>
 
 
@@ -176,7 +275,7 @@ The Bat! Professional 10.5.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172237.jpg" />
 </div>
 
 
@@ -200,7 +299,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.4 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172238.jpg" />
 </div>
 
 
@@ -224,7 +323,7 @@ Enigma Virtual Box 10.50 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172239.jpg" />
 </div>
 
 
@@ -249,7 +348,7 @@ Total Commander 11.02 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172241.jpg" />
 </div>
 
 
@@ -273,7 +372,7 @@ Topaz Video AI 4.0.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172243.jpg" />
 </div>
 
 
@@ -297,7 +396,7 @@ Glary Utilities Pro 5.212.0.241 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172245.jpg" />
 </div>
 
 
@@ -321,7 +420,7 @@ NVIDIA GeForce Desktop Game Ready 545.84 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172247.jpg" />
 </div>
 
 
@@ -345,7 +444,7 @@ Enigma Virtual Box 10.50 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172250.jpg" />
 </div>
 
 
@@ -370,7 +469,7 @@ Google Chrome 118.0.5993.89 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172251.jpg" />
 </div>
 
 
@@ -394,7 +493,7 @@ AMD Radeon Software Adrenalin Edition 23.10.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172253.jpg" />
 </div>
 
 
@@ -418,7 +517,7 @@ Topaz Video AI 4.0.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172257.jpg" />
 </div>
 
 
@@ -442,7 +541,7 @@ Cyberlink ColorDirector Ultra 12.0.3416.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172258.jpg" />
 </div>
 
 
@@ -466,7 +565,7 @@ FotoJet Collage Maker 1.2.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172265.jpg" />
 </div>
 
 
@@ -490,7 +589,7 @@ Serif Affinity Photo 2.2.1.2075 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172267.jpg" />
 </div>
 
 
@@ -514,7 +613,7 @@ Allavsoft Video Downloader Converter 3.26.0.8691 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172268.jpg" />
 </div>
 
 
@@ -525,104 +624,6 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5949F8E6AF29E2DF7C809AB89399CEA07BF602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670149   (172273) от 19.10.2023
-
-Яндекс.Браузер 23.9.3.936 (x32) / 23.9.3.931 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83737AD01F8D17DABBA93FC51B361B7F207269EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670050   (172275) от 19.10.2023
-
-Cyberduck 8.7.0 Build 40629 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberduck — программа представляет собой бесплатный мультифункциональный клиент для подключения к удаленным директориям серверов, поддерживая работу с многими популярными протоколами подключения. В список типов серверов, к которым возможно выполнить подключение, вошли любые FTP, FTP-SSL, защищенное подключение SFTP, WebDAV, а также публичные облачные сервера Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED757670138E8935F3148CA7BFDCAF353328091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670221   (172277) от 19.10.2023
-
-DxO PureRAW 3.6.1 build 25 RePack by KpoJIuK [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
-С программным обеспечением DxO PureRAW легко и просто улучшить файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E0071EF227246FDF444E1FBF792957BB36D1CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670226   (172279) от 19.10.2023
-
-Sante DICOM Viewer Pro 14.0.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sante DICOM Viewer Pro — это профессиональная программа для просмотра DICOM, анонимайзер, конвертер, клиент PACS, мини-сервер PACS, программа для записи CD/DVD пациента (со средством просмотра) и многое другое.
-Sante DICOM Viewer Pro не является «еще одним средством просмотра DICOM» , созданным с использованием свободно доступных библиотек, таких как dcmtk, itk и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B166B079F6379CB92DA930E5F900A4E9332BF639
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1685426   (127119) от 19.12.2023
+
+Стэнли Коэн | Состояния отрицания: сосуществование с злодействами и страданиями (2001) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ставим фильтр, закрываем глаза, отключаемся, не желаем знать, надеваем шоры, видим только то, что хотим видеть - все это формы «отрицания». Алкоголики, отказывающиеся признавать свою зависимость, люди, отмахивающиеся от подозрений в неверности партнера, жена, не замечающая, что муж издевается над их дочерью, все они находятся в состоянии «отрицания». Правительства (   Читать дальше...   )Жанр: Психология и психотерапияПеревод: Владимир КарпенкоИздательство: Polity PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A48CA5C8F0F6C8950C5EEBA003E35495C6CE4AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685669   (127120) от 19.12.2023
+
+Зверогонщики / Rally Road Racers (2023) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ралли «Шёлковый путь» — уникальнейшая гонка. Предельные скорости, разнообразнейшие ландшафты и только лучшие зверогонщики мира. Правда, это не относится к лори Жи, милому пушистому зверьку с большими глазами и добрым сердцем. Ему не везёт на гонках, но он должен во что бы то ни стало обойти чемпиона Арчи Великвалепного, чтобы спасти свой дом. Пожелаем ему удачи! (   Читать дальше...   )Производство: США, Великобритания, ОАЭ / Kintop Pictures, Riverstone Pictures, Vanguard AnimationЖанр: компьютерная анимация, комедия, семейный, спортРежиссер: Росс ВенокурАктеры: Джимми О. Ян, Джон Клиз, Шэрон Хорган, Хлоя Беннет, Дж.К. Симмонс, Кэтрин Тейт, Лиза Лу, Ребекка ЙеоПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (отдельным файлом)Продолжительность: 01:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAE1471F6C9DAD21C166D62626C00F3BC4B00B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685616   (127121) от 19.12.2023
+
+Неестественный отбор (2023) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В провинциальном городе на протяжении многих лет существует центр «Вторая жизнь», который обещает своим подопечным - бездомным инвалидам - новую лучшую жизнь. Но какова цена «второй» жизни и что происходит с «первой»? В поисках ответов сын одного из владельцев центра, узнает ужасную правду, которая вынуждает его в одиночку начать борьбу с системой, выстроенной отцом.Производство: Россия | «Кинокомпания Альянс»Жанр: Триллер, драма, криминалРежиссер: Татьяна ЯрмакАктеры: Михаил Пореченков, Сергей Юшкевич, Евгений Михеев, Илья Антоненко, Алексия Белавина, Диана Милютина, Полина Северная, Сергей Мухин, Александр Танхилевич, Анна АфанасьеваСубтитры: ОтсутствуютПродолжительность: 01:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1663D4F8CFC006F2E628F7558A6CD8D444B4968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 633267   (127122) от 19.12.2023
 
 Тайны советского кино. "Семь стариков и одна девушка" (2012) SATRip
@@ -6,7 +78,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127122.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:129DAB3B7CD61AFD1CB4FFCCB2A1591FCE7DC666
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127123.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:99858A257C52795BE8567B256C12B26FA67842EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127124.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:2816F7AA6220C3AF9645EE6EB2D14B4595A45284
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127125.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:214F26DD8854C1484B70B20F003A753C00376090
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127126.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:67FB8D16D45AE6E10E9155B041A774740DBFB4FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127127.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:4E335E88A58FEFAD78595DDFFA475F3B8A01E423
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127128.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:E6AEAA0DC5234F1583B9E0AC001135882D27ACEF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127129.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:EE4A4CC23F3B9FC6863C98AB399339ED146372D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127130.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:E8737B614C275243060DFCD05849244D3806138C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127131.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:FCAD1A7040476FE0290083C9F698E939CB7266A1
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127132.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:D6C8DFD3EED852FFDA4E014EF95B1C0376E03D9A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127133.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:0EAA393427DE8EACCACEA2FABE129CF2E98CF0C8
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127134.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:0EAA393427DE8EACCACEA2FABE129CF2E98CF0C8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127135.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:F25390DEA1E02D3B431441F9266634E7BA045DBC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127136.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ Kingston SSD Manager 1.5.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127137.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:C68FAE31758002D4C3654DEBD7829760224F2B1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127138.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ magnet:?xt=urn:btih:ED4B52D26F891456C0ADD64004F3D664D3DE62B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127139.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:F1EC1F6D7A5B6B08914DFE8D7F0497A215D91C03
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127140.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:58F3DBB3142CB9C7CC7C7519E111B9F20FB4CBD2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127141.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:58F3DBB3142CB9C7CC7C7519E111B9F20FB4CBD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127142.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ Udemy, Ellen Chamilothoris | Master Any Language with ChatGPT: Boost Your Langua
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127143.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:CB86A4CCF63D3114ECE968A47DC7417A5AB391C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127144.jpg" />
 </div>
 
 
@@ -552,81 +624,6 @@ magnet:?xt=urn:btih:CB86A4CCF63D3114ECE968A47DC7417A5AB391C9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACCB87DF9AF94823755FE891DEBD2AB09997ACAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533992   (127145) от 19.12.2023
-
-Scorpions - Rock Believer (Deluxe) (2022) [AAC|~355 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127145.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Gas In The Tank (3:40)
-1.02. Roots In My Boots (3:17)
-1.03. Knock 'em Dead (4:11)
-1.04. Rock Believer (3:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9475D93AABED323611172957FF31C70B3B5FB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685646   (127146) от 19.12.2023
-
-Три дня в Малайе / 3 Days in Malay (2023) HDRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит во время Второй мировой войны. История американских морских пехотинцев, дислоцированных на аэродроме в Малайе, которые однажды узнают о надвигающемся японском военном рейде. В результате, оказавшись без возможности получить поддержку, герои вступают в изнурительный трехдневный бой с силами противника.Производство: Таиланд / Hillin Entertainment, Ashland Hill Media Finance, Audio Post HouseЖанр: боевик, военный, историяРежиссер: Луис МэндилорАктеры: Луис Мэндилор, Дональд Серроне, Куинтон Джексон, Питер Добсон, Райан Френсис, Рэндолл Бэйкон, Рэнди Уэйн, Келли Рейтер, Рон Смуренбург, Келли Б. Джонс и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:03Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1529CF3A8E785687D64A27B6432916F34049A52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685713   (127147) от 19.12.2023
-
-Я «любила» мужа. Фильм (2022) WEB-DLRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ксения — образцовая жена и мать. Она во всем слушается своего жадного и неблагодарного мужа, который воспринимает почитание со стороны Ксении как должное. Узнав об измене мужа, Ксения случайно убивает его во время секса. Теперь домохозяйке предстоит спрятать тело, замести следы, чтобы не попасть в тюрьму и не оставить детей сиротами, а также найти способ, как заработать (   Читать дальше...   )Производство: Россия / К.Б.А. (Кинокомпания братьев Андреасян)Жанр: комедия, криминалРежиссер: Юлия ТрофимоваАктеры: Светлана Ходченкова, Александр Яценко, Павел Ворожцов, Юлия Александрова, Олег Гаас, Юрий ИцковСубтитры: ОтсутствуютПродолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0CA4BFA9F5C6B9F321E5B78118CE1311FEB9FD
 ```
 
 

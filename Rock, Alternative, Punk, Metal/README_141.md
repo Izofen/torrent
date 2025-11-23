@@ -6,7 +6,7 @@ The Watchers - Nyctophillia (2024) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110080.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Keith Wallen - Infinity Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110093.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MaidaVale - Sun Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110096.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3947FDE27736FF6459BE978989BFE22F240811D7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110110.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Warhorse - The Recordings: 1970-1972 (2024) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110121.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Rotting Christ - Pro Xristou (2024) Limited Edition [MP3|320 Kbps] <Melodic Blac
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110129.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Submariner - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110137.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Lares - Et in Arcadia Ego (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110138.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mind's Mirrors - Forever Is Not Nearly Long Enough (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110140.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Allcharters - AllCharters (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110142.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ The Monarch - A Moment to Lose Your Breath (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110143.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Yasru - Bilinmeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Folk>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110144.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Juke Cove - Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner, doom, psych, p
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110145.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:A377CDCA79EE66C57DC775EA3B579749F127CE5A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110149.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:2E3D67F22FC6620A35387D4B56BBC95E7FA54137
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110157.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Contention - Artillery From Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalli
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110159.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Alestorm - Voyage Of The Dead Marauder (2024) EP [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110162.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:F586F7BF50AB16C2A24CF3DEAB6CF59BF32D3D9D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110163.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Sons Of Thunder - Thunderhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110166.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Danger Silent - The Revival (2024) [MP3|320 Kbps] <Alternative Rock, Post Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110184.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Perseus - Into The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110202.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Eternal Breath - Road to Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110205.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Blaze of Perdition - Upharsin (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110211.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Wheel - Charismatic Leaders (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110213.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:0D895AECC9FB083B626C4A0CEB729C1BCF2249C8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110216.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Jolly Jackers - Welcome to the Grind (2024) [FLAC|Lossless|WEB-DL|tracks] <Celti
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110217.jpg" />
 </div>
 
 

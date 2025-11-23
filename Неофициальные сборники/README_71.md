@@ -6,7 +6,7 @@ VA - До 18 и старше №40 Зима (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134200.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Music News vol.319 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134217.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134230.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134272.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Живёт моя отрада. Застольные песни (2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134454.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134563.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Новогодний cборник зарубежной музыки (2012)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134691.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Зимний extrim. Самые новые хиты 2 (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134710.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134760.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Р
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134771.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134779.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134792.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134794.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134813.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134823.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134831.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134832.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Новогодняя феерия (2012) [MP3|320 кб/с]<Рор>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134842.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134853.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134864.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134867.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134877.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134880.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134899.jpg" />
 </div>
 
 
@@ -759,7 +759,7 @@ VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134981.jpg" />
 </div>
 
 
@@ -792,7 +792,7 @@ VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134986.jpg" />
 </div>
 
 

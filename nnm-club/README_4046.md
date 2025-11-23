@@ -1,3 +1,78 @@
+###  Публикация: 1689051   (124878) от 31.12.2023
+
+Дончо и Юлия Папазовы | Под парусом через океан (2011) [MP3, Игорь Мурашко]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые мореплаватели супруги Папазовы в 1974 году проплыли на спасательной шлюпке от Гибралтара до Кубы, будучи в океане «добровольными жертвами кораблекрушения». Основной пищей им служил планктон. Исследования, проведенные ими, входили в разработанную ООН программу освоения Мирового океана. Авторы воссоздают в художественно-документальной книге будни этого опасного (   Читать дальше...   )Жанр: ПутешествияИздательство: Нигде не купишьПродолжительность: 06:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7845D8A799F7CE497B332033DF9AF2BE32898C31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688890   (124879) от 31.12.2023
+
+The Fusion Syndicate - A Speedway On Saturn's Rings (2023) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Progressive-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Speedway On Saturn's Rings (00:04:39)
+02 - Planet 15 (00:04:09)
+03 - Io (00:06:08)
+04 - Escape From The Black Hole (00:05:44)(   Читать дальше...   )Жанр: Fusion, Progressive-RockПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1870DC612AF7CF2AA4C7BB7112754EC51CBDBB46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689076   (124880) от 31.12.2023
+
+Карнавал крови / Carnival of Blood (1970) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124880.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нью-йоркском парке развлечений появляется маньяк-убийца, задача выследить которого ложится на плечи местного блюстителя закона, прибывшего на карнавал вместе со своей девушкой.Производство: CША / Kirt FilmsЖанр: ужасыРежиссер: Леонард КиртманАктеры: Эрл Эдгертон, Джудит Резник, Martin Barolsky, Kaly Mills, Берт Янг, Линда Кертц, Уильям Греннел, Гленн Кимберли, Ив Пэкер, Глория СпивакПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6457F6473D076E1C895BF506224D08B47651E428
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688692   (124881) от 31.12.2023
 
 Агитпроп. Слушайся Деда!  (30.12.2023) WEBRip [H.264/1080p-LQ]
@@ -6,7 +81,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124881.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ AndroVid Pro Video Editor v6.7.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124882.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:DC39E8E199DC20535FE58AFE66C3BA3ACE1FFFD8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124883.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ Blank & Jones - Chilltronica EP 8 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124884.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ Neil Young - Before and After (2023) [FLAC|Lossless|tracks + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124885.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ VA - Smooth Jazz Christmas Serenade (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124886.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ magnet:?xt=urn:btih:243F12BA3143718D4963AB5550CC00BF198E5E80
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124887.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ VivaVideo Video Editor v9.13.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124888.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:79C68D3C1A0BBCD415787864F4656712E2CAE3AE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124889.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ magnet:?xt=urn:btih:8F83D4911A0D608F52CA6F636A3B1218B9FEDC93
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124890.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:338610C3BA3C1C504DE80FC9F3AA8D0F54E60A76
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124891.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ magnet:?xt=urn:btih:6821CB83F46B848BDE9B6200F55B58A398A2F278
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124892.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ magnet:?xt=urn:btih:D3BDBA3AFBCB13AE0D885050AD180C236E435129
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124893.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ magnet:?xt=urn:btih:C2B0DBB468CC5F3236DF64DAC05A8E06979B66BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124894.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:651DC81B5A3E118AEFDA183B7C1D1C2B6FD5C045
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124895.jpg" />
 </div>
 
 
@@ -380,7 +455,7 @@ Harvard Business Review (HBR) | Управление персоналом (2020)
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124896.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ magnet:?xt=urn:btih:8CC8A0017B7C7D91BF6D0B32425CE68584EF332F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124897.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ VA - 100 Hits Great British Songs (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124898.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ Harvard Business Review (HBR) | Переговоры (2020) [MP3, Андрей �
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124899.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ magnet:?xt=urn:btih:E5E17B5D8F83CB2269744E9D7F42790C9F1292F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124900.jpg" />
 </div>
 
 
@@ -506,7 +581,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124901.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ magnet:?xt=urn:btih:9523112B6FFC821736882FD35CC96B68D9B6979F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124902.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ magnet:?xt=urn:btih:9AA54FD69FA0EA2193A43B8DD32EE5E60138BD5E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124903.jpg" />
 </div>
 
 
@@ -568,81 +643,6 @@ magnet:?xt=urn:btih:9AA54FD69FA0EA2193A43B8DD32EE5E60138BD5E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4EB95956BA35D637392473B7AAB2B28B276660D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689155   (124904) от 31.12.2023
-
-Журнал | Woodworker's Journal №1 (февраль 2024) [PDF][En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Woodworker's Journal — журнал по столярному делу представляет для всех мастеров по дереву новые идеи для творчества, обзоры деревообрабатывающей техники и оборудования для мастерской, проекты по изготовлению из дерева различной мебели, поделок, садовых беседок и прочих малых архитектурных строений, которые приводятся с пошаговыми инструкциями, фотографиями и чертежами, (   Читать дальше...   )Жанр: Столярное делоЯзык: АнглийскийИздательство: Rockler Press IncФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F4A52AFCC29FAF3C84E77971F30F7D28CD235F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689142   (124905) от 31.12.2023
-
-Журнал | Красивые квартиры №1 (212) (2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Красивые квартиры» — одно из ведущих популярных полноцветных периодических изданий, на страницах которого представлены интересные реализованные проекты и дизайн-концепции интерьеров квартир, апартаментов, лофтов и таунхаусов от лучших российских и зарубежных архитекторов и дизайнеров, выполненные в различных стилях и направлениях.Жанр: Архитектура, дизайнИздательство: АО "ИД "Красивые дома пресс"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD1B3A0D4AC06A3BFDD9DB17DC11814E155181E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689133   (124906) от 31.12.2023
-
-Eguana, Qeight - Call Of The Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124906.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coast to Coast (7:00)
-2. Keep On Dreaming (7:50)
-3. Deep Forest (8:53)
-4. Mystery (6:42)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3638B8E1D0E13E5684AD0791EE9209005A41C72C
 ```
 
 

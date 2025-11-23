@@ -6,7 +6,7 @@ Tiny Glade (2024) [Ru/Multi] (1.14.2) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4509.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Coral Island (2023) [Multi] (1.2.1239/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4513.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4515.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4517.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4520.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Summer Pockets: Reflection Blue (2025) [Multi] (1.2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4532.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.28) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4535.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4537.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Re:Fresh (2023) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4540.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rusty Rangers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4549.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Prison Architect (2015) [Ru/Multi] (1.02 r11056/dlc) Repack Let'sРlay [Total Lo
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4566.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rogue Hex (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4570.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ra Ra BOOM (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4576.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Dark Queen of Mortholme (2025) [Ru/Multi] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4579.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Relic Hunters Legend (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4580.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Secrets of Grindea (2024) [En] (1.10h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4596.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4598.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.7.123249.0/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4599.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Deliver At All Costs (2025) [Ru/Multi] (250331-132937) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4602.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4605.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Let'sРlay [Year 1 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4613.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Gems of War - Puzzle RPG (2014) [Ru/Multi] (8.8.0r75951/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4620.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4621.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4624.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ No Man's Sky (2016) [Ru/Multi] (6.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4625.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831/dlc) Repack seleZen [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4626.jpg" />
 </div>
 
 

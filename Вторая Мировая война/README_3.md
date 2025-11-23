@@ -1,3 +1,27 @@
+###  Публикация: 1224967   (200450) от 03.04.2023
+
+На честном слове и на одном крыле (2018) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_200450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм журналиста и режиссера Александра Рогаткина посвящен ветеранам Великой Отечественной и отношению ко Второй мировой в России и США. Столетние ветераны - русские и американцы - вспоминают, как воевали бок о бок. Накануне Дня Победы старики-соратники по-прежнему вместе, хотя их осталось совсем мало… В фильме снята уникальная масштабная реконструкция Сталинградской (   Читать дальше...   )Телекомпания: Россия, ВГТРКЖанр: Документальный, война, историяРежиссер: Александр РогаткинПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94F8283E2B43524B5A71D391E33D211A52D4F5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620924   (200693) от 27.03.2023
 
 Вторая мировая война: Секреты с воздуха / World War II: Secrets from Above (2022) WEB-DL [H.264/720p] (серии 1-6 из 6)
@@ -6,7 +30,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200693.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200693.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:8376E4898A10845F3B8FC1DAF65C939673E23CEE
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201702.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201702.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:45857C8F112B9BD84DEF15C4CFB88F35F11D8D4D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202803.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202803.jpg" />
 </div>
 
 
@@ -81,7 +105,7 @@ magnet:?xt=urn:btih:A4634ADE70B4EB8B01FEE2444FC0B9F9068438CC
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202917.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202917.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ magnet:?xt=urn:btih:444BEF2F7EA0F062B7CDDC44F6FCA2D8FCEBAB7F
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203487.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203487.jpg" />
 </div>
 
 
@@ -129,7 +153,7 @@ magnet:?xt=urn:btih:F1852BB5B14B46A2B4D79D4668C8D52B93BA11C9
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206865.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206865.jpg" />
 </div>
 
 
@@ -153,7 +177,7 @@ magnet:?xt=urn:btih:F3FF166069139D2A2F9D998156EA33441102AEB2
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206995.jpg" />
 </div>
 
 
@@ -177,7 +201,7 @@ magnet:?xt=urn:btih:0387A4E1F3A9F9FABA566EED733B31DCA30A70D2
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207437.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207437.jpg" />
 </div>
 
 
@@ -201,7 +225,7 @@ magnet:?xt=urn:btih:93F3AB18C713C0F603BB139B310E82CA0DFEB724
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207472.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207472.jpg" />
 </div>
 
 
@@ -225,7 +249,7 @@ magnet:?xt=urn:btih:254A71FBB530DDB0C826B1A4C108802F3B087D31
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207492.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207492.jpg" />
 </div>
 
 
@@ -249,7 +273,7 @@ magnet:?xt=urn:btih:1DF2FCB1364B79A07A3BB367C0AFE79740282361
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207806.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207806.jpg" />
 </div>
 
 
@@ -273,7 +297,7 @@ magnet:?xt=urn:btih:C9CD4B368BE79BD2ACADFB2EA5D3BB0697460A1E
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208375.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208375.jpg" />
 </div>
 
 
@@ -297,7 +321,7 @@ magnet:?xt=urn:btih:317533B93F8FF221C67BA89EE04AFCD0A8206D94
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209109.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209109.jpg" />
 </div>
 
 
@@ -321,7 +345,7 @@ magnet:?xt=urn:btih:B3D5807E7008652F467DDFE31464FABE4276C208
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210334.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210334.jpg" />
 </div>
 
 
@@ -345,7 +369,7 @@ magnet:?xt=urn:btih:838C1FF4A520576CD16D422A698A4DD8B31626D1
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211055.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211055.jpg" />
 </div>
 
 
@@ -369,7 +393,7 @@ magnet:?xt=urn:btih:9E87C7AAF2E030AACDBCF60ACDA2AD8661EE403A
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211419.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211419.jpg" />
 </div>
 
 
@@ -393,7 +417,7 @@ magnet:?xt=urn:btih:A2C067CD049684A6CD3CCE8827761D2913386271
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211723.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211723.jpg" />
 </div>
 
 
@@ -417,7 +441,7 @@ magnet:?xt=urn:btih:CE144735119BF0A653AE3DB4864C4AEFE4BD8FFB
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214003.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214003.jpg" />
 </div>
 
 
@@ -441,7 +465,7 @@ magnet:?xt=urn:btih:254FF8B9086E1947A2C01478165227075A5535FE
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214079.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214079.jpg" />
 </div>
 
 
@@ -465,7 +489,7 @@ magnet:?xt=urn:btih:23745E620C751669E9E4C0E5620040B0A94DCF56
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215625.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215625.jpg" />
 </div>
 
 
@@ -489,7 +513,7 @@ magnet:?xt=urn:btih:E1684F887B080A596A904CDEE19FE7D36B4F8BFA
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218279.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218279.jpg" />
 </div>
 
 
@@ -513,7 +537,7 @@ magnet:?xt=urn:btih:B7350F023BFA195D4D7D33C023DBBAA5079AC602
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221086.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221086.jpg" />
 </div>
 
 
@@ -537,7 +561,7 @@ magnet:?xt=urn:btih:D459ACA77A5556AF3DC8CF48A7C2972AF88987AF
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221183.jpg" />
 </div>
 
 
@@ -561,7 +585,7 @@ magnet:?xt=urn:btih:059B95DF1E1B9B02A65553629676397313D80A83
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221676.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221676.jpg" />
 </div>
 
 
@@ -585,7 +609,7 @@ magnet:?xt=urn:btih:0430FF7DAC4B843B5036C0022005166F296F4D11
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222230.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222230.jpg" />
 </div>
 
 
@@ -596,30 +620,6 @@ magnet:?xt=urn:btih:0430FF7DAC4B843B5036C0022005166F296F4D11
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B3EFD30D1F1132A772C3DE60EB468F1F966E3F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265751   (222654) от 13.12.2018
-
-Вторая мировая: Ад под водой (Подводный ад) / WW2: Hell under the Sea (2018) HDTV [H.264/1080p-LQ] (2 сезон, 1-6 серия из 6)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222654.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вторая мировая. Ад под водой» - это сериал, на основе реальных событий, картографически точно воспроизводящий разные эпизоды невидимой подводной войны, сопровождаемые драматичными рассказами о рейдах подводных патрулей во время Второй мировой войны. Экспертный анализ событий тех дней и видеоматериалы переплетаются с реконструкциями на основе воспоминаний участников (   Читать дальше...   )Производство: Канада, National GeographicЖанр: Документальный, флот, война, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 6 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56785F76BCCA278967A4690F16EF8B71EB6D6798
 ```
 
 

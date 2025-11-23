@@ -6,7 +6,7 @@ Cinema 4D 2023.2.2 + Redshift 3.5.13 RePack by vacuum34 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34569.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2605 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34570.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34571.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34572.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A0C8C46BA9F4DD3BEDCD06F3BC5B263B01DA4674
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34573.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:43478E0E4F47DB3E603779B94CD4C2265ED77911
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34574.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34575.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34576.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34577.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:AB4AE72442EE60F801A902E192A3A2D1DBB05C1C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34578.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D22E26024282FB9695C5DB2BB032161F17E76517
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34579.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:D22E26024282FB9695C5DB2BB032161F17E76517
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34580.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:D22E26024282FB9695C5DB2BB032161F17E76517
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34581.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:E8803C19FBE11892F2859E4FC42E71EE635C123E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34582.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Auslogics SSD Optimizer 2.0.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34583.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D82FB3B5ECC6A5EE3B58C7DF921CBC3DCB5C65DA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34584.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Clarky - Forever In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34585.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Babbba - Midnight walk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34586.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Babbba - Skat Academy III (part 2 by Babbba) (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34587.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Jimmy Bruno Group - Midnight Blue (2001) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34588.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Elliptical Sun Recordings 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34589.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Babbba - Skat Academy III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Inte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34590.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:0ECA8DB178AAAF5488710A0E0444D461790DE700
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34591.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:54B1573CF6A2F48A5902C24E2980F52AD9A90560
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34592.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Tal Farlow - This Is Tal Farlow (1958) 1997, Verve Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34593.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:C93148FB287F06C535D988539FA90D4547F33D0C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34594.jpg" />
 </div>
 
 

@@ -1,3 +1,186 @@
+###  Публикация: 1435064   (146662) от 27.12.2020
+
+Журнал | Psychologies №10 (54) (октябрь 2020) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5FF1E887B9946B2949C8E290A9350F45FD7E5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590018   (146663) от 16.12.2012
+
+Gilrs Wallpaper Collection (14.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C60834CBD647E1CE4B79927BBCC734AFEDAEFEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347832   (146664) от 25.12.2019
+
+Звериная ярость / Primal (2019) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охотник и зверолов Фрэнк Уолш промышляет редкими видами животных. Недавно он поймал в дождевых лесах Бразилии белого ягуара и теперь рассчитывает продать его в зоопарк за кругленькую сумму. Но кроме Фрэнка и его живого груза на борту корабля, следующего в Америку, оказывается опасный убийца, который должен предстать перед судом, и которого по медицинским показаниям (   Читать дальше...   )Производство: США / Daniel Grodnik Productions, The Wonderfilm Media Corporation, Imprint EntertainmentЖанр: БоевикРежиссер: Ник ПауэллАктеры: Николас Кейдж, Фамке Янссен, Кевин Дюран, ЛаМоника Гаррет, Майкл Империоли, Том Уолкер, Рей Эрнандес, Джон Льюис, Браулио Кастильо мл., Дрэйк ШеннонПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0536B2927519616651657CD6378F0494B05750D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 348758   (146665) от 20.11.2023
+
+Гастон Леру | Призрак Оперы (2005) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гастон Леру (1868–1927) – французский писатель, один из основоположников детективного жанра. Его романы по праву завоевали огромную популярность, а сыщик-любитель Жозеф Рультабий не без основания считается прототипом целой плеяды легендарных героев частного сыска.
+«Призрак Оперы действительно существовал» – он не был плодом суеверного воображения артистов и директоров, (   Читать дальше...   )Жанр: Зарубежная литература, классика, детектив, романПродолжительность: 12:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57390B1A264EF781BF01CC010EB1E370D1E0CA53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519815   (146666) от 25.12.2021
+
+PortableApps.com Platform 19.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146666.jpg" />
+</div>
+
+
+###  Подробнее
+
+PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
+
+Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81B4FE8029636B58F39C7BA97B9A3F68C8B4DB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739402   (146667) от 28.12.2013
+
+VA - Карнавал Русских Новинок (2013) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Triplex - Новогодняя История (3:35)
+002. Стас Костюшкин & DJ Грув - Девочка Главбух (3:15)
+003. Татьяна Овсиенко - Новый год! (2:27)
+004. Чай Вдвоем - Новогодний поцелуй (Alex Dea Radio Mix) (3:44)
+005. Света & DJ DreamTim - На Красный Свет (3:13)
+006. Пачуля - Ты Же Все Знаешь (2:48)
+007. Николай Басков - Ну кто сказал (3:28)
+008. Stilet feat. Алексей Арабов - Между Нами Города (Dance Version) (3:22)
+009. Слава - Расскажи Мне Мама (3:18)
+010. А.Буйнов - Метель (3:34)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AE363A5E47D2E8A4FDB61EB05297324AF30006
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087511   (146668) от 27.12.2016
+
+Noire Antidote - I Know Where The Wolf Sleeps (2016) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Dark Ambient, Witch House, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into Hypnosis (02:19)
+02. Fire In Bohemian Grove (04:50)
+03. Eight Legged Men (03:12)
+04. Enochian (03:55)(   Читать дальше...   )Жанр: Industrial, Dark Ambient, Witch House, ExperimentalПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E20DC506D43093AB70A720E108F504E10EACE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969400   (146669) от 27.12.2015
 
 Кай Метов - Лучшие хиты (2015) [MP3|320 кб/с] <Pop>
@@ -6,7 +189,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146669.jpg" />
 </div>
 
 
@@ -33,7 +216,7 @@ magnet:?xt=urn:btih:9D0AE1ABC034BBE2735D2CF084124A6D0B7F3718
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146670.jpg" />
 </div>
 
 
@@ -57,7 +240,7 @@ magnet:?xt=urn:btih:1C29804E5945869E9F462FB1D1085C186074E4D0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146671.jpg" />
 </div>
 
 
@@ -84,7 +267,7 @@ Butterfly - Favorite Colors 062: Top 10 (15.12.2012) [MP3|320 кб/с]<Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146672.jpg" />
 </div>
 
 
@@ -117,7 +300,7 @@ ClamXav v2.11 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146673.jpg" />
 </div>
 
 
@@ -141,7 +324,7 @@ Uranium Backup 9.6.8.7229 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146675.jpg" />
 </div>
 
 
@@ -166,7 +349,7 @@ magnet:?xt=urn:btih:13C481200CB0E64CBDFEE38EE9A316A8A4D3298D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146676.jpg" />
 </div>
 
 
@@ -190,7 +373,7 @@ magnet:?xt=urn:btih:7329EF93CC404AF1C35B94C5189E0E0A25201859
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146677.jpg" />
 </div>
 
 
@@ -214,7 +397,7 @@ magnet:?xt=urn:btih:52DFE4989DE636A608EC135412F1EA2043CD8AC5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146678.jpg" />
 </div>
 
 
@@ -239,7 +422,7 @@ magnet:?xt=urn:btih:E4B4E96FEB69DDD8C4F3FC4C6976442184F972D8
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146679.jpg" />
 </div>
 
 
@@ -263,7 +446,7 @@ Erzengel - 3 Albums (2019-2020) [MP3|320 Kbps] <NDH, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146680.jpg" />
 </div>
 
 
@@ -290,7 +473,7 @@ Nature Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146681.jpg" />
 </div>
 
 
@@ -314,7 +497,7 @@ Liebe - Revolution Of Love (2016) [FLAC|Lossless|image + .cue] <Synthpop, New Wa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146684.jpg" />
 </div>
 
 
@@ -341,7 +524,7 @@ Skrillex & Diplo - Skrillex and Diplo Present Jack U (2015) [FLAC|Lossless|Web-D
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146685.jpg" />
 </div>
 
 
@@ -368,7 +551,7 @@ magnet:?xt=urn:btih:624808470ECDC065C45BDBD8F89FEF6AB0E2F1D6
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146686.jpg" />
 </div>
 
 
@@ -394,7 +577,7 @@ magnet:?xt=urn:btih:B29ACB6B79D0F24F4295365676CCA15D28DE803D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146687.jpg" />
 </div>
 
 
@@ -421,7 +604,7 @@ magnet:?xt=urn:btih:1CA4224D160CF42734AF8CEEAEB80A827BC34595
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146689.jpg" />
 </div>
 
 
@@ -445,7 +628,7 @@ magnet:?xt=urn:btih:B234A42EFF09DC4A23A6D48F2D8F7A7C4034415C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146692.jpg" />
 </div>
 
 
@@ -469,7 +652,7 @@ magnet:?xt=urn:btih:22976D211D4A97E41DBD000A9911F73FE335DD09
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146693.jpg" />
 </div>
 
 
@@ -483,188 +666,6 @@ magnet:?xt=urn:btih:22976D211D4A97E41DBD000A9911F73FE335DD09
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:326BFFB6EAD2221E743B6CE1DC934B02FBB2C7F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590058   (146694) от 16.12.2012
-
-Sexy Girls Pack Wallpapers (15.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5A1999BC32B8FE3B548A09811AD22A078C76D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435200   (146695) от 27.12.2020
-
-Heavy Pettin - Best Of Heavy Pettin (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In and out of Love [00:03:53]
-02 - Sole Survivor [00:03:42]
-03 - Born to Burn [00:03:22]
-04 - Northwinds [00:04:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62D754ECE60B1AAAE71F488FFDDFEF4289BA05F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348000   (146697) от 25.12.2019
-
-Маленькая Италия / Little Italy (2018) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители Лео, как и родители Никки, приехали в Канаду из Италии и открыли здесь свою пиццерию. Между двумя ресторанами и двумя семьями устанавливается ожесточенная конкуренция. Тем временем между Лео и Никки, вопреки всему, завязывается романПроизводство: Канада, США / Firsttake EntertainmentЖанр: Мелодрама, КомедияРежиссер: Дональд ПитриАктеры: Хейден Кристенсен, Эмма Робертс, Алисса Милано, Дэнни Айелло, Андреа Мартин, Джейн Сеймур, Гэри Басараба, Адам Феррара, Эндрю Фунг, Васант СарангаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352C5FB8E1029E1608E92E01809418BF9C8F5110
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087513   (146698) от 27.12.2016
-
-Devil Doll - Queen Of Pain (2002) [MP3|320 Kbps] <Rockabilly, Country Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Christopher (02:53)
-02. You Are The Best Thing And The Worst Thing (03:39)
-03. Heart Sized Crush (03:14)
-04. It Was Raining (03:01)(   Читать дальше...   )Жанр: Country Blues, RockabillyПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18489187C4A4D492CB9ABED56FBF4E5F56D2B83D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969271   (146699) от 27.12.2015
-
-Михаил Юрьевич Лермонтов | Собрание сочинений в 6-ти томах [6 книг] (1954-1957) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее собрание сочинений великого русского поэта М. Ю. Лермонтова содержит критически установленный текст произведений поэта и полный свод вариантов к ним.
-
-Все произведения и письма, вошедшие в издание, проверяются и печатаются по наиболее точным печатным текстам, автографам и авторитетным копиям.
-(   Читать дальше...   )Жанр: Классическая литератураИздательство: Издательство АН СССРФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E712DDA339AEBE9699C86DCE17511CD5E00EF465
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271868   (146700) от 25.12.2018
-
-WakeupOnStandBy 1.7.20.6 [Multi]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146700.jpg" />
-</div>
-
-
-###  Подробнее
-
-WakeupOnStandBy – многофункциональный «рубильник» для Вашего ПК
-Если Вы ленитесь выключать Ваш компьютер или Вам надоело его включать каждый день, тогда Вам стоит попробовать программку под названием WakeupOnStandBy. Эта программка может сама включать и выключать Ваш компьютер. От вас только требуется только настроить ее.
-Вы можете указать время и конкретную дату (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3ECF045F677C7EC448E26738E03B7A9F41BC0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435083   (146701) от 27.12.2020
-
-Levi De Ville - Outtakes Series (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Says (03:17)
- 02. Do I Ever Cross Your Mind (04:51)
- 03. You And Me (04:08)
- 04. Whatcha Want To Do (04:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE8F46DD90F3C14C58B542BD46F3777CF154670
 ```
 
 

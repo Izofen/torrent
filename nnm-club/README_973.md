@@ -6,7 +6,7 @@ Isekai Shoukan wa Nidome Desu | Summoned to Another World for a Second Time | П
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25646.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25646.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:92D9C3F077CA2831C0E20CDBAA1888D425C3D0AE
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25647.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25647.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Musical kaleidoscope part 32 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25648.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25648.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Firefox Browser ESR 115.21.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25649.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25649.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:188B073F1C783613A528BB7F04C108DECA194362
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25650.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25650.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Editions Valoire (изд.) | Шартр (2013) [PDF, DJVU]
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25651.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25651.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:4D9B87EAB96BA844724AE32D3BBFFF592DE6C341
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25652.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25652.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:BA411541B811128D2160530A636D77409A478578
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25653.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25653.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Master PDF Editor 5.9.88 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25654.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25654.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:04DA862B663CCB22BF894F8ABD598BBB1E0772D3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25655.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25655.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25656.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Microsoft PowerToys 0.89.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25657.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25657.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:5DE30C8CB9B79894B9D1495ED88395FCAD994B43
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25658.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D8F25E7F1B50794775557465B4045E9E67CE7B64
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25659.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25659.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:4E84D012F301B036D7F083BBAB3002C726F04F3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25660.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25660.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:CA443D28F61D37AB5977B6EB64F5DE44D1ED87BC
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25661.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25661.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25662.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:F58BB53CC91E8BDBCD8A0B08A41B9D91A2A2F34F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25663.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25663.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:8AAC51042765DE0FEB1DE6B3F99A017034CBA804
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25664.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25664.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:CC4EB33EF06D2F8393C5E0F09E5AD855D9EC37DA
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25665.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25665.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:7CA5236227EE7A8F79BBB127CEAA64EAFBF810B3
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25666.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25666.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:3418B64877C7D2EB6CED70A954FF0394F249420B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25667.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25667.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:7C16FA03A06BC52C5E9066B875AB73C6178A03CC
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25668.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25668.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ mp3DirectCut 2.39 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25669.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25669.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:72EBDB5F9219610CA40677803325DF58B3B94A27
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25670.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25670.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:1B6EA1912F274E7161525E59EFFD5DE7BDD0D4C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25671.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25671.jpg" />
 </div>
 
 

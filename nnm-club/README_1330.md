@@ -6,7 +6,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.2 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34933.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.1) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34934.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:ADBAD9B72716254BD68AC7D69BFD73402FB0D982
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34935.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Xcast.tv / Трансляция на телевизор v2.3.8.2 Mod by vadj [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34936.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ OBS Studio 31.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34937.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Xara Designer Pro+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34938.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4DD428E8FD97E8A7560CF28BAA11349C6C1BDB0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34939.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Display Driver Uninstaller 18.0.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34940.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:025AB7F7BBA3DB6937EC17070D1B457AAACD23B1
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34941.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:A89F3F93AD272B04989B6973049B1F916A9A5DAF
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34942.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:2C4E9DE378A0F1866539905A7F760ACC4B1A7D96
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34943.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9CE8554529BB2981520541E97125EC63831A032E
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34944.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:4D894BC64B207D776EEA5D433A20F081F8F9CCB4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34945.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:835FEC8A37CB08DC9DA03BDC11A8A896EB53278D
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34946.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:57C6E4260303A030F30277C395420096000F9D5E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34947.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:FEAD2FD087631475B9F46D906D0641FC68458014
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34948.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.0.0/dlc) Scene Rune [P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34949.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34950.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4BB3B463847349963B6FB3726E68A651333527E8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34951.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:D5411A7CD5B78CC72547AAEAE30341A54942DD36
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34952.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:DEEAB603005C8BD7FB8CBE38633DCECECECBE2A5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34953.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Topaz Video AI 5.5.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34954.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:EFF0B508C8701E0933670F2D4BF3ACE71FCDA72A
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34955.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:EFF0B508C8701E0933670F2D4BF3ACE71FCDA72A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34956.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:3D6EDBC3D516AFB9E93836F068E3F98D39F8C6D1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34957.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34958.jpg" />
 </div>
 
 

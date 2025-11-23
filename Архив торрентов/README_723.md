@@ -1,3 +1,77 @@
+###  Публикация: 1347465   (151398) от 23.12.2019
+
+Topaz Sharpen AI 1.4.5 RePack (& Portable) by elchupacabra [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sharpen AI - это первое программное обеспечение для повышения резкости и уменьшения вибрации, которое может определить разницу между реальными деталями и шумом. Создавайте четкие изображения даже при съемке с рук, ночью или с малой глубиной резкости.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31D0C2486B34F77AA6E63D731BCFB19B92A137D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588976   (151399) от 14.12.2012
+
+Не называй меня малышкой / Barb Wire (1996) BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка охвачена второй гражданской войной. Единственным нейтральным городом остается Стил Харбор. А самое популярное место в Стил Харборе — гриль-бар «Дубовая голова». Имя его владелицы, красавицы по кличке «колючая проволока» окружено легендами. Когда эмоции в ее баре перехлестывают через край, она лично исполняет обязанности вышибалы, а вот справиться с ней не удавалось еще никому. Единственный человек о котором она заботилась — ее слепой младший брат Чарли.
+
+Но вот в городе появляется Аксель Худ. Он должен переправить в Канаду доктора Тайру Армстронг, чтобы предупредить Комиссию по перемирию о страшном биологическом оружии, которое может повлечь за собой глобальную катастрофу. Акселю нужна помощь, и он знает, что оказать ее может лишь «Колючая проволока»….Жанр: Фантастика, боевикРежиссер: Дэвид ХоганАктеры: Памела Андерсон, Темуэра Моррисон, Виктория Роуэлл, Джек Ноузуорти, Ксандер Беркли, Удо Кир, Андре Рози Браун, Клинт Ховард, Дженнифер Банко, Стив РейлсбэкПеревод: Профессиональный (многоголосый закадровый), авторский одноголосыйПродолжительность: 01:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD3ACB511B21AA26DAF7F62A8F679A1B60CB199
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270875   (151404) от 22.12.2018
+
+DVDFab 11.0.0.8 Portable (32/64 bit) by PortableAppZ [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151404.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab - программа для копирования DVD и Blu-Ray дисков на DVD5/DVD9 и Blu-Ray диски с возможностями гибкой обработки видеопотока. Утилита является одной из лучших на сегодняшний день для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами. Снимает все защиты и ограничения с диска и, при желании, пережмет диск большой емкости и вместит его в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4C8C293CCA4102FF87BCA69779CB8313669A65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347451   (151405) от 23.12.2019
 
 Topaz DeNoise AI 1.3.3 RePack (& Portable) by elchupacabra [En]
@@ -6,7 +80,7 @@ Topaz DeNoise AI 1.3.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151405.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:E27467BA9F8D86CC4716154214E61682C0453E5C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151408.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Typora 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151412.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Cent Browser 4.1.7.182 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151420.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:FF521E0182E085B7D01437142C02CECB8E33B8FB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151427.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ ElectroCalc PRO 1.2.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151467.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ magnet:?xt=urn:btih:F2667946995650EF0793D33CC504C2196F907701
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151477.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ magnet:?xt=urn:btih:F2667946995650EF0793D33CC504C2196F907701
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151478.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ IObit Uninstaller Pro 10.2.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151480.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ Movavi Video Editor Plus 2020 20.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151486.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ Emurasoft EmEditor Professional 20.4.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151490.jpg" />
 </div>
 
 
@@ -274,7 +348,7 @@ Dash 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151502.jpg" />
 </div>
 
 
@@ -298,7 +372,7 @@ magnet:?xt=urn:btih:EBA1867DEEC31BAB879F1CF83E774C7AB0753EBA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151515.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ Modern Tweaker 1.6 (DC 17.12.2022) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151519.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ magnet:?xt=urn:btih:0CF2B3B1F2F0F39A080FA1778C57D70C641327BF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151524.jpg" />
 </div>
 
 
@@ -371,7 +445,7 @@ Downie 4 v4.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151528.jpg" />
 </div>
 
 
@@ -397,7 +471,7 @@ XYplorer 21.40 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151541.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ Koan - Argonautica (2012) [MP3|320 кб/с]<Ambient, Downtempo, Ethnic Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151553.jpg" />
 </div>
 
 
@@ -453,7 +527,7 @@ magnet:?xt=urn:btih:ADCC9CB803A5E16B731C445EF1D7567DBD98901A
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151563.jpg" />
 </div>
 
 
@@ -477,7 +551,7 @@ Calibre 5.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151579.jpg" />
 </div>
 
 
@@ -501,7 +575,7 @@ Microsoft .Net Framework 14.11.23 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151602.jpg" />
 </div>
 
 
@@ -525,7 +599,7 @@ VueScan Pro 9.7.96 RePack (& Portable) by elchupacabra (DC 29.12.2022) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151611.jpg" />
 </div>
 
 
@@ -549,7 +623,7 @@ magnet:?xt=urn:btih:5A9E7235AC565006EE86CA9CE33C137D0495D6B3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151624.jpg" />
 </div>
 
 
@@ -560,81 +634,6 @@ magnet:?xt=urn:btih:5A9E7235AC565006EE86CA9CE33C137D0495D6B3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76D35072A338740CBDE8E4F09FD630E6F3E0EE2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601109   (151642) от 30.12.2022
-
-Reg Organizer 9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688B740A618A173443733CC5449738AEC0A550E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968799   (151659) от 25.12.2015
-
-VA - The Best Of Suanda True (Mixed By Universal Sense) (2015) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Terry - Odysseus (Original Mix) (6:20)
-02. Luke Terry - Magellan (Original Mix) (6:47)
-03. Universal Sense - Universe (Original Mix) (7:39)
-04. Simon O'shine ft. Eskova - You May Love (Mhammed El Alami Remix) (6:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59792597EC0F1762883CF656AD70DC28EE55459F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347520   (151667) от 23.12.2019
-
-Wise Care 365 Pro 5.4.6.542 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8A2C9711D713FFBA649F360AA47B20B33C115E
 ```
 
 

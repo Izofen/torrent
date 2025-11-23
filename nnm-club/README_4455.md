@@ -1,3 +1,78 @@
+###  Публикация: 1273279   (137752) от 31.12.2018
+
+Roy Orbison & The Royal Philharmonic Orchestra - Unchained Melodies (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137752.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unchained Melody
+2. Blue Bayou
+3. She's a Mystery to Me
+4. Heartbreak Radio(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC291E038C46146BD80066618D92F49FE4C63001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195397   (137753) от 31.12.2017
+
+СашаТаня. Новогодняя серия (2017.12.28) WEB-DL [H.264/720p-LQ]
+
+>>Отечественные сериалы
+>>Универ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Производство: Россия / "Comedy Club Production", ТНТЖанр: комедияРежиссер: Михаил Старчак, Сергей КазачанскийАктеры: Андрей Гайдулян, Валентина Рубцова, Алексей Климушкин, Елена Бирюкова, Татьяна Орлова, Андрей Лебедев, Ксения Хаирова, Олег Новиков, Сергей Рудзевич, Сергей Мурзин и др.Продолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4FA86C2731C8F96BCBE5CD919694637CB13DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349372   (137754) от 31.12.2019
+
+Comedy Woman (31.12.2019) WEB-DLRip (сезон 9, выпуск 15)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юморАктеры: Наталья Еприкян, Екатерина Скулкина, Екатерина Варнава, Мария Кравченко, Полина Сибагатуллина, Татьяна Морозова, Надежда Сысоева, Надежда Ангарская, Марина Федункив и др.Субтитры: ОтсутствуютПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEBC29E74D51188D01BC886030F4B539D8E90C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521027   (137755) от 31.12.2021
 
 Kenny G - Beautiful compilation (2019) [MP3|320 Kbps] <Instrumental>
@@ -6,7 +81,7 @@ Kenny G - Beautiful compilation (2019) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137755.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:CBA242297DE65930271501DA5451DA347E9C90D4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137756.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ magnet:?xt=urn:btih:CBA242297DE65930271501DA5451DA347E9C90D4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137758.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:DAA64F3D0D0C02025A5A41BA9F24BB2523EA7C3F
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137759.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ VA - Drum Overcome (2018) [MP3|320 Kbps] <Drum And Bass>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137760.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137761.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ magnet:?xt=urn:btih:EE26D94EEDBD73A4422053AD737277F3678907F2
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137762.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ magnet:?xt=urn:btih:6F0CEE3207A652515D4EAFD761DE8FF975593B6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137764.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ Minus One - Red Black White (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137765.jpg" />
 </div>
 
 
@@ -235,7 +310,7 @@ Saint-Preux - Compilation (2019) [MP3|320 Kbps] <Instrumental, Electronic. Easy 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137766.jpg" />
 </div>
 
 
@@ -262,7 +337,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137767.jpg" />
 </div>
 
 
@@ -286,7 +361,7 @@ magnet:?xt=urn:btih:841F918032ADCCB44470BEBDF365DDCCDB19C955
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137768.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ Radio City Fantasy: Machikado no Maerchen | Городская радио-ска
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137770.jpg" />
 </div>
 
 
@@ -338,7 +413,7 @@ magnet:?xt=urn:btih:F4C6241EB9DEFFDD11CC23D8E54EF717EA9D345E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137771.jpg" />
 </div>
 
 
@@ -362,7 +437,7 @@ magnet:?xt=urn:btih:72B81E6D990A2D1D8B2D179596F5EE0426758B58
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137772.jpg" />
 </div>
 
 
@@ -386,7 +461,7 @@ magnet:?xt=urn:btih:DF1FCC8A2F37E2D1EFC6D6A239B46DB75C0D8835
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137773.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137775.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ magnet:?xt=urn:btih:98716404496B552965385C74BE963FCAD7FC871F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137776.jpg" />
 </div>
 
 
@@ -462,7 +537,7 @@ magnet:?xt=urn:btih:4BD4084365B2D8169D693468E85F7F6B657104E4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137777.jpg" />
 </div>
 
 
@@ -486,7 +561,7 @@ magnet:?xt=urn:btih:4DDE8DB8FD245A8993E5B3540BEB08E5A0629330
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137778.jpg" />
 </div>
 
 
@@ -510,7 +585,7 @@ magnet:?xt=urn:btih:1882063B84F4F383720863C6AC84C98063E21041
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137779.jpg" />
 </div>
 
 
@@ -534,7 +609,7 @@ magnet:?xt=urn:btih:FB249343A9398913A307CE74A0936A4104D94969
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137780.jpg" />
 </div>
 
 
@@ -561,7 +636,7 @@ magnet:?xt=urn:btih:F856216B19930CA1C3BB993491FA91FBE3DDE754
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137781.jpg" />
 </div>
 
 
@@ -572,78 +647,6 @@ magnet:?xt=urn:btih:F856216B19930CA1C3BB993491FA91FBE3DDE754
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28677D849B63CDF9CA44CAD0FDD7DD3B92D3682
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195926   (137783) от 31.12.2017
-
-Aho Girl | Дурочка (2017) [FLAC|Lossless] <OST>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: OP Single, ED SingleПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2164417417C6A7437633479D6484B90539F8BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436097   (137784) от 30.12.2020
-
-Йеллоустоун / Yellowstone (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йеллоустоун – первый в мире национальный парк, одно из самых посещаемых мест в США. Но здесь, на границе цивилизации, происходит много такого, чего не видят туристы, что не освещается средствами массовой информации. Семья Даттон, главой которой является Джон Даттон, владеет огромным ранчо, сопредельным с территорией парка. На их землю претендует и сам парк, и индейская (   Читать дальше...   )Производство: США / Paramount Network, 101 Studios, Linson EntertainmentЖанр: Драма, вестернРежиссер: Тейлор Шеридан, Стефен Т. Кэй, Джон ДалАктеры: Кевин Костнер, Люк Граймс, Келли Райлли, Уэс Бентли, Коул Хаузер, Келси Эсбиль, Брекен Мэрилл, Джефферсон Уайт, Джил Бирмингем, Форри Дж. Смит и др.Перевод: Многоголосый профессиональный - LostFilmПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2188DD1DDAC5716CEB2A587E7FE06FE8CFCD6D9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521095   (137785) от 31.12.2021
-
-Любовь нас разлучит (Хочу, чтобы мы были вместе) / Wo yao wo men zai yi qi / Love Will Tear Us Apart (2021) WEB-DL [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их любовь началась в старшей школе. Но выдержит ли она испытания деньгами, домом, браком?... Смогут ли они в десятилетнем забеге на длинные дистанции вспомнить обещание, которое однажды выгравировали в своих сердцах: «Я хочу, чтобы мы были вместе».Производство: Китай, CKF PicturesЖанр: Драма, мелодрамаРежиссер: Ша МоАктеры: Цюй Чусяо, Чжан Цзинъи, Нин Сунь, Ду Цзяи, Цзинчэн Джин, Цзяхао Ли, Лян Хао, Ляо Ни, Пэй Куйшань, Цзинь ШицзяПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3445EFAE9BE71817B4F9116FC98BA742BD8F2950
 ```
 
 

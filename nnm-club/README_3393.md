@@ -1,3 +1,81 @@
+###  Публикация: 1730298   (107900) от 15.06.2024
+
+Пятеро на одного (15.06.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E7179C7249FA954E0B9EDBFEF23A4235072A4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730309   (107901) от 15.06.2024
+
+Dagoba - Different Breed (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Metal, Industrial Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genes15 [00:01:12]
+02. Arrival of the Dead [00:05:24]
+03. Distant Cry [00:03:07]
+04. Different Breed [00:05:29](   Читать дальше...   )Жанр: Groove Metal, Industrial Metal, Melodic Death MetalПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0A592553F2560023DF23E2FCC2CC8B93BDEF2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730330   (107902) от 15.06.2024
+
+Atlantis Drive - Atlantis Drive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Back When (4:21)
+02. Medusa Smile (5:16)
+03. Living For The Moment (4:43)
+04. Brand New Start (3:53)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91689DABFC33F0C448803AFADB1E8D61F79D8FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730331   (107903) от 15.06.2024
 
 Ben Sidran - Rainmaker (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -6,7 +84,7 @@ Ben Sidran - Rainmaker (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107903.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Isobel Campbell - Bow to Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107904.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Fu Manchu - The Return of Tomorrowpic (2024) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107905.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Equal Spirits - Wise and Waiting (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107906.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ magnet:?xt=urn:btih:804EA5859531B18CA65A8F21E2D8F3561F2B521D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107907.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107908.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ Strange Fruit - Once So High (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107909.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ magnet:?xt=urn:btih:500A9A252FEC1C07BE57A5D2FAFBF68098CC403F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107910.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ Golgotha - Spreading The Wings Of Hope (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107911.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ Dendera - Mask Of Lies (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107912.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ In Vain - Currents (2018) Limited Edition, Indie Recordings [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107913.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ Zsela - Big For You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107914.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ Mariah Carey - Rainbow (1999) 25th Anniversary Expanded Edition, 2024, Columbia 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107915.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ magnet:?xt=urn:btih:C7F4F1348C9B37289C51DCF02CDD488F41992B2E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107916.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ magnet:?xt=urn:btih:99464430167130B425A4AEF205DB16FFDCC3EE32
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107917.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ Eduardo Cardinho - Not far from paradise (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107918.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ magnet:?xt=urn:btih:F49DF0E7C27057E18B29D1D1D22A194C54AAFF5D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107919.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ Little Feat - Feats Don't Fail Me Now (1974) Deluxe Edition, 2024, Warner Record
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107920.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ magnet:?xt=urn:btih:1FF0A850EF68E8472CA0AEA318505D0DFE20D4E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107921.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ magnet:?xt=urn:btih:CDEC0670A173659EFB5C7078E137BF89613AF969
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107922.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ magnet:?xt=urn:btih:4AEAB438C73DA504261CCEC284424396A4C389EC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107923.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ magnet:?xt=urn:btih:6F0ADC541D5B88442BCEFB75AD631C20EB9509F0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107924.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Bob Recchione - Waited Too Long To Start (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107925.jpg" />
 </div>
 
 
@@ -598,86 +676,6 @@ Bob Recchione - Waited Too Long To Start (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66516C663183AE6AF250E43AE2DB075F2D3E0C00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730354   (107926) от 15.06.2024
-
-Михаил Лермонтов | Начальная школа (Часть 4). Поэзия (2012) [MP3, Алексей Борзунов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
-Серия аудиокниг ««Начальная школа» – программа изучения русской литературы, рекомендованная Министерство просвещения Российской Федерации.
-Поэзия Михаила Юрьевича Лермонтова.
-(   Читать дальше...   )Жанр: Русская литература для детей, классика, поэзияИздательство: ЭЛЬ-рекордсПродолжительность: 02:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26F6DEDBF9983B5A175B520DD633B7CCFAACC01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730422   (107927) от 15.06.2024
-
-Своя игра (15.06.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107927.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
-
-В третьем круге юбилейного турнира примут участие 9 игроков — каждого из них ждёт (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE628C48F68B2A9D0272F63F5C9C2DC78727427B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730411   (107928) от 15.06.2024
-
-Marius Acke, Rubba J, Enice Mokamba - Deepwater Sessions No. 3 (2010) Remastered, 2024, iM Electronica [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep House, Funk, Soul, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Coming Over [00:03:34]
-02. Let's Go out Dancin [00:06:16]
-03. Bricks Don't Fall [00:05:31]
-04. You Keep Steppin [00:04:20](   Читать дальше...   )Жанр: Deep House, Funk, Soul, JazzПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B556FF512420BA000C8998FCC54197D0BDED7FF
 ```
 
 

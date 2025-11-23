@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23737.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F5CEBAAA8F73D39716500F7BD4B4C4F018408107
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23738.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23738.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7220D74F80E9DF74B815CFAA867257A7AFA6DB4D
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23739.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23739.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:36A48811D6717E6C1365AA3087A816E64620470A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23740.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23740.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23741.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23741.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Paint.NET 5.1.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23742.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23742.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:DD6D43E5AB01880C047F003CA74471F1F0144A9A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23743.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23743.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:5C9BF68AF20144B9B76CEF0A11A8C56103D4B068
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23744.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23744.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.4.5 Gold 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23745.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23745.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:3A44ADAD17A583C6DFBE4E2C8CA7CCD1E839B49F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23746.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23746.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:502FE47B5CC026D7F8C679F50B3237B352061A74
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23747.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23747.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:ADBD9015ACDC4719EB532D4C069D5C5026624956
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23748.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23748.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The LEGO NINJAGO Movie Video Game (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23749.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23749.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:420F8DDBE8309F0B3D63AD011873B28D792E7C0A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23750.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23750.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:0473CB5A6FF019F3B4AD37165C1031A83A7B16AF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23751.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23751.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:B525063ABFAB117C9BE979CDB30C44DBE231DD26
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23752.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23752.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:08BBAD94B0EF697D1DB9D8E4D89AD3E207D3EC82
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23753.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23753.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:3B5436F92388801C03B033E6CA0AAB96EE1C6677
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23754.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23754.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:B951C05A800AED1BE68C835B2449F7A1F5736365
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23755.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23755.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7C7C2A0FF27344896AB8C1118ACB0EFF6952B0F4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23756.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23756.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:684E1BD8859A5AA1D972A6DAD0C3F18DFFE572CA
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23757.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23757.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Cockos REAPER 7.35 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23758.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23758.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:23BDB7EA669FC9881BF2B49B3D35A367E9BFC8A1
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23759.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23759.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.3.21) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23760.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23760.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6F38D53DE843DD136FC863D3531562304A9528D2
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23761.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23761.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23762.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23762.jpg" />
 </div>
 
 

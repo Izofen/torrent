@@ -1,3 +1,84 @@
+###  Публикация: 1746321   (104936) от 30.08.2024
+
+Drakkar - Spread Your Wings (2024) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thunderhead (04:21)
+ 02 - Spread Your Wings (04:44)
+ 03 - Knife in the Dark (05:19)
+ 04 - Ode to Polaris (04:18)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E0EFD3F38C9DA5230621F1B01FE26D44D73871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746327   (104937) от 30.08.2024
+
+Mura Masa - Curve 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <electronic, future bass, house>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whenever I Want [00:04:29]
+02. gimme [00:06:38]
+03. We Are Making Out [00:02:50]
+04. SXC [00:03:58](   Читать дальше...   )Жанр: electronic, future bass, houseПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3FBFA14B369406F74A0B568D04170C821B1BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746245   (104938) от 30.08.2024
+
+Vasti Jackson - Royal American Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo Boogie (3:09)
+02. My Sunshine My Rain (3:51)
+03. Hard Man (3:47)
+04. Online Love Affair (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63F26FA98C3E0105DD84B99C3D5D8E8BDDD9795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746246   (104939) от 30.08.2024
 
 Smoke 'N' Flame - Speed Of Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +87,7 @@ Smoke 'N' Flame - Speed Of Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104939.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Palaye Royale - Death or Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104940.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Tanzwut - Achtung Mensch! (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104941.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Deluxe Version [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104942.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Kehlani - While We Wait 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Funk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104943.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Iamx - Fault Lines² (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <dark electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104944.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Iamx - Fault Lines¹ (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <dark electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104945.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Overwound - Attitudes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104946.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Shemekia Copeland - Blame It On Eve (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104947.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Antonio Vergara - The Fury (2024) [APE|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104948.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Fiona Cosgrove - Fiona Cosgrove Introspective (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104949.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Haken - Studio Albums (9 releases) (2008-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104950.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ magnet:?xt=urn:btih:C72B77356158E8A1E5CB16ED7FF8C553841AB3A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104951.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ magnet:?xt=urn:btih:37F0928E1FA75A7390FB4F3055D42859108F3BE9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104952.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ magnet:?xt=urn:btih:737F91CA5310652FDB0D9A23E2C0E7B9C322CEC4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104953.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ magnet:?xt=urn:btih:BAA6C67A0DEE99F5248685E8647B2BBAAF665451
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104954.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ Duke Robillard - Roll With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104955.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ magnet:?xt=urn:btih:1E9E66FBC598933974051B01867988CF2AE54C1A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104956.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ magnet:?xt=urn:btih:BBAD8FF1CC2DF6D6295E353D6E888EC0D34CF640
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104957.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ FireAlpaca 2.12.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104958.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ The Deadbeat Cousins - Get By (With Me) (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104959.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ magnet:?xt=urn:btih:9CE51D5DD962554CF17FC81A8200482E6CDFD3C2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104960.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ magnet:?xt=urn:btih:9AA3A2EAF341537134293FC6320452540B50DF0A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104961.jpg" />
 </div>
 
 
@@ -602,81 +683,6 @@ magnet:?xt=urn:btih:9AA3A2EAF341537134293FC6320452540B50DF0A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E372984057A06F675C36629D593E57D3BA7F7579
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746296   (104962) от 30.08.2024
-
-1987. Когда наступит день / 1987. When the Day Comes (2017) BDRip [H.264] [ AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104962.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 января 1987 года студент сеульского университета Пак Чон-чхоль был до смерти замучен на полицейском допросе. Причины его гибели пытались скрыть, подделав заключение о смерти, но правда всё равно стала достоянием общественности. Это послужило катализатором массовых протестных выступлений, известных как Июньское демократическое движение. Результат — проведение первых (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, Woojeong FilmЖанр: драма, биография, историяРежиссер: Чжун Хван ЧанАктеры: Юн Сок Ким, Чон У Ха, Хэ Чжин Ю, Тэ Ри Ким, Хи Сун Пак, Ый Сон Ким, Хи Чжун Ли, Чжон Су Ким, Даль Су О, Чан Сок Ко, Сон Гын Мун, У Хён, У Джин Чо, Чжи Хван Пак, Сын Мок ЮПеревод: авторскийЯзык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083197F67476D51FC602622F819A08CE221214AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746239   (104963) от 30.08.2024
-
-Журнал | ТЕХСОВЕТ премиум №7-8 (226) (июль-август 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104963.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ТЕХСОВЕТ премиум»— путеводитель по эффективным техническим решениям. Широкий спектр производственно-технических публикаций по актуальной тематике: нефтегазовый комплекс, энергохозяйство предприятия, энерго- и ресурсосбережение, технологии металлообработки, импортозамещение, логистика и складское оборудование, информационные технологии и связь.Жанр: Информационно-рекламное изданиеИздательство: ИП Гайдукова Н.А.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC17DCB61EA21D18492E9E44808F9701EFAD10B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746317   (104964) от 30.08.2024
-
-V.A. - Italian Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zerosospiro - Conversazione
-02. Papik, Frankie Lovecchio, Stefy Gamboni - Questione Di Feeling
-03. Papik, Danny Losito - Pregherò
-04. Soulstance, Melania - Je Sto Vicino A te(   Читать дальше...   )Жанр: Nu Jazz, Pop JazzПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93A03BC697B82C349172321BE6A16C78CFA4F09
 ```
 
 

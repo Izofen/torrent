@@ -6,7 +6,7 @@ Jetbrains WebStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212489.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212489.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JetBrains RubyMine 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212499.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212499.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ JetBrains PyCharm Professional 2025.2.4 (x64-arm64) Repack by IFE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212505.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212505.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ JetBrains PhpStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212514.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212514.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ JetBrains GoLand 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212521.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212521.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212527.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212527.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ WYSIWYG Web Builder 17.3.1 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213146.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ JetBrains Rider 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213478.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213478.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ CSoft WiseImage Pro Standalone 22.0.1741 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214346.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214346.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Intel Parallel Studio XE 2017 Update 1 Cluster Edition [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215369.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215369.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219587.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219587.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Developer Express VCL for Delphi 14.2.2 Full Sources для IDE Delphi 7 - XE7 [
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221595.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221595.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ IBM Rational Software Architect 9.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223031.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223031.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ MInstAll by StartSoft Lite 09-2020 [Ru/En]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228296.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228296.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Geomagic Control X 2020.1.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230450.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230450.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231260.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231260.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Microsoft Endpoint Configuration Manager 2203 [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232838.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232838.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ GameMaker 2022.8.1.37 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232958.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232958.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ PeStudio 9.43 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232967.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232967.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Turbo Studio 22.9.6 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232980.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232980.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Resource Tuner Business 2.23.0.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233584.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233584.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Altair SimLab 2022.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236468.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236468.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Blumentals Rapid PHP 2022 17.3.0.244 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239779.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239779.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ IDM UltraCompare Pro 22.20.0.26 / UltraEdit 29.1.0.90 Portable by AlexYar [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241100.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241100.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Code Composer Studio 12.2.0.00009 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241408.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241408.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Lahey/Fujitsu Fortran 7.9 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243389.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243389.jpg" />
 </div>
 
 

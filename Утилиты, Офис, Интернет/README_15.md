@@ -6,7 +6,7 @@ Microsoft PowerToys 0.91.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17705.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PowerISO 9.1 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18156.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ant Download Manager Pro 2.15.6 Build 90962 RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18254.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Duplicate File Detective 7.3.88.0 (x64) Enterprise [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18521.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ExtraDisks 25.5.1 Home [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18525.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ IObit Smart Defrag Pro 10.4.0.441 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18548.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.6.3  + Portable  [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18623.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ WinSCP 6.5.1 Build 16311  + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18627.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r26 Portable by Ratiborus [Multi/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18697.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Draw.io 27.0.2 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18707.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PdfFactory Std & Pro 9.12 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18711.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Tablacus Explorer 25.5.9 Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18720.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ BalenaEtcher 2.1.2 + Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18743.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FinePrint 12.12 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18760.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Tixati 3.35.1 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18765.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ EF Commander 25.08 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18938.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ HomeBank 5.9.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19146.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Mirillis Action! 4.45.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19147.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Free Download Manager 6.27.0.6265 x64 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19177.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Auslogics Registry Cleaner Pro 11.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19179.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Auslogics Driver Updater 2.0.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19187.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ GeoGebra 6.0.885-1 Classic + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19231.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ QOwnNotes 25.5.3 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19234.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ HDCleaner 2.091 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19257.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Joplin 3.3.12 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19265.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Icecream Screen Recorder PRO 7.44 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19279.jpg" />
 </div>
 
 

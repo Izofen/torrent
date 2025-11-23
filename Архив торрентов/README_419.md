@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97255.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97256.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97258.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97259.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97261.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97262.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97263.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97264.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97265.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97266.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97267.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97268.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Patе de Fuа - Boquita Pintada (2011) [MP3|320 кб/с]<Ethnic Jazz, Easy Liste
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97272.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Overkill - The Electric Age (2012) [MP3|~245 кб/с (V0)]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97274.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97275.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97276.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - The Dance Cube XXXX 2CD (2011) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97277.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Artёm Puchkoff & Sasha Fresh - Jam Sation vol.1 (2012)/2012, Resonanse Records/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97278.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97279.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97281.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97282.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97284.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97285.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:5F398CC1D2919493682A653306DD499FE3908648
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97286.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:FE8360E46310E8B9BA1433536CE0EFEB046AC2A9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97287.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ magnet:?xt=urn:btih:38135ED9BB938218C94DD9B060E01F1191A91FD8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97288.jpg" />
 </div>
 
 

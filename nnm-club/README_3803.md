@@ -1,3 +1,79 @@
+###  Публикация: 1697104   (118560) от 08.02.2024
+
+Demon Seizure - Murder Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Groove>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirst [00:03:33]
+02. Servants of the Moon [00:03:55]
+03. Entering the Telepod [00:02:33]
+04. Venom Trip [00:03:45](   Читать дальше...   )Жанр: Stoner Metal, GrooveПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E568324C8F9A25607FC42664FE2E861458DEC9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698162   (118561) от 08.02.2024
+
+Smart Converter Pro 3 v.3.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Converter Pro - Просто и эффективно конвертируем медиафайлы
+Smart Converter позиционируется разработчиками из компании Systemic Pty Ltd как «умный» и мощный конвертер аудио- и видео для всей линейки apple-устройств, а также ряда других девайсов, причем вся его мощь скрыта от пользователя — последнему остается нажать только пару кнопок, для того чтобы начать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: © 2024 Systemic Pty LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5A1B6EADD8BF43B3EC34E4EB8BFE953C359C35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698291   (118562) от 08.02.2024
+
+Keep It 2.4.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02722D8F479C738F893CB585E0CF615FBE9903DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698152   (118563) от 08.02.2024
 
 Notebooks – Write and Organize 3.3.6 [En]
@@ -6,7 +82,7 @@ Notebooks – Write and Organize 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118563.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Blocs 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118564.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ magnet:?xt=urn:btih:9A50BAFC1502757B22A239807EB45456A05213D4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118565.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:843608C2E9BEF16D895D40360FD1E2FDE3E5121F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118566.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ magnet:?xt=urn:btih:263C338E78F3B56EB185354D03BB2A9B805BF427
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118567.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.14.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118568.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ Symphony Of Sweden - Haunted (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118569.jpg" />
 </div>
 
 
@@ -180,7 +256,7 @@ Capture One 23 Enterprise 16.3.5.10 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118570.jpg" />
 </div>
 
 
@@ -205,7 +281,7 @@ magnet:?xt=urn:btih:1E3BBF5291EF2E1E07DECBA0DF3585F5BD44B68B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118571.jpg" />
 </div>
 
 
@@ -229,7 +305,7 @@ Last In Time - Too Late (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118572.jpg" />
 </div>
 
 
@@ -256,7 +332,7 @@ FonesGo Location Changer for Mac 7.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118573.jpg" />
 </div>
 
 
@@ -280,7 +356,7 @@ Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118574.jpg" />
 </div>
 
 
@@ -307,7 +383,7 @@ magnet:?xt=urn:btih:F1E78F20A51F1EB79B767C09B91E41A58035F5D8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118575.jpg" />
 </div>
 
 
@@ -331,7 +407,7 @@ magnet:?xt=urn:btih:09848C200A17EFCE96F89A79E172E6D7A7DDB142
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118576.jpg" />
 </div>
 
 
@@ -355,7 +431,7 @@ magnet:?xt=urn:btih:09848C200A17EFCE96F89A79E172E6D7A7DDB142
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118577.jpg" />
 </div>
 
 
@@ -379,7 +455,7 @@ magnet:?xt=urn:btih:9A1ECC953EC942F01D343A3B14AC6A4B0FB4EE17
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118578.jpg" />
 </div>
 
 
@@ -405,7 +481,7 @@ magnet:?xt=urn:btih:783ABF823CDC27A375D1F2B09AFE81BB0D7F2115
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118579.jpg" />
 </div>
 
 
@@ -430,7 +506,7 @@ In Vain - Back To Nowhere (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118580.jpg" />
 </div>
 
 
@@ -457,7 +533,7 @@ Movie Thumbnails Maker 4.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118581.jpg" />
 </div>
 
 
@@ -481,7 +557,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118582.jpg" />
 </div>
 
 
@@ -506,7 +582,7 @@ Vintage Culture - Live @ Thunder Machine, Passio das Aguas, Goiania, Brazil (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118583.jpg" />
 </div>
 
 
@@ -533,7 +609,7 @@ SILKYPIX JPEG Photography 11 v.11.2.14.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118584.jpg" />
 </div>
 
 
@@ -557,7 +633,7 @@ Ocenaudio 3.13.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118585.jpg" />
 </div>
 
 
@@ -568,78 +644,6 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6E4D529FE58C1550AE70DDED2086E522445E7D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698354   (118586) от 08.02.2024
-
-Icecream PDF Editor Pro 3.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92A27B9FAA566E64360A7AEEEFB29BDFE8D4FA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698310   (118587) от 08.02.2024
-
-Lucky Patcher 11.1.6 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lucky Patcher (Лаки патчер) – отличное решение если вам вдруг нужно вырезать лицензию из приложений. Некоторые игры и программы имеют стандартный код взаимодействия с Google Play, но при этом очень сильные инструменты защиты от изменения. Лаки патчер сканирует ваше устройство и собирает информацию про все установленный приложения, а потом сортирует их в удобные списки, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 30.01.2024Разработчик: ChelpuSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B56D07213D7927C9038A1C400308F7E90FB6D93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698251   (118588) от 08.02.2024
-
-Хавьер Кастильо | Снежная девочка (2023) [MP3, Анастасия Тереля]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк. 1998 год. Парад в честь Дня благодарения. Аарон Темпелтон всего на секунду выпустил руку своей дочери. В следующее мгновение ее уже не было рядом. Полиции удалось найти лишь одежду и отрезанные волосы девочки. Никаких следов. Никаких улик. Ни одного свидетеля. Кира как будто растворилась в воздухе. История наделала много шума в СМИ, и начинающая журналистка (   Читать дальше...   )Жанр: детектив, триллерИздательство: INSPIRIAПродолжительность: 11:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A4D2F7BB24A9F1A48916485214111ACFD359CB
 ```
 
 

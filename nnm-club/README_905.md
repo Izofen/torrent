@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23867.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23867.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Bass Defense: Rhythm Meets Strategy (2024) [Mutli] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23868.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Gigapixel AI Pro 8.3.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23869.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23869.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3605A13A35A49463314E7E5D0887FB078A380FBF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23870.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23871.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:71765E9B5B540DF7C78E5EA539F824115D456FBB
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23872.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23872.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Proprofiling, Алексей Филатов | Практикум по профа
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23873.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8E941A7F0247DA55F936E49C7454A2171FF90E8D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23874.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23874.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23875.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ inPixio Photo Editor 10.5.8103 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23876.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23876.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Lost Lands X / Затерянные земли Х (2025) [Ru] (1.0) Unofficial [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23877.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:852A33141259EBA76062BEAA04241B4C65ABF4F2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23878.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23878.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ iDownerGo Video Downloader 10.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23879.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23879.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:1955DD1D2F0D2677D827462A0DF61542896A7AD4
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23880.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23880.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:BAF6B1751A6F22858B2E460745E8F22F85AB0ACA
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23881.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:3CCDD982645458367B91E065F3F4A8B991154160
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23882.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:7E9318F74FD879C6C8187E30F2046367FC220554
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23883.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:8FE722F017867CFF4F89D2D93A7EF391CFDBE6A4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23884.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:1F63F8E02D81ECACBF11749EF89D71087A2FD282
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23885.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:BE8FD3781F5C55411E69B456BD358D799C984DF7
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23886.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23887.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23888.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:54C28C08B9C91A5065EC5E37B2605B7BAE490698
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23889.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:ADDFC456C0E552FA98636FBA472195AEFCBE7D00
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23890.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ SoftMaker Office Professional 2024 rev. S1224.0308 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23891.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ v2rayN 7.10.5 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23892.jpg" />
 </div>
 
 

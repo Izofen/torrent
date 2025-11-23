@@ -1,3 +1,75 @@
+###  Публикация: 1691955   (123032) от 14.01.2024
+
+Побег из курятника: Рассвет наггетсов / Chicken Run: Dawn of the Nugget (2023) WEB-DLRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершив фееричный побег с фермы, где свирепствовала жестокая хозяйка, главные герои нашли убежище на отдалённом острове, где нет людей. Здесь они живут счастливой и беззаботной жизнью. Но неожиданно на горизонте появляется новая опасность и птицам снова придется встать на свою защиту…Производство: Великобритания, США, Франция / Aardman Animations, Netflix Animation, PathéЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Сэм ФеллПеревод: дублированный (Flarrow Films), профессиональный многоголосый (TVShows)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E75BE5AE8E9478A2ECE9F2FACBBCCC86F9F2D33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677761   (123033) от 14.01.2024
+
+Монарх: Наследие монстров / Monarch: Legacy of Monsters (2023) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 1, серии 1-10 из 10) NewComers
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пережив нападение Годзиллы на Сан-Франциско, Кейт в очередной раз потрясена шокирующей тайной. Она отправляется в путешествие по миру, чтобы узнать правду о своей семье и таинственной организации, известной как «Монарх».Производство: США, Япония / Legendary Television, Safehouse Pictures, Toho Company, Warner Bros. DiscoveryЖанр: фантастика, боевик, приключенияРежиссер: Майрзи Алмас, Джулиан Холмс, Хироми КаматаАктеры: Кристофер Хейердал, Мари Ямамото, Джесс Салгейру, Кёко Саито, Доминик Типпер, Сёта Цудзи, Курт Рассел, Джош Коллинз, Чарли Хьюсон, Дзюнъити ТадзириПеревод: Многоголосый профессиональный (NewComers)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9095D4A01517E3097B0A6DA15FD6C0855C8645
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521222   (123034) от 14.01.2024
+
+First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начав игру с парой крестьян и небольшим запасом ресурсов, вы сможете превратить своё маленькое поселение в настоящий средневековой замок. Занимайтесь строительством, обработкой ресурсов, сельским хозяйством, производством снаряжения, торговлей, а также развитием науки — самостоятельно или отдавая приказы подданным. Жадные до наживы разбойники будут регулярно совершать (   Читать дальше...   )Тип издания: LicenseРазработчик: Harpoon GamesЖанр: Стратегия, Строительство, ВыживаниеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE1F00A8428FCC8DDBF45C8F08401D36FAD353A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 241000   (123035) от 14.01.2024
 
 На несколько долларов больше / Per qualche dollaro in piu / For A Few Dollars More (1965) BDRip [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123035.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:D28707B300D03C51A1D0B1F06EE0190CAE69E2D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123036.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:D28707B300D03C51A1D0B1F06EE0190CAE69E2D8
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123037.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Stellar Tactics (2016) [Ru/Multi] (0.724) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123038.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:294F52AF5C406344DD41CDD07F653C0657199205
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123039.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:EB91FA5CD225BAA403FB4998C68704AE85798235
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123040.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ The Clamps - Megamouth (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123041.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:A0B2429A10B3A62B04C0A7CAA2F4072858B53640
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123042.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ Depraved Entity - Angels of Sin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123043.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123044.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ Serocs - Vore (2020) EP [FLAC|Lossless|image + .cue] <Brutal Technical Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123045.jpg" />
 </div>
 
 
@@ -283,7 +355,7 @@ Serocs - The Phobos / Deimos Suite (2018) [FLAC|Lossless|image + .cue] <Brutal T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123046.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ MarsEdit 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123047.jpg" />
 </div>
 
 
@@ -334,7 +406,7 @@ Noir – Dark Mode for Safari 2024.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123048.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123049.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ Alluvial - Death Is But A Door (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123050.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ SiteSucker 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123051.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ Boxy SVG 4.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123052.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ Serocs - The Next (2013) [FLAC|Lossless|image + .cue] <Brutal Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123053.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ Serocs - Oneirology (2012) Demo [FLAC|Lossless|tracks] <Brutal Technical Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123054.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ Serocs - And When the Sky Was Opened (2015) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123055.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ Triple Kill - Studio Albums (3 releases) (2017-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123056.jpg" />
 </div>
 
 
@@ -570,7 +642,7 @@ Alan Zimmerman - Standards - Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123057.jpg" />
 </div>
 
 
@@ -584,80 +656,6 @@ Alan Zimmerman - Standards - Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD0B23862FD99BF9CBDC6E53277150E218F160D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691639   (123058) от 13.01.2024
-
-И.С. Шмелёв | Богомолье (2007) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Русская классика.
-Иван Сергеевич Шмелёв (1873–1950) – великий русский писатель, публицист, православный мыслитель, чье имя долгое время было под запретом. Он писал удивительные тексты, в которых размышлял о судьбе страны, представитель консервативно-христианского направления русской словесности.
-Созданная в 1930-1931 годах автобиографическая проза (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: Студия «АРДИС»Продолжительность: 06:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D645BB309551C780BE8D191EBBFEE6906475930C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691685   (123059) от 13.01.2024
-
-Proxyman for Mac 4.16.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proxyman — это современное и интуитивно понятное приложение HTTP Debugging Proxy. Не позволяйте громоздким инструментам веб-отладки сдерживать вас. С родным приложением Proxyman для macOS вы можете с легкостью захватывать, проверять и манипулировать трафиком HTTP(s).Тип издания: macOS SoftwareРелиз состоялся: 07.01.2024Разработчик: © 2024 Proxyman LLCПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71CCAF61F38D997C250569A1C54BBC7BF476FEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691626   (123060) от 13.01.2024
-
-iON: Internet Status 5.7 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите статус подключения вашего интернет-соединения прямо из строки меню. Эта утилита добавляет аккуратный цвет (зеленый/красный) значок в строке меню, который позволяет узнать статус соединения - (внешний/внутренний IP, скорость загрузки и т.д.).Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D43163591E0EC8757EB3B4EB1669D37841E372E
 ```
 
 

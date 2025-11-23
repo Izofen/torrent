@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16353.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:56671356A5D94806CF6E954D5372D1415D9D6A23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16354.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.14.400 Mo
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16355.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Process Lasso Pro  15.1.1.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16356.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5315C76BE5BE8A5ECDFC4F7A3AD8D17EDC0B818D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16357.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Eminem - Compilation (1996-2024) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16358.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CC0A5AFAE19255DFE88C95A1ADE2783C15F52148
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16359.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7AE2B43CB9AA15D7369788212E74D95270329F38
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16360.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ XnView MP 1.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16361.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.9.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16362.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ TreeSize Professional 9.5.0.2102 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16363.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ LogViewPlus 3.1.22 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16364.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:358FCBAC355A8A4B4CE7503560540381226D82A2
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16365.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:5141EE904F18A9B1A3EC2E9FC2F9042C74152916
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16366.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Techno Bunker 5 (2025) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16367.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Softany WinCHM Pro 5.55 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16368.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ R-Studio Network 9.5 Build 191510 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16369.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:7247395B8E746E7864AFC4E7FAB7E0C2E1D5BF85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16370.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:7247395B8E746E7864AFC4E7FAB7E0C2E1D5BF85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16371.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:2B1B8AE769547C13FA27619EAB49B1C70EBF291A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16372.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Allavsoft Video Downloader Converter 3.28.1.9278 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16373.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:702BCFB09F5B6779EC221A8BCD3D2923BCB233B8
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16374.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:1F796C59F49727B8EB49BC0A2C330E36B9FD6724
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16375.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:3E8B3422D16D6A307A1C676D249B91476F136091
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16376.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:4D5CCF801A50BBD7BFFB7DCC9BF9B81C4FEA709B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16377.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16377.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Ascold Flow | Релокант в другой мир (Книга 10). #RealRPG.
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16378.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16378.jpg" />
 </div>
 
 

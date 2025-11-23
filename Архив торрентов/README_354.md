@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85046.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85048.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Comodo Dragon 18.0.3.0 Final + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85059.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Comodo Dragon - это новый браузер, использующий по�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85065.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A61CE5D999B7853C752C829E34E611F7872B4356
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85071.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:A61CE5D999B7853C752C829E34E611F7872B4356
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85073.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:552169C3FD8DFEE8718B0B303F3DE8304BE6B8C7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85077.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Deity (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85080.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ AIDA64 Extreme Engineer Edition l Business Edition 2.30.1900 Final Portable by P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85081.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AIDA64 (бывший Everest) — мощная утилита для тести�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85082.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:3112B8722EB173BAE9406BD3B46B496782D8E6A6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85089.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:D7202A54E5FD1055AE369ED5F1A041E019F09109
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85094.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:524DD92CDEF233F52D30F1B6853F7C159CE50019
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85102.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:524DD92CDEF233F52D30F1B6853F7C159CE50019
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85105.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:524DD92CDEF233F52D30F1B6853F7C159CE50019
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85109.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:524DD92CDEF233F52D30F1B6853F7C159CE50019
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85114.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:2FA0E4119A9717C5AF6E4C70476377FCE586ECCA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85115.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:2FA0E4119A9717C5AF6E4C70476377FCE586ECCA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85116.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Total Commander SE v.8.0 beta 23 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85120.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Total Commander SE v.8.0 beta 23 [Русский]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85123.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wondershare Video Converter Ultimate 5.7.6.2 + Portable by BALISTA [Мульти
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85124.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Wondershare Video Converter Ultimate - представляет собой по�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85129.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Wondershare Video Converter Ultimate - представляет собой по�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85136.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Syphon Filter [PS1] [NTSC] [RUS] [Vector] (1999)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85138.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:4DBBFFAED08628D817A127F4FF9E7B324EEE6AF3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85139.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:4DBBFFAED08628D817A127F4FF9E7B324EEE6AF3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85142.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1705375   (113932) от 08.03.2024
+
+Календарь рабочих смен v2.0.6.8 Mod by Timozhai [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение предназначено для рабочих смен и людей, которым необходимо организовывать свою повседневную работу, чтобы не пропустить ни одной встречи.
+Вы можете быстро и легко контролировать ваш рабочий день и ваши доходы благодаря нашей статистической системе.Тип издания: ProРелиз состоялся: 23.12.2023Разработчик: LRHSoftПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454CF4CB10C763E458A4E972FAD1C21FF90EEE89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705436   (113933) от 08.03.2024
+
+Не смотри туда / Don't Look Away (2023) WEBRip [H.264] [звук с ТS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113933.jpg" />
+</div>
+
+
+###  Подробнее
+
+После ужасной автомобильной аварии Фрэнки пытается убедить друзей, что произошедшее не было случайностью. Она уверена, что в аварии виновата чудовищная сущность, которая теперь преследует ее. Друзья поднимают девушку на смех, но вскоре они начинают погибать. Ужасная особенность в том, что все, кто хоть раз увидит это создание, обречен на ужасную смерть. У Фрэнки (   Читать дальше...   )Производство: Канада / 	IndustryWorks StudiosЖанр: ужасыРежиссер: Майкл БафароАктеры: Келли Бастард, Майкл Миттон, Колм Хилл, Рене Лаи, Абу Дукули, Бриттани Пилгрим, Софи Том, Джейсон Хейни, Ванесса Ностбаккен, Майкл БафароПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:09Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B557F5F5E70137B4F38B3FBD9B54B576784F2451
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705459   (113934) от 08.03.2024
+
+LibreOffice 24.2.1.2 Stable Portable by PortableApps [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113934.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F6B36C7D115C16A058428198F62E4732465F93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705295   (113935) от 08.03.2024
 
 К.Н. Бальский | Почему они убивали (2023) [MP3, Павел Ломакин]
@@ -6,7 +79,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113935.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113936.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Skeletal Remains - The Entombment Of Chaos (2020) Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113937.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ Alfred PowerPack 5.5 Beta 2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113938.jpg" />
 </div>
 
 
@@ -107,7 +180,7 @@ Eddie "Lockjaw" Davis - On Prestige (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113939.jpg" />
 </div>
 
 
@@ -134,7 +207,7 @@ Stephane Grappelli - Parisian Thoroughfare (1973) 1989, Black Lion [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113940.jpg" />
 </div>
 
 
@@ -161,7 +234,7 @@ Scott Hamilton - Plays Ballads (1989) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113941.jpg" />
 </div>
 
 
@@ -188,7 +261,7 @@ Soulver 3 v.3.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113942.jpg" />
 </div>
 
 
@@ -213,7 +286,7 @@ Tim Hegarty - Tribute (2014) Miles High Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113943.jpg" />
 </div>
 
 
@@ -240,7 +313,7 @@ magnet:?xt=urn:btih:ABB05D1F1C6762DD25410B7BAFDF8C65A7782816
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113944.jpg" />
 </div>
 
 
@@ -266,7 +339,7 @@ Branford Marsalis Quartet - Crazy People Music (1990) CBS [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113945.jpg" />
 </div>
 
 
@@ -293,7 +366,7 @@ Barry Harris - Live at Maybeck Recital Hall, Vol. 12 (1991) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113946.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ Lionel Hampton - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113947.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ Cedar Walton Trio - Ironclad (1989) 1995, Monarch Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113948.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113949.jpg" />
 </div>
 
 
@@ -398,7 +471,7 @@ magnet:?xt=urn:btih:CCA7CE9397390EF5F05D0DEF4E32B7842A106A52
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113950.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ magnet:?xt=urn:btih:5E5A8651CEE213F0F245C70FA65C65C9CA6EFFA0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113951.jpg" />
 </div>
 
 
@@ -452,7 +525,7 @@ Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113952.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ Disk Graph 3.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113953.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ Dynamic Wallpaper Engine 17.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113954.jpg" />
 </div>
 
 
@@ -527,7 +600,7 @@ ToothFairy 2.8.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113955.jpg" />
 </div>
 
 
@@ -552,7 +625,7 @@ Navicat Data Modeler Essentials for Mac 3.3.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113956.jpg" />
 </div>
 
 
@@ -577,7 +650,7 @@ magnet:?xt=urn:btih:A736549B5BA1CDBC400CE36BF0DC1BE4B7DECB98
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113957.jpg" />
 </div>
 
 
@@ -591,82 +664,6 @@ magnet:?xt=urn:btih:A736549B5BA1CDBC400CE36BF0DC1BE4B7DECB98
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A400B98EE50EDE89998296BF4E1C946AD24CC8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705087   (113958) от 07.03.2024
-
-Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Думаю до понедельника) (1990) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Modern Age Rock'N'Roll
-01.Сегодняшний рок-н-ролл (муз. и сл. Дж. Стингрэй и Б. Гребенщикова)
-Give Me Some More Of Your Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D277D22A0677288779972C0B5462A169EC6B728
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705070   (113959) от 07.03.2024
-
-PopChar for Mac 10.0 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш Mac включает более чем 700 шрифтов, каждый из которых содержит тысячи знаков - Почему бы не сделать их максимально доступными?Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 Ergonis SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705191   (113960) от 07.03.2024
-
-Очарование Флориды / A Florida Enchantment (1914) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот своеобразный и веселый фильм основан на романе 1891 года и пьесе 1896 года (не сохранившейся) с тем же названием, написанных Фергюсом Редмонтом и Арчибальдом Гюнтером.
-В фильме Лилиан Трэверс, богатая женщина с севера, собирающаяся выйти замуж, получает волшебные семечки, которые способны превращать своего владельца в человека противоположного пола. И не столько (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: комедия, немое киноРежиссер: Сидни ДрюАктеры: Сидни Дрю, Эдит Стори, Чарльз Кент, миссис Сидни Дрю, Ада Гиффорд, Этель Ллойд, Лиллиэн Барнс, Грэйс Стивенс, Аллан Кэмпбелл, Cortland Van DeusenПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61C3127AEDAF3875712D99EBFA36DCD0214C971
 ```
 
 

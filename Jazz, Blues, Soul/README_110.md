@@ -6,7 +6,7 @@ Chris Rea - New Light Through Old Windows (The Best Of Chris Rea) (1988) [OGG Vo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123436.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gerald Wilson Orchestra - Monterey Moods (2007) Mack Avenue [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123513.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Brian Simpson - Soul Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123635.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris Rea - On The Beach (1986) Reissue, 2006, EastWest [OGG Vorbis|480 Kbps] <P
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123659.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chris Rea - Dancing With Strangers (1987) Reissue, 1991, EastWest [OGG Vorbis|48
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123661.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123690.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123792.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123910.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123919.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MasterPeace - The Dylan Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123927.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Isoo Fukui Quartet Featuring Kazuhiro Matsuishi - Sunrise / Sunset (1976) 2013, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124050.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wild Bill Davison - The Commodore Master Takes (1943 - 1946) 1997, Commodore [AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124173.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Romantic Moods Academy, Night's Music Zone - Bed Erotica: Sexy Background Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124218.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tom Reaves Jr - Soulful Strut (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124341.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Andrii Yurlov - Northern Low Blues (2024) [MP3|320 Kbps] <Blues, Instrumental, H
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124395.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Austrian Blues Combo - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124505.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Olaf Hoeks & Ruud de Vries - Swang Thang (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124506.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Martha High - Jazz and Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124511.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Otilia Donaire - Bluesin' It Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124529.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Roadhouse Redeemers - From Gospel to Grit (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124561.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Pharoah Sanders & Bill Laswell - With a Heartbeat (2003) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124643.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B58C3C0DEC2476EA9AB72BEFFCA34E8F73586063
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124994.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124996.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125000.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Santa Swings... The Windup: 27 Christmas Stockings Full Of Shellac Dust (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125018.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Saxtribution - A Very Special Jazzy Christmas (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125020.jpg" />
 </div>
 
 

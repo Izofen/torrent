@@ -1,3 +1,84 @@
+###  Публикация: 1708879   (112970) от 22.03.2024
+
+Юрий Лоза - Вся жизнь - дорога (1990) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Пой, моя гитара
+02. Итог
+03. Я не хуже, чем все(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A3E75AA44F3EDD3A252728AE7946A9AE636E5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708771   (112971) от 22.03.2024
+
+ГУДТАЙМС - Классика. Часть 2. Хиромантия (2024) Deluxe Edition [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112971.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вступление
+2. Intro
+3. Видение
+4. Натальные карты (Скит)(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C3F6D5224B0217742306E9DEA644C4A8968BD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708873   (112972) от 22.03.2024
+
+Sensual Lounge Music Universe - Flavor of Seduction: Instrumental Jazz Sex Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:26)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BAAD01C6CDD71716CACF1A0D28786295796BD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708896   (112973) от 22.03.2024
 
 Vid Sketa - First Step (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -6,7 +87,7 @@ Vid Sketa - First Step (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112973.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Knight Cats 3: Whisper of the Universe (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112974.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ VueScan Pro for Mac 9.8.30 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112975.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ magnet:?xt=urn:btih:A56DCF53B058186DC449AE856FF34A4D3EA74824
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112976.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ magnet:?xt=urn:btih:D879AB6BC35096476C48A5BC74460F0C1D482F56
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112977.jpg" />
 </div>
 
 
@@ -130,7 +211,7 @@ Firefox Browser 124.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112978.jpg" />
 </div>
 
 
@@ -154,7 +235,7 @@ magnet:?xt=urn:btih:7378ECB1F60161D896A8F15D47809BAACA70A43D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112979.jpg" />
 </div>
 
 
@@ -178,7 +259,7 @@ magnet:?xt=urn:btih:DA790FAA8CF558D098206E784F307F2032638C20
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112980.jpg" />
 </div>
 
 
@@ -202,7 +283,7 @@ magnet:?xt=urn:btih:4C83665C5E44204922812A45CCF80A982F880860
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112981.jpg" />
 </div>
 
 
@@ -226,7 +307,7 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, La
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112982.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ magnet:?xt=urn:btih:ABA067DA72B2339C92814A390D80B016653162BA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112983.jpg" />
 </div>
 
 
@@ -278,7 +359,7 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112984.jpg" />
 </div>
 
 
@@ -305,7 +386,7 @@ BABY Audio - BA-1 1.5.0 STANDALONE, VSTi, VSTi3, AAX (x86/x64) + Expansion Packs
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112985.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ magnet:?xt=urn:btih:7B758F59434DC9C99D21F781EB9418E1C81EA9F1
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112986.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112987.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ magnet:?xt=urn:btih:7059BDBA47A3905F200AC6CD9579645FFF3A7038
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112988.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ Darkthrone - Goatlord (1996) Reissue, 2011, Peaceville [FLAC|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112989.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112990.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ magnet:?xt=urn:btih:018BD9CEF9BA0CC15729D7BB1447F36345B34F42
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112991.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ Cruzh - The Jungle Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112992.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112993.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ Don't Drop the Sword - Path to Eternity (2017) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112994.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112995.jpg" />
 </div>
 
 
@@ -578,87 +659,6 @@ Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F2332204E394E3B46DD7257DD8016BDFB9FEDD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708658   (112996) от 21.03.2024
-
-Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Folk Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
-02. Uzbekistan (3:40)
-03. The Last Saskatchewan Pirate (4:08)
-04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627C9FCBBC01A7DB06191FB1BBA25FEE377CD15A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708659   (112997) от 21.03.2024
-
-Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage of the Dead Marauder (feat. Patty Gurdy) (4:28)
-02. Uzbekistan (3:40)
-03. The Last Saskatchewan Pirate (4:08)
-04. Sea Shanty 2 (2:01)(   Читать дальше...   )Жанр: Folk Power MetalПродолжительность: 00:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4921416CE29AE38BDCC5D50BB41DAAC3D2AA9616
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708652   (112998) от 21.03.2024
-
-Hammer King - König und Kaiser (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hailed By The Hammer (4:58)
-02. The Devil Will I Do (4:15)
-03. König und Kaiser (feat. The Tribune) (4:02)
-04. Future King (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E345C7D08B04980F04CB1CC411661C144E5BE561
 ```
 
 

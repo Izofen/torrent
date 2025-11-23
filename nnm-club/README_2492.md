@@ -6,7 +6,7 @@ Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65540.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65541.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John Haydock - Back to the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65542.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65543.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65544.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65545.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rusty Sharks - Long way to freedom (2025) [MP3|320 Kbps] <Rockabilly, Psychobill
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65546.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jump Back - Misunderstood (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65547.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Blues Against The Machine - Blues Against The Machine (2025) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65548.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MYR - Helvegen (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65549.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65550.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65551.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Burnt By Hatred - Myth Or Mortal (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65552.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Exsequor - Death From Above (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65553.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:0DD30CDD295EA51AADEC6FDC8ECC5B0EC12D366D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65554.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Putridity - Morbid Ataraxia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brutal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65555.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65556.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65557.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65558.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Keef Baker - K (2024) [FLAC|Lossless|Web-DL|tracks] <IDM, Synthwave, Techno>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65559.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65560.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65561.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Coo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65562.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Avkrvst - The Approbation (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65563.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Herrementari - Against Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65564.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Exmortus - Necrophony (2023) [FLAC|Lossless|image + .cue] <Neoclassical, Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65565.jpg" />
 </div>
 
 

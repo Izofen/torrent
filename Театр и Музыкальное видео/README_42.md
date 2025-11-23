@@ -1,3 +1,75 @@
+###  Публикация: 1632265   (198653) от 09.05.2023
+
+SHAMAN – «Я русский» (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198653.jpg" />
+</div>
+
+
+###  Подробнее
+
+На сцене «Крокус Сити Холла» — 100-й концерт «Я русский» певца, композитора и автора песен Ярослава Дронова, более известного как SHAMAN. Его песни стали народными хитами, они передают дух и жизненную силу России. Артист исполнил как мегапопулярные «Я русский», «Ты моя», «Исповедь» и легендарные «Улетай», «Танцы на стеклах» и «Дельтаплан», так и совершенно новые (   Читать дальше...   )Производство: Россия | ООО «ФРИМОУШН»Жанр: PopПродолжительность: 01:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721A4368BE9DB214723CCCE365BE9D1E308915D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 889904   (199297) от 26.04.2023
+
+Umbra Et Imago – 20 (2011) 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199297.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 июля Umbra Et Imago отметила свое 20-летие. В рамках празднования дня рождения группа выступила с большим концертом в "Crystal Ballroom" в Карлсруэ. Шоу включало в себя как акустическое выступление, так и роковую часть. Кроме того, музыканты выпустили новый сингл "Davon geht die Welt nicht unter", который они окрестили "юбилейным леденцом". (   Читать дальше...   )Жанр: Gothic MetalРежиссер: Gregor SkowronekПеревод: Не требуетсяПродолжительность: 01:06:22 + 01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D313A93CD3615F21E51E3948F1F803158769EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621265   (200255) от 07.04.2023
+
+Патхан / Pathaan (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_200255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипы из фильма "Pathaan" : "Besharam Rang" и "Jhoome Jo Pathaan"Производство: Индия, Yash Raj Films Pvt. Ltd.Жанр: музыка, клипыПеревод: отсутствуетЯзык озвучки: индийскийСубтитры: русские, английские (на слова песен)Продолжительность: 00:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900488F5537956487A5C048C60430D4B84ED9CAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620150   (201115) от 19.03.2023
 
 Квартирник у Маргулиса. Группа «Пикник» (18.03.2023) WEBRip [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201115.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201115.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:6BC87764378605B3A5189704553C2FFF9D5F511F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201127.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201127.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:268CA0A8515D38B3681AEC98738C7C16C24A51CA
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201640.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201640.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:233DA4BF03D1008F34B0846407CE391DBBB23343
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201767.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201767.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Tarja Turunen - Best Of: Living The Dream Circus Life (2022) BDRip [H.265/1080p-
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202964.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202964.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ magnet:?xt=urn:btih:395677AA7B4DA9067B78B3C4ADC083B5B49632C0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203525.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203525.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ magnet:?xt=urn:btih:C8EA03C84C9FB813548DC90509DED9E009E85E96
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203817.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203817.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ magnet:?xt=urn:btih:CA1A8B9D92183DF9D1C89E9BE3F849B99B7A5891
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204124.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204124.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:183D37B46E0FEBCDEB3C1708BA7EB3C3E2BE3E82
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204158.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204158.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ magnet:?xt=urn:btih:56D619C2F7A0731AF38227DD40D56C7FA43AAB15
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204276.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204276.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ magnet:?xt=urn:btih:C00E67FDDF8929B12D7DB5842DDE0CFD50EC3C45
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204288.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204288.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ Sting / Live in Berlin (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204735.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204735.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ Green Day - 21 Guns (2009) BDRip [H.264/1080p-LQ] [handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204977.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204977.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ magnet:?xt=urn:btih:E7EF6F1B81442310681D3AD149C06165C6B7C68F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205794.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205794.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ magnet:?xt=urn:btih:EEC31DD5AC28582836715EBED27AE1B7B71A59E3
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206409.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ magnet:?xt=urn:btih:28735A8C0BE73057B5DB4866CCF11D021852ED53
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206830.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206830.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ magnet:?xt=urn:btih:37F8F312D0A6BBC7B994D9843A6ADFCAA02DF16B
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208922.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208922.jpg" />
 </div>
 
 
@@ -434,7 +506,7 @@ magnet:?xt=urn:btih:AB8748073F862F9A412DF6D2B1DA8C57CA98745E
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209184.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209184.jpg" />
 </div>
 
 
@@ -458,7 +530,7 @@ magnet:?xt=urn:btih:6A0242958029F801FD49B6CFB496694ED0AB2BEB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209733.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209733.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ magnet:?xt=urn:btih:92E7EA33A2FB8FA5BD00618F9937B7AF11C23C9C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209753.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209753.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ magnet:?xt=urn:btih:E86F63355EBA38CB5A0A28265346125E60F7534D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209793.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209793.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ magnet:?xt=urn:btih:42A4908875AAB5E891025BC26E4069E48C92CE84
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209822.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209822.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ magnet:?xt=urn:btih:076F2ED32244304B680D1AD9234EEDCD452F0F71
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209944.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209944.jpg" />
 </div>
 
 
@@ -574,82 +646,6 @@ magnet:?xt=urn:btih:076F2ED32244304B680D1AD9234EEDCD452F0F71
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6136A331BF96EFA39F28C4486F543BC17B233F78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571433   (209961) от 22.08.2022
-
-Вячеслав Бутусов – Юбилейный концерт (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет телеверсию концерта одного из самых известных представителей отечественной рок-сцены. В программе — лучшие хиты Nautilus Pompilius и презентация альбома «Аллилуйя»: «Эта музыка будет вечной», «Одинокая птица», «Тутанхамон», «Взгляд с экрана», «Люди», «Бриллиантовые дороги», «Элизобарра», «Чудное мгновенье», «Идиот», «Если я стану рыбой», (   Читать дальше...   )Производство: РоссияЖанр: Концерт, шоуСубтитры: ОтсутствуютПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69140B865CD8ABF0C5E6458DC9FAFF8C226A416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642108   (210129) от 30.06.2023
-
-eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись дебютного концертного тура «The Live Experience» группы eRa, прошедшего в конце 2019 года под руководством автора проекта Эрика Леви.
-Музыкальная программа первых европейских гастролей включает пару десятков лучших композиций, накопившихся за четверть века существования eRa.
-Относительно студийных/альбомных версий, живое выступление имеет (   Читать дальше...   )01) Agnus Deorem
-02) Enae Volare (Remix)
-03) Nomen AdoreЖанр: Нью-эйдж, Симфоник-металПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFD4B8E5C9FA7642C0097AAB37C52650CBF068C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603522   (210238) от 11.01.2023
-
-Bollywood: новогодний киноконцерт / Bollywood Mix Video (2023) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов из индийских фильмов таких как: PK (ПиКей), Dhoom-2, Dhoom-3, 3 Idiots (Три идиота), Bajirao Mastani, Bang Bang и другие известные кинокартины.Производство: ИндияЖанр: Pop, DanceРежиссер: Аамир КханАктеры: Аамир Кхан, Каджол, Варун Дхаван, Шах Рукх Кхан, Карина Капур, Приянка Чопра, Дипика Падуконе и др.Продолжительность: 01:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9A21E845A2FE8B8051CBE540DAC2CC174F6FE9
 ```
 
 

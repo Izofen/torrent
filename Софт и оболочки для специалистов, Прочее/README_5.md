@@ -6,7 +6,7 @@ Resource Tuner Business 2.24 Portable by FC Portables [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53771.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VMware Workstation Player 17.5.2 Build 23775571 Free [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53911.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Realtek Ethernet Driver 1168.018 | 10.71 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54935.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Microsoft .NET 7.0.20 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55003.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55051.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Freeplane 1.11.14 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55916.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Nox App Player 7.0.6.0007 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57258.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ NonCompressibleFiles 4.71 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57311.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 21.04.2024) [Ru] (а
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58315.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Bizagi Modeler 4.0.0.128 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58913.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Java SE Development Kit 17.0.11 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59182.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Java SE Development Kit 21.0.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59208.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Java SE Development Kit 22.0.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59229.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ FPS Monitor 5472 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59373.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Windows Images Date Selector (WIDS) 1.0.0.4 Portable by Adler [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59409.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ DATAKIT CrossManager 2024.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60645.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Interbase 2020 Update 5 14.5.0.864 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61856.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ BricsCAD Ultimate 24.2.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62503.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Hiren’s BootCD PE x64 v1.0.8 (5 March 2024) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63774.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ QIAGEN CLC Genomics Workbench 25.0.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63928.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Text Editor Pro 32.1.1 + Portable + Bonus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67359.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Simatic WinCC v7.0 SP3 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79296.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ SIMATIC HMI - это широкий спектр аппаратуры и про�
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79901.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Simatic Step 7 v5.5 SP2 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79907.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Oracle Database 11g Release 2 11.2.0.3 [ENG]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81344.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Borland InterBase 7.5.1 SP1 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81545.jpg" />
 </div>
 
 

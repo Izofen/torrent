@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39744.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:70B2650616A946ED812EA1F929D9D3237880C13C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39745.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ott - Hiraeth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Dub, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39746.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Photo Mate R3 v3.8.0 b188 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39747.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Bassnectar (Lorin Ashton) - 13 Albums (2009-2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39748.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Kekkon Yubiwa Monogatari | Сказание об обручальных коль
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39749.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Barbra Streisand - The Broadway Album (1985) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39750.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Alaloom (2024) [MP3|320 Kbps] <Dark PsyTrance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39751.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Giobbi - Dotr (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39752.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Jon Anderson & The Band Geeks - True (2024) Japanese Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39753.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Armin van Buuren - A State Of Trance 1195 (Ade Special) (2024) [MP3|192 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39754.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:FAD323B834A0E99689DE583F440F3DCEAA8F49CA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39755.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:547018872ED9A31696709F214BD5FEFE320C6AB6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39756.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:E1558CC5B7DD206CA4F3A7D400C4611FF93CC499
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39757.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Jaycee Madoxx x DJ Zkydriver x Plastik Bass - Smells Like Teen Spirit (2023) [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39758.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Find Me - Nightbound (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39759.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Гонка (20.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39760.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ GTA III – NETFLIX 1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39761.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:547C5B5EAAFFC471B6CF5B68BC9AD708111778D5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39762.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:45EF79AD981B10DF344E3A62BC7554F1843F4119
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39763.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A5723FCA9F42BAE4229C40E051A35705B31B4425
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39764.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:A0B317AABD0A2F269AF0FB2352B5A090D8D6A89C
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39765.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:2DC190F05A3A3756D424E7B946684B26780BC3B5
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39766.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:B0E189D3775264F18552ADCF584A59CBBADCB3DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39767.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:2D38A7B2C389753D7716BA91E5960F223E6AC364
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39768.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:1B09359C6C2F2EDF3F8B7F980DCC6DD796553D72
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39769.jpg" />
 </div>
 
 

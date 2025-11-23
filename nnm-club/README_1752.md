@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45907.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VRadio - Online Radio App v2.7.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45908.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7B7694F6C279B0C57EE90E1C2BB626BE73A9CC23
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45909.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:2614B2EFEB67A802AFB21BB728B1C261A61A157D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45910.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Topaz Photo AI 3.2.1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45911.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:847C39760E8B196FFDA605D33CA2FAC961D1055A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45912.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D2A93AF6964DFD615BE1DFAF56162493E1589DD8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45913.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:53EC2279E761816F204F46989104CB8D5D121A25
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45914.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0.11/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45915.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45916.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A786671FE11758BB1EB48360BB20BBA16E9F2EA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45917.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A786671FE11758BB1EB48360BB20BBA16E9F2EA5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45918.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:79C89D4F57FF91F7789351A0A3BC5822504891A1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45919.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:4DED6A07A1F8E0A814E50E35F36DED9F2B64E4BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45920.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:4B5000131C14075B135AC3F908693291B2C2425E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45921.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:4B5000131C14075B135AC3F908693291B2C2425E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45922.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:B7FBB18B48EE66DA377AF078F748F4A2506A0A4D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45923.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B7FBB18B48EE66DA377AF078F748F4A2506A0A4D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45924.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Abelssoft SSD Fresh Plus 2024 13.03.56155 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45925.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:EB90AF3EAB15068DCF26E515F07330103C20AE14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45926.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Rainbow - Live In Japan 1984 (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45927.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:496604699D986EAF94CD8665174EA2C7576A62E6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45928.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:95188E37BA0AC87D1746719C51C7DD1169A1C0FB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45929.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:94BBF987A01122638B258AC1D3440483A37A1561
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45930.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:24ADA81545498CED8DEA93D82FB4D89CDC27C31A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45931.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:24ADA81545498CED8DEA93D82FB4D89CDC27C31A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45932.jpg" />
 </div>
 
 

@@ -1,3 +1,88 @@
+###  Публикация: 482709   (99569) от 14.04.2012
+
+[Wallpapers] Nature Pictures №44
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99569.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №44
+Название: Nature Pictures №44
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 8600х5656
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3439E3C3D2BD2AFE582FA740300DEFA46F3C53C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482707   (99572) от 14.04.2012
+
+[Wallpapers] Desktop Wallpapers (14.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA860327786A30480AA4D78808723BF9AC6A7F7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483022   (99574) от 14.04.2012
+
+Short Bus Pile Up - Repulsive Display Of Human Upholstery (2010) [MP3|320 кб/с]<Slamming Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ball-peen Beating
+ 02. Urethral Myiasis
+ 03. Labia Beautification
+ 04. Necrotic Skin Stitching
+ 05. Stench of Her Burning Flesh
+ 06. Fecal Matters
+ 07. Appeasing the Butcher
+ 08. Gagging on Dick
+ 09. Repulsive Display of Human Upholstery
+ 10. Labia Beautification (Bonus)(   Читать дальше...   )2010Жанр: Slamming Brutal DeathПродолжительность: 00:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97C16CD0358AD9968CDD11E67F9903BE14CDB0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482763   (99582) от 14.04.2012
 
 VA - Дискотека Non-Stop. Будет жарко (2012) [MP3|160-256 кб/с]<Pop>
@@ -6,7 +91,7 @@ VA - Дискотека Non-Stop. Будет жарко (2012) [MP3|160-256 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99582.jpg" />
 </div>
 
 
@@ -39,7 +124,7 @@ Ceremonial Perfection - Alone In The End (2010) [MP3|320 кб/с]<Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99584.jpg" />
 </div>
 
 
@@ -71,7 +156,7 @@ Gigantic Brain - They Did This To Me (2010) [MP3|192 кб/с]<Experimental Grind
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99593.jpg" />
 </div>
 
 
@@ -104,7 +189,7 @@ magnet:?xt=urn:btih:4555BCB6FB522DC7D7F707E7C42489A7726DDA5A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99595.jpg" />
 </div>
 
 
@@ -137,7 +222,7 @@ magnet:?xt=urn:btih:A580B60F8A5155732F47DCDAFCE49984FB6E41C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99600.jpg" />
 </div>
 
 
@@ -161,7 +246,7 @@ A State Of Trance - Radio Top 20 March And April (2012) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99602.jpg" />
 </div>
 
 
@@ -192,7 +277,7 @@ VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99603.jpg" />
 </div>
 
 
@@ -225,7 +310,7 @@ VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99612.jpg" />
 </div>
 
 
@@ -249,7 +334,7 @@ Various - Desert Storm Presents Vocal Jungle Volume One... (1996) [MP3|256 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99613.jpg" />
 </div>
 
 
@@ -280,7 +365,7 @@ magnet:?xt=urn:btih:DB286DB75C8B058DC7FD5239BC93E83A8AD9FC17
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99618.jpg" />
 </div>
 
 
@@ -304,7 +389,7 @@ magnet:?xt=urn:btih:BAA90C79199A1561FDB89A399FA588F91EC9F727
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99621.jpg" />
 </div>
 
 
@@ -328,7 +413,7 @@ magnet:?xt=urn:btih:B83B4F155E6221AB7F6BDD382F74EA178CDEEB32
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99624.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99624.jpg" />
 </div>
 
 
@@ -361,7 +446,7 @@ magnet:?xt=urn:btih:B83B4F155E6221AB7F6BDD382F74EA178CDEEB32
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99626.jpg" />
 </div>
 
 
@@ -385,7 +470,7 @@ Various Artists - Jungle Mania 94 (1994) [MP3|320 кб/с]<Jungle, Ragga Jungle,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99631.jpg" />
 </div>
 
 
@@ -416,7 +501,7 @@ magnet:?xt=urn:btih:1E548BF35225C6523457392E32980CDE555AF42C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99636.jpg" />
 </div>
 
 
@@ -443,7 +528,7 @@ magnet:?xt=urn:btih:F4123DCDB4B22B47114D30122D8726BC5FA2DCA4
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99637.jpg" />
 </div>
 
 
@@ -476,7 +561,7 @@ VA - Авто Дискотека DFM Зарубежная (2012) [MP3|256 kbps]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99638.jpg" />
 </div>
 
 
@@ -509,7 +594,7 @@ A.S.Y.S. - Bpm Is Dead (2012) [MP3|320 кб/с]<Techno, Hard Trance, Acid>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99640.jpg" />
 </div>
 
 
@@ -542,7 +627,7 @@ magnet:?xt=urn:btih:916FFEEA0E653F2FE6512D40F6081DD4FF03320E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99646.jpg" />
 </div>
 
 
@@ -566,7 +651,7 @@ VA - Радио Energy - NRJ HOT30 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99647.jpg" />
 </div>
 
 
@@ -599,7 +684,7 @@ Tiger Eye 2: The Sacrifice (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99649.jpg" />
 </div>
 
 
@@ -623,7 +708,7 @@ magnet:?xt=urn:btih:02ED635AAEE8D3993158559FF3B05CCFD35DA349
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99653.jpg" />
 </div>
 
 
@@ -649,7 +734,7 @@ magnet:?xt=urn:btih:75CCD6D45DA29366293ACC51C35D548DCF71D404
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99657.jpg" />
 </div>
 
 
@@ -669,82 +754,6 @@ magnet:?xt=urn:btih:75CCD6D45DA29366293ACC51C35D548DCF71D404
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B870DE4510B12982CEC834F87ED02C399ED8540
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483007   (99658) от 14.04.2012
-
-Книжная серия | «Bella Donna» [2006-2007] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99658.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Bella Donna» - хорошая, разнообразная серия. Современная проза, готика с привидениями, юмористическая фантастика в стиле Дугласа Адамса (Роковые девчонки...) и кое-что еще...
-
-Девятая жизнь Луи Дракса:
- Мама, папа, сын и хомяк отправляются в горы на пикник, где и случается предсказанное большое несчастье. Сын падает с обрыва. Отец исчезает. Мать в отчаянии. Но спустя несколько часов после своей гибели девятилетний Луи Дракс вдруг снова начинает дышать. И пока он странствует в сумеречном царстве комы и беседует со страшным Густавом, человеком без лица, его лечащий врач Паскаль Даннаше пытается понять, что же произошло с Луи – и с его матерью.
- Психологический триллер популярной британской писательницы Лиз Дженсен «Девятая жизнь Луи Дракса» – роман о семьях, которые живут как бомбы замедленного действия и однажды взрываются. О сумраке подсознательного, где рискует заблудиться всякий, а некоторые блуждают вечно. О том, как хрупка жизнь и как легко ее искорежить.2006-2007Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C2CE112F3A48C64E0F39F04F61F4240546A88D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482919   (99659) от 14.04.2012
-
-Алексей Харузин | Славянское жилище в Северо-Западном крае [1907] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд «Славянское жилище в Северо-Западном крае» Алексея Николаевича Харузина (1864 — 8 мая 1932), русского этнографа и антрополога, государственного деятеля, основан на шестилетних «личных наблюдениях над жилищами белорусов, великороссов, малороссов и поляков в губерниях: Виленской, Ковенской, Гродненской, Витебской, Могилевской и Минской, а равно в разных великоросских (   Читать дальше...   )Жанр: Этнография, история, раритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5871EB358012E8A29816463FB5F94E4F941DA34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483230   (99661) от 14.04.2012
-
-VA - Spa Sounds Premium (2012) [MP3|320 кб/с]<Chillout, Relax>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99661.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:07) 01.2012Жанр: Chillout, RelaxПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F795E51696B47B31DE0E3B584731BDDDF2982632
 ```
 
 

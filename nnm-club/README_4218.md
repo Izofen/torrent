@@ -1,3 +1,78 @@
+###  Публикация: 1525501   (129519) от 20.01.2022
+
+UctoX 2 v2.8.15 U2B [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129519.jpg" />
+</div>
+
+
+###  Подробнее
+
+UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
+Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
+Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE6F53048A47499B68CBA9A927A6CD1B9F67FA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490078   (129520) от 30.04.2012
+
+Странное дело.  Найти Атлантиду  (2012.04.29) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая программа - это отдельный документальный фильм, который расскажет об удивительных и труднообъяснимых явлениях. Раз в неделю, зрители станут свидетелями: аномальных происшествий и загадок, неопознанных летающих объектах и странных существах, а также сверхъестественных способностях человека.В выпуске: Найти Атлантиду
+Легенда о древнем затонувшем материке Атлантида не дает покоя человечеству вот уже третье тысячелетие. Существовала ли эта загадочная цивилизация на самом деле? Если да, то когда и где?Жанр: ТелепередачаПродолжительность: ~ 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA4631A5493D35F6BC13B46C7F3CF415F18BCB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489955   (129521) от 30.04.2012
+
+[EN] Глаз шторма / The Eye of the Storm (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элизабет Хантер способна управлять всеми сторонами своей жизни, будь то отношения с обществом, с ее прислугой или с детьми. Однако теперь некая большая красота вызывает ее последний шокирующий поступок, поскольку она выбирает время своей смерти.Жанр: ДрамаРежиссер: Фред СкеписиАктеры: Дастин Клер, Джеффри Раш, Шарлотта Рэмплинг, Джуди Дэвис, Колин ФрилзПеревод: ОтсутствуетПродолжительность: 01:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDD4B9129BE041C1E6AF72AF39FE94BC84EC517
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525147   (129522) от 20.01.2022
 
 VA - Ambiental Journey: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +81,7 @@ VA - Ambiental Journey: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129522.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ MacCleaner 2 PRO 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129524.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:561A853780D80574B69D22F3C0E91693CD94AB9E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129526.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:336C793A7FFC80C192578D7012E109B75FB5F2F8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129528.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:01EFE88139FB550400A1BA3BFAF758014E07C24E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129530.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Bonde Do Role - With Lasers (2007) [FLAC|Lossless|image + .cue] <Breakbeat, Hip 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129532.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ VA - Zillo Vol. 4 (2012) [MP3|320 кб/с]<Electro, EBM, Industrial, Gothic Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129533.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ Bootstrap Studio 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129534.jpg" />
 </div>
 
 
@@ -215,7 +290,7 @@ The Alive - Turned up to Destroy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129536.jpg" />
 </div>
 
 
@@ -242,7 +317,7 @@ AnyMP4 DVD Creator for Mac 6.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129538.jpg" />
 </div>
 
 
@@ -267,7 +342,7 @@ Meteora - Gradients (2015) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129541.jpg" />
 </div>
 
 
@@ -294,7 +369,7 @@ Meteora - Gradients II Westerlies (2016) [FLAC|Lossless|WEB-DL|tracks] <Traditio
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129543.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:5D6B0E18EB63B5EA1A64D931D6EE17AD45B547F2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129545.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ Lennie Tristano - Personal Recordings (1946 - 1970) 6CD, 2021, Mosaic Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129546.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ magnet:?xt=urn:btih:43862116E28D804ED827F42322D4E70D2EC9ED1D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129547.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ magnet:?xt=urn:btih:6E4D9CA35DD4CD9FFD9E83C9BD627000F9B6E585
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129548.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ Disk Space Analyzer Pro 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129549.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ Duplicate File Finder Pro 6 v6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129551.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ VA - Lofi Evening (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Lo-Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129552.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ Ashes Of Ares - Emperors And Fools (2022) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129554.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ VA - Ambiental Journey: Chillout Your Mind (2022) [AAC|~343 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129556.jpg" />
 </div>
 
 
@@ -552,7 +627,7 @@ magnet:?xt=urn:btih:6A37AD469CB98E0BDBAB0719215E449874A234B8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129557.jpg" />
 </div>
 
 
@@ -577,7 +652,7 @@ Meteora - The Northern Path (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional El
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129558.jpg" />
 </div>
 
 
@@ -591,82 +666,6 @@ Meteora - The Northern Path (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BBB5F0F6414F22D80C3F815C1010E0BA329F544
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525301   (129560) от 20.01.2022
-
-Ryan Hamilton - 1221 (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Could You Want Him (When You Know You Could Have Me) (03:48)
- 02. Deja Vu I Love You (03:08)
- 03. Caught up in a Moment (03:36)
- 04. Satellite (04:02)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82E10CB8667FAE1C0191DE5FC5A56C28E868286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683329   (129561) от 10.12.2023
-
-DefenderKiller 11.0.7 Portable [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129561.jpg" />
-</div>
-
-
-###  Подробнее
-
-DefenderKiller - удаление Windows Defender (Защитник Windows)
-Удаление защитника безвозвратное.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F555C9E0C384F2CC624C2E6C3688906F34BB7684
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682691   (129562) от 10.12.2023
-
-Минтранс доработал проект изменений в ПДД для борьбы с «эффектом кенгуру»
-
->>След.
->>Автомобилисты здесь!
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минтранс доработал и, как выяснил “Ъ”, готовит к межведомственному согласованию проект изменений в Правила дорожного движения (ПДД), запрещающих превышать среднюю скорость движения между несколькими камерами. Ведомство предлагает ввести в действие поправки не 1 марта, как планировалось изначально, а полугодом позже — 1 сентября 2024 года. Проект уже поддержали регионы (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

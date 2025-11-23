@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18232.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:48433D22F83D2D98B42C221EF5103A809318E00C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18244.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5D57FFF9CADBAAC5B3AED3DA6D56CAA71FA43AB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18372.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18392.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18412.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ George Cuhaj | Unusual World Coins. 6th Edition (2011) [PDF] [EN]
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18426.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18502.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:623B9F23D8D387E1398FD12663B55A52D8E01372
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18524.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Tracy Schmidt | 2018 Standard Catalog of World Paper Money. Modern Issues. 1961-
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18527.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:544D0EBD70A2E327FF8FBB2B00E62640A0CEA1C5
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18556.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:1D946EEF1BF037EB05A57C4B863DFEB009AEEB77
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18947.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:C21008FA458A80599D64F7D2951146E34074D443
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19195.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:6AF888CF4B27884C338E021CF28BB05A91450527
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19226.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0883A980F28D9AF703336857D7FD77A24F02D661
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19287.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:F6A0FC6465CE2BAF1693FE5F58DB6174AC44178D
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19381.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:98FF3D2227670B23227521DA82A45C6FB21484AE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19599.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:721753C92EE5049483F5CF17FE0500BAFEC2703E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19909.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:66C3BEA17039941B454AA50B9F12A590292A20D9
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20049.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:6DC6A0F4CCD69F22156E7D4229107B79B2830EC9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20074.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:A45866102EBB2D32AB78EB297B3EAC7A93DA866A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20086.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:3C1B2579CA6C2ABAEF8B4565244E88690B762189
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20444.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20444.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:870050F8D322328ED385C7343ECDC895B76D3A58
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20723.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:7E5C966547763392B1B4C56D3ED352735F5F17B1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20830.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20830.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Smart Reading | Саморазвитие на 100% 10 важных книг в �
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20964.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20964.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:F842D1666D72E0D0C88F2CCB0B37B1BCCCD50DDD
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21022.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:5919418AD4ECC3BF2AD3377338909224334AB1A2
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21070.jpg" />
 </div>
 
 

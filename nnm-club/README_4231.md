@@ -1,3 +1,76 @@
+###  Публикация: 1525098   (129954) от 19.01.2022
+
+One Switch 1.24 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129954.jpg" />
+</div>
+
+
+###  Подробнее
+
+One Switch - это крошечное приложение, разработанное для повышения вашей эффективности благодаря быстрому доступу к нескольким важным коммутаторам. Его можно открыть в строке меню, и он позволяет переключать определенные функции системы всего парой кликов.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 FireballПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB55DAAA4646CDCC57B7FCF67BC98B95607CF7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682960   (129955) от 09.12.2023
+
+Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа над созданием приложений может быть нелегкой, существует множество документации, но разработчикам трудно найти четкий шаблон при решении таких вопросов, как архитектура приложения, способ хранения данных и создание надежного и масштабируемого кода.
+Именно здесь на помощь приходит эта книга! Она проведет вас от идеи приложения до создания масштабируемого кода (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Kodeco IncФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4675FF1086FE4B7BA20F02D2CA9F70D66E85104C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525128   (129956) от 19.01.2022
+
+Scherlokk - Files finder 4 v4.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scherlokk является утилитой для быстрого поиска одного файла для точного и надежного поиска каждого файла, который соответствует критериям поиска. Музыка, изображения, закладки, документы и т.д., можно найти быстро и легко. Поиск может быть сделано в любой папке и на любом диске, в том числе на съёмных носителях (pendrives, карты памяти, USB-диски), сетевой диск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FA80EC18AD2C3D2F23D8DEDC88C34A2FF15596
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525261   (129957) от 19.01.2022
 
 MarkMyWords 2.3.0 [En]
@@ -6,7 +79,7 @@ MarkMyWords 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129957.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Thomas Anders - Songs Forever (2006) Remastered, 2023, Craft Recordings [FLAC 24
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129958.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Moss - Ornaments (2012) [MP3|320 кб/с]<Indie, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129959.jpg" />
 </div>
 
 
@@ -90,7 +163,7 @@ Dropzone 4 Pro v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129960.jpg" />
 </div>
 
 
@@ -115,7 +188,7 @@ VA - Шоферской 16 (2004) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129961.jpg" />
 </div>
 
 
@@ -142,7 +215,7 @@ VA - Gold Disco 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129962.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Keep It 1.11.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129963.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ magnet:?xt=urn:btih:C600C81753400FC486EE94488BB1BDFF420F618B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129964.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ Showtek - 360 Yellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle, Hard Tranc
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129966.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ magnet:?xt=urn:btih:A65B485FC15A28F5338CEC39A0662005CADA1149
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129967.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ aText 2.40.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129968.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ Thomas Anders - Songs Forever (2006) Remastered 2023 [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129969.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ magnet:?xt=urn:btih:843072E649CCFC11DED9D272439D2967DC52D2BA
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129970.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ magnet:?xt=urn:btih:983B45558B5D8D53245088FC63A3C4EF9DD056E0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129971.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ Arc Of Ascent - The Higher Key (2012) [MP3|256 кб/с]<Stoner Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129972.jpg" />
 </div>
 
 
@@ -403,7 +476,7 @@ magnet:?xt=urn:btih:5D8ABD82F89DD03F44BB2A5EA3FDDB7A07B6B7A0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129973.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ VA - Guitar Chillout Lounge 1 (2007) [AAC|~323 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129975.jpg" />
 </div>
 
 
@@ -454,7 +527,7 @@ Disfiguring The Goddess - Sleeper (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129976.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ PerfectTUNES for Mac 3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129977.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ Birds ov Paradise - Memorial (2022) [AAC|~343 Kbps] <Atmospheric Techno, Deep Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129979.jpg" />
 </div>
 
 
@@ -530,7 +603,7 @@ magnet:?xt=urn:btih:E406DE4C794B435D94453FE080571AECD2270C78
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129980.jpg" />
 </div>
 
 
@@ -554,7 +627,7 @@ Byword 2 v2.9.5 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129981.jpg" />
 </div>
 
 
@@ -579,7 +652,7 @@ VA - Зарубежные Новинки Vol.46 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129982.jpg" />
 </div>
 
 
@@ -599,87 +672,6 @@ VA - Зарубежные Новинки Vol.46 from AGR (2012) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37860A1294A6B3E15F6C94D98EF6FE93A8B9D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682889   (129983) от 09.12.2023
-
-Вонка / Wonka (2023) TS [H.264] [UKR] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_129983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечтая открыть магазин в городе, известном своим шоколадом, молодой и бедный Вилли Вонка обнаруживает, что индустрией управляет картель жадных шоколатье.Производство: США, Великобритания, Канада, Warner Bros.Жанр: мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Пол КингАктеры: Тимоти Шаламе, Оливия Колман, Хью Грант, Салли Хокинс, Пэтерсон Джозеф, Кигэн-Майкл Ки, Роуэн Эткинсон, Саймон Фарнэби, Мэтью Бэйнтон, Мэтт ЛукасПеревод: ДублированныйЯзык озвучки: УкраинскийСубтитры: отсутствуютПродолжительность: 01:52:53Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525270   (129984) от 19.01.2022
-
-PhoneRescue for iOS 4.2.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129984.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2021 iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F27C2A837C981CD21D350A8BEF7DCBE97B139A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489670   (129985) от 01.05.2012
-
-VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interval - Mind Vortex (original mix) (9:08)
-02. Silicon Sound - Combustion (6:46)
-03. Multiphase - In Retrospect (8:04)
-04. Future Radio - Sumer Sun (7:36)
-05. Erotic Dream - Use Your Imagination (7:04)
-06. Xshade & Loopstep - Light In Motion (9:04)
-07. Pan Papason - 2000 Years Ago (Ion remix) (8:04)
-08. Hi Profile - 01.1.81 (7:43)
-09. Datura - Lommesvuffer (8:59)
-10. Vice - With In (Phaxe remix) (8:00)(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 03:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17A25DB1553B425AA89E6B7E3B4CF23083CAF37
 ```
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 1603115   (202346) от 23.02.2023
+
+Void Scrappers (2022) [Multi] (1.32) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Void Scrappers расскажет об извечном противостоянии между человечеством и агрессивными пришельцами. По традиции жанра научной фантастики события происходят в мире будущего, в котором люди достигли высокого уровня научно-технологического прогресса, что позволило им осваивать далекие рубежи космоса. В скором времени они столкнулись с другими разумными инопланетными (   Читать дальше...   )Тип издания: LicenseРазработчик: 8BitSkullЖанр: Экшны, АркадыЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3380D8B538A0123A0D1A905078EC6D7C8C265090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830358   (202372) от 26.10.2025
+
+Terminus: Zombie Survivors (2021) [Ru/Multi] (1.2.0.108/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terminus: Zombie Survivors - пошаговая игра на выживание в стиле рогалика на фоне зомби-апокалипсиса. Прошло несколько недель после захвата мира зомби-вирусом; большая часть населения уже заражена. Как один из немногих выживших, ты должен отправиться в Терминус, чтобы объединиться с другими выжившими. Победи голод, холод и прожорливых зомби, чтобы добраться до Терминуса, (   Читать дальше...   )Тип издания: RepackРазработчик: Longplay StudiosЖанр: Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Корейский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0348FA4CBDD7506D014C93460DCA3065736FEF78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613719   (202569) от 19.02.2023
 
 SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
@@ -6,7 +54,7 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202569.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202569.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.1.0.56) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203785.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203785.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204407.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204407.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack Necros [Ultima
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205629.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205629.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206366.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206366.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Nitro Racers (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206400.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206400.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Swordship (2022) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206527.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206527.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Secret Agent (1992) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206971.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206971.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Starless (2022) [Ru/Multi] (1.051) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207016.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207016.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Nobody Saves the World (2022) [Ru/Multi] (31300/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207026.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207026.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207047.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207047.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207143.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207143.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Rhythm Sprout: Sick Beats & Bad Sweets (2023) [Ru/Multi] (1.005b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208130.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208130.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209630.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209630.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Edge Of Galaxy (2021) [Ru/En] (1.29) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209900.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209900.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ Shing! (2020) [Ru/Multi] (2.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209928.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Mari and Bayu - The Road Home (2022) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212279.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212279.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Black Skylands (2021) [Ru/Multi] (1.0.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213496.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213496.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214220.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214220.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214604.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214604.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Solar Ash (2021) [Ru/Multi] (1.03.44179) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214676.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214676.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214824.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214824.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) Repack R.G. Механики [Deluxe E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214864.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214864.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214909.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214909.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9058ED09292240E82FB1A453AAAF4E27F09C38A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640253   (216573) от 12.08.2023
-
-Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хардкорный боевик во вселенной темного фэнтези, где вас ждут эпичные сражения и многочисленные испытания. На главного героя наложено проклятье Блеклого меча из-за чего теперь у вас не остается выбора кроме как убивать всех встречающихся на пути противников. Прорвитесь через двенадцать масштабных глав, наслаждайтесь оригинальной графикой и получите массу эмоций в (   Читать дальше...   )Тип издания: LicenseРазработчик: more8bitЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B765B8A4561D7F114A94E8B1513EF1B5B7D784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933201   (217065) от 18.12.2015
-
-Evoland 2 (2015) [En/Multi] (1.0.9135) SteamRip Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evoland 2 – ролевая RPG игра разработанная компанией Shiro Games и покорившая сердца многих геймеров. Главной особенностью игры является ее графика: сначала игра будет исполнена в очень старой и древней графике и механики, но затем, по мере вашего прохождения, графика будет становиться все лучше и лучше пока не дойдет до очень яркой и красочной 3D картинки.Тип издания: SteamRipРазработчик: Shiro GamesЖанр: Arcade (Platform/Fighting), RPG (Rogue/Action), 3D, Isometric, Top-downЯзык озвучки: -/-Язык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA2BFF4E56B0C00490A575DD65E677F57AA18AA
 ```
 
 

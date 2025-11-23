@@ -1,3 +1,81 @@
+###  Публикация: 1728663   (108264) от 08.06.2024
+
+Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toxic Holocaust — американская трэш-метал-группа, основанная в Портленде в 1999 году.2003 - Evil Never Dies
+2005 - Hell On Earth
+2008 - An Overdose Of Death
+2011 - Conjure and CommandЖанр: Thrash MetalПродолжительность: 03:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728796   (108265) от 08.06.2024
+
+Народ | В гостях у сказки (Выпуск № 12). Али-Баба и сорок разбойников (2005) [MP3, Вячеслав Гришечкин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
+Когда-то давным-давно в одном персидском городе жили два брата Касим и Али-Баба. Али-Баба с самого утра и до позднего вечера рубил дрова, чтобы потом продать их на рынке и купить себе немного еды. В один из дней Али-Баба стоял под высоким деревом и уже собирался его срубить, как вдруг увидел, (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FAAD5433AF0A9252C0112CC9928EE7FBF5FDF1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728777   (108266) от 08.06.2024
+
+Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Atrophy - американская трэш-метал группа, образованная в Тусоне, штат Аризона.1988 - Socialized Hate
+1990 - Violent By Nature
+2024 - AsylumЖанр: Thrash MetalПродолжительность: 02:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728776   (108267) от 08.06.2024
 
 Ночь перед днем рождения Кристиана / Natten for Christians Fodselsdag (1909) WEBRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108267.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Liam Kane - Metronomic Perfection (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108268.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Margaux - Inside the Marble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <indie po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108269.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:1AFFEE446D8407BB3E01E0C742FC032E2D29DE64
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108270.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ magnet:?xt=urn:btih:537A083CC428688853D6D6F1FEBA7D2E500B801E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108271.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:CDF1E4BF7244D6B1C845125E1386057E7AC26F59
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108272.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ Dream Drop - Acne Superstar (2023) Extended version, 2024, GAIN [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108273.jpg" />
 </div>
 
 
@@ -187,7 +265,7 @@ Holy Mother - Rise (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108274.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Archives - No Bliss In Ignorance (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108275.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ VA - Белая метель (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон,
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108276.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ VA - Summer Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108277.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ magnet:?xt=urn:btih:65BCD91AED6624FB6E74A072C3EE6882D906C92D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108278.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Electric Yawn - Deliverance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108279.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ magnet:?xt=urn:btih:95D393C1F3DAA183AF98331CFE3CCA1089D05343
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108280.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Booka Shade - Link To The Invisible (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108281.jpg" />
 </div>
 
 
@@ -394,7 +472,7 @@ magnet:?xt=urn:btih:ED4B3786D9B19FB8AC0019F327699CC0D24A2DF3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108282.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ From Ashes to New - Blackout (2023) Deluxe, 2024, Better Noise Music [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108283.jpg" />
 </div>
 
 
@@ -445,7 +523,7 @@ magnet:?xt=urn:btih:88CB582DF49936089E66C74842BE0DF2F3B21A08
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108284.jpg" />
 </div>
 
 
@@ -472,7 +550,7 @@ VA - The Deep Collective -  Rhythmica (2023) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108285.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ Soul Browser 1.4.23 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108286.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ Soul Browser 1.4.23 Mod by AnBo39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108287.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ VA - DJ Hits Volume 36 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108288.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ Evergrey - Theories Of Emptiness (2024) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108289.jpg" />
 </div>
 
 
@@ -588,84 +666,6 @@ Evergrey - Theories Of Emptiness (2024) [FLAC|Lossless|image + .cue] <Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15913C97453AE38741A19DC3C7E5CE91708EE7F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728822   (108290) от 08.06.2024
-
-Speedtest от Ookla 5.4.0 Lite-Mod by Balatan [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 31.05.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2B5F24F3798C7A95573E4BCE60511919D5A4A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728756   (108291) от 08.06.2024
-
-Минтранс. Тест-драйв Сузуки С-кросс гибрид (08.06.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108291.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Подземный паркинг. Можно ли ставить 2 транспортных места на одно машиноместо?
-🔸 Модель старая, имя новое. Тест-драйв Сузуки С-кросс гибрид
-🔸 Сдать машину на разбор. Как правильно оформить документы, чтобы избежать возможных проблем?
-🔸 Умный помощник. Какие опции в авто действительно необходимы, а от каких стоит отказаться?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76711EC590EE83359BD5E0C0F1B864F3701B1C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728782   (108292) от 08.06.2024
-
-Quantic - Dancing While Falling (2023) Deluxe Edition, 2024, [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run feat. Andreya Triana (Extended Version) [00:06:16]
-02. Brooklyn Heat feat. Andreya Triana (Extended Version) [00:06:35]
-03. Subway Lover (Extended Version) [00:06:17]
-04. Unconditional feat. Rationale (Extended Version) [00:06:22](   Читать дальше...   )Жанр: DiscoПродолжительность: 2 CD, 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C7BCFB7F24B66405FEEA78CE287C356C669A67
 ```
 
 

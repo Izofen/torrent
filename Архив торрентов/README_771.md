@@ -1,3 +1,78 @@
+###  Публикация: 967027   (158653) от 20.12.2015
+
+Chris Brown - Royalty (2015) Deluxe Version [MP3|320 кб/с] <R&B, hip-hop, funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To Sleep (03:22)
+02. Fine By Me (03:28)
+03. Wrist (03:15)
+04. Make Love (03:51)(   Читать дальше...   )Жанр: R&B, hip-hop, funkПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8169D1D7DD92810ED011C23027C9E43074DC9E6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967461   (158655) от 20.12.2015
+
+BotRadio 1.3.0.2 + Portable [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158655.jpg" />
+</div>
+
+
+###  Подробнее
+
+BotRadio - простенький, но весьма удобный интернет-радиоприемник, который позволяет слушать на компьютере онлайн-радио абсолютно бесплатно. Список доступных радиостанций достаточно разнообразен и постоянно пополняется: музыкальные каналы разных жанров, новостные, региональные, детские, развлекательные и др. Загрузка станций происходит через плейлисты, которые хранятся (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2488CF43BDA73FEEB9515369280BCE80E1545D91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967424   (158657) от 20.12.2015
+
+Starus Excel Recovery 2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление файлов электронных таблиц Microsoft Excel и Open Office, включая файлы со сбойных, отформатированных и заново разбитых на разделы накопителей. Контентный поиск считывает информацию в низкоуровневом режиме, позволяя восстанавливать файлы в самых сложных случаях.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF67F355516DA3C33239F41061578D9BBBAE732
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967428   (158660) от 20.12.2015
 
 Starus Office Recovery 2.2 [Multi/Ru]
@@ -6,7 +81,7 @@ Starus Office Recovery 2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158660.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ VideoCacheView 2.95 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158661.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Microsoft OneDrive 17.3.6281.1202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158662.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:C0EE594983A78AF4EF4435B71B3E89C1EC8CABE8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158663.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ Starus FAT Recovery 2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158667.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ Mozilla Firefox 43.0.1 Final Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158668.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ Le carton / Коробка (2004) DVDRip [H.264]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158670.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:7C2E4B19C3195676E1D5F7327309B445F819F0F1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158673.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ MEGA Sync Client 2.5.3 (2bc7f) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158676.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ GiliSoft File Lock Pro 10.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158677.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ Dash 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158681.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:0FD87777C209A36F8436236CF668BCDAC2B01BFA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158686.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ MediaFire 1.8.12.11026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158691.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:5CDE16327B11AB06E47F5D28690E8C770B85B58C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158692.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ iMazing 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158693.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ Wise Program Uninstaller 1.83.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158698.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ magnet:?xt=urn:btih:3A8FE95791405B9A98CF8CD6751A604A4CAD2087
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158700.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ magnet:?xt=urn:btih:BA9210AE33979A8C40A58349457DB758F4D28875
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158708.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ magnet:?xt=urn:btih:8D5D0ED0D29F45584189654888443734D70157CA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158715.jpg" />
 </div>
 
 
@@ -473,7 +548,7 @@ Eassiy Android Data Recovery for Mac 5.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158724.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ Stats 2.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158726.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ System Toolkit 5.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158751.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ DirEqual 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158757.jpg" />
 </div>
 
 
@@ -557,78 +632,6 @@ DirEqual - это инструмент сравнения папок, котор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:941DAE55E4239FCA271A5B8D7B11B9EE8EBD2609
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651641   (158778) от 12.11.2023
-
-Харли Квинн / Harley Quinn (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-10 из 10) NewStation  [AD]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Язык озвучки: русский, английскийСубтитры: русские (сообщество UGN SUBZ Translators), английские, испанские, португальскиеПродолжительность: ~00:23:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449B1A7B9E2DF87F23E6FDBC551C952E44CC28F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600114   (158801) от 26.12.2022
-
-foobar2000 1.6.11 DarkOne + DUIFoon Portable by MC Web (04.12.2022) (Облегченный вариант сборки - без YouTube)  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158801.jpg" />
-</div>
-
-
-###  Подробнее
-
-foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: русский, украинский, белорусский, киргизский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65A689D3963BC8BEA24153E55D0AD2107397F5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600248   (158817) от 26.12.2022
-
-Maxon ZBrush 2022.0.6 (x64) RePack by OctaneS [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158817.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZBrush — программа для 3D моделирования, созданная компанией Pixologic. Отличительной особенностью данного ПО является имитация процесса «лепки» трёхмерной скульптуры, усиленного движком трёхмерного рендеринга в реальном времени, что существенно упрощает процедуру создания требуемого трёхмерного объекта. Каждая точка (называемая пиксель) содержит информацию не только (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6B4BF67E47CAB76EC4D58367FC54DF9A815CB5
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1695151   (120484) от 28.01.2024
+
+Roxette - Look Sharp! (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look (3:57)
+02. Dressed For Success (4:10)
+03. Sleeping Single (4:38)
+04. Paint (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBE074C945C2E0E1A1A2341FD5EAD8CB1E39F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695364   (120485) от 28.01.2024
+
+Minimal Audio - Effect Bundle 2024.01 VST, VST 3, AAX (x64) RePack by TCD [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите все инновационные плагины эффектов от Minimal Audio в одном комплекте, чтобы максимально раскрыть свой творческий потенциал.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41BB9FBDB427E8119AA47C569709D8F148E1FC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695203   (120486) от 28.01.2024
+
+Илсе Санд | Чувство стыда. Как перестать бояться быть неправильно воспринятым (2021) [MP3, Элнара Салимова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это чувство сидит глубоко в нас, о нём не принято распространяться и обсуждать даже с близкими людьми. Все мы иногда совершаем поступки, за которые потом становится стыдно. Стыд — сильное и болезненное ощущение внутреннего дискомфорта, которое часто возникает необоснованно, но способно серьёзно испортить жизнь. За ним скрываются другие проблемы: страх, заниженная (   Читать дальше...   )Жанр: практическая психология, саморазвитие / личностный ростПеревод: Анастасия Наумова, Николай ФитисовЯзык озвучки: русскийИздательство: Альпина ДиджиталПродолжительность: 03:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637D55F6A005658E8C8E139ACEF39D91F1567A66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694353   (120487) от 28.01.2024
 
 Одна ночь / One Night (2023) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +81,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120487.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ magnet:?xt=urn:btih:80DD6F8DEF4FBD0952CF10560ED46BF5419AD7EA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120488.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ Bobby Forrester - Collection (2004-2013) 4CD [MP3|320 Kbps] <Hard Bop, Jazz Rock
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120489.jpg" />
 </div>
 
 
@@ -83,7 +158,7 @@ magnet:?xt=urn:btih:8340E9C26E29840A92A09CDD7788B7D24CEC1BF2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120490.jpg" />
 </div>
 
 
@@ -109,7 +184,7 @@ VA - Пименов представляет Будущие хиты 2006 (2006)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120491.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ The Weeknd - Double Fantasy (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synth-P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120492.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ VA - Florilegi I (2024) [FLAC|Lossless|WEB-DL|tracks] <Bass, Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120493.jpg" />
 </div>
 
 
@@ -187,7 +262,7 @@ magnet:?xt=urn:btih:06238FC81D0A24AD6674A30EB7477A7F87B314AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120494.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ magnet:?xt=urn:btih:7D246D904B0ED144F51A0A624D898A60CF171D7B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120495.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ magnet:?xt=urn:btih:5FBDF0C92915CFCF055C7E9C46BC266F509EF07E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120496.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Artefacto school, Любовь Титова | Цветы и стеклянные
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120497.jpg" />
 </div>
 
 
@@ -287,7 +362,7 @@ OfficeSuite Pro + PDF 14.2.50872 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120498.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ Universal USB Installer 2.0.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120499.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ magnet:?xt=urn:btih:CBD8F63859CC52CEB9906A59C37E811036B2A231
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120500.jpg" />
 </div>
 
 
@@ -359,7 +434,7 @@ PDF Expert 3.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120501.jpg" />
 </div>
 
 
@@ -384,7 +459,7 @@ magnet:?xt=urn:btih:0EB7868034CC639AAA21EB10AEB5FFED8D49BEBB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120502.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ magnet:?xt=urn:btih:0726AE0C2A9D2AA6715DA3152AFA0A5F7A76ED06
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120503.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ VA - Dream Dance Vol. 95 - The Annual (2024) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120504.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ magnet:?xt=urn:btih:0A582BE28A3DB11640AF35F503B2286816CEDE95
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120505.jpg" />
 </div>
 
 
@@ -484,7 +559,7 @@ VA - Music News vol.335 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120506.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ magnet:?xt=urn:btih:4B4CF88C73C3A8C4DEBF4549160B0567686F3F87
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120507.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ magnet:?xt=urn:btih:7EAF1F05DD89D741C5DDF93B42EFAB52D203FF64
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120508.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ Riki-Ou 2: Horobi no Ko | Riki-Oh 2: Child Of Destruction | Рики-О 2: Ди�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120509.jpg" />
 </div>
 
 
@@ -571,79 +646,6 @@ Riki-Ou 2: Horobi no Ko | Riki-Oh 2: Child Of Destruction | Рики-О 2: Ди�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88C54011FBB4C5C9BE53C07B85DA19192148EE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695238   (120510) от 28.01.2024
-
-Gearbox Software | Артбук по игре Homeworld / The Art of Homeworld (2014) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Homeworld".Жанр: АртбукЯзык: АнглийскийИздательство: BluecanvasФормат: CBZКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F34B73BE24CE5E39252FD628BE5E1B7455B0AF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695371   (120511) от 28.01.2024
-
-OneCommander Pro 3.67.0.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120511.jpg" />
-</div>
-
-
-###  Подробнее
-
-OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
-Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCFF1657DBAC4EBE5B4E36F0D5B902DDD598FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695160   (120512) от 28.01.2024
-
-Мирзакарим Норбеков | Опыт дурака. Как работает интуиция (2021) [MP3, Валерий Захарьев]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Становитесь автором своей жизни! Человеком, который не плывет по течению, а сам, выбирая наиболее правильные и лучшие решения! Произведения Мирзакарима Норбекова уникальны и необычны: они побуждают к действию, заставляют раскрыть свои способности и открыть новые возможности. Каждый текст, изобилующий иронией и остроумными замечаниями, – пинок к действию и ступенька (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига АСТПродолжительность: 08:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC37CB067E8EFB483B3AA1A427D97E087B3275DA
 ```
 
 

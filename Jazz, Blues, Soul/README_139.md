@@ -6,7 +6,7 @@ Black Harbour - Cold Winter Blues (2020) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160143.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Toby Lee - Icons, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160167.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vintage Cafe, Romantic Sax Instrumentals, Smooth Jazz Sax Instrumentals - Sexy R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160170.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris B. - Crispy Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160203.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nat King Cole - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160210.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bob Brookmeyer - Holiday: Bob Brookmeyer Plays Piano (2001) Challenge Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160221.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Flip Phillips - Swinging With Flip (1952) 2007, Membran Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160223.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Alley Tones - Buzzard's Luck (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160279.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kaliopi & The Blues Messengers - Blues for Minnie (2023) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160287.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Luke - Strange Boy In Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160289.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bandini - Everything Must Go (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160296.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jason Elmore & Hoodoo Witch - Rise up Lights (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160301.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Peter J. Lehman - I'm Done Hiding (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160308.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dave Williams - 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160311.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Alex Lopez - Looking for a change (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160312.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Billy Hart - All Our Reasons (2012) ECM [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160319.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jeremy Pelt - Insight (2002) Criss Cross [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160480.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Joshua Redman - Where Are We (2023) Blue Note Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160663.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Alan Pasqua, Peter Erskine, Darek Oles - Live In Italy (2022) Fuzzy Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160674.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - This Is Lounge Jazz (2023) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160844.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Chico Hamilton Quintet with Eric Dolphy - The Original Ellington Suite (1958) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160866.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Toshiyuki Miyama & The New Herd - The New Herd At Monterey (1974) 2CD, 1999, Abs
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160868.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ John Zorn - Virtue (2020) [MP3|320 Kbps] <Avant-garde Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161157.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Ruby Braff Trio - Bravura Eloquence (1990) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161177.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Erroll Garner - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161196.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Rebirth::Collective featuring Tutu Puoane - It Might As Well Be Swing (2021) Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161391.jpg" />
 </div>
 
 

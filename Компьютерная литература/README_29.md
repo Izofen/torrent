@@ -1,3 +1,127 @@
+###  Публикация: 1644309   (196159) от 05.07.2023
+
+Крис Риккомини, Дмитрий Рябой | Readme. Суровые реалии разработчиков (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начинающим программистам требуется нечто большее, чем навыки программирования. Столкнувшись с реальной работой, вы моментально понимаете, что самым нужным вещам, имеющим критическое значение для карьеры, не обучают ни в университетах, ни на курсах. Книга "Readme. Суровые реалии разработчиков" призвана восполнить этот пробел.
+Познакомьтесь с важнейшими практиками (   Читать дальше...   )Жанр: ПрограммированиеПеревод: С.В. ЧерниковИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420DE8A37323A96DF7F64CBB122679C3039A8C4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643099   (196322) от 30.06.2023
+
+Стейнхарт Джонатан | Тайная жизнь программ. Как создать код, который понравится вашему компьютеру (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомы ли вы с технологиями, лежащими в основе вашей собственной программы? Почему «правильный» код не хочет работать? Истина проста и банальна — нужно сразу создавать код, который будет работать хорошо и не будет прятать в себе трудноуловимые ошибки. Для этого Джонатан Стейнхарт исследует фундаментальные концепции, лежащие в основе работы компьютеров. Он рассматривает (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892F1F6CD3D6C5A295D3D7AE2436FA9BEA42A09B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641160   (196801) от 21.06.2023
+
+Ицик Бен-Ган | Оконные функции в T-SQL: По ту сторону анализа данных (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге на конкретных примерах рассматриваются все типы оконных функций: агрегатные, ранжирующие, статистические, а также функции смещения и функции упорядоченного набора. Вы узнаете, как использовать оконные функции для повышения эффективности запросов, которые раньше писали с применением предикатов; освоить концепцию работы с окнами в SQL и строить запросы (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FBBB405C74F713D52B6353DD1F733F15B4036A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638424   (197277) от 08.06.2023
+
+Л. Йольан и др. | Трехмерное глубокое обучение на Python (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197277.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом руководстве исследуется современное трехмерное глубокое обучение:
+приводятся пошаговые объяснения базовых понятий и концепций, а также
+практические примеры, на основе которых вы сможете создавать собственные
+модели. Вы научитесь обрабатывать 3D-данные с использованием облаков точек,(   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. В. ЛогуноваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44C6928A549172721083A87E6E1EC8EB2C20666
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638520   (197315) от 08.06.2023
+
+Solomon Eseme | Architecting Vue.js 3 Enterprise-Ready Web Applications (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из этой книги вы узнаете, как настроить и установить Vue.js 3 и API композиции и использовать его для создания реальных приложений. Вы приобретете навыки создания многократно используемых компонентов и масштабирования производительности в приложениях Vue.js 3. По мере продвижения книга поможет вам масштабировать производительность с помощью асинхронной ленивой загрузки, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03D36DE6C986CD60D8797A011ED1A02F74A1588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638158   (197320) от 07.06.2023
 
 М.Л. Подкур, П.Н. Подкур, Н.К. Смоленцев | Программирование в среде Borland C++ Builder с математическими библиотеками MATLAB C/C++ (+CD) (2013) [PDF]
@@ -6,7 +130,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197320.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197320.jpg" />
 </div>
 
 
@@ -31,7 +155,7 @@ magnet:?xt=urn:btih:0D209554F28E389C30994AE69FF75194C24B75B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197433.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197433.jpg" />
 </div>
 
 
@@ -55,7 +179,7 @@ magnet:?xt=urn:btih:6C6DA9554437C59877ADC3D5449C47310A7BF24B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197468.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197468.jpg" />
 </div>
 
 
@@ -79,7 +203,7 @@ magnet:?xt=urn:btih:19D23F7DEC97E40D6DFAAC817808632D42CAB8BB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197469.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197469.jpg" />
 </div>
 
 
@@ -106,7 +230,7 @@ magnet:?xt=urn:btih:E0CFECDB09DE943DD93C700B9AF08AA98F124860
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197498.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197498.jpg" />
 </div>
 
 
@@ -130,7 +254,7 @@ magnet:?xt=urn:btih:7182B1F78AE9260B8919A7D59B64E1A257F022A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197508.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197508.jpg" />
 </div>
 
 
@@ -155,7 +279,7 @@ magnet:?xt=urn:btih:58CB85062B7CF328846624CB6F7E3436AC397A02
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197528.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197528.jpg" />
 </div>
 
 
@@ -179,7 +303,7 @@ Alexander Benedikt Kuttig | Professional React Native (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197731.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197731.jpg" />
 </div>
 
 
@@ -205,7 +329,7 @@ Daniel Afonso | State Management with React Query (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197739.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197739.jpg" />
 </div>
 
 
@@ -229,7 +353,7 @@ Chris Minnick | JavaScript All-in-One For Dummies (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197742.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197742.jpg" />
 </div>
 
 
@@ -254,7 +378,7 @@ magnet:?xt=urn:btih:BA4416B159ADB1C73567470FD6A7E72A7195E472
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197754.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197754.jpg" />
 </div>
 
 
@@ -278,7 +402,7 @@ magnet:?xt=urn:btih:36B700ADED24EA1EFAE8DC3EE4D9554A7DB53212
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197759.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197759.jpg" />
 </div>
 
 
@@ -302,7 +426,7 @@ magnet:?xt=urn:btih:77CD123DB91CE020898D2F1388E5EE43D83A2E99
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197816.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197816.jpg" />
 </div>
 
 
@@ -326,7 +450,7 @@ magnet:?xt=urn:btih:8D987C281556C8EF25ABE15C3A13022167156C0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197912.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197912.jpg" />
 </div>
 
 
@@ -350,7 +474,7 @@ magnet:?xt=urn:btih:D465177A22EC3BA87FD2B68DDC322169B23555B1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197961.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197961.jpg" />
 </div>
 
 
@@ -374,7 +498,7 @@ magnet:?xt=urn:btih:5BC6F0ECC05C49AEEDBEEA45EB141204224E3B4E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197983.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197983.jpg" />
 </div>
 
 
@@ -399,7 +523,7 @@ magnet:?xt=urn:btih:A1C9703D604A802EA9608FF1C881297A3ADFFDC7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198113.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198113.jpg" />
 </div>
 
 
@@ -424,7 +548,7 @@ magnet:?xt=urn:btih:F52232B4D3FA04921A22C08FD420A0B8444C237E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198156.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198156.jpg" />
 </div>
 
 
@@ -448,7 +572,7 @@ magnet:?xt=urn:btih:4EC00D40D57FA4CACCD3B75BC33F7830A43B4314
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198222.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198222.jpg" />
 </div>
 
 
@@ -472,7 +596,7 @@ Cliff Sharif | Game Development with Unreal Engine 5 (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198287.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198287.jpg" />
 </div>
 
 
@@ -496,7 +620,7 @@ magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198365.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198365.jpg" />
 </div>
 
 
@@ -508,127 +632,6 @@ magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B27E4B6916532CAE595E47E4D65D7572109EDC97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633088   (198479) от 13.05.2023
-
-И. Николаев | Excel для финансового директора (2015) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена одному из важнейших инструментов работы любого финансового директора — программе Microsoft Excel. Как ни парадоксально, именно Excel, а не «1С», SAP, Oracle или иные специализированные финансовые программные продукты, является наиболее мощным и эффективным инструментом в руках финансового руководителя, способным на несколько порядков повысить (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870725DC2ED372E6322B4BA0962A68EEEBDE45D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633189   (198483) от 13.05.2023
-
-Гарри Рой Льюис (ред.) | Идеи, определившие облик информатики: Классические статьи по компьютерным наукам (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198483.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собрано 46 классических статей по информатике, которые прочертили карту развития этой науки. Охвачены все аспекты компьютерных наук; особое внимание уделяется периоду с 1936 по 1980 годы, но рассматриваются и важные ранние работы. Знакомя читателей с работами мыслителей от Аристотеля и Лейбница до Алана Тьюринга и Норберта Винера, книга документирует открытия (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.А. СлинкинФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE6168571F9FB4EA0E7A7D16832C0DEB35A57E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633215   (198495) от 14.05.2023
-
-Qaifi Khan | ReactJS for Jobseekers: The Only Guide You Need to Learn React and Crack Interviews (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам узнать все, что нужно знать о ReactJS, чтобы начать работать в качестве front-end разработчика. В начале книги рассказывается об основных понятиях, таких как компоненты, состояние, реквизиты, жизненный цикл и механизмы, которые помогут вам освоиться в экосистеме ReactJS. В книге также рассматриваются дополнительные темы, такие как маршрутизация, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3634F509F99B686630FC1EBC946E92425330E55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632411   (198580) от 10.05.2023
-
-Sulekha AloorRavi | Metaprogramming with Python (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198580.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале книги вы узнаете о необходимости и применении метапрограммирования, а затем перейдете к основам объектно-ориентированного программирования. Далее вы узнаете о простых декораторах, поработаете с метаклассами, а затем сосредоточитесь на интроспекции и рефлексии. Вы также углубитесь в дженерики и типизацию, а затем определите шаблоны для алгоритмов. По мере (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0AC413B13B1FFCF5287130AFF7F9C3A32C48531
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632453   (198600) от 10.05.2023
-
-В.А. Ажеронок и др. | Разработка интерфейса прикладных решений на платформе "1С:Предприятие 8" (2018) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Разработка интерфейса прикладных решений на платформе «1С:Предприятие 8» является обновленным и дополненным изданием книги «Разработка управляемого интерфейса».
-Книга адресована специалистам, имеющим опыт разработки на платформе «1С:Предприятие 8.3». Также она будет интересна и полезна всем программистам, желающим познакомиться с тем, как создаются прикладные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F66D802B0A10421E90AE56ECCCD236C2B014693
 ```
 
 

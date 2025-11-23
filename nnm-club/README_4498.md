@@ -1,3 +1,127 @@
+###  Публикация: 1273151   (139182) от 30.12.2018
+
+Квартирник на НТВ у Маргулиса. Евгений Маргулис (12.29.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139182.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом специальном выпуске самого неформатного музыкального шоу страны впервые место приглашенного гостя занял сам Евгений Маргулис! Именитый ведущий и талантливый музыкант исполнил свои популярные хиты — «Зато мой друг лучше всех играет блюз», «Шанхай блюз», а также представил свой новый зажигательный альбом, который никого не оставит равнодушным. Кроме того, блюзмен (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8A70448AC0183C8334DF53C115856EB3250460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349076   (139183) от 30.12.2019
+
+Кто твоя бабушка, чувак? / C'est quoi cette mamie?! (2019) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аврора наслаждается богатой жизнью в своих апартаментах на Лазурном Берегу во Франции. Вечеринки, друзья, путешествия, и самое важное — свое расписание дня. В один день дочери отправляют погостить к ней семь внуков от 6-ти до 18 лет.Производство: Франция, Бельгия / 6ter, Bonne Pioche, Centre National de la Cinématographie (CNC)Жанр: КомедияРежиссер: Габриэль Жюльен-ЛаферьеАктеры: Шанталь Ладезу, Жюли Гайе, Тьерри Нёвик, Жюли Депардье, Люсьен Жан-Батист, Клаудия Тагбо, Филипп Катрин, Арие Эльмалех, Нино Киртадзе, Садио ДиаллоПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1C4B0F9AE8271F187137F658A4E3959F612203
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520696   (139184) от 30.12.2021
+
+Blonker - Compilation (2021) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aranjuez
+02. Straight Ahead
+03. Morning Breeze
+04. Travelling(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A36830060B595832CEE61732F59D1915020857A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273075   (139185) от 30.12.2018
+
+Фрэнсис Эшкрофт | На грани возможного: Наука выживания (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых выдающихся женщин-ученых мира Фрэнсис Эшкрофт поднималась на Килиманджаро и погружалась с аквалангом, прошла что-то вроде «крещения огнем» в горячей японской купальне и даже спасла жизнь человеку, оказавшемуся в ледяной воде. Ее книга не только увлекательное чтение и научное сочинение, но и практическое руководство по выживанию.
+И вполне возможно, она (   Читать дальше...   )Жанр: Зарубежная прикладная и научно-популярная литератураПродолжительность: 14:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E589986F64215DF547B29DA69924E79A72EECB22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679267   (139186) от 24.11.2023
+
+MathType 7.7.1.258 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139186.jpg" />
+</div>
+
+
+###  Подробнее
+
+MathType - это мощный интерактивный инструмент, который кардинально меняет способ создания печатных и электронных документов, содержащих математические формулы. Design Science MathType применяется совместно с любым текстовым и HTML-редактором, презентационной или издательской программой, и другими типами программного обеспечения для создания формул в научных статьях, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2281ADA73E8FDC92E6D0BD49190BDE160AB69D33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088462   (139187) от 31.12.2016
 
 Вести в 20-00. Большие Вести. Россия 1 (30.12.2016) HDTVRip
@@ -6,7 +130,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139187.jpg" />
 </div>
 
 
@@ -30,7 +154,7 @@ magnet:?xt=urn:btih:A7196156F245EA057F8B8879418ECF304CFEDFC1
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139189.jpg" />
 </div>
 
 
@@ -54,7 +178,7 @@ magnet:?xt=urn:btih:5B743063C7B4474E370E3BF0EF59635391B7D90E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139191.jpg" />
 </div>
 
 
@@ -80,7 +204,7 @@ magnet:?xt=urn:btih:4F4F7A4F4E51E056CEBC22C23A3527E7294C0580
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139192.jpg" />
 </div>
 
 
@@ -105,7 +229,7 @@ magnet:?xt=urn:btih:75E390ECB1F9D1899A1E83CC2FEEC2B42E60EB20
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139193.jpg" />
 </div>
 
 
@@ -129,7 +253,7 @@ magnet:?xt=urn:btih:2921049C0264CB669067A515E75864543DD20218
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139194.jpg" />
 </div>
 
 
@@ -153,7 +277,7 @@ magnet:?xt=urn:btih:EB21AB66B8D3FCB2CF1AE006C1BCC3F1D96900EB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139196.jpg" />
 </div>
 
 
@@ -178,7 +302,7 @@ magnet:?xt=urn:btih:202C590D67B8E8476F175B7A6FF7478EB3AAF3D0
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139198.jpg" />
 </div>
 
 
@@ -204,7 +328,7 @@ magnet:?xt=urn:btih:2B63FAF4301DC87F59F5FB517D37CA91A1CE5A83
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139199.jpg" />
 </div>
 
 
@@ -229,7 +353,7 @@ AIMP 4.60 Build 2167 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139200.jpg" />
 </div>
 
 
@@ -253,7 +377,7 @@ magnet:?xt=urn:btih:D89F6B5A15338B9205C7AB3D124FE94EDEBB256F
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139201.jpg" />
 </div>
 
 
@@ -277,7 +401,7 @@ Billie Holiday - The Ben Webster & Harry Edison Sessions (1956-1957) 2CD, 2009, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139204.jpg" />
 </div>
 
 
@@ -304,7 +428,7 @@ magnet:?xt=urn:btih:6A16DA5AAA4DD627E4929628A00B9DBB565C6BCC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139205.jpg" />
 </div>
 
 
@@ -328,7 +452,7 @@ magnet:?xt=urn:btih:27A50AF163AA6B9D20FD7AD9536538A8C1D275DD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139206.jpg" />
 </div>
 
 
@@ -352,7 +476,7 @@ magnet:?xt=urn:btih:690AA6F8E29555F1F7968C9BB1B9A7797B0529FC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139207.jpg" />
 </div>
 
 
@@ -376,7 +500,7 @@ magnet:?xt=urn:btih:A99B646F1941F9DAC886B506C8BC21240E2184D1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139208.jpg" />
 </div>
 
 
@@ -401,7 +525,7 @@ magnet:?xt=urn:btih:17D9398D5097BCF20F8738F610EF6282A851CE5B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139209.jpg" />
 </div>
 
 
@@ -425,7 +549,7 @@ magnet:?xt=urn:btih:345221FDEE062A32061596BC7B2AF0E8CA289AF9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139210.jpg" />
 </div>
 
 
@@ -449,7 +573,7 @@ Take 6 - We Wish You a Merry Christmas (1999) [FLAC|Lossless|tracks + .cue] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139211.jpg" />
 </div>
 
 
@@ -476,7 +600,7 @@ magnet:?xt=urn:btih:B491ACC4EDDD937C50EB1DABB31F4DA195107296
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139212.jpg" />
 </div>
 
 
@@ -500,7 +624,7 @@ magnet:?xt=urn:btih:5AA847177B82FA992AB58CAB734A86EB539EA524
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139213.jpg" />
 </div>
 
 
@@ -511,130 +635,6 @@ magnet:?xt=urn:btih:5AA847177B82FA992AB58CAB734A86EB539EA524
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62E82A6F69E5600084D458C2B11B63AF654277A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159325   (139214) от 30.12.2017
-
-Танцы (2017.12.30) SATRip (сезон 4, выпуски 1-22)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: ~ каждый выпуск 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5AB289E0471A930FE380475AC1F6155389C477
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273052   (139215) от 30.12.2018
-
-Анатолий Махавкин | Последняя тень (2018) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство атаковано непобедимой северной империей, королевская семья уничтожена, армия разбита. Единственная уцелевшая из правящей фамилии спасется бегством. Но преследователи окружают её и остаётся последняя надежда - Дар-Тень: боец, полученный в результате опытов над маленькими девочками.
-Дар ненавидит королеву за то, что та увела её мужчину, но обещает помочь. (   Читать дальше...   )Жанр: Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F61BFCDD8B496E4BC88BDC56730999A653D7A03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877953   (139217) от 30.12.2017
-
-Маша и медведь. Машкины страшилки (2014-2017) WEB-DLRip [H.264/720p-LQ] (Серии 1-24) [ОБНОВЛЯЕМАЯ]
-
->>След.
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый проект студии "Анимаккорд" - "Машкины страшилки"... Все дети боятся темноты. Маша раньше тоже так её боялась, что приходилось ей по ночам с фонариком сидеть! Но однажды Маша придумала сказочку про маленького лесного жучка, который тоже боялся темноты... Трепещите! Маша взялась за новый жанр - теперь она рассказывает страшилки!Телекомпания: «АНИМАККОРД»Жанр: Мультсериал, Анимация, ДетскийСубтитры: ОтсутствуютПродолжительность: ~ 00:06:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0D57B119171F7EA56F1836EF2AFB3C9E8DEBB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679063   (139218) от 24.11.2023
-
-4clinic. Учебный центр, Владимир Демченко, Илья Артёменко | Комплексный курс по мануальной терапии (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мягкие мануальные техники - это высокоэффективная методика для лечения заболеваний опорно-двигательного аппарата, и уже после трёх дней обучения у нас вы будите знать принципы мягких мануальных техник, виды тканевых нарушений, вы научитесь проводить диагностику состояния пациента, выполнять пальпацию, делать основные движения мягкого мануального воздействия, назначать (   Читать дальше...   )Производство: 4clinic. Учебный центрЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 22:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CC61AF1C99CE7FD3F31F544F4E0ADBADA46945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088590   (139219) от 31.12.2016
-
-ChronoSync 4.7.2 & ChronoAgent 1.6.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139219.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChronoSync  - синхронизируем файлы и папки
-ChronoSync представляет собой приложение для Mac, который может использоваться для синхронизации или резервного копирования файлов и папок. Позволяет сделать резервное копирование всей системы  также, создав загрузочную резервную копию.
-
-С ChronoSync можно синхронизировать или делать резервные копировании для большинства  устройств (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2016Разработчик: Econ Technologies, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A241989156178FDA770FCB19ADB3DD6213844B
 ```
 
 

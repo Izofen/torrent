@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25941.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26051.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26747.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 из 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27657.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28685.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ji Jia Shou Shen: Baolie Feiche 5 | Screechers Wild 5! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28919.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEB-DL 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29197.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29197.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Black Clover (2017) | Чёрный клевер [ТВ-1] [2017, TV, 170 эп. + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29198.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29198.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B341CEE2EF639DA14A18876C4EFBF3EBAFE7B398
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31204.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:3376C5974DDDB778BB78C62FD1D5D76C58010DC4
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31655.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Blue Lock | Синяя тюрьма: Блю Лок [ТВ-1] [2022, TV, 24 из 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31690.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Atri: My Dear Moments | Atri -My Dear Moments- | Атри [2024, TV, 13 из 13]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31707.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31906.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:6E788D7BC53AFC8B43C52A490CEBA33DB0FB0304
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31920.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:0CCAC7C24D0E276FE5F296E106C1127D8824A1CB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31957.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Maou 2099 | Demon Lord 2099 | Повелитель демонов 2099 [2024, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32049.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Cosmos | Pretty Guardian Sailor Moon Cosm
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32323.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dan Da Dan | Дандадан [2024, TV, 12 из 12] WEBRip 396p Raw+Rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32334.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:7D0110EE57FCB72C61902C278C4410FC66A3E93B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32479.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:307BF796CBB689C94A973B2A65FA53F9D6BA8FFA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32524.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:9B0850841648A4740809B1B53963D20FFAE3C6AE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32666.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:087B7FA4994F197BD392E2050521CBE5D1FB9239
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32988.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33059.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Rekishi ni Nokoru Akujo ni Naruzo | Rekiaku | Я стану злодейкой, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33089.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:2397D652553914D9651369B4BB786F144EA112FF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33099.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:288228C3F3342C77F78D0145514B857B39C5A516
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33190.jpg" />
 </div>
 
 

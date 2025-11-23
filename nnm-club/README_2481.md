@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65254.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4FA6BE389662AC9B07D369E2DA7992C6313FB240
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65255.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Gaia GPS (Topo Maps) v2025.5 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65256.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Allavsoft Video Downloader Converter 3.28.2.9330 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65257.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Display Driver Uninstaller 18.1.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65258.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:CF717D27166BDD121C395F03DABD99179B862FFB
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65259.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:8F6FE902D68AB29F27CE7A1794FFBC4C05249220
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65260.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:5EDE5CC5BC45CA5EAC2D0DA5AAAE939FF91DAD88
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65261.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Picsart AI Photo Editor, Video v27.9.8 Final Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65262.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0527AB024325C5F6B694ECA470E923E989FFE5BD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65263.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:DAF659862088F91769DFF2D4E26645993E1B3D24
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65264.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:8D44D7B454312A28E7F0CD993877561BABFE9421
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65265.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Frank Potenza - For Joe (2013) Capri Records [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65266.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Ori Uplift - Uplifting Only Episode 649 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65267.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:BD0F808D2529AE18B3F6CFCCACA8E211AC88983F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65268.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:45AEE089B73F0FF4E3ECD076BE9C9EEC0CD0D7ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65269.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ As the Sea Parts - Psychosis (2025) [MP3|320 Kbps] <Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65270.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Asphodelus - Stygian Dreams (2019) [FLAC|Lossless|image + .cue] <Doom, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65271.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Annisokay - Studio Albums (9 releases) (2010-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65272.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:EA331C6AA37AFF91FC4BE0DE2FADBADDC509C7DF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65273.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Armin van Buuren - A State Of Trance 1234 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65274.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:6206E1EDD334D0AE896BFBFD1FAA93448C7B80CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65275.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:C9C7CB407D1D22530A7A59BEAB39DF8446672C13
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65276.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Daron Malakian and Scars On Broadway - Addicted To The Violence (2025) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65277.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65278.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:CA29C5CF6557320515AB5CF97D1B338ADE276969
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65279.jpg" />
 </div>
 
 

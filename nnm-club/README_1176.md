@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30929.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.3 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30930.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30930.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:587F1252D0B4405862FA361AD7AAF3E5A867CC0C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30931.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Smoothies - The Sound of 70s (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30932.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30933.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30933.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30934.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30934.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30935.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30935.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A99583100FB8362E74529394A406CA21FE80DDD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30936.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30936.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Gif Me! Camera Pro v1.90 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30937.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30937.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Secret Service - Spotlight (1988) [AAC|320 Kbps] <Electronic, Pop, Synth-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30938.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30938.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - 40 Songs Rock Workout (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30939.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ O&O DiskImage Professional 20.1 Build 331 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30940.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ KineMaster - Video Editor & Maker v7.5.16.34132.GP Mod by Shadow_Patcher [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30941.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:C418CDC913E602A262A0A661409DAF2DC8447477
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30942.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - 60s Memories (2025) [MP3|320 Kbps] <Pop, Rock, Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30943.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:D8F056C24E5CCD467732FBD303153AE999583B2D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30944.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30944.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - 50s Memories (2025) [MP3|320 Kbps] <Pop, Rock, Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30945.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ The Flirts - The Best Of The Flirts (1991) [AAC|320 Kbps] <Electronic, Pop, Hi N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30946.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30946.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:99C383E9A0E1D0E9206F8E5F73610A2F6FB9A8E8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30947.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30947.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:700042FB1D71D3B42CB2D7D9031380B4ABAF1B95
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30948.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30948.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:D213FD8D299AC3C5ED582E5AA628E8F16FFC8EFB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30949.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30949.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Papik and The Soultrend Orchestra - Now Imagine (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30950.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30950.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Under Pro Best 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30951.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30951.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Selected Trance Music 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30952.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30952.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:2C2B05F60CC0FFB29D3DD32D151B1302FD69CEDA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30953.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30953.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Digiarty AIArty Image Matting 2.2 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30954.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30954.jpg" />
 </div>
 
 

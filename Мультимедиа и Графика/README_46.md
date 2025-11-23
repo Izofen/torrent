@@ -1,3 +1,77 @@
+###  Публикация: 1829221   (202212) от 25.10.2025
+
+Perfectly Clear WorkBench 4.8.0.2871 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614788   (202348) от 23.02.2023
+
+Фото на документы Профи 9.35 [Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фото на документы Профи - это удобная программа для быстрой подготовки и печати фото на документы. Включает готовые форматы документов всех необходимых форматов: внутренний и заграничный паспорт, визы различных стран, удостоверения и пропуска. Она позволяет всего за несколько минут получить фотографию на документ профессионального качества. Программа имеет простой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15869713CF6EC8504D085AA68BAF0C8F7A021A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830318   (202374) от 26.10.2025
+
+Arturia - Pigments 6.0.4 STANTALONE, VSTi, VSTi 3 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Arturia выпускает обновлённую версию своего флагманского VST-синтезатора. В сравнении с предыдущей версией, инструмент получит новый движок синтеза, новые фильтры, эффекты и другие улучшения.
+Arturia Pigments 6 включает шесть типов синтеза, отмечают разработчики. В шестой версии синтезатора инструмент пополнился новым модальным движком, генерирующим «вдохновлённые (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103353C256E11FA7E4F7660EA1E27623BE9538A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830304   (202376) от 26.10.2025
 
 MAGIX Sound Forge Pro 18.0.0 Build 21 Portable by conservator [Ru]
@@ -6,7 +80,7 @@ MAGIX Sound Forge Pro 18.0.0 Build 21 Portable by conservator [Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202376.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202376.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Modartt - Pianoteq 8.4.3 Pro STANDALONE, VSTi, VSTi 3, AAX RePack (& Portable) b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202422.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202422.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ AIR Music Technology - Hybrid 3.2.0 STANDALONE, VSTi, VSTi 3 (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202423.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202423.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ BABY Audio - Smooth Operator Pro 1.2 VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202424.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202424.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ U-he - Uhbik 2.0.0 VST 3, CLAP, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202425.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202425.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ Synapse Audio - DUNE 3 3.6.5 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202426.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202426.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202495.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202495.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ NewBlue FX plugins 2.0.0.34 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202497.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202497.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ Xfer Records - Serum & SerumFX 1.36b3 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) Re
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202513.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202513.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ PowerDirector Ultimate 21.1.2401.0 (x64) RePack by PooShock [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202533.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202533.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ HitPaw Photo Enhancer 2.0.3.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202586.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202586.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ Nik Collection by DxO 5.5.0.0 Portable by conservator [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202642.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202642.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ magnet:?xt=urn:btih:448F42885019628C3B39D9CAB064031E8117BF50
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202732.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202732.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202903.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202903.jpg" />
 </div>
 
 
@@ -348,7 +422,7 @@ ArtRage 6.1.3 RePack by OctaneS [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203490.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203490.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ Avid Sibelius Ultimate 2022.9 Build 1464 RePack by OctaneS [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204043.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204043.jpg" />
 </div>
 
 
@@ -399,7 +473,7 @@ Avid Sibelius Ultimate 2019.5.0 Build 1469 RePack by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204059.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204059.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ magnet:?xt=urn:btih:D958B866D82999788F06082DCF3A2BAC9AAEE705
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204570.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204570.jpg" />
 </div>
 
 
@@ -450,7 +524,7 @@ The Foundry Nuke Studio 14.0v1 RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204607.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204607.jpg" />
 </div>
 
 
@@ -474,7 +548,7 @@ MAGIX Vegas Pro 20.0 Build 214 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204917.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204917.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ Adobe Illustrator 2023 27.0.0.602 RePack by PooShock [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205007.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205007.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ magnet:?xt=urn:btih:2F7FCEC7E7ED8C775B8990E1B1DFCEEB9B81E1DB
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205507.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205507.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ vMix Pro 28.0.0.42 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205615.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205615.jpg" />
 </div>
 
 
@@ -558,79 +632,6 @@ vMix — это многофункциональный современный в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCF19D6F008B89962A4B5E66A2DAD82F61E50031
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830884   (205616) от 27.10.2025
-
-Adobe Illustrator 2026 30.0 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Illustrator — это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях — цифровой графики, иллюстраций и печати — при разработке любых видов мультимедийных ресурсов: печатных материалов, интернет-контента, интерактивных средств, видеороликов и мобильных приложений.
-Создавайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072666D56A2C6BA1DD15274FA1DD8DE402D7DE32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830861   (205617) от 27.10.2025
-
-Adobe Photoshop Lightroom Classic 2026 15.0 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF17CF5919F3BAC303BB64B7311A353C8B980C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830769   (205632) от 27.10.2025
-
-Adobe Photoshop 2026 27.0.0 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — это приложение для редактирования и дизайна цифровых изображений, которое позволяет преобразовывать фотографии, графику и иллюстрации в высококачественный пользовательский контент. Редактируйте и создавайте изображения, используя слои, кисти, инструменты ИИ на базе модели Adobe Firefly Image и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4910A2B26BC9E3186F083B6E0594A6DCC2985EF4
 ```
 
 

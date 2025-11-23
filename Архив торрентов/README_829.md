@@ -1,3 +1,77 @@
+###  Публикация: 1345553   (166725) от 15.12.2019
+
+Mitti 1.5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mitti - это современное, многофункциональное, но простое в использовании профессиональное программное обеспечение для видеовоспроизведения в театральных, аудиовизуальных шоу, выступлениях и выставках.
+
+Mitti имеет понятный, интуитивно понятный пользовательский интерфейс с легким в освоении и использовании рабочим процессом, современным 64-битным аудио с низкой задержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.05.2019Разработчик: ImimotПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198E2F9515622C8F5D938C95E51EEF2FDE661011
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345474   (166727) от 15.12.2019
+
+Storyist 4.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Storyist для Mac OS - является мощной средой для работы писателей и сценаристов, которую по достоинству оценят как профессиональные писатели, так и те, для кого написание историй - просто хобби. Storyist включает в себя текстовый редактор, заметки, планировщик, конвертер в epub и Kindle и пр. Программа поможет организовать и упорядочить все части вашей истории. Ведь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Storyist Software LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038D7B105294AD66B1299E1F2640423EEC6AC56B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345624   (166731) от 15.12.2019
+
+Cascadea 1.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Cascadea, первый менеджер пользовательских стилей, разработанный как расширение приложения Safari и собственное приложение macOS. Cascadea позволяет легко устанавливать пользовательские стили, которые изменяют внешний вид любого веб-сайта, который вы хотите. Независимо от того, хотите ли вы, чтобы ваш канал в социальных сетях был насыщенным цветом, или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2019Разработчик: Mike FreudenПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF2FE8B20A48C3EC9398A10AEDD45157A8023EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516196   (166741) от 10.12.2021
 
 Volume2 1.1.7.443 Beta + Portable [Multi/Ru]
@@ -6,7 +80,7 @@ Volume2 1.1.7.443 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166741.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ TweakPower 1.166 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166742.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Firefox Browser 84.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166757.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:AF197E761ED42558538A08A8D4D84CA041712C60
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166758.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ GrandTotal 6 v6.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166759.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ Chronicle Pro 9.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166763.jpg" />
 </div>
 
 
@@ -154,7 +228,7 @@ Mirillis Action! 4.24.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166764.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ Viber 14.4.0.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166765.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ Tap Forms Organizer 5 v5.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166770.jpg" />
 </div>
 
 
@@ -229,7 +303,7 @@ Free Download Manager 6.12.1.3374 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166773.jpg" />
 </div>
 
 
@@ -254,7 +328,7 @@ Textify 1.8.9 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166776.jpg" />
 </div>
 
 
@@ -278,7 +352,7 @@ Firefox Browser ESR 78.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166793.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ JRiver Media Center 27.0.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166796.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ MusicBee 3.5.8698 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166815.jpg" />
 </div>
 
 
@@ -350,7 +424,7 @@ magnet:?xt=urn:btih:7D7C27758F872B910A432B4F0BD5223628C6D913
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166832.jpg" />
 </div>
 
 
@@ -374,7 +448,7 @@ TechSmith Snagit 2024.0.1 build 555 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166835.jpg" />
 </div>
 
 
@@ -398,7 +472,7 @@ Total Commander 11.02 RC5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166841.jpg" />
 </div>
 
 
@@ -422,7 +496,7 @@ Wondershare UniConverter 12.5.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166843.jpg" />
 </div>
 
 
@@ -448,7 +522,7 @@ Hosts File Editor+ 1.5.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166846.jpg" />
 </div>
 
 
@@ -473,7 +547,7 @@ Balabolka 2.15.0.764 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166851.jpg" />
 </div>
 
 
@@ -499,7 +573,7 @@ Reallusion Cartoon Animator 4 v4.4 Pipeline macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166859.jpg" />
 </div>
 
 
@@ -523,7 +597,7 @@ Serviio Pro 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166865.jpg" />
 </div>
 
 
@@ -548,7 +622,7 @@ WinRAR 5.80 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166868.jpg" />
 </div>
 
 
@@ -559,80 +633,6 @@ WinRAR - один из самых известных архиваторов. Т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DA1D63E6B09E45DBDB6B5F907BF7AABEF3CB927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516293   (166873) от 10.12.2021
-
-K-Lite Codec Pack Update 16.6.3 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166873.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963B6D81AAD7F8C435A16527F1F233813ED3ABE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431621   (166875) от 14.12.2020
-
-HDCleaner 1.320 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166875.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows от компании Майкрософт. Данный набор эффективных средств ля очистки ПК создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43048629491F1FDB9116D07E7EBC95B72E17702D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516294   (166885) от 10.12.2021
-
-Opera GX 82.0.4227.25 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C70E41EEAEE745176B6A586450F593A1D9EF8A6
 ```
 
 

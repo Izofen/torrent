@@ -6,7 +6,7 @@ Antropomorphia - Evangelivm Nekromantia (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136550.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:363A4CDA1FFE456E73BAE16B132D2F4BF97D21CA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136644.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ magnet:?xt=urn:btih:E3BDDB89736B7D4B84882A4438D439423EEE3D4E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136658.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kaash Paige - 2 Late To Be Toxic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136702.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136703.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Crypt Of Kerberos - Cyclone of Insanity / Visions Beyond Darkness + Demos (2017)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136710.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Dream Syndicate - Medicine Show: I Know What You Like (1984) Reissue, Remast
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136715.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Chrissie Hynde - Duets Special (2025) [MP3|320 Kbps] <Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136716.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Rick Wakeman - Melancholia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136718.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Scorpions - From The First Sting (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136719.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ David Gilmour - The Luck And Strange Concerts (2025) [FLAC 24/96|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136721.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Battle Beast - Steelbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136728.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Grailknights - Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136735.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Sabaton - Legends (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136765.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Vimic - Open Your Omen (2025) [FLAC|Lossless|WEB-DL|tracks] <lternative Metal, G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136787.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Kerry Charles - It'll Be Over Soon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136790.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Kerosene 454 - At Zero (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136794.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Justin Runyon - Swirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136797.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Jay Parrino - Cover Recovery 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136804.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Jaret Miner - Leave Your Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136806.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hollow Rhyme - Inns Fuel & Ale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136807.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Hammy Haze - Hammy Haze's Adult Radio Vol I (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136808.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Gothik Serpent - The Examination II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136812.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Swiss & Die Andern - 9 Albums (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136954.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Foo Fighters - 15 альбомов, 3 сингла (1995 - 2023) 26 CD [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136999.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:08A3E491C01B8759BADD466FA02E67D83F7216D8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137091.jpg" />
 </div>
 
 

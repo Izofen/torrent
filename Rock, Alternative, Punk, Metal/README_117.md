@@ -6,7 +6,7 @@ Neaera - All Is Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106400.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Golgotha - Spreading The Wings Of Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106402.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106424.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Santana - House Of Blues - Las Vegas, NV / May 23, 2024 (2024) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106434.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Crypt Sermon - The Stygian Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106488.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Worshipper - One Way Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106492.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cloven Hoof - Dominator (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106496.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Paul Di'Anno's Warhorse - Paul Di'Anno's Warhorse with Madiraca & Pupi (2024) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106500.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Highly Suspect - As Above, So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106503.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC|Lossless|image + .cue] <Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106504.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Orange Goblin - Science, Not Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106508.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ SkyEye - New Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106509.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Nemoreus - Orcunadoras (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106518.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cryptopsy - As Gomorrah Burns (2023) [FLAC|Lossless|image + .cue] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106519.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Devastation Inc. - Beyond The Shape Of Violence (2020) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106523.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kadavar - 7 albums, 10 CD (2012-2021) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106524.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bad Boys - Turn On The Radio (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106529.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Glaciers - Ivory (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106554.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Innuendo - Jigsaw Sunset (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106557.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bobaflex - Anything That Moves (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106565.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Thunderlord - Destroyer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106570.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sylvan - Back To Live (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106581.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Stay Away - СССР 2078 (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106586.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Axxis - Coming Home (2024) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106589.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:455C8E40CF73F179C9ECD1FBF8A97B14C6B72813
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106590.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106593.jpg" />
 </div>
 
 

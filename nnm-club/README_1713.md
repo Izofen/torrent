@@ -6,7 +6,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:53D5FE7778E2CF2C8B83EB8C018328B2A2AE27A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44895.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:819EC42176B869DB842AF7B2CCBDA54077B8F155
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44896.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44897.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.26.2) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44898.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:894805DC111498BBFD81CF729484DA8C0D2DC649
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44899.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Joe Walsh - 17 Albums (1972 - 2012) 26 CD [FLAC|Lossless|tracks + .cue|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44900.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E2794AA5BFDFD71B8B0291556B028593A27FD7D6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44901.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C6C1EAAFAAEBB517E416CE8CD9C1890E52C68431
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44902.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2AA2D11C641AFB0E8093A20EEE3B22B2983E911C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44903.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ENDLESS DAYS Z (2024) [En] (3.0.5) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44904.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:EDFE37BDF1A008401CA2DDAAE29A30729644E6B3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44905.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44906.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:829A498B12AF9F614376AE96B5819450D1FBDDDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44907.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tomb Raider (2013) [Ru/Multi] (1.01.0.0/dlc) Scene Rune [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44908.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Auslogics Driver Updater 2.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44909.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Highrise City (2022) [Multi] (1.2.2/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44910.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:79A4A69E3E01CC74F39FE6D852B99963DB186FBF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44911.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:79A4A69E3E01CC74F39FE6D852B99963DB186FBF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44912.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Screensaver Factory Enterprise 7.10.0 RePack (& Portable) by elchupacabra [Multi
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44913.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E655B9B3E19FFD0C91A46E9E268242F92295BC10
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44914.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:8B59B1C75105D202B541BBC5E2BB089747E826F1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44915.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:AC24CC2483CE98F35A7877EB749805AB39F446B7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44916.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ UltraSearch Professional 4.4.1.1015 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44917.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:9A269C0E89A681DBFD4034BF6ACE8663FEB5FFAB
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44918.jpg" />
 </div>
 
 

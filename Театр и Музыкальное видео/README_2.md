@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27411.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F4EEABB75CE42D7079C7AEA4AC7EB06F31AE8AEC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27713.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:125E72940142B2616DA8A4AF412E78167CCAE1D5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27831.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27831.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ NЮ – Некуда бежать (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27835.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27835.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:4D41D977158A73C3272A3CB671BE9EB4E29DA020
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27929.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D2434231A707988B6983C64DE27629080481CD4A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27961.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27961.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:92453DED03CDB915F0C86F44E51C8015F2DAC98A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28030.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28030.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:0B78F407050D8990763F3B0167B0367BFBDE20FA
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28042.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:FA09B0B65B61FA098C2F5EFFC47D823480613160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28242.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28242.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:2CB5B7B88BE9363E83825BAE3923B0845FBD5C12
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28781.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:59A363D246CF4AE96A043E0CB13D54C28C32946B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28879.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28879.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:850A19DAF9A1B52A071A2943ABAE39520B3679B6
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28904.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28906.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28906.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.265
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28975.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28975.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:7398C72F9DCF0309AD06910F7C69723EE8CED020
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29119.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ NEMOPHILA. Oshikura Manju OSARETE WARAOU TOUR at SENDAI (2024) BDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29148.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29148.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:0DA6925135D5254884C9F19FF7D0DFB8496BBE6A
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29161.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:FB03A607C5C9E3C6E0969961648FA5E06D42C929
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29202.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29258.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29259.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:FF622833D6B6A6ECCAF41EA1AE8A025E3EC135BE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30390.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Def Leppard: One Night Only. Live at the Leadmill (2023) BDRip [H.265/1080p] [10
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30406.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30669.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:257259AAF8FFA7D2074F782B5706CFB8216CD7AE
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31430.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:9EFFC01B8EAAEFCA55BCE2C7E9778AA0A67C12DC
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31644.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:68E5A6F4478F9B824657874766A2A53AA335277D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31739.jpg" />
 </div>
 
 

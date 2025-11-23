@@ -6,7 +6,7 @@ Strava: бег, велоезда, хайкинг v420.11 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 140.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65136.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firefox Browser ESR 128.12.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65138.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PicWish: AI Photo Editor v2.1.7 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65139.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Lighting calculations / Расчеты освещения v6.1.6 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65199.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Jigsawscapes® - Пазлы v4.1.5 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65201.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ PowerDirector – Video Editor v15.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65204.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ TuneIn Radio Pro v39.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65205.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Smart AudioBook Player Pro v11.5.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65211.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Mary’s recipes: рецепты, меню v6.1.0 Mod by Alex.Strannik [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65213.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ PhotoDirector v20.3.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65221.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ All-In-One Offline Maps v3.16 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65231.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:2352957DD0D2C9C99F1377102C5F00D474F99370
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65237.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Allavsoft Video Downloader Converter 3.28.1.9305 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65238.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ OCCT 14.2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65239.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Electrical Calculations Pro / Электрические расчеты v10.5.1 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65248.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Native Instruments - Kontakt 8.5.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65250.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Calibre 8.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65253.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Allavsoft Video Downloader Converter 3.28.2.9330 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65257.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Display Driver Uninstaller 18.1.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65258.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:CF717D27166BDD121C395F03DABD99179B862FFB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65263.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65301.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Photo Editor v11.7 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65318.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Pubbas - Sheepadoodle Phaser 1.0.1 VST 3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65382.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PicWish: AI Photo Editor v2.1.6 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65652.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Smart AudioBook Player Pro v11.4.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65666.jpg" />
 </div>
 
 

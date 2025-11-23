@@ -1,3 +1,179 @@
+###  Публикация: 1194375   (157920) от 24.12.2017
+
+VA - Turn On The Dark (Mixed By Oberon) (2017) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Changes - The Beginning (Original Mix)
+02 Michael Milov - It's Coming This Way (Original Mix)
+03 Neos - Murderer Of Minds (Original Mix)
+04 R.E.L.O.A.D. - Now I'm Disturbed (Splattered Implant Remix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 06:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2879CB199B51C1BC6092A8FAA1E761EEE3FFBED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433411   (157922) от 20.12.2020
+
+Марина Уланова | Смарт-объекты в Photoshop. Чудесные помощники или бесполезная функция (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157922.jpg" />
+</div>
+
+
+###  Подробнее
+
+О том что смарт-объекты помогают нам сохранить качество картинок при трансформации, знают наверное многие. А вот как они могут помочь при первичной обработке фото в Camera Raw? И как используя смарт-фильтры можно создать иллюзию движения при обработке?
+
+Об этих, и еще некоторых полезных свойствах смарт-объектов, именно для фото обработки, и пойдет речь в новом уроке.Производство: psd-studio.comЖанр: ФотоПродолжительность: 00:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C24D78997A199C92BB6EA0033AE05556859960C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194272   (157923) от 24.12.2017
+
+Enrico Pieranunzi Quintet - Don't Forget The Poet (2006) CHallenge Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Persona [06:07]
+02. Don't Forget The Poet [04:58]
+03. Child Of The Real And Ideal [05:41]
+04. Coralie [05:40](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2ABE1EA5D2156326C3BC53737EF43E12938B08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440312   (157924) от 22.12.2015
+
+Вселенная: Семь чудес Солнечной системы 3D / Universe: 7 Wonders of the Solar System 3D (2010) BDRip [1080p] <вертикальная анаморфная стереопара>
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните ближе на некоторые из самых удивительных чудес нашей Солнечной системы, типа гейзеров Энцелада; удивительных колец Сатурна; Большого Красного Пятна Юпитера; и высот горы Олимп на Марсе...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702AB1F084CC9CBC39B0C537A99C173EE5E8A09E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968179   (157926) от 22.12.2015
+
+Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. DShock
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Halo 3 - видеоигра в жанре шутера от первого лица, созданная компанией Bungie Studios эксклюзивно для игровой консоли Xbox 360. Игра является продолжением истории, начатой в Halo: Combat Evolved и продолженной в Halo 2. В игре представлены новые виды транспорта, оружия и особенности игры, отсутствующие в предыдущих играх серии.Тип издания: UnofficialРазработчик: Bungie StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E513BE6A9F500E21905274D00AAF399256ECF0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433196   (157927) от 20.12.2020
+
+Movavi Video Editor Plus 2021 v21.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этом приложении есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов. Попробуйте утилиту прямо сейчас.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Movavi Software LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, английский, немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D834A0E73992E147A39AE0750F2D87AC8BF72D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968164   (157928) от 22.12.2015
+
+Простая девчонка (2015) HDTVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алена Шелестова живет и работает в большом городе. Несмотря на то, что Алена еще очень молода, она занята серьезным делом – пишет кандидатскую по истории стекольного производства, а заодно организует выставку старинных изделий из стекла...Производство: Россия / ООО "Тесей Продакшн", МЕГА ПродакшнЖанр: МелодрамаРежиссер: Максим БриусАктеры: Анастасия Стежко, Станислав Эрдлей, Борис Хвошнянский, Александр Абрамович, Светлана Никифорова, Галина Чернобаева, Инна Коляда, Виктор Васильев (II), Ольга Сизова, Светлана Клименко, Константин ЗадворныйПеревод: Не требуется (язык русский)Продолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802263A92F081A79C70046FAE15D6E728AD2596D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409057   (157930) от 20.12.2020
 
 Илья Мельцов | «Мир за стеной» [2 книги] (2020) [FB2] [Обновляемая]
@@ -6,7 +182,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157930.jpg" />
 </div>
 
 
@@ -32,7 +208,7 @@ NVIDIA GeForce Desktop 361.43 WHQL + For Notebooks [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157932.jpg" />
 </div>
 
 
@@ -56,7 +232,7 @@ Wondershare Filmora 10.0.10.20 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157934.jpg" />
 </div>
 
 
@@ -80,7 +256,7 @@ IObit Driver Booster Pro 3.1.1.457 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157935.jpg" />
 </div>
 
 
@@ -104,7 +280,7 @@ magnet:?xt=urn:btih:50F6ABA21902F128453DF69ED6C6ED41D06F36CA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157938.jpg" />
 </div>
 
 
@@ -128,7 +304,7 @@ RusTV Player 3.1 Final Portable by DoMiNo [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157940.jpg" />
 </div>
 
 
@@ -152,7 +328,7 @@ magnet:?xt=urn:btih:4A46619909636D969C4017DA4F700F4729652934
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157943.jpg" />
 </div>
 
 
@@ -176,7 +352,7 @@ magnet:?xt=urn:btih:5CA44034F4A445262AA1B5EC35737C0FC40D37B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157945.jpg" />
 </div>
 
 
@@ -200,7 +376,7 @@ VA - Dark Tomorrow Amsterdam 2018 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157948.jpg" />
 </div>
 
 
@@ -227,7 +403,7 @@ magnet:?xt=urn:btih:B300D9A43C484366AA392B2D9C35BE20D6128B34
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157950.jpg" />
 </div>
 
 
@@ -251,7 +427,7 @@ magnet:?xt=urn:btih:F2077E6F7706BFA29EEB03F8C7E1E97957F2843A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157951.jpg" />
 </div>
 
 
@@ -277,7 +453,7 @@ VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157952.jpg" />
 </div>
 
 
@@ -304,7 +480,7 @@ magnet:?xt=urn:btih:00C9CEEF736B0F7A69745F25EE6DBE180F2C75A0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157953.jpg" />
 </div>
 
 
@@ -328,7 +504,7 @@ The Beatles - Легенды Зарубежного Рока (1999) Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157954.jpg" />
 </div>
 
 
@@ -355,7 +531,7 @@ magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157956.jpg" />
 </div>
 
 
@@ -382,7 +558,7 @@ magnet:?xt=urn:btih:3C0330C849DE4339209F43A2C97B176C3ABC373C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157957.jpg" />
 </div>
 
 
@@ -406,7 +582,7 @@ magnet:?xt=urn:btih:985E316DEC7CF09AB84E0839FE1CD15390ACA37F
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157958.jpg" />
 </div>
 
 
@@ -430,7 +606,7 @@ Clayton-Hamilton Jazz Orchestra - Absolutely! (1994) MLake Street Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157960.jpg" />
 </div>
 
 
@@ -457,7 +633,7 @@ magnet:?xt=urn:btih:7FCD40809EA2366AF2920D6833752D54046A1F4C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157961.jpg" />
 </div>
 
 
@@ -469,182 +645,6 @@ magnet:?xt=urn:btih:7FCD40809EA2366AF2920D6833752D54046A1F4C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6E678F5977D04BB3010BE4A1B1186809576563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696231   (157962) от 22.12.2015
-
-Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressive House, Techno, Downtempo, Breaks, IDM, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Star (Dmitry Molosh Remix) (07:31)
- 02. Intrepid Traveller (Luis Bondio 'Welfare' Mix) (07:49)Жанр: Progressive House, Techno, Downtempo, Breaks, IDM, Deep House |Продолжительность: 00:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F52CC4C41BDD9A3D09C759249A2CC42D5ACB62B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194269   (157963) от 24.12.2017
-
-Billy Harper - The Believer (1980) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is It Not True, Simply Because You Cannot Believe It? [19:56]
-02. I Do Believe [04:37]
-03. Believe, For It Is True! [12:12]Жанр: Post-BopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F80D46CBD80E393016846BE6976087AA4335B69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967969   (157965) от 22.12.2015
-
-Миссия невыполнима: Племя изгоев / Mission: Impossible - Rogue Nation (2015) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ОМН распускают, и Итан Хант остается не у дел, его команда неожиданно сталкивается с разветвленной международной сетью высокопрофессиональных спецагентов — Синдикатом. Это «племя изгоев» одержимо идеей установления нового мирового порядка и планирует серию разрушительных терактов. Итан и компания объединяются с дискредитированным британским агентом Илсой Фауст (   Читать дальше...   )Производство: США, Китай | Paramount Pictures, Skydance Productions, Bad RobotЖанр: Боевик, Приключения, ТриллерРежиссер: Кристофер МакКуорриАктеры: Том Круз, Джереми Реннер, Саймон Пегг, Алек Болдуин, Ребекка Фергюсон, Винг Реймз, Шон Харрис, Америка Оливо, Саймон МакБерни, Чжан ЦзинчуПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский (форсированные, полные), Английский (форсированные, полные)Продолжительность: 02:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14494B04164C1F013E212A185E8C4B112FD0A9B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433450   (157966) от 20.12.2020
-
-Проекты - VideoHive - Christmas Creative Memories - 29622697 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон «Christmas Creative Memories» идеально подходит для веселого Рождества и счастливого Нового года. Вы можете использовать его для Рождественского поздравления, зимних воспоминаний или истории любви.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2750BB2018F4DEC2825DD2D8B9804A80458C8BD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194326   (157967) от 24.12.2017
-
-Горные лыжи. Кубок мира 2017–2018. Валь дe Изер (Франция). Женщины. Супергигантский слалом (17.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157967.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 декабря 2017 года, воскресенье. 12:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Валь дe Изер (Франция).
-Женщины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE65B56364793BCA3D9C594F56A47A45AD4CA5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967968   (157969) от 22.12.2015
-
-Роберт Чалдини, Ной Гольдштейн | Психология убеждения. Важные мелочи, гарантирующие успех (2015) [FB2, PDF, DOCX]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга Чалдини — мощный прорыв в сложном искусстве убеждения, более 50 удивительно простых способов влияния на людей.
-Не важно, кого вам надо убедить и в чем: начальника — поддержать идею, коллегу — помочь с проектом, клиента — сделать покупку, супруга — вынести мусор, ребенка — выполнить домашнее задание без капризов…
-Вопрос в другом. Что конкретно можно изменить (   Читать дальше...   )Жанр: Психология, БизнесФормат: FB2, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE116FAE1AC471FF374B304EA214599AF2593507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433334   (157971) от 20.12.2020
-
-Стивен Лин | Челюсти. Научное исследование о взаимосвязи между зубами, мозгом и кишечником + + 40-дневный план питания, который поможет вернуть в норму здоровье ротовой полости и сформировать иммун ...
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стоматологи всего мира ликуют: проблемы с зубами есть практически у каждого. Пломбы, мосты, брекеты – сколько возможностей заработать на якобы невосполнимом ресурсе – здоровье нашей челюсти. Американский дантист Стивен Лин развенчивает миф о том, что здоровье зубов или дано от природы, или нет. Разработанный им 40-дневный план восстановления идеального состояния (   Читать дальше...   )Жанр: СтоматологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0061E966D36ADF1FF00BB6F376FF0231ECE691BA
 ```
 
 

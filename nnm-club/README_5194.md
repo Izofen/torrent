@@ -1,3 +1,179 @@
+###  Публикация: 1675117   (160469) от 08.11.2023
+
+Eisbrecher - Eisbrecher (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polarstern
+02. Herz Steht Still
+03. Willkommen Im Nichts
+04. Schwarze Witwe(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC7767BD736349F916A5B473D49D8D6D6ADD31E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675199   (160470) от 08.11.2023
+
+DxO ViewPoint 4 for Mac v.4.11.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160470.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO ViewPoint — окончательная победа над геометрическими искажениями.
+DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский , Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB5539A6FF338E9793920AE614B269B1E8E8F7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675212   (160471) от 08.11.2023
+
+LaunchBar 6 v.6.18.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160471.jpg" />
+</div>
+
+
+###  Подробнее
+
+LaunchBar - функциональная замена Spotlight на Mac. После запуска приложения вам необходимо задать комбинацию клавиш, по которой будет открываться строка поиска LaunchBar. По нажатию клавиш в центре экрана будет доступна поисковая строка, в которой вы, как и в Spotlight, можете начать вводить название приложения и затем мгновенно его запустить. Надо отметить, что (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2023 Objective Development Software GmbHПоддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CC606C42A11ECF902ACB8D524927C27B1DAE07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675242   (160472) от 08.11.2023
+
+Наша банда. Загадочная тайна! / Our Gang. The Mysterious Mystery! (1924) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пострелята играют в детективов. И это нормально. Кто в детстве не играл в казаков-разбойников или нечто подобное. Тебе более из Микки получился замечательнейший Шерлок. Один халат чего стоит! Но вот ирония судьбы - в своей невинной игре они сталкиваются с настоящим преступлением и настоящими бандитами.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Аллен ’Фарина’ Хоскинс, Юджин М. Джексон, Энди Сэмюэл, Сонни Лой, Честер А. Бачман, Аллан Каван, Дик ГилбертПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D76AC8E234E7974FC8DE8D5A4DB4C5A41510111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675120   (160473) от 08.11.2023
+
+Eisbrecher - Leider / Vergissmeinnicht (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leider (Radio Cut)
+02. Leider (Noel Pix Klingenklang Mix)
+03. Leider (The Retrosic Mix)
+04. Vergissmeinnicht (Radio Mix)(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175462986BB0F7B04CFD80D9A010BE5A9CC49813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675219   (160474) от 08.11.2023
+
+Marked 2 - Markdown Preview 2.6.31 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marked 2 — универсальный превью-инструмент для любого Markdown-редактора
+Многие текстовые редакторы для Mac поддерживают облегченный язык разметки Markdown, придуманный Джоном Грубером для упрощения восприятия текста при подготовке к публикации. Преимуществом Markdown является то, что его можно легко экспортировать в HTML-код и вставить в редактор кода. Одним словом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Brett TerpstraПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF06519AC738059D0B21B0326F9A683A1498E87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675272   (160475) от 08.11.2023
+
+Print to PDF Pro for Mac 4.1.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение работает как небольшой сервер беспроводной печати в сети, поэтому вы можете добавить его на наш Mac в системных настройках и распечатать любой документ непосредственно в формате PDF. Этот процесс на 100% безопасен, поскольку преобразование выполняется локально на Mac. Ваши файлы никогда не покидают его, и для этого не требуется подключение к Интернету. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 Flyingbee SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3D6DB9C111103AACB5AC341DB1F5EE1F8E62A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675119   (160476) от 08.11.2023
 
 Eisbrecher - Antikorper (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
@@ -6,7 +182,7 @@ Eisbrecher - Antikorper (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160476.jpg" />
 </div>
 
 
@@ -33,7 +209,7 @@ Rocket Typist Pro 3.0.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160477.jpg" />
 </div>
 
 
@@ -60,7 +236,7 @@ Dash 7.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160478.jpg" />
 </div>
 
 
@@ -84,7 +260,7 @@ Deckset 2.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160479.jpg" />
 </div>
 
 
@@ -109,7 +285,7 @@ Jeremy Pelt - Insight (2002) Criss Cross [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160480.jpg" />
 </div>
 
 
@@ -136,7 +312,7 @@ QLab 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160481.jpg" />
 </div>
 
 
@@ -160,7 +336,7 @@ Need for Speed: Most Wanted HQ (2005-2020) [Ru/En] (1.3/1.19.6) Repack/Mod Vasy@
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160482.jpg" />
 </div>
 
 
@@ -184,7 +360,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.31j/dlc) Repack Other s [Anniversary Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160483.jpg" />
 </div>
 
 
@@ -208,7 +384,7 @@ magnet:?xt=urn:btih:A7302D94F6F5CF84614F208F84C0D7B6005CF70B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160484.jpg" />
 </div>
 
 
@@ -232,7 +408,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 10.1.2058.0 (26.10.2023) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160485.jpg" />
 </div>
 
 
@@ -256,7 +432,7 @@ magnet:?xt=urn:btih:7F4FAB004BEA3E90E41C3630879E9322CF5C180C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160486.jpg" />
 </div>
 
 
@@ -280,7 +456,7 @@ magnet:?xt=urn:btih:5594B37B02829414B30B73EDA67F94DA15D10CEC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160487.jpg" />
 </div>
 
 
@@ -305,7 +481,7 @@ Frederic Chopin - Chopin Complete Edition (1999) 17CD [APE|Lossless|image + .cue
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160488.jpg" />
 </div>
 
 
@@ -332,7 +508,7 @@ Handel - The Masterworks (2004) 40CD Box [FLAC|Lossless|image + .cue] <Classic>
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160489.jpg" />
 </div>
 
 
@@ -359,7 +535,7 @@ Johannes Brahms Complete Edition (1996) 46CD Box Set [APE|Lossless|image + .cue]
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160490.jpg" />
 </div>
 
 
@@ -386,7 +562,7 @@ magnet:?xt=urn:btih:8F84618034D694EFA1C43CF917F1762B3DD5840F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160491.jpg" />
 </div>
 
 
@@ -411,7 +587,7 @@ Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Cl
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160493.jpg" />
 </div>
 
 
@@ -438,7 +614,7 @@ magnet:?xt=urn:btih:F57BBD9F5AD8CB18F46162A583B16778750A4626
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160494.jpg" />
 </div>
 
 
@@ -462,7 +638,7 @@ magnet:?xt=urn:btih:CAD3EEE4F7D3F9542438AB2E2C079C551F36D0E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160495.jpg" />
 </div>
 
 
@@ -473,175 +649,6 @@ magnet:?xt=urn:btih:CAD3EEE4F7D3F9542438AB2E2C079C551F36D0E3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A7ECC34D02827B2958DB648C58E084F626BB075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 102296   (160496) от 07.11.2023
-
-Ленор, маленькая мертвая девочка / Lenore the Cute Little Dead Girl (2003) [SATRip]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про мёртвую девочку, умершую от пневмонии, которой суждено скитаться в мире живых, она воскресла в связи с тем, что в мир мёртвых принята она не была... Она живёт в заброшенном особняке со своими живыми куклами. Впервые Ленор появляется в виде нескольких книг комиксов, Дирге.Комикс рассказывал о приключениях Ленор и ее разнообразных друзей, основным направлением (   Читать дальше...   )Производство: США / Adelaide Productions Inc.Жанр: мультфильм, комедия, фэнтези, ужасыРежиссер: Роман ДерджПеревод: Многоголосый закадровыйЯзык озвучки: русский, английскийСубтитры: ОтсутствуютПродолжительность: 26 х ~00:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB589C99C1E80BD59E30D2EEBE8BE1AC779B1A35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543352   (160497) от 07.11.2023
-
-Волк как я / Wolf Like Me (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь лет назад жена Гэри умерла от рака, когда их дочери по имени Эмма было всего 4 года. Теперь Эмме 11, она посещает психолога и принимает лекарства, а отношения с отцом не складываются. Однажды Гэри и Эмма попадают в автомобильную аварию, когда в их машину врезается очаровательная девушка Мэри, у которой есть свои тёмные тайны, и о них лучше не знать никому.Производство: Австралия / Made Up Stories, Peacock, StanЖанр: фэнтези, мелодрама, комедия, триллерРежиссер: Эйб ФорсайтАктеры: Айла Фишер, Джош Гад, Ариэль Джой Донохью, Эмма Ланг, Энтони Тофа, Пол Пантано, Винсент Стоун, Алан Дьюкс, Оно Латукефу, Эмили Барклай и др.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: Русский, английскийСубтитры: английские (SDH)Продолжительность: ~00:28:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E79CA4620F1391188DD91B4A4A239AD0FD51C75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323061   (160498) от 07.11.2023
-
-Артуро Перес-Реверте | Тень орла (2005) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артуро Перес-Реверте по праву считается одним из самых популярных испанских писателей 90-х годов. Интеллектуал, мастер изящной словесности, он завоевал сердца своих читателей блестящим знанием истории, захватывающей интригой и филигранной прозой. Настоящий успех пришел к писателю после выхода романа «Фламандская доска», получившего во Франции Гран-при как лучший (   Читать дальше...   )Жанр: Зарубежная литература, историческая повестьИздательство: Издательский дом «Союз»Продолжительность: 03:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EF5E4DB8D9419EF87FB36D8FB3A313EAF0D02A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674770   (160499) от 07.11.2023
-
-Витязи (2023) WEBRip (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160499.jpg" />
-</div>
-
-
-###  Подробнее
-
-События древнерусского детектива разворачиваются на территории Руси в 13 веке. Лучший отряд новгородских витязей становится жертвой неизвестного предателя и попадает в засаду. Из-за провала миссии, князь отстраняет от службы воеводу Белогора и его верных боевых товарищей Варуна и Агафона. Витязи готовы освоить мирное ремесло и жить спокойно, но им приходится снова (   Читать дальше...   )Производство: Россия / MOOVIESHOOTINGЖанр: детектив, историяРежиссер: Михаил КолпахчиевАктеры: Алан Томаев, Олег Малышев, Дмитрий Петрухин, Никита Василевский, Анастасия Рудиш, Ян Решетников, Далер Газибеков, Сергей Оболенский, Марина Цуркова, Сарвар НорматовПродолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065B0405C0FA3BEE29C3CF6C414DF40B2A2C2440
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674785   (160500) от 07.11.2023
-
-DefenderKiller 1.4/11.0.1 Portable [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160500.jpg" />
-</div>
-
-
-###  Подробнее
-
-DefenderKiller - удаление Windows Defender (Защитник Windows)
-Удаление защитника безвозвратное.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97719C89A5712D43395F23182DDFEC106D254CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674963   (160501) от 07.11.2023
-
-DreamWorks All-Star Kart Racing (2023) [Multi] (1.0/dlc) Scene Tenoke
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звездный состав ваших любимых персонажей DreamWorks добавит к скоростным гонкам на картах еще больше веселья, чем когда-либо! Соревнуйтесь на 20 различных тематических трассах DreamWorks, таких как болото Шрека, зоопарк Нью-Йорка из Мадагаскара, остров Олух и другие! 20 самых популярных персонажей DreamWorks: Шрек, По, Тигрица, Кот в сапогах, Иккинг, Астрид, Босс-молокосос (   Читать дальше...   )Тип издания: SceneРазработчик: Bamtang GamesЖанр: ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF807A4168E2DD042A8544B9B84162210CCE37D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578504   (160502) от 07.11.2023
-
-Измена / Предательство / Обман / Aldatmak (2022-2023) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-35 из 35) SesDizi
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гюзиде Йенерсой, живущая вместе со своим мужем уже 30 лет и имеет с ним двух детей, является уважаемым судьей по семейным делам, семья которой служит примером для всех со стороны. Её муж Тарык — опытный и успешный юрист, владеющий собственной юридической фирмой. Её сын Озан работает инженером в строительной компании, а дочь Ойлум учится в медицинском институте, куда (   Читать дальше...   )Производство: Турция / Tims & B ProductionsЖанр: драмаРежиссер: Мурат СарачоглуАктеры: Вахиде Перчин, Эрджан Кесал, Мустафа Угурлу, Джем Бендер, Юсуф Чим, Фейза Севиль Гунгор, Джанер Шахин, Асена Гирискен, Джем Сургит, Мельтем Байток, Хатидже Дениз и др.Перевод: Двуголосый любительский (SesDizi)Язык озвучки: РусскийПродолжительность: ~02:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A89781616028C2C5D5D0816AF8D8955B8200C63
 ```
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1760792   (103167) от 16.11.2024
+
+Поедем, поедим! Тверская область: медвежий угол, полеты на зиплайне, Селигер и пожарские котлеты (16.11.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди в Тверской области побывал в историческом имении генерала Куропаткина и научился готовить его любимые щучьи котлеты, посетил живописный монастырь на озере Селигер, полетал на зиплайне и даже забрался в медвежий угол. А еще ведущий продегустировал макароны от Гальяни и знаменитые пожарские котлеты.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5369627B7E4DB9E42F0378E2B2F2388063514E27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760624   (103168) от 15.11.2024
+
+Баскетбол. Суперкубок России 2024. Женщины. НИКА - УГМК (23.10.2024) WEBRip [35 FPS] [H.264]
+
+>>Спорт и активный отдых
+>>Баскетбол, Волейбол, Гандбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ср, 23 окт. 19:30, Сыктывкар, КСК "Лузалес-Арена"
+Суперкубок России | Сыктывкар | 23.10.2024
+
+В Сыктывкаре состоялся матч за женский баскетбольный Суперкубок России. Обычно в нем встречаются победители Кубка России и чемпионата России прошлого сезона, но так как «УГМК» забрал оба трофея, в матче за Суперкубок «лисицам» противостоял финалист Премьер-лиги (   Читать дальше...   )Телекомпания: Мир баскетболаЖанр: спорт, баскетболЯзык озвучки: РусскийПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543BD1F536C4C38B881A66A957066597E66D3FC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760669   (103169) от 15.11.2024
+
+Letdown. - Be OK (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hate Myself [2:58]
+02 - Dead Right [2:44]
+03 - Raincoat [2:35]
+04 - Déjà Vu [2:48](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Rock, Indie RockПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA807B8E555F5BE84749D67B0D1453CE2B527AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760642   (103170) от 15.11.2024
 
 St. Vincent - Todos Nacen Gritando (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Pop>
@@ -6,7 +84,7 @@ St. Vincent - Todos Nacen Gritando (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103170.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:2F773134CF0F9F23C73B37CEAD1EF949076DC79E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103171.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Michel Sardaby - Blue Sunset (1967) 1990, Mantra [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103172.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Larry Willis Trio - Just In Time (1989) SteepleChase [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103173.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Violent Definition - Progressive Obsoletion (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103174.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Captain Morgan Express - The Pussycat Tapes (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103175.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ North By Northwest - No Time Like the Present (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103176.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Lucas Oakley - Right Here, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103177.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Vendel - Out In The Fields (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Epic, Doo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103178.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ Jim Keays - Caledonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103179.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ Jersey Julie Band - Multiball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103180.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ Bubba Coon - Tthe Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103181.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ Heathensun - Murda Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103182.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ Kenny Barron - 1+1+1 (1986) BlackHawk Records [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103183.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ Matt Charles - Highland Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103184.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ Ken Colyer - Boston Church Service (1972) 1998, GHB Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103185.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ magnet:?xt=urn:btih:56AEF5EDF550A8AA3E50968E3DDFD7F8449011DF
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103186.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ magnet:?xt=urn:btih:B3B68C8FDFD184190FAD49A3668F713AF53059F1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103187.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ PeaZip 10.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103188.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ magnet:?xt=urn:btih:B8C74EBD41FD9AE6629A1D5C79DF4C1CCDC69CEB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103189.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Julien Dore - Imposteur (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, French 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103190.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ VA - Девчонки R'n'B (2007) [WavPack|Lossless|image + .cue] <Pop Rap, RnB
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103191.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ Karfagen - Mysterious Forest: The Working Tapes (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103192.jpg" />
 </div>
 
 
@@ -599,87 +677,6 @@ Karfagen - Mysterious Forest: The Working Tapes (2024) [FLAC 24/48|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:272B2588F016DA60DC596FFAED3117C5F1981874
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759948   (103193) от 12.11.2024
-
-Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrysalis Records [MP3|320 Kbps] <Soul, Soulful House, Deep House>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinking About Your Love (Touchdown 2 Mix) [00:04:53]
-02. Outstanding (Macattack Mix) [00:08:04]
-03. Best Of You (12" Mix) [00:04:54]
-04. Piece By Piece (Absolute Mix) [00:06:20](   Читать дальше...   )Жанр: Soul, Soulful House, Deep HouseПродолжительность: 2 CD, 02:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7935B9053894CAE4CD72FCFE7E5A325198BF6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759897   (103194) от 12.11.2024
-
-Steve Angello - Radio 1's Essential Mix (2024-11-09) [MP3|~245 Kbps (V0)] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Angello & Modern Tales - Darkness In Me
-02. Anti Up - Freaky Feed Me
-03. Magnificence & Corey James - Time Machine
-04. Marco Strous & Gabe - Snogo(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F818627ED3DB7AA65C6020F967B351EA978C77D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760106   (103195) от 12.11.2024
-
-Ethereal - Downfall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betrayal
-02. The Allure Of Dariah
-03. The Last Peaceful Journey
-04. Turmoil(   Читать дальше...   )Жанр: Progressive Gothic, Doom MetalПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A54A6EEF69C45C05736E5F7EEEBAB93B80750FE
 ```
 
 

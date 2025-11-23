@@ -6,7 +6,7 @@ OfficeSuite Pro + PDF v14.7.53174 Extra Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46323.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A23CB101069C2DD454AF45029661E320A94CFA5F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46324.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bria Mobile: VoIP Softphone v6.16.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46325.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Rock Country Blues (2024) 2CD [MP3|320 Kbps] <Blues, Country, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46326.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Fantasy Medieval Celtic Music (2024) [MP3|320 Kbps] <Celtic, Folk, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46327.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Wondershare UniConverter Ultimate 15.6.1.25 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46328.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D4B992536579A66F30A22CD987122A724905B992
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46329.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ UltraSearch Professional 4.4.0.1010 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46330.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:95A2459EFBFFD7ABB055AEFB0323511B4C64D508
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46331.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:5E6C525A5FE4BBEA9422AD60F35FB5EBDFF4BCBE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46332.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A898BDA685DDE8602C44455352ADC6E1A7B758BE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46333.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A898BDA685DDE8602C44455352ADC6E1A7B758BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46334.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sipnetic v1.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46335.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:84DBF9492E5C37C33D8E5ECF09E99CD0A6392C22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46336.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:84DBF9492E5C37C33D8E5ECF09E99CD0A6392C22
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46337.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:8697D222EEFC8D88F1C895447A57E4352A2F2D30
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46338.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:8697D222EEFC8D88F1C895447A57E4352A2F2D30
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46339.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ GPU-Z 2.60.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46340.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8BFADD23686D849B5A90FD6F5D33495FF76EE76E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46341.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Doors - Live At The Isle Of Wight Festival '1970 (2018) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46342.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Shoulders of Giants: Ultimate (2024) [Multi] (1.9.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46343.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:62D36B31FE1DC7670CF053E5051F77EB590F1B5E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46344.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Abathor (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46345.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Internet Download Manager 6.42 Build 20 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46346.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:D521FB02B5B509520E5F0B84EF23E8A4EE73140A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46347.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B0B3ADDE274F17FEB1F7602E7A9042C22BBA12F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46348.jpg" />
 </div>
 
 

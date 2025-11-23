@@ -6,7 +6,7 @@ VA - Охота! 87 (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21308.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:589F70B0A64193DD428A8AD947EB726EF86FE748
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21309.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21309.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dave Stewart - Compilation (2025) [MP3|320 Kbps] <Rock, Pop rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21310.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:772F7501ED54764F8E3723E26A9D01949376E5AE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21311.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21311.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:CB8FC624C1FF32586A6BDF978582B8BF9AE8D02F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21312.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21312.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:6DABC5E721B7B3D1B3DD84022E085FFBEF2439A6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21313.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:ADF6BD768491EC7E71BEB0FE08B5D130B4F26606
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21314.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:FE3D40A55D74EB6A344202B280F72049B321DBAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21315.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3A63BD536D60DA9930B24EA21D6AEA95A092353F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21316.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21316.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:FDBD8796BA7C40FD304464988E62509C0E880312
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21317.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:38CAC9DEA9DDA6777BFB4465414F09B3AA24F4FA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21318.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21318.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:95676AAD28BEEC53DE5E78DA1CCD42909C4055FF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21319.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21319.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:DD44A0913C074913EB5FE7E5DA0D151DFF6C75FF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21320.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ KineMaster - Video Editor & Maker v7.6.9.34606.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21321.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21321.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D53F42FB91FD54F94689138AA6270BD48D7D5FF2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21322.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21322.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A3EE933A922FB13F46CDFA982D8C7C052BC10E0E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21323.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21323.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1CE97E8B5922E260A98E8A578D288F6F2311C7B3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21324.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21324.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Don Amore - I Look in Your Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21325.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21325.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Don Amore - Memories of Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21326.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:7516C94A306B82F4DA9F4C4475532016655522A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21327.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21327.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Music News For Forum vol.074 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21328.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21328.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:3F14FFC438BDB907ADA15641F44FF049699647AA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21329.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Wondershare UniConverter 16.4.1.192 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21330.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - 80s Forever (The Greatest Pop Hits) (2006) [OGG Vorbis|480 Kbps] <Rock, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21331.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:553BDD2CBC752940E7949AEA661A3257997BBE25
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21332.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21332.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:34E2BEF838818098E40B6FD28799E10DE4F5F25E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21333.jpg" />
 </div>
 
 

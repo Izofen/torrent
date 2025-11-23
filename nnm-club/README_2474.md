@@ -6,7 +6,7 @@ Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65072.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65073.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65074.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:0F06DB160719A5CB6F8F76C8FD6DD7DD54148809
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65075.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:B209AE8D031480737E9A6D08B1E4D80FC9ACF59D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65076.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:63FEA6DADFA1D40760619F86A2ABB7CEBFE88CBD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65077.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Magic Eraser / Магический ластик v2.23.9 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65078.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:E414BD52BF0532B7D5855C461742C5B5C3C33446
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65079.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:BC9E425586AAA396F6958F39DFEF5E173BE65F25
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65080.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:8A921C5954BB1A0E7C647DC982CFDF2E3D6C74E3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65081.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Jettblack - Raining Rock (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65082.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:739B469C628156897A2B87D765A3D3398A2F2408
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65083.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Гонка (20.07.2025)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65084.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:856F487BBCC9FEF1AEB643305BC2A6810EA037F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65085.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Aswekeepsearching - kyun? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65086.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Joe Gordon - Lookin' Good! (1961) 2009, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65087.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:D721EA7C9A8B112D012CBC3293AE89669032AA23
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65088.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Magneton - Jo Fiu Leszek [Magneton 2] (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65089.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Axiom Chaos - Primacy Arrival (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65090.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65091.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Gravered - Classic Cult to Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65092.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Axiom Chaos - Primacy Arrival (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65093.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:F52E12CFDF89A491AB736099C142CC50BD7605A7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65094.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ The Black Zodiac - The Tyrant (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65095.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Guana Batz - Rockin' Banshee (2025) [MP3|~245 Kbps (V0)] <Rock, Psychobilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65096.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:333EFF84CCF0089DE20863DABE728B370BBFD70D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65097.jpg" />
 </div>
 
 

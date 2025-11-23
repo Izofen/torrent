@@ -6,7 +6,7 @@ IObit Driver Booster Pro 12.2.0.542 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31551.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31551.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VueScan Pro 9.8.43.05 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31553.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31553.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StaxRip 2.44.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31563.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31563.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ File & Image Uploader 8.4.9 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31572.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Firefox Browser 134.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31576.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:7F66681E941996221790AC9D6D5080C4299C1701
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31591.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7315BC86973B20F1C30AF0F6332500934C9F7A6B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31592.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31592.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Vivaldi 7.0.3495.29 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31600.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31600.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ XtraTools Professional 25.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31604.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31604.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ TikTok Private Plus (PayBack Edition) v38.2.5 Mod by TikTok Updates + Plugin Upd
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31636.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31636.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Smart AudioBook Player Pro v11.1.9 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31643.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Smart AudioBook Player Pro v11.1.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31659.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Firefox Browser ESR 115.19.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31674.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.7.3 Mod by Mixroot [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31677.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Firefox Browser 134.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31681.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ RegCool 2.020 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31686.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Firefox Browser ESR 128.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31688.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Imagine 1.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31692.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Process Lasso Pro 15.0.4.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31694.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ TapinRadio 2.16.002 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31695.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Fast Video Cutter Joiner 6.3.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31717.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:6FC42473EA56A88AC77D360034580E299EA23049
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31743.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:A2AC6B0A30A0F3CDA07F0485AC1BC9C8AD930FC4
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31748.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ XRecode 3 1.161 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31771.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Advanced Renamer 4.07 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31773.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Draw.io 26.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31785.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1693112   (122044) от 19.01.2024
+
+Green Day - Saviors (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The American Dream Is Killing Me (3:06)
+02. Look Ma, No Brains! (2:04)
+03. Bobby Sox (3:44)
+04. One Eyed Bastard (2:53)(   Читать дальше...   )Жанр: Punk rock, Alternative RockПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE303B601D58138BE33586F7FD0E40CC9F27951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693078   (122045) от 19.01.2024
+
+Fort Firewall 3.10.13 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242F659A013C9CCB422B41D36A23DA9DCBFDF6FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693114   (122046) от 19.01.2024
+
+Chromium 120.0.6099.225 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9280CFB86B3C30B4C905F8940676FB1DD356AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693101   (122047) от 19.01.2024
 
 Brave Browser 1.61.120 [Multi/Ru]
@@ -6,7 +81,7 @@ Brave Browser 1.61.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122047.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ VA - Electronic compilation part 43 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122048.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:73C17AF94752C1FAB4480F7F42241A6581D3DCFD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122049.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ Vivaldi 6.5.3206.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122050.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ magnet:?xt=urn:btih:655A8CF12AEA63EDE1A2EF5E467D62E5D8E5D52F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122051.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ Davit Barqaia - Compilation Version 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122052.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ PortableApps.com Platform 29.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122053.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ Total Commander 11.03 RC1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122054.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ Whale Browser (NAVER Whale) 3.24.223.21 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122055.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ DxO PhotoLab Elite 7.3.0 build 133 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122056.jpg" />
 </div>
 
 
@@ -256,7 +331,7 @@ magnet:?xt=urn:btih:098456BB6D7ECD1B2B7D5EDD09521A445BEF092C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122057.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ magnet:?xt=urn:btih:ABE7D3478C5047BE391BDF5F257D31E235D8E91A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122058.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ Color school, Анна Давидян | Фотография в интерьер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122059.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122060.jpg" />
 </div>
 
 
@@ -355,7 +430,7 @@ magnet:?xt=urn:btih:DDD85F1B62A57E325F85DE7521EEE15FF7D58DB8
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122061.jpg" />
 </div>
 
 
@@ -379,7 +454,7 @@ magnet:?xt=urn:btih:09BB845F2D9A8B85FFB447E174936196EE1C1F5C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122062.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ magnet:?xt=urn:btih:F032542197B80619E7B91344F53B511CCACFA820
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122063.jpg" />
 </div>
 
 
@@ -427,7 +502,7 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122064.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ magnet:?xt=urn:btih:196933611D20146BDC9109641C55A5EBF42AD440
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122065.jpg" />
 </div>
 
 
@@ -478,7 +553,7 @@ Opera One 106.0.4998.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122066.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ magnet:?xt=urn:btih:9D5331FD1BE489641550CAAFF67E83387A8C1C97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122067.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122067.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ Floorp Browser 11.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122068.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ magnet:?xt=urn:btih:5168C12FEF0F9390E039CA277571292EEB5FEDE3
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122069.jpg" />
 </div>
 
 
@@ -561,81 +636,6 @@ magnet:?xt=urn:btih:5168C12FEF0F9390E039CA277571292EEB5FEDE3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C068AD2388F82BD00BD393EB5EAB4948DF52EF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693167   (122070) от 19.01.2024
-
-Уилл Уайт | Капитан (2023) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122070.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Чтобы выжить в этой галактике, тебе нужна волшебная палочка в одной руке и пистолет в другой". На малоизвестной планете архимаг Варик Валленар произносит великое заклинание, чтобы наделить себя магическими способностями своих альтернативных "я". Ритуал работает слишком хорошо, даруя Варику не только магию, но и воспоминания о шести жизнях. Включая (   Читать дальше...   )Жанр: Космическая фантастикаПеревод: Алекс ФроловЯзык: РусскийИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D5FDBE05C34C7B5BE53C397D9C6436B4C7EB74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693131   (122071) от 19.01.2024
-
-Джеймс Джордж Фрезер | Золотая ветвь. Исследование магии и религии (2022) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Джордж Фрэзер (1854–1941) — известный британский этнограф, исследователь древнеримской литературы и Ветхого Завета, видный представитель классического эволюционизма в антропологии, один из пионеров сравнительного религиоведения, который внес огромный вклад в изучение тотемизма, культа природы и верований в загробную жизнь. Его главный труд – «Золотая ветвь: (   Читать дальше...   )Жанр: История религий, Фольклор и мифология, Эволюция человечестваПеревод: Михаил РыклинИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BBFA6205767BC9A298B64D650205DFCCDA1075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693143   (122072) от 19.01.2024
-
-VA - Music News vol.332 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122072.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zara Larsson - You Love Who You Love (03:06)
- 002. 5УТРА - Не Повезло (02:22)
- 003. Adam Ulanicki - Rumors (02:54)
- 004. A'DI - Белый Снег (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7433AD323C111183EF9ED2D30D6BAEA5B4294CB
 ```
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 595262   (132437) от 28.12.2012
+
+Digital Anarchy: Beauty Box Video for AE & Premiere (Windows) 2.0.4 [Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beauty Box Video 2.0.4 -это следующее поколение в ретуши кожи на видео.
+
+Используя передовые технологии, такие как Face Detection, этот плагин автоматически определяет тон кожи, сохраняя важные черты лица. Beauty Box делает процесс ретуширования видео в After Effects и Premiere Pro проще, чем когда-либо. Попрощайтесь с ручными масками или ретушированием кадр за кадром!
+
+Видеоурок с офсайта на английском языке
+Видеоурок на русском языкеНазвание программы: Digital Anarchy: Beauty Box Video for AE & Premiere (Windows)Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595131   (132439) от 28.12.2012
+
+Recovery Partition for Acer Aspire E1-521 / Windows 7 Starter (х86) SP1 [русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132439.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ разделов Recovery жесткого диска ноутбука Acer ASPIRE  1-521-4502G32Mnks
+Образ Recovery Partition Acer E1 521.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
+Образ создан программой Acronis True Image Home 2012 после первого включения ноута.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595305   (132440) от 28.12.2012
+
+Подшивка журналов | Делаем сами (Россия) [1997 - 2009] [PDF, DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132440.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для тех, кто хочет сделать свой дом красивым. Оригинальные технологии и советы по декорированию предметов и интерьера, изготовлению полезных вещей для дома. Особое внимание уделяется обработке древесины, изготовлению мебели и других предметов интерьера.Формат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746115E258C82B662F283784D664CB34B40E73DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595408   (132441) от 28.12.2012
 
 "ЭКСМО" | Книжная серия "Полное собрание сочинений" (обновляемая) [2011-2013] [FB2]
@@ -6,7 +85,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132441.jpg" />
 </div>
 
 
@@ -31,7 +110,7 @@ Skeletal Remains - Beyond the Flesh (2012) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132442.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Wipeout 3 [Wii] [ENG] [NTSC] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132444.jpg" />
 </div>
 
 
@@ -83,7 +162,7 @@ Malwarebytes Anti-Malware 1.70.0.1100 Final [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132446.jpg" />
 </div>
 
 
@@ -107,7 +186,7 @@ Fonarev - Эфиры радиошоу/подкаста «Znaki / Digital Emotion
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132447.jpg" />
 </div>
 
 
@@ -134,7 +213,7 @@ magnet:?xt=urn:btih:1A3B025BD68B3826D2EFB905818CF4942CB15783
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132448.jpg" />
 </div>
 
 
@@ -158,7 +237,7 @@ magnet:?xt=urn:btih:2B9E35A3FFE953961699B088926C7CEFA3112399
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132449.jpg" />
 </div>
 
 
@@ -182,7 +261,7 @@ Pharaoh: A New Era (2023) [Ru/Multi] (1.5) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132450.jpg" />
 </div>
 
 
@@ -206,7 +285,7 @@ magnet:?xt=urn:btih:34A67D5EFBC24685BA0EF4C3CEF84CEE4334B2DC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132451.jpg" />
 </div>
 
 
@@ -230,7 +309,7 @@ Mafia III: Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132453.jpg" />
 </div>
 
 
@@ -254,7 +333,7 @@ magnet:?xt=urn:btih:B0E5E2071651FEE8316101A2C86868827994CE71
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132455.jpg" />
 </div>
 
 
@@ -279,7 +358,7 @@ magnet:?xt=urn:btih:3AEE2A5E103F7B93EC9B1FEFE6501A27362E2233
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132456.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ Stickies 7.1e [English/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132457.jpg" />
 </div>
 
 
@@ -329,7 +408,7 @@ Ghost Song (2022) [Ru/Multi] (1.2.12b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132458.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ magnet:?xt=urn:btih:550DDD5ED15DE797F178658AB2804C49C8C277F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132460.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ magnet:?xt=urn:btih:D1DD4C08EE1701F288AD12D1C178B589C55B203E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132461.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ magnet:?xt=urn:btih:194F0B4D86EB832114EE6463D45657F528F6F566
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132462.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ magnet:?xt=urn:btih:4695FCA1CAA0794B282FBBB086340F349D84BC9A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132463.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ magnet:?xt=urn:btih:43240A0C7B9A140234D132FB32899C714AA12A4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132464.jpg" />
 </div>
 
 
@@ -473,7 +552,7 @@ uTorrent Pack 1.2.3.79 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132465.jpg" />
 </div>
 
 
@@ -498,7 +577,7 @@ magnet:?xt=urn:btih:D11313D9E5618BEC3C8FC196A50C9DF6FD188088
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132466.jpg" />
 </div>
 
 
@@ -522,7 +601,7 @@ magnet:?xt=urn:btih:9ED8FED8885ADFCE1D2D32AEC8450882FEF21AEB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132467.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ magnet:?xt=urn:btih:4F21B8EB042FC5E991C35E3950F7C305C8FA9045
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132468.jpg" />
 </div>
 
 
@@ -557,80 +636,6 @@ magnet:?xt=urn:btih:4F21B8EB042FC5E991C35E3950F7C305C8FA9045
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32268EF844DE1EF4DF68CDBE3AA4D60E9AFC4145
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444561   (132470) от 03.12.2023
-
-Спортлото-82 (1982) WEB-DL [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132470.jpg" />
-</div>
-
-
-###  Подробнее
-
-На один из билетов «Спортлото» выпадает крупный выигрыш. Однако билет оказывается потерянным. В поисках его герои попадают во множество занятных переделок, над которыми зритель веселится от души…Производство: СССР / МосфильмЖанр: Комедия, приключенияРежиссер: Леонид ГайдайАктеры: Альгис Арлаускас, Светлана Аманова, Михаил Пуговкин, Михаил Кокшенов, Денис Кмит, Нина Гребешкова, Андрей Толшин, Борислав Брондуков, Луиза Мосендз, Сергей Филиппов и др.Субтитры: Русские, английскиеПродолжительность: 01:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC4583ACEBF596B54456B3FFD7D79DE63808607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595352   (132471) от 28.12.2012
-
-Я желаю тебе себя (2012) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это фильм о чувствах людей, их мечтах и желаниях. Порой для счастья человеку не нужен успех или материальные блага, а хочется просто… другого человека, обожаемого и любимого. Любовь и чувства заставляют наш мир сконцентрироваться на одной персоне, которая кажется его центром, без нее наша жизнь теряет смысл, становится серой и мрачной. В этом случае человек забывает (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Станислав МареевАктеры: Елена Биккулова, Валерий Боровинских, Алексей Нилов, Михаил Ефремов, Анна Лутцева, Андрей ЗибровПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50C369F99824FE98E215015C9113A16EC109BD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595373   (132472) от 28.12.2012
-
-Дмитрий Силлов|«S.T.A.L.K.E.R.» Закон проклятого  [2012] [FB2][TXT][JAVA (jar+jad)]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот роман – подлинная история того, кого позже назовут Снайпером. Не призрачные воспоминания героя, внедренные в его мозг учеными, а его настоящая жизнь, настоящее имя и настоящая биография. История о том, как человек встал на Дорогу Проклятых, потому что это был единственный способ побеждать настоящих чудовищ.
-
-А для того, кто вступил на эту Дорогу, есть только один закон –Закон проклятого.Формат: FB2,TXT,JAVA (jar+jad).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB73A9CB0C412C1548FC127C7B1328464A7514C
 ```
 
 

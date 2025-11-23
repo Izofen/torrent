@@ -6,7 +6,7 @@ Erik Jackson - Rainy Days (2012) [MP3|320 кб/с]<Acid Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98278.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:584D8959A4CC21EEED9E429E1CE95246A3138CFB
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98279.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98289.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98295.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012) [MP3|320 кб/с]<Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98296.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98297.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98300.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Cause For Effect - Progressive And Minimalist Recording (2010) [MP3|320 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98302.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Continuo Renacer - The Great Escape (2011) [MP3|320 кб/с]<Progressive Technic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98310.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:70D5E572B2F7330351BF705B9FD6EC3BB51DB4FC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98312.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Destruction - Best Of (1992) [MP3|320 кб/с]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98313.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Burzum - Umskiptar (2012) [MP3|192 кб/с]<Black Metal, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98314.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:68DDD8DBB695DB75DF541DAAE2707EFBDBEE2721
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98322.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:87C58AE5B0F0FEBD6D19C8916EC849DDB2D41376
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98323.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:3AAFD6A7EE3F63B76B8FE439662BF8BD48171F18
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98327.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:DF1FF481C059B76E34BDEDC25329E864D682C876
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98338.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Trance Mutation Vol.1 (Best of Top Trance Killer) (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98339.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:BF141DD1FCD3753628C3E02B577AD70A308A77F2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98340.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hammer Horde - Vinlander (2012) [MP3|320 кб/с]<Melodic Death Metal / Viking M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98341.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Osher - Twilight (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98350.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98350.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Osher - Twilight (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98355.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:E7686691FBAD15DDB0B071672ED532E0323543F1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98358.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:242264A4D25E1D91B669D0E5D9B818BDB3BB4FA1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98362.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ WinISO Standard 6.1.0.4472 Portable by BALISTA [Русский/Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98365.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98365.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ WinISO - лучшая программа из всех подобных для �
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98369.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ magnet:?xt=urn:btih:7B7849271C2B9A8846D11935F49CC3C5D4C0F2C8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98371.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98371.jpg" />
 </div>
 
 

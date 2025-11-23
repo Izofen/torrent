@@ -1,3 +1,87 @@
+###  Публикация: 1653408   (205538) от 15.08.2023
+
+Infiltration - Extinct (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205538.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Section 8 03:48
+2. Despiteous Warfare 04:17
+3. Code Reded 04:33
+4. Predator 05:35(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DACB2A9052FB6FD1532922D33FE942D234ED96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616497   (206028) от 02.03.2023
+
+СерьГа - Тебя не сломать (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206028.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Долго (Хоть режьте Родину, хоть ешьте...)
+2. Мы не исчезнем никогда
+3. Мариуполь мой
+4. Тебя не сломать(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92235BEE37C9C878B3F902D5EA0036C1E79FD76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653486   (206121) от 16.08.2023
+
+Кипелов & Маврин - Смутное Время (1997) Reissue, Remastered, 2023, Moroz Records [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moroz Records представляет…
+
+Переиздание культового альбома Валерия Кипелова и Сергея Маврина «Смутное время» – на двойном тяжёлом виниле и CD в форм-факторе Digipak.
+(   Читать дальше...   )01. Путь Наверх
+02. Выпьем Еще
+03. Вот и Все Дела!
+04. Я Свободен!(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A806F67E20788B4C4ED8FA28EF1007FE3925B95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613811   (206790) от 21.02.2023
 
 Radio Tapok - 7 Singles (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
@@ -6,7 +90,7 @@ Radio Tapok - 7 Singles (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206790.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206790.jpg" />
 </div>
 
 
@@ -30,7 +114,7 @@ magnet:?xt=urn:btih:6E370BE09A63198FCF3DE33609D9B5177A77BD91
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207077.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207077.jpg" />
 </div>
 
 
@@ -57,7 +141,7 @@ magnet:?xt=urn:btih:60E44C0B51A09E2F524AD91E620E5033B21FC5FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207884.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207884.jpg" />
 </div>
 
 
@@ -84,7 +168,7 @@ magnet:?xt=urn:btih:9F3CEE494E723341CA58026EBD6FF1AEB209B157
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208303.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208303.jpg" />
 </div>
 
 
@@ -111,7 +195,7 @@ magnet:?xt=urn:btih:6E95697D32F7399DFE0E0F27F6C7A355B850D8D0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208496.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208496.jpg" />
 </div>
 
 
@@ -138,7 +222,7 @@ magnet:?xt=urn:btih:C232BCF6DEB690EA7FA0BF8A4A9AD7FBCF63208F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208642.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208642.jpg" />
 </div>
 
 
@@ -166,7 +250,7 @@ magnet:?xt=urn:btih:3AAAAEC3D30ACAF2F809F158C3205C0620451893
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209065.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209065.jpg" />
 </div>
 
 
@@ -193,7 +277,7 @@ magnet:?xt=urn:btih:26C08207CAA6CF64CD23872D0ADAD148C3B28C8B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209066.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209066.jpg" />
 </div>
 
 
@@ -217,7 +301,7 @@ magnet:?xt=urn:btih:4DCEDE9D5D179D260DFD6502AC84CDFAF3E8CD50
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209560.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209560.jpg" />
 </div>
 
 
@@ -244,7 +328,7 @@ magnet:?xt=urn:btih:3BA9F2605875F4FCD648A8C7D3D51C6F144D5C9D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210043.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210043.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ magnet:?xt=urn:btih:680179CB2F35E4DC6543398967924D4687FF0FE7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210061.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210061.jpg" />
 </div>
 
 
@@ -298,7 +382,7 @@ magnet:?xt=urn:btih:ED0351A352E7D79CEBF3908379A65D3269E087E3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210168.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210168.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ magnet:?xt=urn:btih:541D4656CAD0AC51808950CBAA79B93D64D3C65B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210634.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210634.jpg" />
 </div>
 
 
@@ -354,7 +438,7 @@ magnet:?xt=urn:btih:20F19786F1B94E3F27BE95C5A6FFD07114252AA9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210961.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210961.jpg" />
 </div>
 
 
@@ -381,7 +465,7 @@ magnet:?xt=urn:btih:2128CA5D2517FE1659BF225927543EF93908CA9D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211291.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211291.jpg" />
 </div>
 
 
@@ -408,7 +492,7 @@ magnet:?xt=urn:btih:C8F86C6123305AC8DE7095C607DF370C29B7CA82
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211308.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211308.jpg" />
 </div>
 
 
@@ -435,7 +519,7 @@ magnet:?xt=urn:btih:CEDAD4C199E33B38CDE00F5888EADF95CB444E76
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211386.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211386.jpg" />
 </div>
 
 
@@ -462,7 +546,7 @@ magnet:?xt=urn:btih:27B5C34C042B099BF6D00EDCBAE8FD88125DE8CB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211851.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211851.jpg" />
 </div>
 
 
@@ -489,7 +573,7 @@ magnet:?xt=urn:btih:1459CFAA2ECAE2A313782F93D2742454B71D33CE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213038.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213038.jpg" />
 </div>
 
 
@@ -516,7 +600,7 @@ magnet:?xt=urn:btih:CC10743FE86BC63D4214084BE78FFF07B24CFE11
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213039.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213039.jpg" />
 </div>
 
 
@@ -543,7 +627,7 @@ magnet:?xt=urn:btih:DEF6AABAA66B65571FF3C1712127C91DE0EE5DD7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213041.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213041.jpg" />
 </div>
 
 
@@ -570,7 +654,7 @@ magnet:?xt=urn:btih:37BACE8A2CB59580968B4A81951C3983F5334D22
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213688.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213688.jpg" />
 </div>
 
 
@@ -597,7 +681,7 @@ magnet:?xt=urn:btih:5222FC114C55B6391527717E6F10CD093E9FDA29
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213726.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213726.jpg" />
 </div>
 
 
@@ -611,86 +695,6 @@ magnet:?xt=urn:btih:5222FC114C55B6391527717E6F10CD093E9FDA29
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49B1082BAF379D0C7D671CA5E869A180EA4E48DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344077   (213737) от 09.12.2019
-
-KillHammer - Время скверны (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пир во время чумы
-02. Путь крови
-03. Демон внутри
-04. Молот возмездия(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330B557085DE01BE4C1F36BD268157BB1BDF65E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514613   (215540) от 04.12.2021
-
-Вадим Степанцов с проектом Masta Don't - Квартирники у Перца - Том15 (2021) 2xCD [FLAC|Lossless|image + .cue] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск - А:
-01 - Интро
-02 - Петербургский вальс
-03 - Спич(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 02:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914F9FF767EA4772B824540C2B7A875488653F4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438176   (215555) от 27.10.2022
-
-M-Hunter - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Elements of Meaninglessness
-2022 - Escape From NothingnessЖанр: Progressive Death, Gothic MetalПродолжительность: 2 CD, 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B709226F55A497EEFAD37D790C62C69CEA94DDC1
 ```
 
 

@@ -6,7 +6,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42700.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VTuber Nanda ga Haishin Kiriwasuretara Densetsu ni Natteta / Легенда о �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42775.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Nanare Hananare / Narenare: Cheer for You! / Слушайте Хананарэ [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42783.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Karasu wa Aruji o Erabanai | Yatagarasu: The Raven Does Not Choose Its Master | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42875.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Madougushi Dahlia wa Utsumukanai / Dahlia in Bloom: Crafting a Fresh Start With 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42877.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ore wa Subete o Parry Suru: Gyaku Kanchigai no Sekai Saikyou wa Boukensha ni Nar
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42981.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42989.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Gimai Seikatsu / Days with My Stepsister / Жизнь со сводной сес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43088.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Megami no Cafe Terrace 2 / The Cafe Terrace and Its Goddesses 2 / Терраса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43093.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Mob kara Hajimaru Tansaku Eiyuutan / A Nobody's Way Up to an Exploration Hero / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43612.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Bye Bye, Earth / Пока, Земля [2024, TV, 10] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43716.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Isekai Suicide Squad | Отряд самоубийц в другом мире [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46524.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47075.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Anot
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47123.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47144.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47157.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47185.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48950.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49907.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Boukyaku Battery | Oblivion Battery | Забвение баттери [2024, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51214.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51511.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Tonari no Youkai-san | Ёкаи по соседству [2024, TV, 13 эп.] Web
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51539.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ The New Gate | Новые врата [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51551.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Mahouka Koukou no Rettousei (2024) | Непутевый ученик в школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51769.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Wind Breaker | Ветролом [2024, TV, 13 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51770.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kenka Dokugaku | Viral Hit | Борьба в прямом эфире [2024, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51868.jpg" />
 </div>
 
 

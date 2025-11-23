@@ -6,7 +6,7 @@ AIDA64 Extreme Edition 7.20.6841 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55537.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:910629F344A5A3421C155588FE0E72A768E9EC63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55538.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WARNO (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55539.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:728A40E5998C77C98095FDB40AD4BFD2F067A570
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55540.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F59E8CD2879142C3B447DEDAED618538B0EF43D4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55541.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E92A7FE9BCC680F517C8BA8C142DBFF80C331D29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55542.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bloody Heaven 2 (2024) [Multi] (0.043) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55543.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Adobe Media Encoder 2024 24.4.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55544.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:834E3DC4B7C5F287B35FF956E34FD745D85C2CAE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55545.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3A923DCE9A774DBD94275C220313C3CEBAD9E08A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55546.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:861041925DA14E47E14929E0F47746DA3EFEAF17
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55547.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:76A424172F67C20F946A986A4A5521895C09F10B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55548.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Total Commander 11.03 Portable by DIaMONd (23.05.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55549.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Продв
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55550.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ HitFilm Pro 11.0.8319.47197 (x64) RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55551.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Базов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55552.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Foxit PDF Editor Pro 2024.2.2.25170 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55553.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:D20439BC0FFAB26CB8A2D354995E9914FA54872F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55554.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Vanishing of Ethan Carter (2015) [Ru/Multi] (1.05) Repack dixen18 [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55555.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Garmin: TopoActive Europe 2024.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55556.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ RollBack Rx Professional 12.7 Build 2709799665 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55557.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ WinNc 10.7.5.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55558.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:AF6E5AE6E157C755EC6FB6A447AC98461C86948A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55559.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ The Bat! Professional 11.2.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55560.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:E9174018DBA7B2F1EC96F3B8DDFE95104661FDB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55561.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:73828330C6A54CE1267D3B9FA3521192444DA7FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55562.jpg" />
 </div>
 
 

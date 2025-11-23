@@ -1,3 +1,75 @@
+###  Публикация: 1711669   (112398) от 31.03.2024
+
+Тери Аболевич и др. | Как нам это пережить. Экспресс-помощь от опытных психологов, когда вам трудно, тревожно и страшно (2022) [MP3, Анастасия Салова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы не можем отменить происходящее. Но мы способны сохранить свое психическое здоровье. Ради детей, друзей, единомышленников и самого себя, в конце концов. Эта книга написана командой опытных психологов Центра «НеТерпи». Несколько месяцев они поддерживают тех, кто не может поверить в реальность последних событий. В книге вы найдёте несколько десятков историй с рекомендациями, (   Читать дальше...   )Жанр: психотерапия, саморазвитие / личностный ростИздательство: Эксмо, БомбораПродолжительность: 07:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B33898EC27DA8948FF4B204FB71C36C60EFFAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711709   (112399) от 31.03.2024
+
+Джон П. Стрелеки | Неожиданная остановка. Как продолжить двигаться вперёд, когда сбился с пути (2022) [MP3, Сергей Соколов, Наталья Андреева]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории о встречах в удивительном кафе на краю земли от всемирно известного коуча Джона Стрелеки. Потеря близкого человека всегда заставляет задуматься о прошлом и о собственных прожитых годах. Возвращаясь с похорон любимого дяди, Джон попадает в грозу и находит спасение в необычном кафе, где ему предстоит ответить на вопрос: «Почему вы здесь?». На этот (   Читать дальше...   )Жанр: зарубежная психология, саморазвитие / личностный ростПеревод: Элеонора МельникИздательство: Эксмо, БомбораПродолжительность: 02:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F417DA3C37D993BF5C09C8BADDA22E6C3D212A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711750   (112400) от 31.03.2024
+
+Запрещённый Бог / Forbidden God (2020) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112400.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Испании идёт гражданская война и религиозная свобода гибнет от рук анархистов. Перед молодым семинаристом стоит выбор, примкнуть к революционерами и выжить или остаться с верой в Бога до конца.Производство: США, Reel City Motion PicturesЖанр: драмаРежиссер: Пабло МореноАктеры: Елена Фуриасе, Хавьер Суарес, Хакобо МуньосПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийПродолжительность: 01:37:17Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE64E84BF9F2E922E6F9611EC06ACD277D54027C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823036   (112401) от 09.10.2025
 
 Alex Kozub - Evenings & Weekends (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +78,7 @@ Alex Kozub - Evenings & Weekends (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112401.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:9C846EF05757B6DCF351825C15C2E72FC14E0B6F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112402.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Aaron Lehnen - Black Sabbath: A Tribute To Ozzy (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112403.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:A15DE655FBA243606A1BA80122A037C35959CB33
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112404.jpg" />
 </div>
 
 
@@ -110,7 +182,7 @@ magnet:?xt=urn:btih:D243D93E5186AD38507D45944BC8EFEEF600362D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112405.jpg" />
 </div>
 
 
@@ -134,7 +206,7 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112406.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ magnet:?xt=urn:btih:3570C7FB130A3355356E25A673B98F10F91F8D58
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112407.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ magnet:?xt=urn:btih:B8ABED7672A6ABE2F9DC0C3F8E0B95F2B22FF3A4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112408.jpg" />
 </div>
 
 
@@ -209,7 +281,7 @@ magnet:?xt=urn:btih:F09E95E26C56780E2DD7AC372B6472C164731184
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112409.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ magnet:?xt=urn:btih:A9ED244EAC3177738CD3DCEDDC90B68E84A5C75B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112410.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ magnet:?xt=urn:btih:9445EBC25D5AD6AA61772EC66EB2D48458089A25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112411.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ magnet:?xt=urn:btih:953595EC03D607B1FCE0E39FF12B4CCF700DC198
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112412.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ magnet:?xt=urn:btih:265272F3F56CECABC68B4114D202531714A9F70C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112413.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ magnet:?xt=urn:btih:ECE5B964D099D16E5D477C9DA87DDC8E50FBF952
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112414.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ magnet:?xt=urn:btih:502FF351C4FCC9DF1D624A34241C6558360BE1B4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112415.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ OneCommander Pro 3.73.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112416.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ SyncBird Pro 4.0.14 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112417.jpg" />
 </div>
 
 
@@ -432,7 +504,7 @@ magnet:?xt=urn:btih:2661127DDB313987CB9C67BB02F2A35634D0C44D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112418.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ magnet:?xt=urn:btih:FB72570AC0F1CF7911413C9E8816F7919087F0CE
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112419.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112420.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ magnet:?xt=urn:btih:1142ABCBFAA27FCDE04B5CDE18EE4DFFBC676D3C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112421.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ magnet:?xt=urn:btih:D20CB56DF63F416CCEA82BB188D70F292F41BCD2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112422.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ Omni Recover 3.6.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112423.jpg" />
 </div>
 
 
@@ -564,79 +636,6 @@ Omni Recover для macOS позволяет восстанавливать уд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6376A26689DF6DAA6ABBF71050F2EEC08BB617C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711641   (112424) от 31.03.2024
-
-MUSYNX (2018) [Multi] (1.0/dlc) Scene PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112424.jpg" />
-</div>
-
-
-###  Подробнее
-
-MUSYNX пришла на компьютеры с мобильных устройств. Продукт является ритм-игрой, выполненной в стилистике аниме. В тайтле есть 2 режима графики: трехмерная и двухмерная. Между ними можно постоянно переключаться. В первом случае камера будет расположена сзади под углом, а во втором – чётко сверху. Геймплей в MUSYNX выглядит следующим образом. В сторону юзера сверху (   Читать дальше...   )Тип издания: SceneРазработчик: I-InfernoЖанр: Инди, СимуляторыЯзык субтитров: Английский, Японский, Китайский, КорейскийЯзык интерфейса: Английский, Японский, Китайский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7C7828A09338AB7B84D98170361FDF077C65B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711652   (112425) от 31.03.2024
-
-(Не)бывшие / Hors-saison / Out of Season (2023) TS [H.264/1080p] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный актер Матье и учительница музыки Алис когда-то были влюблены. Теперь ему за пятьдесят, ей за сорок, их отношения остались в прошлом - и каждый давно живет своей жизнью.
-Однако, судьба вновь сводит их: парочка бывших оказывается на одном курорте в мертвый сезон, где просто идеальные условия для возобновления романа. Но смогут ли ожившие чувства прорваться (   Читать дальше...   )Производство: Франция / Canal+ Жанр: драмаРежиссер: Стефан БризеАктеры: Гийом Кане, Альба Рорвахер, Шариф Андура, Эмми Буассар Помель, Люсетт Боден, Жильберт Беллю, Юго Дийон, Стефан Бризе, Джонни Рассе, Жан БукоПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:55Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711400   (112426) от 31.03.2024
-
-Auto blur: Авторазмытие v2.6.7 Mod by Dymonyxx [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автоматическое размытие фона - это быстрое и простое в использовании приложение для создания потрясающих изображений с эффектом размытия фона.Тип издания: AdfreeРелиз состоялся: 01.03.2024Разработчик: Judi StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1687D31FC634362FDF924A01B6D1E987499B19C5
 ```
 
 

@@ -6,7 +6,7 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9797.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9798.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:01F9F593CDBD084C1E81403DBD44970C5B559005
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9799.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ubuntu ServerPack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9800.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Call of Duty: Modern Warfare (2019) [Ru/Multi] (8.67) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9801.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DEE09EB5CE0DE074A2F8FD4EAD1A7B5ECF3F01E9
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9802.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9803.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7C9BE79BF99C7CADB1F155BFBB5B80D2A9BDF5C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9804.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ AVS4YOU Software AIO Installation Package 6.1.1.181 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9805.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:2C02683FBD2FB2BED730284AA9F0478A2BCA3D5B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9806.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:824FAD8EBECEB50D901D74C971DBF69464308698
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9807.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Potion Craft: Alchemist Simulator (2022) [Ru/Multi] (2.0.2.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9809.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9811.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9812.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7019EBAF837F2ECA15F345A8485678E061AF6F8B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9813.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ubuntu GamePack 22.04 (июль 2025) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9814.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:E9035C84AB1B304A56F51A34969612C0B3E60CDA
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9815.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1145/dlc) Repack FitGir
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9816.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:6084F698C6C351D5EC1F9E22CA09061D6E18EBFE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9817.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9818.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9819.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9820.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9821.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ ASTRONEER (2016) [Ru/En] (1.34.47.0) Repack Pioneer
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9822.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:9258DF428DB8270D5152045DCB3A02F4087A4C51
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9823.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Borderlands (2009) [Ru/En] (1.5.0/dlc) Repack FitGirl [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9824.jpg" />
 </div>
 
 

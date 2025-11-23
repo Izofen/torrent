@@ -1,3 +1,76 @@
+###  Публикация: 1747252   (104780) от 04.09.2024
+
+Журнал | Кухонька Михалыча №9 (229) (сентябрь 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D663C1408A64B89E566C9F447C5B38931677B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747179   (104781) от 04.09.2024
+
+InnoExtractor Ultra 8.1.0.615 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104781.jpg" />
+</div>
+
+
+###  Подробнее
+
+InnoExtractor - это мощное приложение, которое поможет вам распаковать инсталляторы Inno Setup, используя технологию InnoUnp.
+С помощью InnoExtractor вы можете изучить внутреннюю структуру и содержимое программы установки, а также извлечь их в локальную папку или на портативные устройства без необходимости запуска программы установки.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F056625CB9EBF25E6E4D36CA02FD250FA2B9CDD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747130   (104782) от 04.09.2024
+
+Крот / The Mole (2024) WEBRip [H.264/1080p] (сезон 2, серии 1-10 из 10) ViruseProject [AD]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крот - американское игровое реалити-шоу, в котором участники работают группой, чтобы добавить денег в банк, который в конечном итоге выиграет только один из них. Среди участников есть один человек, которого продюсеры тайно назвали "Кротом", которому поручено саботировать усилия группы по зарабатыванию денег. В конце каждой серии участник, который меньше (   Читать дальше...   )Производство: США / Eureka Productions (II), NetflixЖанр: игра, реальное ТВ, детектив, приключенияРежиссер: нетАктеры: Алекс Вагнер, Ari Shapiro, William James Richardson, Joi Schweitzer, Kesi Neblett, Avori Henderson, Jacob Hacker, Шон Патрик Брайан, Дианна Томпсон, Hannah Burns и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EA710EF39639FEDCB01C1730900E3EB3856E40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747310   (104783) от 04.09.2024
 
 Горизонт в огне / Couleurs de lincendie / The Colors of Fire (2022) BDRip [H.264/720p]
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104783.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Firefox Browser 130.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104784.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ JetBrains RubyMine 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104785.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Egali Zunno - Human Foundation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104786.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ magnet:?xt=urn:btih:490575563CB8EF692BCB1AF64A02F1877FF5AAFC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104787.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ VA - Keep It Trance Vol. 24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104788.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ VA - Nothing But... Trancetopia Vol. 18 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104789.jpg" />
 </div>
 
 
@@ -184,7 +257,7 @@ Cat Stevens - Foreigner (1973) Remastered, 2024, UMC [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104790.jpg" />
 </div>
 
 
@@ -211,7 +284,7 @@ Marianas Trench - Haven (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104791.jpg" />
 </div>
 
 
@@ -238,7 +311,7 @@ magnet:?xt=urn:btih:BD296AAA7608710CE3477ADCA367444A377D0972
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104792.jpg" />
 </div>
 
 
@@ -265,7 +338,7 @@ Euge Valovirta - Hardtones (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104793.jpg" />
 </div>
 
 
@@ -292,7 +365,7 @@ Body Meat - Starchris (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104794.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ Bonsai Kitten - Let It Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104795.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ Korrosive - Katastrophic Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104796.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ Stan Getz - Blue Skies (1982) 1995, Concord Jazz [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104797.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ Palaye Royale - Death or Glory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104798.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ Ragnar​ö​k - Schicksal der G​ö​tter, Tod der Menschen und Ende der Wel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104799.jpg" />
 </div>
 
 
@@ -454,7 +527,7 @@ Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104800.jpg" />
 </div>
 
 
@@ -481,7 +554,7 @@ Oceano - Living Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104801.jpg" />
 </div>
 
 
@@ -508,7 +581,7 @@ Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104802.jpg" />
 </div>
 
 
@@ -535,7 +608,7 @@ Piper and The Hard Times - Revelation (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104803.jpg" />
 </div>
 
 
@@ -562,7 +635,7 @@ Shane Allessio - Tripp City (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104804.jpg" />
 </div>
 
 
@@ -589,7 +662,7 @@ Breaklight - I (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104805.jpg" />
 </div>
 
 
@@ -603,84 +676,6 @@ Breaklight - I (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B47B88CDCC6B2D7900E1BF708FA89236CECD3C88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746923   (104806) от 02.09.2024
-
-Покоритель Альмы / Alma's Champion (1912) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическая история. Любовь на железной дороге. Тут тебе и юная сирота, и железнодорожники, и миллионеры. Все как полагается.Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, мелодрама, немое киноРежиссер: нет сведенийАктеры: Лиллиан Уолкер, Уиллис Клер, Уильям Р. ДаннПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF4FFB804C2AF53D94B1F63AC85D5A775751EED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746789   (104807) от 02.09.2024
-
-VA - DJ Hits Vol. 174 (1996) [OGG Vorbis|480 Kbps] <Electronic, Europop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zona feat. Bass Bumpers. - Por Causa Do Amor (Boco Bumporo Radio Edit)
-02. Captain Hollywood - Far Away (Single Mix)
-03. Nomansland - 7 Seconds (Radio-Video Mix)
-04. Candy Girls feat. Valerie Malcolm - I Want Candy (Radio Edit)(   Читать дальше...   )Жанр: Electronic, Europop, Euro HouseПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31056EA663B19E1C39B40EA6D8871F27F76095E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746871   (104808) от 02.09.2024
-
-Relaxing Piano Man - On the Road Again (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Miles Away (3:57)
-02. Left Lane (4:32)
-03. Leaving It All Behind (3:08)
-04. Adrift (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7622192596FCF9BF016DE2B9D75E04C85DE4915
 ```
 
 

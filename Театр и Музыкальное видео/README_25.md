@@ -6,7 +6,7 @@ Peter Gabriel - New Blood (Live in London) (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75736.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Peter Gabriel - New Blood (Live in London) (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75776.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75999.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76117.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Nazareth - Live From Classic T Stage (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76144.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76266.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76301.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:CB52CFBBC118CECD0F2DC0461E46CC3050C7E7F5
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76481.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76535.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76550.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:45833E50BAC1DF50723F0D208EFC9670B5C2A2C2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76578.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76719.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76762.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76767.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Pink выступила в Австралии на концерте в подд�
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76800.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_76803.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_76803.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76903.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76986.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:1312CAD3CF7BAA5F7CB8C5C6534D31A802808B5D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77057.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77184.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77221.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77580.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78191.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78198.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Deep purple - Machine Head Live 1972 (1999) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78214.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ NikitA - Машина (2009) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78394.jpg" />
 </div>
 
 

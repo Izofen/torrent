@@ -1,3 +1,82 @@
+###  Публикация: 1689154   (124852) от 31.12.2023
+
+SkyEye - Digital God (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:52
+02. Fire 03:58
+03. Digital God 04:25
+04. In The Name Of Skyeye 05:33(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9667DC99491248FAE3FB9BEBA036AB6B4F842351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689135   (124853) от 31.12.2023
+
+Жорж Сименон | Семь крестиков в записной книжке инспектора Лекера (2023) [MP3, Юрий Яковлев-Суханов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время обычной рабочей смены в рождественские праздники, Андрэ Лекёр столкнулся с новым убийством, которое затронуло его семью....
+Неофициальное издание профессионального актёра.Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 02:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F470F47D8BE7C6F42196C566126679FF80A31F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689099   (124854) от 31.12.2023
+
+Минтранс (23.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124854.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Машины нет, а налог есть. Как доказать, что автомобиль давно продан?
+🔸 Неброская роскошь: тест-драйв Jaguar XF 2011
+🔸 Правила выбора. Как проверить квалификацию автомастера?
+🔸 Важные символы. Как по цвету значка на приборной панели определить уровень неисправности?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71AA86B04E09E6A6912BBBA68F52462E696F49C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689182   (124855) от 31.12.2023
 
 Эффект Лесли - Инструкция по применению (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +85,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124855.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:7665CE0109CBD9A43F38850B96179C271616D22E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124856.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Head East - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124857.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Youth Pastor - Songs To Fuck and Kill Yourself To (2023) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124858.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ Dark Lunacy - Studio Albums (7 releases) (1998-2016) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124859.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ The Fusion Syndicate - Beautiful Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124860.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ magnet:?xt=urn:btih:7B2B695F04614B64BD86ACABAB09CEECABEAA444
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124861.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ magnet:?xt=urn:btih:972B5AB76D0202EC139C8C784BAEDF87825E0492
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124862.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ magnet:?xt=urn:btih:193EA6E9AFAB329B6D71F50804457656EFE7E224
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124863.jpg" />
 </div>
 
 
@@ -238,7 +317,7 @@ magnet:?xt=urn:btih:E463F10A62EE41896FD4331FC331A435EB3676F3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124864.jpg" />
 </div>
 
 
@@ -265,7 +344,7 @@ magnet:?xt=urn:btih:4160A44E75AD2E1B511D78EAF35509F4EAB5682D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124865.jpg" />
 </div>
 
 
@@ -289,7 +368,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124866.jpg" />
 </div>
 
 
@@ -316,7 +395,7 @@ Haunter - Tales of the Seven Seas (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124867.jpg" />
 </div>
 
 
@@ -343,7 +422,7 @@ The Boatsmen - Hard Livin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124868.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Demondrug - All Departures (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124869.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ magnet:?xt=urn:btih:A3AA25D223456131D6A6F6F0D37BC250AEE7EA5F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124870.jpg" />
 </div>
 
 
@@ -421,7 +500,7 @@ magnet:?xt=urn:btih:18516060B23374858DBB92162C558EDAA75A4328
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124871.jpg" />
 </div>
 
 
@@ -445,7 +524,7 @@ SkyEye - Soldiers Of Light (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124872.jpg" />
 </div>
 
 
@@ -472,7 +551,7 @@ magnet:?xt=urn:btih:16FD6BEEB47E1B8006AB3C23A7BE5860C113074E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124873.jpg" />
 </div>
 
 
@@ -496,7 +575,7 @@ magnet:?xt=urn:btih:AE2C54815AB4C92428B2A802E36CD293C764D640
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124874.jpg" />
 </div>
 
 
@@ -520,7 +599,7 @@ Colorfy PLUS - Coloring Book v3.24 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124875.jpg" />
 </div>
 
 
@@ -544,7 +623,7 @@ magnet:?xt=urn:btih:3112D4F30BBB3958AE28CC7B21EA6D86B1A4190C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124876.jpg" />
 </div>
 
 
@@ -568,7 +647,7 @@ The Disco Biscuits - Live from Austin, TX (September 16, 2023) (2023) [MP3|320 K
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124877.jpg" />
 </div>
 
 
@@ -582,81 +661,6 @@ The Disco Biscuits - Live from Austin, TX (September 16, 2023) (2023) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70042118FEF11AF583BC129B78763E914BFF83D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689051   (124878) от 31.12.2023
-
-Дончо и Юлия Папазовы | Под парусом через океан (2011) [MP3, Игорь Мурашко]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые мореплаватели супруги Папазовы в 1974 году проплыли на спасательной шлюпке от Гибралтара до Кубы, будучи в океане «добровольными жертвами кораблекрушения». Основной пищей им служил планктон. Исследования, проведенные ими, входили в разработанную ООН программу освоения Мирового океана. Авторы воссоздают в художественно-документальной книге будни этого опасного (   Читать дальше...   )Жанр: ПутешествияИздательство: Нигде не купишьПродолжительность: 06:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7845D8A799F7CE497B332033DF9AF2BE32898C31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688890   (124879) от 31.12.2023
-
-The Fusion Syndicate - A Speedway On Saturn's Rings (2023) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Progressive-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Speedway On Saturn's Rings (00:04:39)
-02 - Planet 15 (00:04:09)
-03 - Io (00:06:08)
-04 - Escape From The Black Hole (00:05:44)(   Читать дальше...   )Жанр: Fusion, Progressive-RockПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1870DC612AF7CF2AA4C7BB7112754EC51CBDBB46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689076   (124880) от 31.12.2023
-
-Карнавал крови / Carnival of Blood (1970) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124880.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нью-йоркском парке развлечений появляется маньяк-убийца, задача выследить которого ложится на плечи местного блюстителя закона, прибывшего на карнавал вместе со своей девушкой.Производство: CША / Kirt FilmsЖанр: ужасыРежиссер: Леонард КиртманАктеры: Эрл Эдгертон, Джудит Резник, Martin Barolsky, Kaly Mills, Берт Янг, Линда Кертц, Уильям Греннел, Гленн Кимберли, Ив Пэкер, Глория СпивакПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6457F6473D076E1C895BF506224D08B47651E428
 ```
 
 

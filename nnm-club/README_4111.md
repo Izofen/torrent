@@ -1,3 +1,75 @@
+###  Публикация: 1587942   (126573) от 23.12.2023
+
+Календарь ма(й)я (2022) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126573.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о фантастических приключениях современных подростков, жизнь которых по вине одного из них начинает двигаться в обратном направлении. Им придется не только прожить заново прошедшие дни, но и пережить события, которые в дальнейшем изменят жизнь их близких и их самих. Только поступок главного героя может выключить таинственный механизм, определяющий ход времени.Производство: Россия / Киностудия им. М. Горького, КАРО-ПродакшнЖанр: приключения, фантастика, семейныйРежиссер: Виктория ФанасютинаАктеры: Данила Уютов,  Милана Копничева,  Руслан Паньшин,  Фёдор Добронравов,  Анна Уколова,  Равшана Куркова, Раиса Рязанова, Юрий Батурин, Сергей Горошко, Влад ФельдманПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C069D979F1880DFB74DA39B5309A6160100807
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686560   (126574) от 23.12.2023
+
+Анатомия падения / Anatomie d'une chute / Anatomy of a Fall (2023) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь успешной писательницы Сандры Войтер переворачивается после загадочной смерти мужа. Ей предъявляют обвинение в убийстве. Однако чем дальше ведется расследование, тем больше всплывает подозрительных обстоятельств.Производство: Франция / Auvergne Rhône-Alpes Cinéma, Canal+Жанр: триллер, драма, криминалРежиссер: Жюстин ТриеАктеры: Сандра Хюллер, Сванн Арло, Мило Машадо Гранер, Антуан Райнарц, Сэмюэл Тейс, Дженни Бет, Саадиа Бентайеб, Камилль Рутерфорд, Анн Ротгер, Софи ФийерПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDD9D8A9D06F203180BED8C614438010DB55819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686327   (126575) от 22.12.2023
+
+Чингиз Абдуллаев | Дронго (Книга 71). Взращение грехов (2023) [MP3, Дейв]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный эксперт-аналитик Дронго всегда сомневается в том случае, когда улики, указывающие на подозреваемого, уж слишком явные. Не верит он тому, что сразу бросается в глаза. Так и в этот раз. Все указывает на то, что бизнесмен Тевзадзе убил заместителя начальника уголовного розыска Проталина: он находился в квартире убитого, когда приехала милиция, на пистолете (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC33D81B218C33FD3E80AECCA8C52DBCCF4887F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686302   (126576) от 22.12.2023
 
 Ritual King - The Infinite Mirror (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Blues, Stoner, Progressive>
@@ -6,7 +78,7 @@ Ritual King - The Infinite Mirror (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126576.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:786F106DBD2E3B34BB0D04B588018BF8A76DC076
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126577.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Edward De Rosa - Darkness Falls (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126578.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Rencontre Nocturne - Recap 2023 (2023) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126579.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ Power Reset - Son Of The Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126580.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ Vargrav - The Nighthold (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126581.jpg" />
 </div>
 
 
@@ -165,7 +237,7 @@ Kaos Krew - Blackout (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126582.jpg" />
 </div>
 
 
@@ -192,7 +264,7 @@ Damnationis - The Fallen Princess (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126583.jpg" />
 </div>
 
 
@@ -219,7 +291,7 @@ Randy VanWarmer - Warmer (1979) Japanese Edition, Reissue, 1995, Bearsville [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126584.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:2EB0059ECB507506B653DF3A7843BB2DE1935A2F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126585.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:83A2D8A914FF2160458740983D2F1D91F87939F1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126586.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126587.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Arch Enemy - Stigmata (Deluxe Edition) (1998) Reissue, 2009, Century Media [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126588.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ The Karminsky Experience Inc. - The Power of Suggestion (2003) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126589.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ Animal ДжаZ - Корни (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126590.jpg" />
 </div>
 
 
@@ -405,7 +477,7 @@ magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126591.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ magnet:?xt=urn:btih:ACDE581F39FEA83945C9369E5DA8A47C489054EC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126592.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ VA - Armin Van Buuren - A State Of Trance 1152 (Top 50 Of 2023) (2023) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126593.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ magnet:?xt=urn:btih:80A27FCA1B6DA6BFA1C7DD23D7757978E9778A55
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126594.jpg" />
 </div>
 
 
@@ -509,7 +581,7 @@ magnet:?xt=urn:btih:2135C5503692E86483B8BEC00977044AAC78B873
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126595.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Animal Джаz - Корни (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126596.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ magnet:?xt=urn:btih:0167B4F9001DADDCAF523824C15B597005799294
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126597.jpg" />
 </div>
 
 
@@ -586,7 +658,7 @@ magnet:?xt=urn:btih:D326AB6D38D73C5109C3475927AC4D82016A936E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126598.jpg" />
 </div>
 
 
@@ -600,87 +672,6 @@ magnet:?xt=urn:btih:D326AB6D38D73C5109C3475927AC4D82016A936E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66AE8F936655C9846BE0A625BE86FF3655E56A43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686139   (126599) от 22.12.2023
-
-горные цветы¿ - Психический коллапс (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-Pop, Synth-Wave, Lo-Fi, Dark-Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:01:20]
-02. Снова слушать и молчать [00:02:49]
-03. Выход [00:01:55]
-04. Среда [00:02:38](   Читать дальше...   )Жанр: Synth-Pop, Synth-Wave, Lo-Fi, Dark-WaveПродолжительность: 00:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2347402A92ECC26DB07B3BB0342EA2344916D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686130   (126600) от 22.12.2023
-
-Horilka - Хай буде треш! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Female vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хай буде треш! [00:03:00]
-02. Кожному своє [00:03:31]
-03. Алкосторі [00:03:20]
-04. На твоїх іклах [00:03:26](   Читать дальше...   )Жанр: Thrash Metal, Female vocalПродолжительность: 00:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433701C08CC36E4722056FFA8C4A6044C17424C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686306   (126601) от 22.12.2023
-
-From Fall to Spring - RISE (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Rapcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BR4INFCK [00:03:09]
-02. BLACK HEART [00:03:35]
-03. DRAW THE LINE [00:02:53]
-04. SUPERNOVA [00:03:44](   Читать дальше...   )Жанр: Alternative Metal, RapcoreПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3A5FDCC42E60FCB8048BAF74FBD35A42D5BF78
 ```
 
 

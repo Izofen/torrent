@@ -1,3 +1,181 @@
+###  Публикация: 1346791   (156961) от 20.12.2019
+
+Заезд в Рождество / Check Inn to Christmas (2019) HDTVRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулия Кроули приезжает домой, чтобы провести каникулы со своей семьей. Их семейная гостиница годами враждует с конкурентами Мейсонами и каждый год они отчаянно соревнуются в рождественских конкурсах. Ситуацию усложняет то, что в соревнованиях участвует неотразимый парень по имени Райан Мейсон.Производство: США / Hybrid, Crown Media HoldingsЖанр: Мелодрама, драмаРежиссер: Сэм ИрвинАктеры: Рейчел Бостон, Уэс Браун, Кристофер Казинс, Эмильяно Диас, Тим Рейд, Логан Фэйхи, Джен Броберг, Yolanda Stange, Cindy Perez, Чарла КохрэнПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:23:40Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE71658DA24A5D0BFC028C407AE72BD6CD410B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676232   (156962) от 13.11.2023
+
+VA - Horizon In Blue (Selected Chill Out & Lounge), Vol. 1 - 4 (2023) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fernando Kouf – Silent Move (Mental Soul Remix) (05:33)
+02. Okira – Morning Sun (Stella Frey Remix) (04:30)
+03. Lemongrass & Jane Maximova – Frozen Boy (04:39)
+04. Entilty – RecallЖанр: Chillout, Balearic, DowntempoПродолжительность: 09:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD879016E368EEF9A333C4A607A5D6DA03FC197C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853838   (156963) от 27.12.2014
+
+Журнал | Electronics For You №12 (декабрь 2014) [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это журнал для читателей, интересующихся электроникой и техникой. Впервые был выпущен в 1969 году. В нем широко представлены обзоры лучших образцов электронной продукции, сравнения аппаратного и программного обеспечения, новости электронной техники, компьютерного оборудования, источников питания, радиоэлектронных компонентов, цифровых устройств.Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6B7C90E312C8009DD7CE526A1247C880EBA4FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085709   (156964) от 22.12.2016
+
+Pastebot 2.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pastebot - менеджер истории буфера обмена
+Если copy & paste является частью вашего рабочего процесса, Pastebot является незаменимым инструментом для повышения производительности. Быстро вспомнить обрывки, которые вы скопировали и применять мощные текстовые фильтры для форматирования перед вставкой. Вы можете даже стоять в очереди несколько копий, чтобы вставить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Tapbots LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6540F53D74667A261A6E32B144ACBCCBAA005E7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967845   (156965) от 23.12.2015
+
+Chris de Burgh - Beautiful Dreams (1995) [FLAC|Lossless|tracks + .cue] <Acoustic, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missing You (3:58)
+02. Girl (2:51)
+03. Discovery (3:23)
+04. Carry Me (4:06)(   Читать дальше...   )Жанр: Acoustic, BalladПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC2F373C277BBFB651BBA7627E1E73AF20F3B7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518812   (156966) от 20.12.2019
+
+Суворов. Альпийский поход (2010) SATRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о легендарном русском полководце Александре Васильевиче Суворове и переходе русской армии под его предводительством через Альпы в сентябре 1799 года. В Швейцарии до сих пор хранят память о том походе и о самом Суворове, его считают освободителем, знают о нем больше, чем о Наполеоне, создают музеи, открывают памятники, называют детей в честь русского (   Читать дальше...   )Производство: Россия, киностудия "Натакам"Жанр: Документальный, познавательный, историяРежиссер: Татьяна ДенисоваПеревод: Одноголосый закадровый (Интервью иностранных участников)Язык озвучки: РусскийПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FD6AA1959D075F3E251AE3CECBF3EEC2F7FC43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085413   (156967) от 22.12.2016
+
+Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bow Legs [06:35]
+ 02.It's All Good [08:14]
+ 03.Don't Deceive Me (Please Don't Go) [05:47]
+ 04.Sandu [07:14](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763D0F6061F1A1B6B315D92B6403036133164338
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190501   (156968) от 24.12.2017
 
 Конец операции "Резидент" (1986) DVDRip (серии 1-2 из 2)
@@ -6,7 +184,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156968.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ magnet:?xt=urn:btih:B74698604398D13F02FB182174CA1E98E27ED3F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156969.jpg" />
 </div>
 
 
@@ -54,7 +232,7 @@ WinX DVD Ripper Platinum 8.9.0.208 Build 13.12.2018 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156970.jpg" />
 </div>
 
 
@@ -78,7 +256,7 @@ magnet:?xt=urn:btih:BAEA46486CC5DF03538E573187B8CB4DBCB506F5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156971.jpg" />
 </div>
 
 
@@ -102,7 +280,7 @@ magnet:?xt=urn:btih:8ED7E4722D5F02315C4E2E7235127FADFB737E8C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156972.jpg" />
 </div>
 
 
@@ -126,7 +304,7 @@ magnet:?xt=urn:btih:B572C2A20D89AC5E78C77251736F80F3E9B83089
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156973.jpg" />
 </div>
 
 
@@ -150,7 +328,7 @@ VA - Uplifting Only Top 15 December (2016) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156975.jpg" />
 </div>
 
 
@@ -177,7 +355,7 @@ magnet:?xt=urn:btih:2F69007827C1CAB4F7EE582F439C722177A18565
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156977.jpg" />
 </div>
 
 
@@ -203,7 +381,7 @@ magnet:?xt=urn:btih:7EEBBE3D26BA4407377293732AE2821D59728279
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156978.jpg" />
 </div>
 
 
@@ -227,7 +405,7 @@ magnet:?xt=urn:btih:6A91E88B6DDFE796EA3D3C48423F47233FFACB22
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156979.jpg" />
 </div>
 
 
@@ -252,7 +430,7 @@ Lindemann - Mathematik (2018) Single [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156980.jpg" />
 </div>
 
 
@@ -279,7 +457,7 @@ WinToUSB Technician 7.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156981.jpg" />
 </div>
 
 
@@ -303,7 +481,7 @@ magnet:?xt=urn:btih:AC1B2999E9797E57395C7C66EFDE8345D31B1211
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156982.jpg" />
 </div>
 
 
@@ -327,7 +505,7 @@ magnet:?xt=urn:btih:F992FDA0E7C32010902B9B14EEF6B00A19A255BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156983.jpg" />
 </div>
 
 
@@ -351,7 +529,7 @@ magnet:?xt=urn:btih:357408672D43946971AE9492F4F0B56FBCE258E4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156986.jpg" />
 </div>
 
 
@@ -375,7 +553,7 @@ Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156987.jpg" />
 </div>
 
 
@@ -402,7 +580,7 @@ VA - Fatum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156989.jpg" />
 </div>
 
 
@@ -429,7 +607,7 @@ magnet:?xt=urn:btih:0D966CC8DCB2FF898E02BFF15EED17F7200A54EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156990.jpg" />
 </div>
 
 
@@ -453,7 +631,7 @@ magnet:?xt=urn:btih:321F8709EB2A8B76D791183CB0FFC2E03CC171E5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156991.jpg" />
 </div>
 
 
@@ -464,181 +642,6 @@ magnet:?xt=urn:btih:321F8709EB2A8B76D791183CB0FFC2E03CC171E5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251A93CB7400A43F15E460BA5765DC90E48596AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968427   (156992) от 23.12.2015
-
-Георгий Почепцов | Революция.com: Основы протестной инженерии (2005) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветные революции очень ясно доказывают нам, что возможны эффективные технологии управления обществом, построенном на технологиях. Стандартная методика приложима к таким, казалось бы, разным нациям, как грузинская, украинская, киргизская. По собственному опыту знаю, что стимулировать человека расстаться с деньгами часто труднее, чем убедить его расстаться с жизнью. (   Читать дальше...   )Жанр: История, МакроэкономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF20A37BFC732FBF51B6F06664E3E46FB65CE47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194295   (156993) от 24.12.2017
-
-Люди Икс: Дни минувшего будущего / X-Men: Days of Future Past (2014) HDRip [H.264] [MP4|1280x534] [The Rogue Cut]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156993.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалёком будущем мутанты близки к истреблению роботами-охотниками на мутантов Стражами. Единственная надежда для мутантов выжить — предотвратить череду роковых событий, приведших к появлению Стражей. С помощью своих способностей, Китти Прайд перемещает сознание Росомахи в его молодое тело в 1973 год. В прошлом всё оказывается не так радужно: молодой Профессор (   Читать дальше...   )Производство: США, Великобритания / Twentieth Century Fox Film Corporation, Marvel Entertainment, TSG EntertainmentЖанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Брайан СингерАктеры: Джеймс МакЭвой, Майкл Фассбендер, Хью Джекман, Дженнифер Лоуренс, Николас Холт, Питер Динклэйдж, Иэн МакКеллен, Патрик Стюарт, Эллен Пейдж, Холли БерриПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные), Английские (форсированные, полные)Продолжительность: 02:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF14312DD61A3A01BACA3ACFCE6BF4B86F30F402
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346793   (156994) от 20.12.2019
-
-Даниэла Дональдсон | Креативная акварель. Вдохновение, техники, поиск собственного стиля (2019) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в акварельный рай – в мир Даниэлы Дональдсон – такой же диковинный, как банка со светлячками. Ее фантазийные рисунки примечательны цветовыми сочетаниями, искусной композицией и очаровательным своеобразием. А ее книга поможет вам проникнуться чудесной спонтанностью акварели и творить свое волшебство.
-Здесь вы найдете полноцветные иллюстрации, новые (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA35F7541B540FDB8484F14CCC24F030A6241D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346731   (156996) от 20.12.2019
-
-Уральские пельмени. Чем торт не шутит (20.12.2019) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он бывает семейным, корпоративным, всероссийским! На нем правит и наживается тамада! День рожденья, это грустный он! Если ты его не помнишь, значит он удался! Эти и другие особенности праздников в новой программе «Чем торт не шутит»!Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:08:50Реклама: Присутствуют текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38019D3E1395DA4AB2C6888B68DAC192D8482BAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194255   (156997) от 24.12.2017
-
-Caravan Palace - <Iº_ºI> (2015) [MP3|320 Kbps] <Electro Swing, Gypsy Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Digger (03:50)
-02. Comics (03:33)
-03. Mighty (03:23)
-04. Aftermath (03:06)(   Читать дальше...   )Жанр: Electro Swing, Gypsy JazzПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18DECFEFA5C569C922A52B2C0F28AAF430384B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085506   (156998) от 22.12.2016
-
-The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Something To Live For [03:57]
- 02.Andante [02:31]
- 03.Speak Low [02:29]
- 04.Pottsville, U.S.A. [05:44](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062CCAA9DBA07ACA77313717D50CA70854275EB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270321   (157001) от 19.12.2018
-
-Запаска (2018) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремясь успеть к началу модного показа, троица гламурных персонажей вызывает такси на автопилоте. Умный навигатор выбирает путь в объезд опасных районов, населённых криминальными бандами. Но искушение сократить маршрут побеждает, и вот герои уже в ловушке: лобовое стекло вот-вот сдастся под напором арматуры и агрессивных оборванцев. Что делать, куда бежать, кого (   Читать дальше...   )Производство: Россия / CineLabЖанр: Короткометражный, триллер, фантастика, комедияРежиссер: Виталий ШепелевАктеры: Анастасия Цой, Иван Латушко, Илья Кипоренко, Максим ГромовСубтитры: ОтсутствуютПродолжительность: 00:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E93223D721F4807456C8C667EFEEB35F02960F
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1683285   (128731) от 10.12.2023
+
+Adobe Photoshop Express 11.8.192 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop Express - ещё одно крайне нужное и полезное для фотографов приложение, которое не нуждается в представлении. Здесь, в отличие от других, пользователям предлагается более профессиональный аспект возможностей фоторедакторов. Они смогут редактировать фотографии, устранять шумы и прочие дефекты, скрывать огрехи композиции кадрированием, изменять угол, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 05.12.2023Разработчик: AdobeПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD522FBCD886F94A7A65A4224C3C84D35E8A500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683279   (128732) от 10.12.2023
+
+Smart AudioBook Player 10.3.1 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart AudioBook Player - необходимое приложение для всех поклонников аудиокниг и всех прочих форм записей. Пользователи получают серьёзный функционал в минималистичном дизайне. Простое управление не создаст ни каких проблем при взаимодействии с программой, а разные полезные качества добавляют положительных впечатлений. Например, если человек, использующий данное (   Читать дальше...   )Тип издания: ModРелиз состоялся: 04.12.2023Разработчик: Books SoftwareПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67863E5DDBE6B85699BD025CE54F9420501B84C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683115   (128733) от 10.12.2023
+
+Jackie Venson - Ghost in the Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B, Soul, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Home
+02 – Home (Outro)
+03 – Go My Way
+04 – Go My Way (Outro)(   Читать дальше...   )Жанр: Blues, R&B, Soul, RockПродолжительность: 01:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743CE0EA8BA93D3303EC9CE63F6E051790AAF688
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683295   (128734) от 10.12.2023
 
 Рокер / Rocker (1972) HDTV [H.264/720p] [AVO]
@@ -6,7 +81,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128734.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:767146A0E244038B49782335931A3B0479D9E6BC
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128735.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:96E5F99B59F0A46B7FA37360A1B33D1ED237B19E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128736.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:115EBE658CBB2435D73EF804D9CD616C669B982D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128737.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:109082883D7A682E5060795C0D26508D959316EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128738.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:E5EC9B9AEC350E3134B2F7A846F1733A9C296FE5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128739.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:4FD05CCD7E1C0A299BFA898F06550C4696E743AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128740.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:62B0E957E95427785F36953221C536B541756447
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128741.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ VA - German Top 100 Single Charts 08.12.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128742.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:C996DE0F9A46FB3709901F2BF225162D2C97784C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128743.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:FF60FAA0CF1D49E2D643055B2D513179CBF7BC1D
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128744.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:08FA478B51707B8D430F1D976E213C2BFA72E72A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128745.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ magnet:?xt=urn:btih:077E0BC8935685310EB80BB1E538F57505DCBC7C
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128746.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:BDA65E5366ED06057AA1971390F52597C7098A60
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128747.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ magnet:?xt=urn:btih:6116FD1CFE4943186AD9771F0ECD483D7A485168
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128748.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ magnet:?xt=urn:btih:D2D984174177821EFB7390C3487A7E515F7A4434
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128749.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:2F27A22B8F5368AE1849082C73DC6D031A218379
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128750.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:2F27A22B8F5368AE1849082C73DC6D031A218379
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128751.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ PaperColor v2.8.7 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128752.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ magnet:?xt=urn:btih:8DDFB705C3CCECA92C611B8FF4B65BBE9EC6A727
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128753.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ VA - Milk and Sugar Summer Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128754.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ magnet:?xt=urn:btih:CE2CC3C4E5A3143EF842A0327418C7DFC891EA01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128755.jpg" />
 </div>
 
 
@@ -544,7 +619,7 @@ magnet:?xt=urn:btih:EF75FBA62713CF1EE9278D6D90C55E25DA577428
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128756.jpg" />
 </div>
 
 
@@ -555,78 +630,6 @@ magnet:?xt=urn:btih:EF75FBA62713CF1EE9278D6D90C55E25DA577428
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9E310C156E1233A5FD60C6FC7BB17FD8BF45DC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683261   (128757) от 10.12.2023
-
-В доме моего отца / In My Father's Den (2004) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе Мориса Джи... Фотожурналист Пол Прайор, прославившийся своими репортажами из горячих точек планеты, спустя 17 лет возвращается в родной городок в новозеландской провинции. Поводом этому послужила смерть отца. Встреча с братом Эндрю и прежними знакомыми, а также посещение отцовского дома, пробуждает в его душе многочисленные воспоминания. (   Читать дальше...   )Производство: Великобритания, Новая Зеландия, Element X, Film Council, IFMD Ltd...Жанр: драма, детектив, триллерРежиссер: Брэд МакГэннАктеры: Мэттью Макфэдьен, Миранда Отто, Эмили Барклай, Колин Мой, Джимми Кин, Джоди Риммер, Тоби Александр, Вики Хофтон, Николас Хейярд, Лайам ХербертПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (18+), английскиеПродолжительность: 02:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D645A3C749B82C7E826647115E149F78686FD1CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343768   (128758) от 10.12.2023
-
-Погоня / Tǝqib (1984) WEBRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночью мальчик сторожил огород и заснул. Зайчик пришёл за морковкой, мальчик проснулся и побежал за ним в погоню, которая потом превратилась в весёлые догонялкиПроизводство: СССР, АзербайджанфильмЖанр: Мультфильм, Рисованная анимация, Детский, КороткометражныйРежиссер: Вахид ТалыбовСубтитры: отсутствуютПродолжительность: 00:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75EC265E6082B42C3B3AA2B19D6EF5B01A612E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683195   (128759) от 10.12.2023
-
-Кто не спрятался... / The Sacrifice Game (2023) WEBRip [H.264] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для нескольких студенток, оставшихся на кампусе в рождественские каникулы, наступающий праздник казался настоящей катастрофой. Но он превратился в сущий кошмар, когда туда пожаловала банда одержимых головорезов. Их цели безумны — призвать некое темное зло. Теперь девушкам придется сделать невозможное, если они хотят остаться в живых.Производство: США, Amg Music Film Television, Convoke Media, Real by FakeЖанр: ужасыРежиссер: Дженнифер УэкслерАктеры: Мэдисон Бэйнс, Джорджия Акен, Оливия Уэлш, Мена Массуд, Хлоя Ливайн, Гас Кенуорти, Дерек Джонс, Лорен Питре, Изабель Болтон, Патрик КертонПеревод: Дублированный (звук с ТС)Язык озвучки: Русский, УкраинскийСубтитры: отсутствуютПродолжительность: 01:39:06Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
 ```
 
 

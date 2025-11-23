@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42969.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:00B5E9D3557DA4920A4C4CDC9F4243362CB9BB34
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42970.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:8452FCDAB4348C81A5DF70F6827E1C01DB88E062
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42971.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3163AC16E39FF8FCE613FC7122D107B8869E836C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42972.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Navicat Premium 17.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42973.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FAF595C02B21759EEFB9FD6605BC347D6A005061
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42974.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:85C81989820CD46135C81EA7798A417466A0F385
 >>Ноты и обучение музыке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42975.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BBD3AE0EBA23BB397AC43A5819B1923C66D27CEE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42976.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:5D9364D51225B1769C58018914B49420AE74DC46
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42977.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Mirillis Action! 4.41.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42978.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - compilation musical kaleidoscope part 2 (2024) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42979.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:83750E08E31DDB1841CABDC20FA62F56E0B6D878
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42980.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ore wa Subete o Parry Suru: Gyaku Kanchigai no Sekai Saikyou wa Boukensha ni Nar
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42981.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Toy Tactics (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42982.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:5D7780085C060376B79932611B8B1E9081464045
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42983.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:EF50D8F2DD608A8EA0CA81C7955B5ED4D59830E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42984.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:0157817F672C0ACE8758E5CF46789F9B5C4A1A66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42985.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:AEDB7FDE85C0AD8C7045FBE581C6782F16A89CE3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42986.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42987.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B77F53787FB23F75BCF67EF475608F0125149470
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42988.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42989.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:13B9F31E559C1D982FCCE339AA438E8AD1909495
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42990.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E1E8784A6B3AC3BCF8DE48E5A5D91E636927DA9E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42991.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:1F858E1177B490143FB8035E631CF001546834E9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42992.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:FAF4ACA97E5A4C125C2371AF3DFDB18CF3BEE4AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42993.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ ExoCross (2020) [Multi] (2024.8.30.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42994.jpg" />
 </div>
 
 

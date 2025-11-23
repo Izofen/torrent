@@ -1,3 +1,51 @@
+###  Публикация: 1652617   (216926) от 12.08.2023
+
+Эмиль Золя | Радость жизни (2021) [MP3, Татьяна Виноградова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня, встречающая в своей жизни лишь неблагодарность, ненависть, корыстолюбие и обман, отвечает окружающим любовью, самоотверженностью, милосердием. Она наделена уникальным качеством – радоваться жизни, такой, какова она есть.Жанр: зарубежная классика, литература 19 векаИздательство: ИДДКПродолжительность: 13:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6E627C6AF86BF2ED733BD0E954A5BF51914880
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652613   (216943) от 12.08.2023
+
+Гюстав Флобер | Госпожа Бовари (2006) [MP3, Степан Старчиков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она мечтала быть любимой, жить в окружении красоты и блестящего общества. Но взамен судьба преподнесла ей брак с сельским врачом и прозябание в крошечном городишке среди обывателей. Однако находится человек, который кажется Эмме Бовари воплощением её былой мечты. Куда же приведёт её погоня за призраком любви: к счастью или к могиле?Жанр: зарубежная классика, классическая проза, литература 19 векаПродолжительность: 13:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15758FF2E4F79CA3F7F3FC216E773C85AD420635
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514413   (217115) от 03.12.2021
 
 Михаил Булгаков | Мастер и Маргарита (2018) [MP3, Дмитрий Оргин]
@@ -6,7 +54,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217115.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217115.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:30199D180C5E4F14B98C821B4922A18FB607008E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217317.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217317.jpg" />
 </div>
 
 
@@ -55,7 +103,7 @@ magnet:?xt=urn:btih:817BEC964644319B38DCF12A5E23192837DAB9B5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218981.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218981.jpg" />
 </div>
 
 
@@ -79,7 +127,7 @@ magnet:?xt=urn:btih:ACE149A0308C30261AA520444637C2F12F9E8A82
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220948.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220948.jpg" />
 </div>
 
 
@@ -103,7 +151,7 @@ magnet:?xt=urn:btih:D375571BABB668D1E7491C8FC727B38E57415998
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222543.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222543.jpg" />
 </div>
 
 
@@ -127,7 +175,7 @@ magnet:?xt=urn:btih:9FBC1E6048C162B5DCD06327925628AA745AF13D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223018.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223018.jpg" />
 </div>
 
 
@@ -151,7 +199,7 @@ magnet:?xt=urn:btih:DD956105D339BB1265F5B88AC80BCCBFA4100FBD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223317.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_223317.jpg" />
 </div>
 
 
@@ -175,7 +223,7 @@ magnet:?xt=urn:btih:9BCA5A2F97F8874E89A671125F8646BCBBDC06F6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223825.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223825.jpg" />
 </div>
 
 
@@ -199,7 +247,7 @@ magnet:?xt=urn:btih:51C57C83725D20F66448C8098C57FB88A21B8E16
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224528.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224528.jpg" />
 </div>
 
 
@@ -224,7 +272,7 @@ magnet:?xt=urn:btih:05BDC24BE2F33C096F4CBBBAC90D9C9D8E412567
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225169.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225169.jpg" />
 </div>
 
 
@@ -248,7 +296,7 @@ magnet:?xt=urn:btih:05CC43DD47630DADF005501FAF5F4AE936E48E7A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225181.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225181.jpg" />
 </div>
 
 
@@ -272,7 +320,7 @@ magnet:?xt=urn:btih:76B51F63643CA252F6160A4F33BAD2ABC7E3E607
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225247.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225247.jpg" />
 </div>
 
 
@@ -296,7 +344,7 @@ magnet:?xt=urn:btih:2918CF1D02B3A372BE3832245AC665354843605E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226219.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226219.jpg" />
 </div>
 
 
@@ -320,7 +368,7 @@ magnet:?xt=urn:btih:8C00D1783055E83BB6E7B4915932CF785A7A6B31
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226374.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226374.jpg" />
 </div>
 
 
@@ -344,7 +392,7 @@ magnet:?xt=urn:btih:226D35599A7709A1CAB15CD160128B63ACFC6061
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227790.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227790.jpg" />
 </div>
 
 
@@ -368,7 +416,7 @@ magnet:?xt=urn:btih:2B14C03C10AA9C3496336F6D94D21BE9A5F4C8EC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229432.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229432.jpg" />
 </div>
 
 
@@ -392,7 +440,7 @@ magnet:?xt=urn:btih:A82C4D3D7147B1185414EBD0DAB8D255F00CCC2D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230042.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230042.jpg" />
 </div>
 
 
@@ -416,7 +464,7 @@ magnet:?xt=urn:btih:A549D61938046592B4DF277F53FF20A33417069D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230483.jpg" />
 </div>
 
 
@@ -440,7 +488,7 @@ magnet:?xt=urn:btih:54BBA3DC920FC2BE10CA0453286C79354EF316C1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230570.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230570.jpg" />
 </div>
 
 
@@ -465,7 +513,7 @@ magnet:?xt=urn:btih:7DA61914D2B966AE04B6EBB6733A3B9879805B5D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230619.jpg" />
 </div>
 
 
@@ -492,7 +540,7 @@ magnet:?xt=urn:btih:B8C07079CF8ED3CACDA3F2B97B40DE59D683903F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230637.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230637.jpg" />
 </div>
 
 
@@ -516,7 +564,7 @@ magnet:?xt=urn:btih:19ECF98E406134547F5DCCF7AB38F7404509E88F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230974.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230974.jpg" />
 </div>
 
 
@@ -542,7 +590,7 @@ magnet:?xt=urn:btih:35C4A0E9A5CB13E7E4A444ED5629CDEB56F9FA4B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231611.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231611.jpg" />
 </div>
 
 
@@ -568,7 +616,7 @@ magnet:?xt=urn:btih:14AA6EB7C029FFB2045F30B0F5B103D709B39B3B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231623.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231623.jpg" />
 </div>
 
 
@@ -579,54 +627,6 @@ magnet:?xt=urn:btih:14AA6EB7C029FFB2045F30B0F5B103D709B39B3B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EE8C9D2F3B75521C4F71336D3CFE559861E0246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646927   (231865) от 16.07.2023
-
-Владимир Клавдиевич Арсеньев | В дебрях Уссурийского края (Книга 2). Дерсу Узала (2017) [MP3, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231865.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования образ таёжного охотника Дерсу Узала – мудрого, доброго и отважного человека, связанного с Арсеньевым искренней дружбой.Жанр: исторические приключения, книги о путешествияхИздательство: СОЮЗПродолжительность: 11:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BB1AB5CB52582D7AA46B84CC6CBEA7423E2CEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580065   (232069) от 30.09.2022
-
-Джордж Оруэлл | 1984 (2022) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что будет, если в правящих кругах распространятся идеи фашизма и диктатуры? Каким станет общественный уклад, если власть потребует неуклонного подчинения? К какой катастрофе приведет подобный режим? В государстве Океания у граждан нет прав, а значит, власть партии абсолютна. Повседневная жизнь героев проходит в условиях страха и постоянных потрясений. Здесь перечеркнуты (   Читать дальше...   )Жанр: зарубежная фантастика, классика фантастики, социальная фантастикаПродолжительность: 09:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5D5A98853A5EA37C464FD9A8E8DF989E374635
 ```
 
 

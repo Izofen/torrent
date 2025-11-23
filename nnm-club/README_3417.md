@@ -1,3 +1,78 @@
+###  Публикация: 1727500   (108524) от 02.06.2024
+
+Уильям Вудворд | Хлеба и зрелищ (2024) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108524.jpg" />
+</div>
+
+
+###  Подробнее
+
+После издания монументального трактата, озаглавленного «Как важно быть второсортным» и открытия бюро «По поставке мыслей на каждый день» дела Майкла Уэбба пошли в гору. Контора была битком набита хорошо одетыми клиентами; секретари назначали дни консультаций; случалось, что советы давались заочно. Предприятие так разрослось, что одному человеку не под силу было им (   Читать дальше...   )Жанр: зарубежная классикаИздательство: СоюзПродолжительность: 08:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02831D16D44FCF0469CA7C3F3A4AEA88BF4B7872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727548   (108525) от 02.06.2024
+
+Subtitle Edit 4.0.6 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subtitle Edit - редактор субтитров. При помощи этой программы вы сможете синхронизировать субтитры с видео, а также создавать новые субтитры. Subtitle Edit позволяет импортировать субтитры (в т.ч. - OCR), объединять и разбивать их на несколько фрагментов, настраивать их кодировку и частоту кадров, переводить их с одного языка на другой и многое другое. Пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B3412D2C04450F91D51BDDF21C5C56BE6B6F73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557168   (108526) от 02.06.2024
+
+Doomsday Dementia - 4 Albums (2018-2022) [FLAC|24/44.1,48|WEB-DL|tracks] <Crust Punk, Doom, Sludge, Stoner Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Doomsday Dementia - 2016 - Doomsday Dementia (24bit-44.1kHz)
+Doomsday Dementia - 2021 - the 3 blind mice demo (ep) (24bit-44.1kHz)
+Doomsday Dementia - 2022 - 3 songs from nov.2021 session outtakes, covid 19 jamroom demos (24bit-44.1kHz)(   Читать дальше...   )Жанр: Crust Punk, Doom, Sludge, Stoner MetalПродолжительность: 5 CD, 03:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7178F17605D3FF945702D54483A6179949B2D04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727411   (108527) от 02.06.2024
 
 Telegram Desktop 5.1.1 + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ Telegram Desktop 5.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108527.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ magnet:?xt=urn:btih:23B53FA19B3F53AE0D54B90FBCE2E30E0643D530
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108528.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ Erasure - From Moscow to Mars (2019) Remixes, 2019, BMG Company [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108529.jpg" />
 </div>
 
 
@@ -86,7 +161,7 @@ Antreib & Burning Flag - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108530.jpg" />
 </div>
 
 
@@ -113,7 +188,7 @@ Interloper - Search Party (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Prog 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108531.jpg" />
 </div>
 
 
@@ -140,7 +215,7 @@ Stefano Maggio & Alessandro Giordani - Miss Erotica (2017) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108532.jpg" />
 </div>
 
 
@@ -167,7 +242,7 @@ Arooj Aftab - Night Reign (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108533.jpg" />
 </div>
 
 
@@ -194,7 +269,7 @@ Lorekeeper - Lorekeeper (2020) [FLAC 2.0|44/24|WEB-DL|tracks] <Stoner Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108534.jpg" />
 </div>
 
 
@@ -221,7 +296,7 @@ Laserdance - Laserdance Orchestra Vol. 2 (1994) Reissue, 2024, ZYX Italo [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108535.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ Jim Hall - Live In Tokyo (1976) 1991, King Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108536.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ magnet:?xt=urn:btih:2F181484690F97FDE4F9B7855668FD9972022849
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108537.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ Carmen McRae - Great Women Of Song (1955 - 1959) 2024, Universal [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108538.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ Cosmic Jaguar - El Era Del Jaguar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108539.jpg" />
 </div>
 
 
@@ -355,7 +430,7 @@ Cloven Hoof - Heathen Cross (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108540.jpg" />
 </div>
 
 
@@ -382,7 +457,7 @@ Dead Head - Shadow Soul (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108541.jpg" />
 </div>
 
 
@@ -409,7 +484,7 @@ magnet:?xt=urn:btih:31AE3284899A62C870E6E54EA0CB8C60E92EE246
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108542.jpg" />
 </div>
 
 
@@ -434,7 +509,7 @@ magnet:?xt=urn:btih:84C7D6CFF4519971A29B409D1D1BF15D4227335B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108543.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ magnet:?xt=urn:btih:59F2F9A690153789D7BEACE12C73B5C7A3830CC0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108544.jpg" />
 </div>
 
 
@@ -486,7 +561,7 @@ Houston Person & Ron Carter - The Complete Muse Sessions (1989, 1990) 2CD, 1997,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108545.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ magnet:?xt=urn:btih:6EFC5CB9BEF15F7E079311A79A78A712CC3CA769
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108546.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ Dead Head - Depression Tank (2009) [FLAC|Lossless|image + .cue] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108547.jpg" />
 </div>
 
 
@@ -566,7 +641,7 @@ Shrapnel - In Gravity (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108548.jpg" />
 </div>
 
 
@@ -593,7 +668,7 @@ Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108549.jpg" />
 </div>
 
 
@@ -607,87 +682,6 @@ Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD89FCE25A7B87EFEED06F1E3084B33A4D15B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727188   (108550) от 01.06.2024
-
-Bongzilla - Dabbing Rosin in Europe (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sundae Driver (00:04:36)
-02 - King of Weed (00:05:46)
-03 - Free The Weed (00:06:26)
-04 - Greenthumb (00:04:06)(   Читать дальше...   )Жанр: Sludge, Doom, Stoner MetalПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200AC45E46E9DD252628FFE58839CDCA715D9211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727251   (108551) от 01.06.2024
-
-Demonic Manifestation - Necrokult (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infernal Nightmares
-02. Lake Of Blood
-03. Chainsaw Dismemberment
-04. Death Breath(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFC7C4FAA98AF102D31F27AC655CF2C11A56933
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727015   (108552) от 01.06.2024
-
-Dead Head - Swine Plague (2017) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helhuizen
-02. Duhr
-03. Palfium
-04. Fortress Of Greed(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6374E11EFD332DA5FC2E18463FF61AB7A623D287
 ```
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1678260   (147868) от 20.11.2023
+
+Notebooks – Write and Organize 3.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notebooks является единственным блокнотом, который когда-либо может вам понадобиться. Он позволяет создавать огромное количество записей. Он станет одним и единственным хранилищем не только для всех журналов, идей, заметок, черновиков, рассказов и дневников, но и для ваших проектов, списков задач, документов, файлов и все остального, что вы хотите хранить под рукой. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2023Разработчик: © 2012-2023 Alfons SchmidПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA5B8D2CA98CEED046E52B10F5EDD6719CC3AA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589702   (147893) от 15.12.2012
+
+Whos On My WiFi 2.1.1 [Английский + Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Who Is On My Wifi - это инструмент для сканирование Wifi сетей на наличие злоумышленников и неопознанных ПК с вашей внутренней сети. Утилита покажет вам каждый компьютер в сети, и предупреждает вас если он обнаруживает компьютер который он не признает. Программа позволит вам защитить свою сеть от падения скорости интернета, злоумышленников и компьютеров которым вы не разрешали использовать ваше подключение.
+
+(   Читать дальше...   )Название программы: Whos On My WiFiЯзык интерфейса: Английский + Русский (переведены подсказки мастера настройки)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678045   (147901) от 20.11.2023
+
+Iris 1.6.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iris — это высокопроизводительный экранный рекордер, который записывает в формате h.264. Iris использует ускорение встроенного графического процессора, если оно доступно. Дополнительно может включать видео с камеры и до двух микрофонов. Iris может бесплатно попробовать водяной знак, встроенный в записи.Тип издания: macOS SoftwareРелиз состоялся: 19.11.2023Разработчик: © 2023 Static Z SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2956A3B1E1F7C0CD57C47F95FD66B31255A3A59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678043   (147904) от 20.11.2023
 
 Sound Siphon 3.6.3 [En]
@@ -6,7 +80,7 @@ Sound Siphon 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147904.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Hyperforma Premium v0.9.37 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147908.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Pid [En/Multi5] (L/1.01) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147915.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ magnet:?xt=urn:btih:799400E646F2628CA8F6CEB8E7E24AE77D06D526
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147926.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ Classic Shell 3.6.3 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147930.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ Text Workflow 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147938.jpg" />
 </div>
 
 
@@ -156,7 +230,7 @@ Native Instruments Kontakt 6 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147947.jpg" />
 </div>
 
 
@@ -180,7 +254,7 @@ Movavi Video Editor Plus 20.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147952.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ R-Studio 8.12 Build 175721 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147964.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ magnet:?xt=urn:btih:3BBDB456C78DED6A9FC2BC72547343D10AF44BDC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147989.jpg" />
 </div>
 
 
@@ -261,7 +335,7 @@ Unite 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147992.jpg" />
 </div>
 
 
@@ -285,7 +359,7 @@ OmniGraffle Pro 7.22.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147994.jpg" />
 </div>
 
 
@@ -309,7 +383,7 @@ magnet:?xt=urn:btih:5B90380625A0941F873A38B45BF0BB9EBB8807FC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147995.jpg" />
 </div>
 
 
@@ -333,7 +407,7 @@ ImperiHome Pro 2.8.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148006.jpg" />
 </div>
 
 
@@ -359,7 +433,7 @@ Tipard FixMP4 for Mac 1.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148008.jpg" />
 </div>
 
 
@@ -383,7 +457,7 @@ magnet:?xt=urn:btih:F79FEC30930EB69EC18F3EF394540A3C4996A3E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148010.jpg" />
 </div>
 
 
@@ -407,7 +481,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148016.jpg" />
 </div>
 
 
@@ -431,7 +505,7 @@ magnet:?xt=urn:btih:B53186E60BD1583298927A973BD274F2ADC7C314
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148017.jpg" />
 </div>
 
 
@@ -455,7 +529,7 @@ magnet:?xt=urn:btih:5A9B364FDABA473FC78040C44272A0542ECF188D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148023.jpg" />
 </div>
 
 
@@ -479,7 +553,7 @@ Cabela's Big Game Hunter 6: The Next Adventure (2002) [En] (1.00.0000) Unofficia
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148027.jpg" />
 </div>
 
 
@@ -503,7 +577,7 @@ PullTube 1.8.5.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148041.jpg" />
 </div>
 
 
@@ -527,7 +601,7 @@ magnet:?xt=urn:btih:CB0E9D11F9ABCBA729F814FA377D78DE06BDC91D
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148044.jpg" />
 </div>
 
 
@@ -551,7 +625,7 @@ magnet:?xt=urn:btih:6F5C168C36F73CCA421897709869906BEA9C9AE9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148051.jpg" />
 </div>
 
 
@@ -563,79 +637,6 @@ magnet:?xt=urn:btih:6F5C168C36F73CCA421897709869906BEA9C9AE9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E630BD4D6E27B73F172C2F4514DF6076C3374600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435028   (148057) от 26.12.2020
-
-Mirillis Action! 4.14.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
-Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03EB3785A67E968D94F43730B0022862A391500
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589859   (148066) от 15.12.2012
-
-Ведение договоров 5.0 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для учета и ведения договоров в организациях. Предоставляет возможности для ведения договоров любого количества фирм (с филиалами), имеет настройки правила формирования номера договора, оповещения по незакрытым договорам с истекающим сроком действия и т.д. Программа поддерживает сетевой режим работы.Название программы: Ведение договоровЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434881   (148067) от 26.12.2020
-
-Eon music player v5.3.8 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eon music player - это музыкальный проигрыватель для мобильного устройства. Простой в управлении и легконастраиваемый под любого пользователя. Имеет весь необходимый набор функций.Тип издания: Пиратка (Куплена)Релиз состоялся: 17 ноября 2020 г.Разработчик: qmsapplicationsПоддерживаемая ОС: Android 4.3 и вышеЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F30582F0403BB5C6A3067AA6CE1A6CA45BF7929
 ```
 
 

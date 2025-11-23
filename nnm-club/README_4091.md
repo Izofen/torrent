@@ -1,3 +1,75 @@
+###  Публикация: 1823909   (126052) от 13.10.2025
+
+Дом динамита / A House of Dynamite (2025) Telecine [H.264/1080p] [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа чиновников в Белом доме пытается справиться с ракетной атакой на США.Производство: США / First Light Productions, Netflix, Prologue EntertainmentЖанр: Триллер, драмаРежиссер: Кэтрин БигелоуАктеры: Идрис Эльба, Ребекка Фергюсон, Гэбриел Бассо, Джаред Харрис, Трэйси Леттс, Энтони Рамос, Моусес Ингрэм, Джона Хауэр-Кинг, Грета Ли, Джейсон КларкПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:01Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2370E488067BD21490431EE246FD9FF0705C3E4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823911   (126053) от 13.10.2025
+
+Дом динамита / A House of Dynamite (2025) Telecine [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа чиновников в Белом доме пытается справиться с ракетной атакой на США.Производство: США / First Light Productions, Netflix, Prologue EntertainmentЖанр: Триллер, драмаРежиссер: Кэтрин БигелоуАктеры: Идрис Эльба, Ребекка Фергюсон, Гэбриел Бассо, Джаред Харрис, Трэйси Леттс, Энтони Рамос, Моусес Ингрэм, Джона Хауэр-Кинг, Грета Ли, Джейсон КларкПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:01Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A838BBC7B9435DCC4CB1CB624E5CA3CF35E55776
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823942   (126054) от 13.10.2025
+
+Честь дракона 2 / Tom yum goong 2 (2013) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влиятельного владельца слоновьего заповедника Сучарта убивает неизвестный эксперт по боевым искусствам, использовавший три удара по смертельным для жизни точкам, и Кхам становится основным подозреваемым в убийстве, так как он был последним, кого видели на месте преступления. Ему пришлось бежать от властей, тем временем за ним начали охоту двойняшки — племянницы Сучарта (   Читать дальше...   )Производство: Таиланд / Sahamongkolfilm CoЖанр: боевикРежиссер: Прачья ПинкаюАктеры: Тони Джа, RZA, Петчтай Вонгкамлау, Янин Висмитананда, Маррезе Крамп, Рхатха Пхонгам, Патрик Танг, Дэвид Исмалоун, Тхирада Киттисирипрасерт, Бунсонг НакпхуПеревод: МногоголосыйЯзык озвучки: Русский, узбекскийСубтитры: Немецкие (Forced)Продолжительность: 01:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2AB44C4C4C9AD5BF75A27ADE31DE4AA252B14B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823895   (126055) от 13.10.2025
 
 Heartlay - The Alteration (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] <Blackned Post Hardcore, Industrial Metal, Alternative Metal>
@@ -6,7 +78,7 @@ Heartlay - The Alteration (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126055.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:6CAEAE63C5E0DD46676ADD33BE73E78FD1E55165
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126056.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:39C619E5D13536CD73080DA47CABB78700E25715
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126057.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:A1AB34AD25764E1788AC2815D7C33663CAD26BE3
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126058.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Letters Sent Home - Forever Undone (2024) Extended Edition, 2025, SharpTone Reco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126059.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ magnet:?xt=urn:btih:7E5EF97DADCBF02A402D0722E5589501CB983B15
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126060.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:3140F90C3B62298FF9220C2F31809E2BD5281657
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126061.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:2144F76B2C8C94ED53F2C3A1F4C49E805D150FC3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126062.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:E9FE11019FBCB415E1ADF04020973789452DFDCB
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126063.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:6D5C7D10B3C050B386D655C27AA57B6DA0D721EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126064.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:F427D0460BDD926FC686BD3960A5B9CB6C3124A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126065.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126066.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126067.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:5B0869FB9B6A59F304CCCEEDA5BB8B576F48A36E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126068.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:33CCD142F09A2C5C60E25289D0D3DCB29B83B0E1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126069.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:09BF04DAF171F406C07C7813A697BE3E6399143D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126070.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ magnet:?xt=urn:btih:325828FA939369DE871078BD4EC617966508AF7E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126071.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:13F0B42C3B60C42C35DA26D3CE76F79E0EBBB5A6
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126072.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ magnet:?xt=urn:btih:4352D617DF239AF1E2A7931EC0345F03DAAA46E7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126073.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126074.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126075.jpg" />
 </div>
 
 
@@ -531,7 +603,7 @@ Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126076.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ Unanimated - Studio Albums (5 releases) (1993-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126077.jpg" />
 </div>
 
 
@@ -571,78 +643,6 @@ Unanimated — шведская метал-группа, основанная в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823945   (126078) от 13.10.2025
-
-То, что ты убиваешь / The Things You Kill (2025) WEB-DLRip [H.264] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Али, турецкий профессор философии, работающий в США, возвращается в родной город после смерти матери, страдавшей от тяжелой болезни. Подозревая, что ее кончина не была естественной, он винит отца, с которым не общался годами из-за старых обид. Горе и гнев толкают Али на встречу с Резой, загадочным садовником, чьи мотивы не ясны. Вместе они разрабатывают план мести, (   Читать дальше...   )Производство: Франция, Польша, Канада, Турция / Band With Pictures, DESMAR, Fulgurance, Lava Films, Remora FilmsЖанр: драмаРежиссер: Алиреза ХатамиАктеры: Экин Коч, Эркан Колчак Кёстендил, Хазар Эргучлу, Эрджан Кесал, Серхат Налбантолу, Селен Куртаран, Айсен Сумеркан, Ипек Турктан, Сертан Мюселлим, Онур ТаньериПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, турецкийСубтитры: русские (full - AI), английские, французские, персидскиеПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEDFB69E2549E1C97019BA078B6F37B052469C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823946   (126079) от 13.10.2025
-
-Антонина Брагина (1978) WEBRip [H.264/1080p] (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антонина Брагина работает мастером в литейном цехе. Опытный специалист, добрый и чуткий человек, она пользуется большим уважением у товарищей по работе. Но ее личная жизнь не сложилась, муж - Степан - уходит из семьи. Стойко переносит Антонина семейные невзгоды. Степан Брагин, поняв какого друга он потерял, возвращается в семью.Производство: СССР / БеларусьфильмЖанр: драмаРежиссер: Юрий ДубровинАктеры: Ксения Минина, Леонид Дьячков, Галина Радкевич, Александр Мартынов, Иван Дмитриев, Луиза Кошукова, Анатолий Салимоненко, Петр Юрченков ст., Сергей Ляхницкий, Анна ДубровинаСубтитры: отсутствуютПродолжительность: 01:03:36 + 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE9DAE9DDCD42B02752E10A59281C08E3AEC4CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823937   (126080) от 13.10.2025
-
-Честь дракона / Tom yum goong (2005) BDRip [H.264/1080p] (Extended cut) [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126080.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета лежит история о том, как у одной крестьянской семьи из Таиланда перекупщики похитили слона и слоненка, которые были затем нелегально переправлены в Сидней. Молодой парень отправляется в Австралию, где вступает в схватку с преступным синдикатом.Производство: Таиланд, США, Гонконг, Франция, Австралия / Baa-Ram-Ewe, Golden Network, Sahamongkolfilm Co. Ltd., TF1 InternationalЖанр: боевик, триллер, драма, криминалРежиссер: Прачья ПинкаюАктеры: Тони Джа, Петчтай Вонгкамлау, Бонгкой Кхонгмалай, Цзинь Син, Нэйтан Джонс, Джонни Нгуен, Латиф Кроудер, Джон Фу, Дэмиан Де Монтема, Дэвид АсаванондПеревод: Одноголосый, многоголосый (''Favvora Film'')Язык озвучки: Русский, узбекскийСубтитры: Русские, английскиеПродолжительность: 01:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BD563A2920B1C73BC0455FBEFA9FF1FA5FCCBD
 ```
 
 

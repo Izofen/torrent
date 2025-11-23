@@ -1,3 +1,111 @@
+###  Публикация: 735819   (229534) от 18.12.2013
+
+Аквариум - Оракул Божественной Бутылки (1998) 2LP /2013, Solyd Records/ [WavPack 2.0 24/192|image (Vinyl-Rip)]<Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229534.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1. Мой друг доктор (3:27)
+C2. Электрический пес (5:12)
+C3. Скорбец (3:06)
+C4. Афанасий Никитин Буги (3:54)(   Читать дальше...   )Жанр: РокПродолжительность: 00:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFE44147D50044ADDE2F8DD4BFFCCB808B93E63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964888   (230001) от 12.12.2015
+
+Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_230001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Was a Boy (3:12)
+02. Love & Rain (3:30)
+03. Dirty To The Bone (3:06)
+04. When The Night Comes (3:21)(   Читать дальше...   )Производство: Columbia / Big Trilby Rec.Жанр: RockПродолжительность: 00:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E180AAD96C0AF6372D39F23596412C68FFF1ED0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582736   (230384) от 11.10.2022
+
+Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera) (1970) [DSD128 2.0|images(sides)|Vinyl-Rip]<Classic Rock, Musical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_230384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (3:59)
+ 02. Heaven on Their Minds (4:22)
+ 03. What's the Buzz/Strange Thing Mystifying (4:14)
+ 04. Everything's Alright (5:15)(   Читать дальше...   )Жанр: Classic Rock, MusicalПродолжительность: 01:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC0ABFDD80805AA4B4CA376CBCBD5DBCEBE1006
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637784   (230481) от 06.06.2023
+
+10СС - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_230481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Dreadlock Holiday
+02. Take This Woman
+03. Nothing Can Move Me(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4042834B66FA71CC492D07143A6B8B3141220A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556033   (230778) от 07.06.2022
 
 Running Wild (X-Wild, Toxic Taste, Giant X) - Studio Albums (22 releases) (1984 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
@@ -6,7 +114,7 @@ Running Wild (X-Wild, Toxic Taste, Giant X) - Studio Albums (22 releases) (1984 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230778.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230778.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ Creedence Clearwater Revival - Легенды Зарубежного Рока (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230921.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230921.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230927.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230927.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ Krokus - Легенды Зарубежного Рока (2001) Compilation, Unof
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230957.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230957.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ Queen - Легенды Зарубежного Рока (1999) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230996.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230996.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231036.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231036.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231406.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231406.jpg" />
 </div>
 
 
@@ -196,7 +304,7 @@ Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and oth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231774.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231774.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ magnet:?xt=urn:btih:AA03A5BABA5D53E8FA538C3D0221E4EDAFD55035
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232878.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232878.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232952.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232952.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232991.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232991.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233007.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_233007.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233340.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233340.jpg" />
 </div>
 
 
@@ -358,7 +466,7 @@ magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233757.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233757.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233869.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233869.jpg" />
 </div>
 
 
@@ -412,7 +520,7 @@ Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233980.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233980.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234242.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234242.jpg" />
 </div>
 
 
@@ -466,7 +574,7 @@ magnet:?xt=urn:btih:C2790C2EB12578DDB8E8939DB4CD50EF1643E1ED
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234631.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234631.jpg" />
 </div>
 
 
@@ -493,7 +601,7 @@ magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235260.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235260.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235348.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235348.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235630.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235630.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235659.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235659.jpg" />
 </div>
 
 
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559084019D1B11B1F3B6B9DE1AF515BF7D240B68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642113   (235786) от 26.06.2023
-
-A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235786.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Stay On These Roads 4:44
-A2 The Blood That Moves The Body 4:05
-A3 Touchy 4:31
-A4 This Alone Is Love 5:13(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6868FBE367A08BB0303738B18AB784F6863B85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640709   (235909) от 19.06.2023
-
-Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal / Death 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Entombed — шведская дэт-метал-группа, сформированная в 1987. Группа является пионерами скандинавского дэт-метала.1990 - Left Hand Path
-1991 - Clandestine
-1993 - Wolverine Blues
-1997 - DCLXVI: To Ride, Shoot Straight And Speak The Truth!Жанр: Death Metal / Death 'n' RollПродолжительность: 12:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631691   (235963) от 06.05.2023
-
-Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Civil War — хеви-пауэр-метал-группа из Швеции, основанная в 2012 году.2012 - Civil War (EP)
-2013 - The Killer Angels
-2015 - Gods And Generals
-2016 - The Last Full Measure(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 04:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3014CBC3A138A5D2C9798A678555C9E42C30EA9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631725   (236092) от 07.05.2023
-
-VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236092.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 И. Крайичек – Марика
-A2 З. Каминьска – Я Жду
-A3 И. Шерфези – Лола
-A4 В. Стойкович – В Долгих Ночах(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18B17D203C39F9283540A540F383D0577F52098
 ```
 
 

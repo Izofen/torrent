@@ -1,3 +1,77 @@
+###  Публикация: 1525582   (129040) от 22.01.2022
+
+Ctlos Linux Xfce 2.2.1 [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ctlos Linux — базируется на Arch Linux, iso образ собран с помощью archiso скриптов, полностью совместим с Arch Linux, в работе используются оригинальные репозитории, в том числе и Aur.
+Включена поддержка Aur репозитория: пакетный менеджер yay, это говорит о том, что проблем с поиском ПО быть не должно.
+Образ не перегружен программами, как это часто бывает. Есть (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903D7F0C95BC8FEAA6CE0AEEE252855058F8801A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824689   (129041) от 15.10.2025
+
+Эмоджи фильм / The Emoji Movie (2017) BDRip [AV1/1080p-LQ] [10-bit] [handmade AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли вы, что внутри каждого смартфона есть красочный городок Текстополис, в котором живут эмоджи? И что они ужасно радуются, когда владелец телефона именно их выбирает для своего сообщения? Каждый из эмоджи отвечает лишь за одну эмоцию, и только Джин может выражать несколько эмоций сразу. Он очень хочет стать таким же, как и его собратья, и для этого вместе (   Читать дальше...   )Производство: США / Columbia Pictures, LStar Capital, Sony Pictures AnimationЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Энтони ЛеондисАктеры: ТиДжей Миллер, Джеймс Корден, Анна Фэрис, Майя Рудольф, Стивен Райт, Дженнифер Кулидж, Патрик Стюарт, Кристина Агилера, София Вергара, РэйчелПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBED5EB2395447717F2152157179951D0E63615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524992   (129042) от 22.01.2022
+
+Windows 10 21H2 (19044.1466) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка windows 10 выполнена на основе оригинальных образов Microsoft Windows 10.19044.1466 Version 21H2 (January 2022 Update) (MSDN) и содержит три редакции ОС в одном образе. Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C13245B16172EEE4791F8E3AF16278E752FA3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824680   (129044) от 15.10.2025
 
 Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Эвергарден (фильм) [2020, Movie] DVDRemux 480p raw+rus
@@ -6,7 +80,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129044.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:A5DACDA5B1236162F19826698C22E4AE4A3BB7E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129046.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:38C1E152877375EB3DC5A22033836807AE39D1F4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129048.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ PotPlayer 220106 (1.7.21595) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129049.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ magnet:?xt=urn:btih:DF318FF23283A8898E476EAB0A0980E88BF261E3
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129051.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:57033C59D8C77E0C7C9E6921AC9FA66A26772D7A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129052.jpg" />
 </div>
 
 
@@ -156,7 +230,7 @@ uTorrent Pro 3.5.5 Build 46148 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129053.jpg" />
 </div>
 
 
@@ -180,7 +254,7 @@ VA - Жаркая Зимняя Ночь на Maximum FM (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129056.jpg" />
 </div>
 
 
@@ -213,7 +287,7 @@ magnet:?xt=urn:btih:DD5B6DE9F0E6A752FF774E6AB0B9714636D3BD25
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129058.jpg" />
 </div>
 
 
@@ -237,7 +311,7 @@ magnet:?xt=urn:btih:E45E6941273B5A6B91FEB44177AFE099BF5C0DA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129059.jpg" />
 </div>
 
 
@@ -261,7 +335,7 @@ magnet:?xt=urn:btih:176848FA7D449710055AB7F9471CC78473AB7511
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129061.jpg" />
 </div>
 
 
@@ -285,7 +359,7 @@ magnet:?xt=urn:btih:5D8A3E205B05CE728E6D2D6F7952C8C48E4FFF23
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129063.jpg" />
 </div>
 
 
@@ -312,7 +386,7 @@ VA - DFM - Dynamics from AGR (18.04.2012) (2012) [MP3|320 кб/с]<Progressive H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129064.jpg" />
 </div>
 
 
@@ -341,7 +415,7 @@ Windows 10 Pro 21H2 19044.1469 x64 by SanLex [Gamer Edition] [Ru] (2022.01.20)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129065.jpg" />
 </div>
 
 
@@ -365,7 +439,7 @@ magnet:?xt=urn:btih:2F9FAA1C80BB2710A8C79B0B6F098948F270DBB9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129066.jpg" />
 </div>
 
 
@@ -389,7 +463,7 @@ magnet:?xt=urn:btih:B260DE150CCEA6472A5BB7E9B7BCD3A4498323BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129067.jpg" />
 </div>
 
 
@@ -413,7 +487,7 @@ magnet:?xt=urn:btih:927709DB7CE1183159A124C226B21A3A83516C18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129068.jpg" />
 </div>
 
 
@@ -437,7 +511,7 @@ magnet:?xt=urn:btih:43E799F98FAC6D1983613D6A43F0282510986A50
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129069.jpg" />
 </div>
 
 
@@ -461,7 +535,7 @@ magnet:?xt=urn:btih:4A9E720D804F2F0571EB01C63B708CAFB18D3FD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129070.jpg" />
 </div>
 
 
@@ -485,7 +559,7 @@ magnet:?xt=urn:btih:22E315CA7A2FE87970F8BC161C3349A81EDD2238
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129071.jpg" />
 </div>
 
 
@@ -509,7 +583,7 @@ magnet:?xt=urn:btih:5A133945AC208FEC66FF8D85C2188441C7775DC1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129072.jpg" />
 </div>
 
 
@@ -533,7 +607,7 @@ magnet:?xt=urn:btih:9F920AB95F2642EA95F9D6731A6FE27D12591287
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129073.jpg" />
 </div>
 
 
@@ -557,7 +631,7 @@ magnet:?xt=urn:btih:094E89532EA279F1BD2E3A7EE4E519722E0D7841
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129074.jpg" />
 </div>
 
 
@@ -568,87 +642,6 @@ magnet:?xt=urn:btih:094E89532EA279F1BD2E3A7EE4E519722E0D7841
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:393D61224BDF9421C12AF39463AE6DFAF80B451B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525998   (129076) от 22.01.2022
-
-StartAllBack 3.2.2 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129076.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FEC5FFE031D740282E880ADDBC6B687CC9245E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525047   (129078) от 22.01.2022
-
-Windows 10 Enterprise LTSC 21H2 (Build 19044.1466) x64 by Brux [Ru]
-
->>След.
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка windows 10 выполнена на основе оригинальных образов Microsoft Windows 10.0.19044.1288 Version 21H2 (2021 Update) (MSDN). Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8F96A8C37902CB6CD9CE41F8033FC34523A7CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489005   (129079) от 27.04.2012
-
-VA - Весенняя волна хитов к празднику (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129079.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maxima - Ненавижу Любовь (3:37)
-2. Алексей Большой - Один Взгляд Назад (3:35)
-3. Влада - Я Для Тебя (3:21)
-4. Алексей Матиас И Alyosha - Песня Моря (3:44)
-5. Сергей Жуков - Hearts (4:01)
-6. T.O.T.A.L. И Антитeла - Весна-Любовь (Hard2V) (4:35)
-7. Бьянка - Без Сомнения (3:15)
-8. Dj Smash, Dj Рыжов, Chinlong - На Заре (3:38)
-9. 5sta Family - Spring Summer (2:50)
-10. Виктория Дайнеко - Я Буду Красивой Невестой (3:51)2012Жанр: PopПродолжительность: 05:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C2E87A4A1D8A4A77DA8B655C7CBDAB14F0A473
 ```
 
 

@@ -1,3 +1,79 @@
+###  Публикация: 1738990   (106210) от 25.07.2024
+
+Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bless 'em With the Blade (2:48)
+02. Sinners of the Seven Seas (3:01)
+03. Kyrie Klitorem (3:04)
+04. Heretic Hunters (3:27)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C99D2F65AE2C817ABC684BA406822E2936C2DC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738939   (106211) от 25.07.2024
+
+FanControl V197 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106211.jpg" />
+</div>
+
+
+###  Подробнее
+
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C6839ED3A76CF67DADB265DB2667184BAD2080
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738844   (106212) от 25.07.2024
+
+XYplorer 26.30.0000 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106212.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer - продвинутый файловый менеджер, который внешне напоминает стандартный Проводник Windows, но имеет множество дополнительных функций и инструментов для удобной работы с файлами. Особенностью этого менеджера является поддержка мультивкладок - откройте столько окошек, сколько Вам нужно, и быстро переключайтесь между ними.
+Приложение имеет гибкие настройки и (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBA0A915166C6BEE26F25CC780A9BC0EF0C63A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738988   (106213) от 25.07.2024
 
 Клетка / La cage (1975) BDRip [H.264/720p] [AVO]
@@ -6,7 +82,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106213.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:D2EB82C048526841F2D3B146758ACD03BFA197CD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106214.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:9C17989BABC98BD60D2F4E65999245FAE9566259
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106215.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:EDC67202B518309A2D88E6B077987D40F8613AE5
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106216.jpg" />
 </div>
 
 
@@ -106,7 +182,7 @@ Animal Джаz - Ян (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106217.jpg" />
 </div>
 
 
@@ -133,7 +209,7 @@ Pat Metheny - MoonDial (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Fusion, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106218.jpg" />
 </div>
 
 
@@ -160,7 +236,7 @@ magnet:?xt=urn:btih:D81F0E8F0FCAFAD220EE081E1726E4FDA8840FC9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106219.jpg" />
 </div>
 
 
@@ -184,7 +260,7 @@ Firefox Browser 128.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106220.jpg" />
 </div>
 
 
@@ -208,7 +284,7 @@ The Cosmic Trip Advisors - One for the road - Make it a double (2024) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106221.jpg" />
 </div>
 
 
@@ -235,7 +311,7 @@ magnet:?xt=urn:btih:7681B38537BCD4023DD0A323C5FB0EAD25CF294F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106222.jpg" />
 </div>
 
 
@@ -259,7 +335,7 @@ Billy Barnett Band - Hey It's Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106223.jpg" />
 </div>
 
 
@@ -286,7 +362,7 @@ magnet:?xt=urn:btih:3802CB92139E2C10C8C5B58288221319418F1615
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106224.jpg" />
 </div>
 
 
@@ -310,7 +386,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106225.jpg" />
 </div>
 
 
@@ -337,7 +413,7 @@ Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, 
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106226.jpg" />
 </div>
 
 
@@ -364,7 +440,7 @@ VA - Music News For Forum vol.004 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106227.jpg" />
 </div>
 
 
@@ -391,7 +467,7 @@ magnet:?xt=urn:btih:F739ACB4395CEBA17024605EAC8460D4478BAD70
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106228.jpg" />
 </div>
 
 
@@ -415,7 +491,7 @@ magnet:?xt=urn:btih:3EE32E762E10E91AB2A7595C9ECC05D4C730E3AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106229.jpg" />
 </div>
 
 
@@ -439,7 +515,7 @@ YT Downloader 9.9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106230.jpg" />
 </div>
 
 
@@ -463,7 +539,7 @@ magnet:?xt=urn:btih:0C8A7983B7018FF1DAA1DA72EA18EB5AADE8B791
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106231.jpg" />
 </div>
 
 
@@ -487,7 +563,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106232.jpg" />
 </div>
 
 
@@ -514,7 +590,7 @@ magnet:?xt=urn:btih:5F4E5CB84418AB20F3F5C1B16ED23F0A0D16C7FE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106233.jpg" />
 </div>
 
 
@@ -541,7 +617,7 @@ Dream Evil - Metal Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106234.jpg" />
 </div>
 
 
@@ -568,7 +644,7 @@ magnet:?xt=urn:btih:BD97DBF8FE1FD487E42266B1DA63397330C55A44
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106235.jpg" />
 </div>
 
 
@@ -580,79 +656,6 @@ magnet:?xt=urn:btih:BD97DBF8FE1FD487E42266B1DA63397330C55A44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EDE962744766EC042B8B8240A184D0AED3405CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738882   (106236) от 25.07.2024
-
-А.Н. Лялин | Охота на медведей в Сибири с лайками (1911) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга сборник рассказов знаменитого в прошлом сибирского охотника-медвежатника Александра Николаевича Лялина, который скончался в 1926 году, сделав 21 статью достоянием общественности.
-В издание вошел цикл Лялина «Охота в Сибири на медведей с лайками», принесший ему славу и признание. Эти очерки публиковались в журнале «Природа и Охота» в 1901-1911 гг., и здесь собраны (   Читать дальше...   )Жанр: Документальная прозаИздательство: Императорское общество размножения охотничьих и промысловых животных и правильной охотыФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBCEB7A5782E15D286F3B2B77CA4A35BC7E2457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738843   (106237) от 25.07.2024
-
-IObit Smart Defrag Pro 10.0.0.374 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B25A49F420BCEB554E77CAB1C5CACCD6B408A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738840   (106238) от 25.07.2024
-
-KeepStreams 1.2.3.0 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106238.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeepStreams — это удобный и мощный инструмент для загрузки, конвертирования и записи видео-контента. KeepStreams поддерживает загрузку видео с большого количества онлайн-сервисов и позволяет пользователям загружать видео в различных форматах и качестве. С помощью KeepStreams пользователи могут конвертировать загруженное видео в различные форматы, размеры и разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02FB015CC7531628E61443C8300967AB18494212
 ```
 
 

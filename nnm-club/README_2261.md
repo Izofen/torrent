@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59151.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ X-Tension: New Life / X: Мобилизация: Новая жизнь (2000) [R
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59152.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:45292BE9DB2D2D312D736CD953E45DA60541208F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59153.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1E4125911A8BE0F9BEAA8982D6B5A5B08DD473FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59154.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D5F1CD6596F26AC19D71015AB5E9B780422DDA82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59155.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D2EEEB340EF43C89861FE0DB8B072C3285EFDE38
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59156.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:3A7E005272D4AA437A057E1CC884C5B24192B418
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59157.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.9501/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59158.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6FF85EC917740573C2AC03E56A3C21008B1D67AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59159.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9776D515C28EA6517910B46EC74C36C835719EB8
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59160.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chris Rea - 20 Studio albums + 4 Compilations + Box Set (1978-2008) [WavPack|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59161.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:43491FF31E9ED1569E80F42B990EB57A242D9B29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59162.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:3B2208D9831C47269423FEAA021BA40D042BDCD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59163.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:9FC1614EE19936D5DCD5605160E7F3087FC368FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59164.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:496D6821153CCFCEFDD8A99F40795171E298E3A5
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59165.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:2DFFE2F29E1A67A41B22CB5DA5F1287FA79F952C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59166.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:1FE6B166C743F6C097098EBED33B332EDC844822
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59167.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59168.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4E0606FB5C21F4ECC4CDC477F3E7D295ED295E2D
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59169.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Blender 3.6.11 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59170.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:FD5973CF2E77FDEE63B1A3A8DDD036986E3287ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59171.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:FD5973CF2E77FDEE63B1A3A8DDD036986E3287ED
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59172.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:FB8698BFC951D06E7DBCD5D6A5D867E8FD51A35B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59173.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Hypnospace Outlaw (2019) [En] (2.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59174.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ IObit Smart Defrag Pro 9.4.0.342 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59175.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:CFF1FA9931E274A576A4C6D9A66AD1A2E415DEAD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59176.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bengal Tigers - Cry Havoc (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64630.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CB8F72FE4A3CF8E88234F8C4B227B9384DA54580
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64631.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Heavens Gate - Menergy (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64632.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sidney Bechet - Four Classic Albums: Third Set (1955 - 1958) 2CD, 2022, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64633.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Ori Uplift - Uplifting Only Episode 651 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64634.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Donald Byrd - Four Classic Albums (1955, 1956) 2CD, 2014, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64635.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:1F9A2F4E9E1462AA77F80BDDFF2FD2247D0247FB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64636.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:84E3976344447C5DD89666BC61EB86C61F87E7B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64637.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:716DDAC8408832B41FD59EC4A261BA6EA6DE1DF7
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64638.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:F7172500A5F3BC83B73B72ED4EFF0BD517DCB2AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64639.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:517B9AC7C6BC8EFD44406E8E42B24786ED720624
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64640.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:FBBEE47C26EF056B31FE333120C9D7F88A7F6277
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64641.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:CF9DC092B81B6E2A7EEF7A13AFDE6CBA97EC715B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64642.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:CF9DC092B81B6E2A7EEF7A13AFDE6CBA97EC715B
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64643.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:399DE2E601F8D6CD3C3D5AC528AF0AC1BCD93196
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64644.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:33986F756079EDCE4F6E0B80DF464FB33F7509F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64645.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:8F637239DD639F4F12D656623946B6F4008ECCB0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64646.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:17EBBA1B2EED2D73555282DB5141ABAC766E4861
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64647.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Anjunadeep Explorations Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Me
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64648.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F11893E96DB42E8A289F2CB07573E05C3BC8AB3C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64649.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Armin van Buuren - A State Of Trance 1236 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64650.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Rimini Summer Party, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64651.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - 25 Years Of Anjuna Mixed By Dom Donnelly (2025) [MP3|320 Kbps] <Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64652.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0C6ACFB1385AF55B4AD2A6CD6F2CB37565F1BFC4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64653.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:6A08DE54067A88AA4574F8D8B073521FE345850F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64654.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64655.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45964.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser 129.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45974.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ KORG - ARP 2600 1.0.5 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45976.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Google Chrome 128.0.6613.85 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45979.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Ashampoo UnInstaller 15.00.00 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45982.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ NirLauncher Package 1.30.13 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45986.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Google Chrome 128.0.6613.85 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45998.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ DNS Changer 2.3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46012.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Windows Manager 2.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46024.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ qBittorrent 4.6.6 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46035.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:763A8A9EEC95F820AA92B03F81DAF323FFFC70AE
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46057.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ iZotope - Ozone 11 Advanced 11.2.0 VST 3, AAX, NKS (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46060.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ PDFCreator 5.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46065.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:D2BA44FFE398B945CA6D972CF34682B995E545EE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46087.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:07C516B8B5D4129649801F2ACFCFC9EABE7C7F1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46097.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ FastStone Capture 10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46110.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ PDFsam Basic 5.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46121.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ WinToUSB Free / Pro / Enterprise / Technician 9.0.0 RePack (& Portable) by Dodak
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46135.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VueScan Pro 9.8.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46136.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ HWiNFO 8.10 Build 5520 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46141.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ R-Studio Network 9.4 Build 191349 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46142.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ FastStone Capture 10.7 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46143.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Windows Manager 2.0.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46144.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ CCleaner 6.27.11214 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46152.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Blender 4.2.1 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46213.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ TikTok 36.0.4 Mod by Dmitry Nechiporenko + Plugin 1.50 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46214.jpg" />
 </div>
 
 

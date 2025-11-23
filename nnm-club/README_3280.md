@@ -1,3 +1,78 @@
+###  Публикация: 1746296   (104962) от 30.08.2024
+
+1987. Когда наступит день / 1987. When the Day Comes (2017) BDRip [H.264] [ AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104962.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 января 1987 года студент сеульского университета Пак Чон-чхоль был до смерти замучен на полицейском допросе. Причины его гибели пытались скрыть, подделав заключение о смерти, но правда всё равно стала достоянием общественности. Это послужило катализатором массовых протестных выступлений, известных как Июньское демократическое движение. Результат — проведение первых (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, Woojeong FilmЖанр: драма, биография, историяРежиссер: Чжун Хван ЧанАктеры: Юн Сок Ким, Чон У Ха, Хэ Чжин Ю, Тэ Ри Ким, Хи Сун Пак, Ый Сон Ким, Хи Чжун Ли, Чжон Су Ким, Даль Су О, Чан Сок Ко, Сон Гын Мун, У Хён, У Джин Чо, Чжи Хван Пак, Сын Мок ЮПеревод: авторскийЯзык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 02:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083197F67476D51FC602622F819A08CE221214AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746239   (104963) от 30.08.2024
+
+Журнал | ТЕХСОВЕТ премиум №7-8 (226) (июль-август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104963.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ТЕХСОВЕТ премиум»— путеводитель по эффективным техническим решениям. Широкий спектр производственно-технических публикаций по актуальной тематике: нефтегазовый комплекс, энергохозяйство предприятия, энерго- и ресурсосбережение, технологии металлообработки, импортозамещение, логистика и складское оборудование, информационные технологии и связь.Жанр: Информационно-рекламное изданиеИздательство: ИП Гайдукова Н.А.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC17DCB61EA21D18492E9E44808F9701EFAD10B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746317   (104964) от 30.08.2024
+
+V.A. - Italian Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zerosospiro - Conversazione
+02. Papik, Frankie Lovecchio, Stefy Gamboni - Questione Di Feeling
+03. Papik, Danny Losito - Pregherò
+04. Soulstance, Melania - Je Sto Vicino A te(   Читать дальше...   )Жанр: Nu Jazz, Pop JazzПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93A03BC697B82C349172321BE6A16C78CFA4F09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746271   (104965) от 30.08.2024
 
 Frank Catalano & Lurrie Bell - Set Me Free (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +81,7 @@ Frank Catalano & Lurrie Bell - Set Me Free (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104965.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Leprous - Melodies Of Atonement (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104966.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Leprous - Melodies Of Atonement (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104967.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Tusmorke - Dawn Of Oberon (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104968.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ Deliver The Galaxy - Bury Your Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104969.jpg" />
 </div>
 
 
@@ -141,7 +216,7 @@ Kenny Drew & Hank Jones Great Jazz Trio - New York Stories (1990) Alfa Jazz [Wav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104970.jpg" />
 </div>
 
 
@@ -168,7 +243,7 @@ Joji - Smithereens (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104971.jpg" />
 </div>
 
 
@@ -195,7 +270,7 @@ Beyond Veils - Think happy thoughts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104972.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ Conte Candoli - Powerhouse Trumpet (1955) 1999, Bethlehem [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104973.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ Impaled Nazarene - Absence of War Does Not Mean Peace (2001) Reissue, 2002, Fono
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104974.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:68B0AF8C7542EBDD70401FCDB61ED0850766FA98
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104975.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ Omar and The Howlers - Aggressive Country (2024) [MP3|320 Kbps] <Blues Rock, Cou
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104976.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ Ji Jia Shou Shen: Baolie Feiche | Screechers Wild! | Дикие Cкричеры!
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104977.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ Ji Jia Shou Shen: Baolie Feiche 2 | Screechers Wild 2! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104978.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ Rising Insane - Wildfires (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104979.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ WinCatalog 2024.8.0.826 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104980.jpg" />
 </div>
 
 
@@ -427,7 +502,7 @@ magnet:?xt=urn:btih:3B93FA800C91EA84618D06CBF7565F05BD1F8CC3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104981.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ SnapEdit - AI photo editor v6.8.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104982.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ magnet:?xt=urn:btih:8BF681D95D88D36D793B2F3EE7ABB0F430CAB4D6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104983.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ magnet:?xt=urn:btih:8CCEDD954EEEE332F7AF5A3D94290A01FE8C8B4D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104984.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ XYplorer 26.30.0400 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104985.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ magnet:?xt=urn:btih:2A7F1A76EC50E6ADC922DA5FFFDB8EA238A20A3D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104986.jpg" />
 </div>
 
 
@@ -575,7 +650,7 @@ magnet:?xt=urn:btih:81992C76AAACCE64AEA899354443DD9A5631BE05
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104987.jpg" />
 </div>
 
 
@@ -586,78 +661,6 @@ magnet:?xt=urn:btih:81992C76AAACCE64AEA899354443DD9A5631BE05
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0A80736E0697667DFCA8FE9A21E949A425D57B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745869   (104988) от 28.08.2024
-
-Сатисъ | Ревностный проповедник христовой истины святой апостол Симон Кананит. (2009) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вашему вниманию книга является попыткой собрать воедино сведения Православной Церкви о святом апостоле Симоне Кананите (Зилоте) и дополнить их святоотеческими толкованиями, молитвословиями, свидетельствами почитания апостола Симона на земле Абхазии.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EA2FE61E4D12FBB5B9F5DE824744B6B54F11BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745799   (104989) от 28.08.2024
-
-YT Downloader 9.10.10 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104989.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CBB9A65C611073CBF3AD4CD7BEA5FBD27F5A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745880   (104990) от 28.08.2024
-
-Сатисъ | День христианина (1995) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104990.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Так ли ты живешь, как должно жить христианину, т.е. усердно ли желаешь и усиленно ли домогаешься того, чего желает и домогается истинный христианин?.. Предлагаю наставление на одни день. Если будешь верно следовать этому наставлению, то увидишь, что другое наставление тебе не будет нужно! Как проведешь день первый, так должно будет провождать и всякий следующий…Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9359D4CACACFD5D48153C16CAEBECCC539BB3157
 ```
 
 

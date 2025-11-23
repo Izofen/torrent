@@ -6,7 +6,7 @@ Windows 11 PRO 23H2 22631.4317 Update 12 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39727.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MeldaProduction - MCompleteBundle 17.01 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39736.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TechSmith Camtasia 24.0.7 Build 3801 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39739.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kekkon Yubiwa Monogatari | Сказание об обручальных коль
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39749.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B6E56461D28BE2C03040F6464B1F622B1C68B24D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39769.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ OBS Studio 30.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39782.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Slimjet 44.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39790.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ KiCad 8.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39793.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.3 Build 5 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39812.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Microsoft Visual Studio 2022 Community 17.11.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39818.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ MKVToolNix 88.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39819.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ NetLimiter 5.3.18.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39862.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ FileZilla Server 1.9.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39863.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ IObit Uninstaller Pro 14.0.0.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39868.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ NetLimiter 5.3.18.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39892.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.3 Build 5 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39916.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ocenaudio 3.14.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39951.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Calibre 7.20.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39985.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.3 Build 5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39996.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Duplicate File Finder Pro 2406 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39999.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ IK Multimedia - AmpliTube 5 Complete 5.10.1 STANDALONE, VST, VST 3, AAX (x64) [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40000.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wise Care 365 Pro 7.0.7.689 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40009.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Spotify 1.2.47.366 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40014.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0210) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40017.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Malwarebytes Windows Firewall Control 6.13.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40020.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FastStone Image Viewer 7.9 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40022.jpg" />
 </div>
 
 

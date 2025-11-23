@@ -6,7 +6,7 @@ Richard "Groove" Holmes - Broadway (1980) 1998, 32 Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68858.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Randy Johnston - Jubilation (1994) Muse Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68914.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jay Hoggard - The Fountain (1992) Muse Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68918.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68932.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Warren Vache - Talk To Me Baby (1996) Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68959.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Buck Hill - I'm Beginning To See The Light (1991) Muse Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68963.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69012.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69013.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Project G-7 - Tribute to Wes Montgomery, Vol.1 (1993) Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69014.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Phil Woods - Four Classic Albums (1956 - 1961) 2CD, 2015, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69096.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Anita O'Day - Live At Basie (1978) 2007, Ratspack Records [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69103.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wayne Shorter - Juju (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69104.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Jazztronical 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69110.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Jazz House Party Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69112.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sonny Rollins - In Denmark, Vol.2 (1968) 1992, Moon Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69210.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sonny Rollins - In Denmark, Vol.1 (1968) 1992, Moon Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69212.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Max Hightower - Nothin' but the Truth (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69218.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Melon Jelly - The Road to Memphis (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69221.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ HeavyDrunk, Watermelon Slim - BluesLand Theme Park (2025) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69224.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Marco J & The Jaywalkers - Dynamite (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69230.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Fusion Jazz Funk Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69240.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Mike Anton - New Rhythm & Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69242.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Funky Atmospheres (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69252.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Grandes Del Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69267.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Wayne Shorter - Night Dreamer (1964) 2024, Universal [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69291.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Art Pepper - Neon Art: Volume Two (1981) 2015, Omnivore Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69293.jpg" />
 </div>
 
 

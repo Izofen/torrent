@@ -1,3 +1,92 @@
+###  Публикация: 469547   (97058) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 87
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97058.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 87
+Название: Desktop Wallpapers Pack 87
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 4000х2500
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9903D6AE293F15E5B0FC8C8E2BFD48D7134985F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470004   (97060) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 98
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97060.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 98
+Название: Desktop Wallpapers Pack 98
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07744B588B58F8C1913D1024013A1348C07F086B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469466   (97062) от 18.03.2012
+
+Arkania - La Bestia Dormida (2011) [MP3|320 кб/с]<Heavy Metal, Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Bestia Dormida (03:33)
+02. Hey Tu! (04:19)
+03. Armaggedon (04:41)
+04. Musa Hasta El Alba (04:01)
+05. Gabrielle (04:34)
+06. Que Será De Tí (03:14)
+07. Nadie Más (04:31)
+08. Sirenas (03:23)
+09. XXIV (03:51)
+10. Los Ojos Del Alma (03:48)(   Читать дальше...   )2011Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CC5B5EC717A3D90113680924B37EBAF61CC741
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470021   (97063) от 18.03.2012
 
 [Wallpapers] Games Wallpapers Pack 1
@@ -6,7 +95,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97063.jpg" />
 </div>
 
 
@@ -34,7 +123,7 @@ Johnny Griffin - 2 альбома (1993-2009) [WavPack|Lossless]<Bop, Hard Bop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97064.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97064.jpg" />
 </div>
 
 
@@ -62,7 +151,7 @@ VA - Территория Кайфовой Музыки (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97065.jpg" />
 </div>
 
 
@@ -95,7 +184,7 @@ VA - TMP : Vanilla Dreams 063 (2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97066.jpg" />
 </div>
 
 
@@ -128,7 +217,7 @@ magnet:?xt=urn:btih:0267E825E0F929147C1A90B56305C87ADC2DECE5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97067.jpg" />
 </div>
 
 
@@ -152,7 +241,7 @@ VA - TMP : Vanilla Dreams 064 (2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97068.jpg" />
 </div>
 
 
@@ -185,7 +274,7 @@ VA - XXXL Союз Record №52 50/50 (2012) [MP3|256 кб/с]<Pop,Dance,Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97069.jpg" />
 </div>
 
 
@@ -218,7 +307,7 @@ magnet:?xt=urn:btih:AF8ADD96A990778E7CD8045AF808566E0BC05CC4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97070.jpg" />
 </div>
 
 
@@ -246,7 +335,7 @@ VA - TMP: Clear Sky 063 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97071.jpg" />
 </div>
 
 
@@ -279,7 +368,7 @@ Yehudi - Groove Technology (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97072.jpg" />
 </div>
 
 
@@ -311,7 +400,7 @@ VA - TMP: Clear Sky 064 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97073.jpg" />
 </div>
 
 
@@ -344,7 +433,7 @@ magnet:?xt=urn:btih:FE4AD5F44ED43E3CAE7402DF04A27ECA68B04A7E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97074.jpg" />
 </div>
 
 
@@ -372,7 +461,7 @@ magnet:?xt=urn:btih:5C30AFFB9943BB0CB086ED0CAA568E3A2B4AA381
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97075.jpg" />
 </div>
 
 
@@ -400,7 +489,7 @@ magnet:?xt=urn:btih:90D4F96571D5B5AA160FAB0A190F560F144F366F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97077.jpg" />
 </div>
 
 
@@ -428,7 +517,7 @@ magnet:?xt=urn:btih:1E1E361F0AD71E6E35AA9C27F4ECB3D6B1CA9354
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97078.jpg" />
 </div>
 
 
@@ -461,7 +550,7 @@ magnet:?xt=urn:btih:39DC113BA548253394026EEE78A3DC7C177BE675
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97079.jpg" />
 </div>
 
 
@@ -489,7 +578,7 @@ VA - Звезды блатной волны (2012) [MP3|256 кб/с]<Шансо�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97083.jpg" />
 </div>
 
 
@@ -522,7 +611,7 @@ VA - Очень Горячая Штучка Русский (2012) [MP3|256 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97084.jpg" />
 </div>
 
 
@@ -555,7 +644,7 @@ VA - Зажигательный музон (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97085.jpg" />
 </div>
 
 
@@ -588,7 +677,7 @@ magnet:?xt=urn:btih:F523E9D7DBD8B0F8989F45099D09A0CD6FFCC67C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97086.jpg" />
 </div>
 
 
@@ -616,7 +705,7 @@ VA - Bravo Hits Wiosna (2CD) (2012) [MP3|192 kbps]<Dance | Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97087.jpg" />
 </div>
 
 
@@ -649,7 +738,7 @@ VA - First Contact (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97091.jpg" />
 </div>
 
 
@@ -682,7 +771,7 @@ VA - TMP : Trance Harmony 063 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97092.jpg" />
 </div>
 
 
@@ -702,99 +791,6 @@ VA - TMP : Trance Harmony 063 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF601B4910C2D9763F851DA77E856DEDC4329F7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469774   (97095) от 18.03.2012
-
-Alchemix - The Visions Begin (2012) [MP3|~248 кб/с (V0)]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alchemix - Cloud Of The South 08:53
- 02. Alchemix - Freak Toc 08:17
- 03. Alchemix - New Form Of Energy 08:20
- 04. Predators - What Is Out There (Alchemix Remix) 08:37
- 05. Alchemix - Let Me Try 07:19
- 06. Alchemix - I Can Hear You 08:31
- 07. Alchemix - Illusions 08:27
- 08. Alchemix - What Is Reality 08:02
- 09. Alchemix - The Vision Begins 08:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765E1DD0599D0232BD12D6F06C204F443F47F8A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470182   (97096) от 18.03.2012
-
-[Wallpapers] Full HD Wallpapers Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97096.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Full HD Wallpapers Pack 1
-Название: Full HD Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48190CE0109DC9C6D38DFBEF6E7609B2552F58BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469754   (97097) от 18.03.2012
-
-VA - Новые Райские Хиты. Зарубежный (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97097.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Far East Movement feat. Rye Rye - Jello
-002. Colina - Du and Ich (Rain Edit)
-003. Madonna - Girl Gone Wild (Radio Edit)
-004. Streamrocker, Rene De La Mone - Changes (Purple Project Remix)
-005. Pitbull feat. Chris Brown - International love (UK Pop radio edit)
-006. Jordi MB feat. Jason Rene - Lady (Say Hey)
-007. Les mots - Keen' V
-008. T9 Feat. Krec Check - Blues
-009. Bk & Kelly Rowland - Down For Whatever (DJ Pasha Lee & DJ Vitaco mash-up)
-010. Darius & Finlay vs. Tom Mountain - Ubap (Video Mix)2012Жанр: Pop,DanceПродолжительность: 07:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B402440425F09E2D3DE538345A351C7767B7A6CE
 ```
 
 

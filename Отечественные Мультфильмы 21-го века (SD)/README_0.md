@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197275.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197275.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5481B6AEF3337477499B5E902EB27F2C2E4855B2
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197636.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197636.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:03C9BF1F339E63F8CE6175CD7766465516999713
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197686.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197686.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:82385A5795244C9A5B3C85E1F5989ADAF3D6833A
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202882.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202882.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F89745757B480E67A50E420200584B2BDC31CFF3
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203805.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203805.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1D9B14549E2812C12853CECE1B9FFA100CB2E19C
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205273.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205273.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EDC721FE0BF06EE35E004CDDBE919818ECE47FA5
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205585.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205585.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CAA78E411200E318BFAD60C40AC78061D9FC0887
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206619.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:FAC2CFB2EFB14711CD929EC15ECE53B8C667BF50
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207024.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207024.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2ED8B04EC33B67516C4EEDC6366242787A0628AE
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210071.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210071.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:39BE763D7BB8E6CC732CF79ACB65754C69B0FFF0
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210437.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210437.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:1533529CEC9F871A4592B658588A40D7CAD0EE9A
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211984.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211984.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:A3BAFE55F290E781DF3E9DF3EB380D3BF3F5658C
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213152.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213152.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:BA221F9F1A2E9A8AF4A0A403DCABFE72A36C625F
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213379.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213379.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:5646D4A9A25C4B11C529E73586D9A9F0A054A839
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224518.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224518.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:FFF6700F8DBEB88DCDC31F9FA56906D9FD730A88
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224947.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224947.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:64240D5052181C6D53279D0E6133219DB7FC67BC
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230141.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230141.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:1B304674391368F6A8CB805EA1F858D05C49EF6F
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240279.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240279.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:9095DA01C5176CA34E8C46526B1E339CAEC3AEDC
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240453.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240453.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:8CF4F7A4786041784C5F36D93C39FC492CDC50A9
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240863.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240863.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:E54917348C9A2ED938091CF687EADC75E6446F3F
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243122.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243122.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:3F63045A03A7BF16BBE2874A75F3D03816DAD8E4
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243717.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243717.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:107634BB5D8C4C4FC41ED37D9519347D4879F3AD
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245965.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245965.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:FB56FA30E8D7070DC69C9BE7D99CF5AEA19C744A
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248039.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248039.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:628CC584DD4F8A93E94874FC406D0885E182A03F
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257324.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257324.jpg" />
 </div>
 
 
@@ -596,6 +596,32 @@ magnet:?xt=urn:btih:628CC584DD4F8A93E94874FC406D0885E182A03F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC92A5B10CCC1D7A06032C7CD688CD036C669D47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502072   (258530) от 26.05.2012
+
+Маленькая Василиса (2007) DVDScreener
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка о маленькой девочке Василисе, которую злые родственники оставили в лесу.
+Но доверчивый и добрый нрав помогают ей найти новых друзей,
+а вместе с ними Василисе удаётся справиться со всеми трудностями и победить Бабу Ягу.Жанр: Рисованная анимацияРежиссер: Дарина ШмидтПерсонажи: Василиса, мышка, медведь, Баба Яга и др.Роли озвучивают: К. Заморина (Василиса), К. Бронзит (Яга), О. Куликович (Кот), С. Меринов (Медведь), А. Петров (Мужик и Рассказчик), Е. Шульман (Баба).Продолжительность: 00:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17799A331D2B2348CAFF0A19BAEFB67D9BF536B
 ```
 
 

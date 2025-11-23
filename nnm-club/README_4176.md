@@ -1,3 +1,83 @@
+###  Публикация: 1683742   (128263) от 12.12.2023
+
+Artefactoschool, Константин Стерхов | Пора цветения (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Насладитесь акварелью и напишите 4 полноценные картины, которые украсят Ваш интерьер или будут прекрасным подарком для близких.
+Константин Стерхов научит не просто рисовать, но и думать как художник!
+Чему Вы научитесь на курсе?
+- Писать цветы в различных ситуациях: по отдельности, в соцветиях и в пейзаже(   Читать дальше...   )Производство: ArtefactoschoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:37:37Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BA0EF36C706F48628C0F057A6F0887E784C457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683690   (128264) от 12.12.2023
+
+Александр Изотов | Нулевой мир (Книга 7). Мера человек: Выбор (2023) [MP3, Михаил Алексеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128264.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мера человек: Выбор» – роман Александра Изотова, седьмая книга цикла «Нулевой мир», жанр боевое фэнтези, героическое фэнтези, попаданцы.
+
+Я стал слишком заметен, получив во враги высших существ. За мной охотятся и бог, и дьявол, поэтому оракулы опережают меня, предугадывая практически каждый мой шаг своими предсказаниями. Вот только хитрость никто не отменял. Жёлтый (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыИздательство: ИДДКПродолжительность: 09:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD78BCB36349BD67E97588E57177ACC27B625AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683702   (128265) от 12.12.2023
+
+Антон Буткевич | Моя Космическая Станция (Книга 7). Битва Преемников. Том 2 (2023) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128265.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Битва Преемников. Том 2» – роман Антона Буткевича, седьмая книга цикла «Моя Космическая Станция», жанр РеалРПГ, постапокалипсис, космическая фантастика.
+
+Глобальное задание набирает обороты, а настоящие замыслы высших существ постепенно просачиваются и становятся достоянием общественности.
+(   Читать дальше...   )Жанр: Космическая фантастика, Постапокалипсис, РеалРПГИздательство: ИДДКПродолжительность: 13:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E17F4D28B48433A09E615000450AA14B5196A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683830   (128266) от 12.12.2023
 
 Н.Г. Полетаева | Основы построения распределенных информационных систем (2016) [PDF]
@@ -6,7 +86,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128266.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:9C6C63B6BCBF5ABA2503FC9F08F4F1749740D5A7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128267.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ LOBODA - This is LOBODA (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128268.jpg" />
 </div>
 
 
@@ -81,7 +161,7 @@ magnet:?xt=urn:btih:1241258453065AE5DB9D3242170245E6BE45860A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128269.jpg" />
 </div>
 
 
@@ -105,7 +185,7 @@ Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128270.jpg" />
 </div>
 
 
@@ -129,7 +209,7 @@ Wondershare PDFelement 10.1.10.2563 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128271.jpg" />
 </div>
 
 
@@ -153,7 +233,7 @@ magnet:?xt=urn:btih:B8092BB8E8F686BCBD6D17034E25DAD0FF903C22
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128272.jpg" />
 </div>
 
 
@@ -179,7 +259,7 @@ magnet:?xt=urn:btih:33F9EE7AC366104CD78B3E310C7982C9BE0CB054
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128273.jpg" />
 </div>
 
 
@@ -206,7 +286,7 @@ Motion Science, Cameron Pierron | AE Volume I: The Fundamentals (2019) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128274.jpg" />
 </div>
 
 
@@ -232,7 +312,7 @@ magnet:?xt=urn:btih:187686BFCBA630EF3BEA656064AAD7C6B4B4D9EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128275.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128275.jpg" />
 </div>
 
 
@@ -257,7 +337,7 @@ magnet:?xt=urn:btih:187686BFCBA630EF3BEA656064AAD7C6B4B4D9EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128276.jpg" />
 </div>
 
 
@@ -284,7 +364,7 @@ magnet:?xt=urn:btih:C96F0997D8258AD700F2CBD202FF83BF8A9900CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128277.jpg" />
 </div>
 
 
@@ -310,7 +390,7 @@ magnet:?xt=urn:btih:02D130A95338556254BBDAEBB5B9258C18E86BB6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128278.jpg" />
 </div>
 
 
@@ -334,7 +414,7 @@ magnet:?xt=urn:btih:F55A1A7CA67AA0BE521DD06230DF7E61EA553F8D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128279.jpg" />
 </div>
 
 
@@ -358,7 +438,7 @@ magnet:?xt=urn:btih:1A1DD18F9B26C35A309F5A44D914EB7B8F116F03
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128280.jpg" />
 </div>
 
 
@@ -382,7 +462,7 @@ magnet:?xt=urn:btih:00793F9C15863182AF09336D0FC0956A217C0DB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128281.jpg" />
 </div>
 
 
@@ -408,7 +488,7 @@ magnet:?xt=urn:btih:5BA0483CF9B673A4318FA09E9F9C3FC8CC316FAB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128282.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ magnet:?xt=urn:btih:D4F22BD60B38EB8778677D65CA205123C18D93CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128283.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128283.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ NIUBI Partition Editor 9.9.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128284.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ magnet:?xt=urn:btih:E98B01B4F54A867B83DA02FF67E8CA1C22DE86BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128285.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ Telegram Desktop 4.12.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128286.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ magnet:?xt=urn:btih:825B0DC59A7C2FAA47CD1E246D865EEFC40A4AB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128287.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ magnet:?xt=urn:btih:A895816BD2499766C9590032007735F40FB00F21
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128288.jpg" />
 </div>
 
 
@@ -570,81 +650,6 @@ magnet:?xt=urn:btih:A895816BD2499766C9590032007735F40FB00F21
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A133F7D14238FD8B8E2270E7917FA00B574377
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683736   (128289) от 12.12.2023
-
-CG Education, Максим Шаров,  Алиса Арифи | Геймификация в образовании (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошаговое руководство по внедрению игровых механик в обучение. Научим управлять вовлечением и мотивацией в курсах любого формата.
-Сделайте обучение, которое захочется проходить
-Эта программа для тех, кто хочет создавать курсы, которые вовлекают и удерживают пользователей при помощи геймификации.
-Научим делать геймифицированную концепцию курса, внедрять её в LJM и (   Читать дальше...   )Производство: CG EducationЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4016852EB6053B2C28722F928D48654FDEAE69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595235   (128290) от 12.12.2023
-
-Звездный путь 5: Последний рубеж / Star Trek V: The Final Frontier (1989) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кризис, разразившийся на песчаной планете Нимбус III (Nimbus III), расположенной в нейтральной зоне, казалось бы, был всего лишь еще одним актом заявления о себе местного бунтарства, желающем лишь привлечь внимание Федерации - но не на этот раз. Теперь у повстанцев есть лидер, уроженец планеты Вулкан по имени Сайбок (Sybok), обладающий выдающимися даже по вулканеанским (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Уильям ШетнерАктеры: Уильям Шетнер, Леонард Нимой, ДеФорест Келли, Джеймс Дуэн, Уолтер Кениг, Нишелль Николс, Джордж Такей, Дэвид Уорнер, Лоуренс Лакинбилл, Чарльз КуперПеревод: Многоголосый профессиональный (SDI Media), Авторский (Ю. Живов)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0232741BC9754E6BC5189B24654353B8289B4880
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683781   (128291) от 12.12.2023
-
-IObit Uninstaller Pro 13.2.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128291.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35832873D65C6D4E981F82018E3F9915B4120BB9
 ```
 
 

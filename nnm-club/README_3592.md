@@ -1,3 +1,78 @@
+###  Публикация: 1708348   (113074) от 20.03.2024
+
+Диалог - Ночной дождь (1987) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Гринландия (Музыка и слова К. Брейтбурга)
+02. Рыбак (К. Брейтбург - А. Тарковский)
+03. Флейта (К. Брейтбург - А. Тарковский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EBBB2FA591FC39156D935BE2D5F4A3EB189C01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708473   (113075) от 20.03.2024
+
+Doppler for Mac 2.1.20 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный проигрыватель Doppler упрощает владение музыкой. Doppler — хорошая альтернатива для людей, которым нужен способ воспроизведения локальных файлов.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2024 Brushed Type Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C8CDC15B3B7330B39A63F3EAB2F1F450E9D33E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708467   (113076) от 20.03.2024
+
+HWiNFO 7.73 Build 5390 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113076.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9DF19D74B5A378E9D97015EA6F8932165CCDB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708303   (113077) от 20.03.2024
 
 PixelSnap 2 for Mac v.2.5.4 [Multi/Ru]
@@ -6,7 +81,7 @@ PixelSnap 2 for Mac v.2.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113077.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Rockets - Wonderland (2019) [FLAC 24/96|Lossless|tracks] <Synth-pop, Space-rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113078.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:4FDAD33AEFCFBD821CB7FCDEFEA566B5D52613F0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113079.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:2EE325E67FAED24E8A5BB6E303F94E30B55E60B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113080.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ VA - Travel & Living Lounge, Vol. 1: Traveling Chillout Moods (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113081.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Hype 4 Pro v.4.1.16 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113082.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:292662FFB5E897BABC4D1F369D479567C5E8B7F2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113083.jpg" />
 </div>
 
 
@@ -181,7 +256,7 @@ VA - Эстрадное обозрение (2 серия) (1961) [FLAC 24/96|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113084.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:FFB07C7B253ABCCEF05875B1FD89FDF0DAEF454A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113085.jpg" />
 </div>
 
 
@@ -235,7 +310,7 @@ EdgeView 4 v.4.6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113086.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ GeoGebra 6.0.832.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113087.jpg" />
 </div>
 
 
@@ -283,7 +358,7 @@ Stone Temple Pilots - Studio Albums (10 releases) (1992-2020) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113088.jpg" />
 </div>
 
 
@@ -310,7 +385,7 @@ magnet:?xt=urn:btih:873AC5D9FB44DF74F8E3CDFAE423AC243C4ADCA4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113089.jpg" />
 </div>
 
 
@@ -334,7 +409,7 @@ VA - Blueberry Cafe 2024 Soulful House Mood (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113090.jpg" />
 </div>
 
 
@@ -361,7 +436,7 @@ Wondershare UniConverter for Mac 15.5.3 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113091.jpg" />
 </div>
 
 
@@ -386,7 +461,7 @@ VA - Bar Lounge Costes 8: Chillout Uplifting Experience (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113092.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ magnet:?xt=urn:btih:9831B8474D7F6DEED508C6832CF37012D91B9D95
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113093.jpg" />
 </div>
 
 
@@ -440,7 +515,7 @@ VideoProc Converter 4K 6.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113094.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ magnet:?xt=urn:btih:A09B679BAB9531E88A6136C625E6C852F71BEF79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113095.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ VA - Яблони в цвету (1976) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113096.jpg" />
 </div>
 
 
@@ -515,7 +590,7 @@ Hugo Schettino Blues Trio - Find Yourself (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113097.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ Vivaldi 6.6.3271.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113098.jpg" />
 </div>
 
 
@@ -566,7 +641,7 @@ Fantastique - Fantastique (1982) Reissue, Remastered, 2024, Maschina [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113099.jpg" />
 </div>
 
 
@@ -580,82 +655,6 @@ Fantastique - Fantastique (1982) Reissue, Remastered, 2024, Maschina [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19763A1566F8286AD848D63CD0ABD35C1C45C031
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708296   (113100) от 20.03.2024
-
-Tower Pro 10 for Mac v.10.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower - мощный и элегантный Git клиент для Mac
-Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2010-2024 TowerПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8593886619FFFB370E22FF6B7BA2785854EF3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708457   (113101) от 20.03.2024
-
-VA - Calming Piano Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Katya Kramer-Lapin - The Well-Tempered Clavier - Book 1, BWV 846-869 - I. Prelude in C Major, BWV 846 (2:05)
-03. Katya Kramer-Lapin - Romance in E-Flat Major (Version for Piano) (3:09)
-04. Katya Kramer-Lapin - Menuet in G Major (From Notebook for Anna Magdalena Bach, Klavierbüchlein von 1725, BWV Anh. 114)Жанр: ClassicalПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B275BD411A79D76F31B5A73ED4C6D952C0D0243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708287   (113102) от 20.03.2024
-
-Петер Ампе | Нейроотличные (2024) [MP3, Борис Медведев]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чаще всего при упоминании ментальных особенностей, таких как синдром дефицита внимания и гиперактивности (СДВГ), дислексия, аутизм и обсессивно-компульсивное расстройство (ОКР), на ум приходят лишь негативные их проявления. У нейроотличных людей некоторые свойства мозга отличаются от большинства. Это не ошибки или недостатки, а особенности работы нейронных связей, (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 04:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C87EA30180000A9FC42E0EE663F0ACFDC3DAB92
 ```
 
 

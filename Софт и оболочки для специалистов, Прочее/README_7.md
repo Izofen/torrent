@@ -6,7 +6,7 @@
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115414.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VMware vCenter Converter Standalone 6.6.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115757.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ FileMaker 20.3.2.201 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116245.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Creative Sound Blaster Command 3.5.10.0 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118478.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Java SE Runtime Environment 8.0.4010.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119389.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ SimInTech 2.24.1.26 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119522.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A44E237A1F4650A4EC91AD54507D4CD66B82180C
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119739.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Java SE Development Kit 11.0.22 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122192.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ SamDrivers 24.0 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122450.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VPstudio V12.01 C9 x64 SP2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122610.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:49BD6EDA0E2D02F22A86F628AFFBFE1B5F0E992B
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122636.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Radeon Software Slimmer 1.11.0 Portable [En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124595.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:50DE888E24B2442B57855EB425BD95BE84FD5D85
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127311.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ JetBrains PyCharm Professional 2023.3.1 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127501.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ NVIDIA GeForce Desktop Studio 581.57 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128922.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Embarcadero RAD Studio 12 Athens 29.0.50491.5718 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132207.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Antenna Magus 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134083.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ CST Studio Suite 2024.01 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134085.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Altair HW FEKO 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134146.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ CADlogic Draft IT 5.0.15 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134489.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Microsoft® SQL Server® 2012 Express с пакетом обновления 1 (
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135074.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135074.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Microsoft  Visual C++ Runtimes AIO v0.102.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136733.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136833.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Open Server Panel 6.4.5 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136880.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136916.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:83BE6626C6B0B9A07CB2A14683B4972D7B2EDFF5
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139391.jpg" />
 </div>
 
 

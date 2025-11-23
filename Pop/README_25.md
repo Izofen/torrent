@@ -6,7 +6,7 @@ KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67234.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67256.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:FCA379758BA7C64DB79BA58FF0A2584CE1954BA5
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67264.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Dance Classics - Pop Edition Vol. 1-3 (2009-2010) [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67330.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C9
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67509.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Grew Up in the 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67639.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Don Amore - One More Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ital
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67783.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Now That's What I Call Music! 29 (1994) 2 CD [OGG Vorbis|480 Kbps] <Pop, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67786.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67832.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Love Legends (2002) [OGG Vorbis|480 Kbps] <Soft Rock, Soul, Ballad, Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67834.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kidz Bop Kids - kidz bop 50 (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68105.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Platin Vol. 7 (1999) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68108.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - The Best Of Italo Disco - Unreleased Tracks (2008) 2 CD [OGG Vorbis|480 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68125.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Grammy 2017 Nominees (2017) [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Funk / So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68175.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Etienne Daho - Pop Satori (серия "Другие восьмидесятые")
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68269.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - 40 Jahre Disco - Dance The Disco (2010) 2 CD [OGG Vorbis|480 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68281.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Paul Parker - Strong (The Album) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68378.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - No.1 Hits Of The 90s (2003) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Te
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68398.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Best Movie Hits Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68441.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Best Movie Hits Vol. 2 (1994) [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68446.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Flashback Anthology Vol. 3 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68504.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Meghan Trainor - Title (2015) 10th Anniversary Edition, 2025, Epic Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68537.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Flashback Anthology Vol. 1 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68547.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Flashback Anthology Vol. 2 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68555.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ne
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68556.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - I Love ZYX Italo Disco Collection 14 (2012) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68566.jpg" />
 </div>
 
 

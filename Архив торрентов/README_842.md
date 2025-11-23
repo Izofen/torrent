@@ -1,3 +1,76 @@
+###  Публикация: 1596935   (168473) от 12.12.2022
+
+Scrutiny 12 v.12.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A101EDDA3728B5C5F207F678D6CD1D9C5DC14F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431174   (168475) от 12.12.2020
+
+Visual Studio Code 1.52.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9433B66467516612D10FFDF17ABF08C9645A5291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670751   (168511) от 28.10.2023
+
+Microsoft Activation Scripts (MAS) 2.4 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активатор Windows и Office с использованием методов активации HWID/Ohook/KMS38/Online KMS с упором на открытый исходный код и меньшее количество обнаружений антивируса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAC4140046ECAA2039B2F3F8AC592C3709ABEFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430970   (168521) от 12.12.2020
 
 UltraUXThemePatcher 4.0.0 [En]
@@ -6,7 +79,7 @@ UltraUXThemePatcher 4.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168521.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:D1829E7FB513F24BBCC4845A04F87CEE2878DF05
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168532.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168533.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Unreal Commander 3.57 Build 1495 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168557.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v13 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168563.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ Victoria 5.22 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168578.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ Hard Disk Sentinel PRO 5.61.13 Build 11463 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168580.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ ThisIsMyFile 3.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168584.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ Adobe After Effects 2020 17.0.1.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168587.jpg" />
 </div>
 
 
@@ -222,6 +295,30 @@ magnet:?xt=urn:btih:CED15583B2F0F44349906942D19D64EC51395A53
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 135582   (168591) от 19.10.2025
+
+Приказ: огонь не открывать (1981) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_168591.jpg" />
+</div>
+
+
+###  Подробнее
+
+1941. В первые дни Великой Отечественной войны батальон советских солдат занимает позицию на одном из участков восточной границы. Четвертый год солдаты несут службу на этих рубежах. Но даже находясь вдали от активных военных действий, они понимают: смертельная опасность – где-то рядом, и может возникнуть каждую минуту. Японские милитаристы устраивают провокации, (   Читать дальше...   )Жанр: Военный, драмаРежиссер: Юрий Иванчук, Валерий ИсаковАктеры: Владлен Бирюков, Николай Иванов, Александр Потапов, Александр Силин, Евгений Герасимов, Виктор Незнанов, Эрнст Романов, Наталья Егорова, Николай Гринько, Сергей Сазонтьев, Раджаб Адашев, Вадим Захарченко, Игорь Пушкарев, Алексей СафоновПеревод: ОригинальныйПродолжительность: 1:27:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672313   (168592) от 28.10.2023
 
 Foxit PDF Editor Pro 2023.2.0.21408 [Multi/Ru]
@@ -230,7 +327,7 @@ Foxit PDF Editor Pro 2023.2.0.21408 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168592.jpg" />
 </div>
 
 
@@ -256,7 +353,7 @@ Adobe Audition 2023 23.1.0.75 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168594.jpg" />
 </div>
 
 
@@ -280,7 +377,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168604.jpg" />
 </div>
 
 
@@ -305,7 +402,7 @@ Adobe Media Encoder 2023 23.1.0.81 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168614.jpg" />
 </div>
 
 
@@ -329,7 +426,7 @@ WinRAR 7.00 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168631.jpg" />
 </div>
 
 
@@ -353,7 +450,7 @@ Compressor 4.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168636.jpg" />
 </div>
 
 
@@ -378,7 +475,7 @@ Adobe Character Animator 2020 3.1.0.49 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168640.jpg" />
 </div>
 
 
@@ -402,7 +499,7 @@ djay - DJ App & AI Mixer 3.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168651.jpg" />
 </div>
 
 
@@ -426,7 +523,7 @@ Motion 5.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168663.jpg" />
 </div>
 
 
@@ -452,7 +549,7 @@ MWeb Pro 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168664.jpg" />
 </div>
 
 
@@ -477,7 +574,7 @@ magnet:?xt=urn:btih:B5170670DEA963176553FAB5280CBDEE526F0023
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168665.jpg" />
 </div>
 
 
@@ -501,7 +598,7 @@ IrfanView 4.62 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168669.jpg" />
 </div>
 
 
@@ -525,7 +622,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v13 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168671.jpg" />
 </div>
 
 
@@ -539,105 +636,6 @@ updated_oct_2023_x64_dvd_eb811ccc.iso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A247246F2A80349DE1536FE22B7CF8697EBFD20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515736   (168681) от 08.12.2021
-
-Yate 6.7.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: © 2021 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45AD99BCE05CBAFAB3DBF6843660A58E217659E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596715   (168685) от 11.12.2022
-
-SoftMaker Office Professional 2021 rev. S1060.1203 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный офисный пакет Softmaker Office 2021, основная разработка компании Softmaker GmbH, является отличной заменой для Microsoft Office. Пакет офисных программ в том или ином составе необходим и в организациях и дома на персональном компьютере для улучшения, оптимизации, облегчения процессов документирования, контроля и учета, автоматизации офисной работы. Вы, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C942FC1B7DA5FAA0AEB3638D0335ECB0F44139
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344746   (168688) от 12.12.2019
-
-simplewall 3.0.9 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа simplewall является простым, но функциональным инструментом, который поможет контролировать сетевую активность на вашем компьютере.
-Поддерживаются два режима работы: фильтрация по белому или черному списку. В первом случае, доступ в интернет разрешён только одобренным приложениям и, при запуске каждой новой программы, будет появляться окно с запросом. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9102B9623A4B43B3247362CAC5ECE29430A2F091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515794   (168690) от 08.12.2021
-
-SideNotes 1.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168690.jpg" />
-</div>
-
-
-###  Подробнее
-
-SideNotes - это боковая панель, которая заполнит заметками одну из сторон экрана вашего Mac. Текст, код или изображения - SideNotes справится со всем, что позволит вам хранить важные данные под рукой. Для удобства переносите заметки в настраиваемые папки, назначайте цвет и добавляйте флажки к задачам. Это общая полка для всего действительно важного.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2011‐2021 ApptoriumПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31CA8129E1F891990BA7166A55A30E2E036DB06
 ```
 
 

@@ -6,7 +6,7 @@ Anita O'Day - The Lady Is A Tramp (1952, 1957) 1991, Polygram [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64937.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Roberto Restuccia - Hand 2 Heart (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64979.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Mighty Redox - Love's A Demon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64982.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Matt Cahill Combo - The Midnight Show (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64984.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Thats not a Human featuring Netanel Elbaz - Blackout Parade (2025) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64985.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jessie Lee & The Alchemists - Legacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64986.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Markus K - LIVE with LOOPER No.3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64988.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blues Escape feat. Johanna Lillvik - Teaser Blueser (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64990.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mercedes Nicole - Too High A Price to Pay (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64991.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kuddel Renner and his Amazing Blues Orchestra - The 3rd Album (2025) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64992.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Harry Cassano - Coming to a Close (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64993.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Big Martin - Sucker Punch Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64994.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mekiel Reuben - Something Like That (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64996.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Grant Green - Four Classic Albums (1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65037.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Joe Gordon - Lookin' Good! (1961) 2009, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65087.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Latin Jazz House Summer Mix (Poolside Cocktails & Sunset Grooves) (2025) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65151.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Happy & Jazzy Summer Instrumentals, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65155.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Jazz Verano (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65158.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Cooking Dinner Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65160.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Horace Silver - Kind Of Silver (1952 - 1965) 10CD, 2010, House Of Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65168.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Nu Jazz Electronica (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65176.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Jazz, Blues, and Cappuccino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65183.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - The Blues Wont Leave Me Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65210.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Frank Potenza - For Joe (2013) Capri Records [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65266.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Frank Potenza - Express Delivery (1989) TBA Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65309.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Shelly Manne & His Men - Play Peter Gunn (1959) 1997, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65321.jpg" />
 </div>
 
 

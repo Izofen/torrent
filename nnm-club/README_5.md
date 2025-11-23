@@ -6,7 +6,7 @@
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:47550133360A506BBCCE21F64E55D292CC9FAA27
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3D752E9C7A333B23E04A62E58C120916BD81EF44
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Coromon (2022) [Ru/Multi] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7F8FEE0BFDD99B37929494B5FDD931FFA37F49C2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Placid Plastic Duck Simulator (2022) [Ru/Multi] (2.2.0/dlc) Repack FitGirl [More
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A9FC4EE6BF7EC01BE78B3F17AA9BCE659E564C51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:167070826777E65DB06970010277B71C28A424A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mage and Monsters II (2025) [Ru/Multi] (1.07b) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:3B033FB938A95C03E32F8856F2C46DC09511AD4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:3B033FB938A95C03E32F8856F2C46DC09511AD4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28714) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.264/1080p] [3D]  
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ PixARK (2019) [Ru/Multi] (1.216/dlc) Repack R.G. Alkad
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:25AB2E08A8205059057520C45BC96BEB92A67B6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:B16C9E031C16BFF031722CC4EBF8C8C5BE9D4DF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Wandering Sword (2023) [Multi] (1.24.30/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:0865150A6BDC50C52D67A637456659CF50649BE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0CB8DE2E2BE745A77CE7CB62F677D09523B847A4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Arctic Awakening (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:E5DE0FDCCD9B4DF6F6186E45EBC97B300A815473
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_181.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A82AB00D963A0AC67737919D0919CE327189A590
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:3C1ADCECA68F8F111B42E03662DD37BE63775042
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_183.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:6BCF3F34AF1C3AC27C456512C4EC33F4700DC56D
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_184.jpg" />
 </div>
 
 

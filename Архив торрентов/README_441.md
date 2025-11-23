@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98745.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98746.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - TMP: Vanilla Dreams - 065 (24.03.2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98749.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98750.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98753.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98763.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:03E5E80518A1ACD9FBCBD50BB2C16E47EE901517
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98769.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:F094B9CEB9C21A1123041FA8E34158CB1D81979A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98770.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - French Plaisir - compiled by Drenan (2008) [FLAC|Lossless]<Psychedelic / Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98772.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98772.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Wise Disk Cleaner v7.17 build 474 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98773.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98773.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Wise Disk Cleaner v7.17 build 474 Final + Portable [Multi(Rus)]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98782.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Forodwaith - Nirnaeth Arnediad (2010) [MP3|320 кб/с]<Fantasy/Folk/Melodic Dea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98787.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:2D5742F82D34552230855A9D9153D23CCEB32467
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98790.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Wise Registry Cleaner 7.14 build 451 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98795.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98795.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ LibreOffice 3.5.2 Final [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98797.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98797.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ LibreOffice - новое имя пакета офисных приложений
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98804.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Dash Berlin Top 20 April (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98805.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98805.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - High Heels Feeling Vol 3: Finest Lounge Music For Intimate Relaxation & Ple
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98806.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:E136F225F69DC810C214186EE3B7EE0382DEDCC6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98814.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98815.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98816.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98819.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98822.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98823.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98825.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98826.jpg" />
 </div>
 
 

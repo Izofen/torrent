@@ -6,7 +6,7 @@ Folder Icons 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116838.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Desktop Stickers 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116850.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Photo Studio PRO v2.7.3.2306 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116853.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Rhinoceros 8 v.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116877.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Audio Hijack 4.3.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116886.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Text Editor Pro 28.4.2 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116887.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ WPS Office + PDF v18.7.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116902.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Darktable 4.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116905.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ FBackup 9.9.855 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116910.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Draw.io 23.1.5+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116911.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ FreeFileSync 13.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116912.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Topaz Gigapixel AI 7.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116917.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AIDA64 1.98 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116921.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:AAEA8E56047966B808E9CCBC10108F75BD925067
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116929.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ OneCommander Pro 3.69.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116931.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ JetBrains PhpStorm 2023.3.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116933.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ CCleaner Pro: ПО для очистки 24.03.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116941.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Illustrator for Mac 2024 v.28.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116969.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116983.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ PhotoRoom v4.8.5 b1292 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117039.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ QOwnNotes 24.2.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117044.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Ventusky: Прогноз погоды v31.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117059.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ XYplorer 25.50.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117061.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ DesktopDigitalClock 5.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117090.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Devious Machines - Everything Bundle 02.2024 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117093.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:4BA6A6D5B3CFC1709A3D4B4DC710942BC484CC75
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117115.jpg" />
 </div>
 
 

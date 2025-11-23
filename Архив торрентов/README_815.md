@@ -1,3 +1,75 @@
+###  Публикация: 1597777   (164971) от 16.12.2022
+
+Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление удаленных файлов в несколько простых шагов! Magic Uneraser является самым удобным и простым в использовании инструментом для восстановления данных. Программа восстанавливает любые типы файлов. Продукт поддерживает все типы носителей, включая жесткие диски, SSD диски, флэш-накопители и карты памяти.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930A46EEE5487A9CD95713311481761774E9848D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597901   (164972) от 16.12.2022
+
+FanControl V141 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164972.jpg" />
+</div>
+
+
+###  Подробнее
+
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E54FB560283FACB6756248311F9B5F2890A02F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597915   (164975) от 16.12.2022
+
+DesktopOK 10.55 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164975.jpg" />
+</div>
+
+
+###  Подробнее
+
+DesktopOK - небольшая бесплатная и портативная (не требующая установки) программа, предназначенная для сохранения и восстановления местоположения иконок на рабочем столе. Утилита запоминает настройки для различных пользователей, позволяет сохранять позицию иконок для разных разрешений экрана, автоматически скрывает и отображает иконки, а также умеет сворачивать все (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05ADF6B33E8D547EE4A4EAFE56F40CD3DD49E1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597814   (164979) от 16.12.2022
 
 NIUBI Partition Editor 9.2.2 Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ NIUBI Partition Editor 9.2.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164979.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ FireAlpaca 2.9.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164987.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ VideoProc (former MacX Video Converter Pro) 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164993.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Waterfox Current G5.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164998.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Line6 - Helix Native 3.0.1 VST, VST3, AAX (x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165009.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ VPN Russia - VPN сервера в России 1.176 Mod by FreeApkexe [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165016.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ The Bat! Professional 10.5.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165017.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ AVS Media Player 5.2.4.143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165020.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ Total Commander 11.01 (27.10.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165023.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ RogueKiller Anti-Malware 15.6.4 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165026.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ AOMEI Backupper Technician Plus 7.3.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165029.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ The Bat! Professional 10.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165036.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ IObit Uninstaller Free 12.2.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165040.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Icecream PDF Editor PRO 3.14 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165044.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:BE5C12340B8DF8E5B9885AAC0B13F2245C1B2F5A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165047.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ Luminar Neo 1.6.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165050.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ Opera 73.0.3856.284 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165051.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ UniBook - Аудиокниги v0.8.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165054.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ MFG - Pure Energy (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165056.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ Luminar AI 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165058.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ MEmu 7.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165060.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Movavi Video Suite for Mac 2021 v21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165066.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ Firefox Browser 108.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165068.jpg" />
 </div>
 
 
@@ -553,79 +625,6 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0AD666900F9A941300C55B9722694375E8D1975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673372   (165077) от 01.11.2023
-
-Rename Expert 5.31.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rename Expert - программа предназначена для быстрого и легкого переименования файлов и папок. Предлагается множество инновационных функций для создания последовательных и, прежде всего, понятных имен. Буквально в несколько щелчков мыши можно нумеровать файлы и папки, сокращать длинные имена файлов, переименовывать расширения и многое другое. Rename Expert поддерживает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADEB5044824A7C35F7FE2BC622BD84CA7E58A8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597908   (165079) от 16.12.2022
-
-Nova 10.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
-Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2020–2021 Panic, IncПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D21160BCD0A4876805AB052A912B304A4607E1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345940   (165080) от 17.12.2019
-
-Mozilla Thunderbird 68.3.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1709F43F9C547FAE63306C60D61DBF46CD3D23
 ```
 
 

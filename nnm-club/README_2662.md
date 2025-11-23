@@ -6,7 +6,7 @@ Rick Springfield - Big Hits: Rick Springfield's Greatest Hits, Vol. 2 (2025) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69960.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CFC9E8B3260D03127C4C56DA1A51916108980D03
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69961.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4917A6E640C4EF4E3AEED2066FC6489DBD2F0C9B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69962.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Elderbrook - Another Touch (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69963.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0E2255D5DB8066F9CAED9D53978DD4E10B53374A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69964.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Addicted CH - Time Is Endless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69965.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ George Cables - I Hear Echoes (2024) HighNote Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69966.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69967.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69968.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bud Powell - Strictly Confidential (1964) 1994, Black Lion [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69969.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:0BE579C74FA904A4E34FC8CFC94C19BFAA04C9A6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69970.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:A8928ADFE80C26C810665189F0F0D59DB34D5638
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69971.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:43C42872371D806F407DBC8847F33FF7977A0CED
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69972.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - D.Trance 109 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69973.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:B32B54A2408F9CF8AF04B7EE80C868A75F9441FC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69974.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Evilizers - Lord Of The Lost Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69975.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:749B00486F7A8D86C01B8B0A53569F0E2F678EAA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69976.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:9CBDD287C8D283C4798CA4382C2752CDD412A63F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69977.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:1329199703BB427FF7D3736E7D75C82696813E7E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69978.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:AE0AC9B36180DC7A57A201925307102C66A68380
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69979.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:D4DA3B1A52E8D9074796A8BBB6FF3DCF084D560B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69980.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Blutengel - Damonen : Sturm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69981.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:3F22691F46A89877E81807D94E9213EBC7E625AD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69982.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:4BC70F86DFB263CE41DFB94420229A4F6E336966
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69983.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VideoShow VIP v10.3.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69984.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:D6097D1E6B0E8820D5CD373F0231047C9CE78D49
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69985.jpg" />
 </div>
 
 

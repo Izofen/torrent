@@ -1,3 +1,80 @@
+###  Публикация: 1706655   (113568) от 13.03.2024
+
+CudaText 1.210.5.0 Portable + addons [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113568.jpg" />
+</div>
+
+
+###  Подробнее
+
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D444B3BD84275F10D4113C2253C14A1AAF4493C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706672   (113569) от 13.03.2024
+
+Два в Парадный - Добрый вечер (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Умри молодым [00:04:21]
+02. Бессмертный полк [00:03:15]
+03. Исповедь вампира [00:02:53]
+04. Дураки и дороги [00:03:32](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFF061DEB8A51293C587481C9B9C6806B30F0D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706465   (113570) от 13.03.2024
+
+Alfred PowerPack 5.5 Release Candidate [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2024 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B43DB538A4E848D208582FA73EFBE483864837F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706531   (113571) от 13.03.2024
 
 VA - Играй ещё - Keep On Playing (1981) [FLAC 24/192|Lossless|tracks] <Pop>
@@ -6,7 +83,7 @@ VA - Играй ещё - Keep On Playing (1981) [FLAC 24/192|Lossless|tracks] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113571.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:8C77DC329D6362CAB98D68F297861606B1447455
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113572.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:D52D94B9EA0DF94E0D0972F2FCBE8C384E6148BE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113573.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ magnet:?xt=urn:btih:0DA4EB7D8D39C95E10FDBDE3F5BBEFBA8AAA93F5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113574.jpg" />
 </div>
 
 
@@ -105,7 +182,7 @@ Jack Fossett - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113575.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ magnet:?xt=urn:btih:DFBE934C6517C4E78C5D933365B3DB17063DEEC1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113576.jpg" />
 </div>
 
 
@@ -156,7 +233,7 @@ Lifespan 2.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113577.jpg" />
 </div>
 
 
@@ -181,7 +258,7 @@ Microsoft .NET 6.0.28 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113578.jpg" />
 </div>
 
 
@@ -206,7 +283,7 @@ Ariana Grande - eternal sunshine (2024) slightly deluxe, 2024, Republic Records 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113579.jpg" />
 </div>
 
 
@@ -233,7 +310,7 @@ magnet:?xt=urn:btih:2DDEF374E03F2B05A9DAF01E6715EE53B9ACA752
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113580.jpg" />
 </div>
 
 
@@ -257,7 +334,7 @@ Perfectly Clear WorkBench 4.6.0.2642 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113581.jpg" />
 </div>
 
 
@@ -282,7 +359,7 @@ Sterling Angel - Collection (2008-2023) [MP3|320 Kbps] <Downtempo, Chillout, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113582.jpg" />
 </div>
 
 
@@ -309,7 +386,7 @@ magnet:?xt=urn:btih:BAE0432457C4F9FB0332E5E44C7C13BBC2D7356C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113583.jpg" />
 </div>
 
 
@@ -336,7 +413,7 @@ magnet:?xt=urn:btih:899FAA8310C7A1A685F3195493F321508BD21A80
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113584.jpg" />
 </div>
 
 
@@ -360,7 +437,7 @@ Things 3 v.3.20.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113585.jpg" />
 </div>
 
 
@@ -385,7 +462,7 @@ PanoramaStudio 4 Pro for Mac v.4.0.0 iNTEL [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113586.jpg" />
 </div>
 
 
@@ -410,7 +487,7 @@ VA - Мир песни (1 серия) (1973) [FLAC 24/192|Lossless|tracks] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113587.jpg" />
 </div>
 
 
@@ -437,7 +514,7 @@ magnet:?xt=urn:btih:5117310C952C2444FCC81F1E705322C1916057A1
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113588.jpg" />
 </div>
 
 
@@ -461,7 +538,7 @@ Vivaldi 6.6.3271.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113589.jpg" />
 </div>
 
 
@@ -485,7 +562,7 @@ magnet:?xt=urn:btih:7842923DDB4C7CBBD2CC1DA3182CF76FC5DEC0D9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113590.jpg" />
 </div>
 
 
@@ -509,7 +586,7 @@ magnet:?xt=urn:btih:2C1F6A9D42BF1CA73D83D97DC378658210699279
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113591.jpg" />
 </div>
 
 
@@ -533,7 +610,7 @@ magnet:?xt=urn:btih:B68C59E0640B8A1C48E311A6956A8E91D4E76AED
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113592.jpg" />
 </div>
 
 
@@ -557,7 +634,7 @@ VA - Летная погода. Песни на стихи Михаила Тан
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113593.jpg" />
 </div>
 
 
@@ -571,84 +648,6 @@ VA - Летная погода. Песни на стихи Михаила Тан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63126EB0B7897E07B1C15273756C1E0F2F1F0262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706609   (113594) от 13.03.2024
-
-The Bad Dad Orchestra - Makin' Me Wild (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Makin' Me Wild (3:15)
-02. Trauma (3:36)
-03. Night Sweats (3:53)
-04. Birds of Prey (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A08BED52421A0655C32FF65D90E378A4A402B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706517   (113595) от 13.03.2024
-
-Sarah Jane Morris - Sisterhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisterhood
-02. Couldn’t Be Without
-03. Tomorrow Never Happens
-04. So Much Love(   Читать дальше...   )Жанр: Nu Jazz, SoulПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16137A546291C66456BC0EAB61F471125543320F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706484   (113596) от 13.03.2024
-
-Журнал | Делаем сами №5 (554) (март 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113596.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34DC8A2A3BF09B4CF3061D5D3460DC23EF0AC09A
 ```
 
 

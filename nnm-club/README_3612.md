@@ -1,3 +1,81 @@
+###  Публикация: 1706609   (113594) от 13.03.2024
+
+The Bad Dad Orchestra - Makin' Me Wild (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Makin' Me Wild (3:15)
+02. Trauma (3:36)
+03. Night Sweats (3:53)
+04. Birds of Prey (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A08BED52421A0655C32FF65D90E378A4A402B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706517   (113595) от 13.03.2024
+
+Sarah Jane Morris - Sisterhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisterhood
+02. Couldn’t Be Without
+03. Tomorrow Never Happens
+04. So Much Love(   Читать дальше...   )Жанр: Nu Jazz, SoulПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16137A546291C66456BC0EAB61F471125543320F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706484   (113596) от 13.03.2024
+
+Журнал | Делаем сами №5 (554) (март 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113596.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DC8A2A3BF09B4CF3061D5D3460DC23EF0AC09A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706559   (113597) от 13.03.2024
 
 Газета | Аргументы и Факты. Москва №11 (13-19 марта 2024) [PDF]
@@ -6,7 +84,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113597.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Google Chrome 122.0.6261.129 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113598.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ OBS Studio 30.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113599.jpg" />
 </div>
 
 
@@ -80,7 +158,7 @@ magnet:?xt=urn:btih:5B77F03D4427732ACFF2C2694648B1F1173B120D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113600.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ magnet:?xt=urn:btih:7701802C153D51FACE8D84AEF1A29D75FA42D889
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113601.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ magnet:?xt=urn:btih:10EEC2E9AA60FCCFEFB8F0A3339A38AB5F2A831C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113602.jpg" />
 </div>
 
 
@@ -153,7 +231,7 @@ magnet:?xt=urn:btih:799A511528F81F920F2F0BB7908C9FCDDB46B1BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113603.jpg" />
 </div>
 
 
@@ -177,7 +255,7 @@ Criminal Archives 3: Murder in the Pages (2024) [Multi] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113604.jpg" />
 </div>
 
 
@@ -201,7 +279,7 @@ magnet:?xt=urn:btih:FBAE365BCFF9F9D8C04260CE41B76D4F4EE34C58
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113605.jpg" />
 </div>
 
 
@@ -225,7 +303,7 @@ Google Chrome 122.0.6261.129 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113606.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ magnet:?xt=urn:btih:F037524824ABAA551119D1611612C41F4F8E1EA4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113607.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ VA - Music News vol.351 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113608.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ BBEdit 15.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113609.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ magnet:?xt=urn:btih:9D763708E56F30F95001B93E80E4F078E23CDB61
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113610.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Microsoft .NET 7.0.17 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113611.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ magnet:?xt=urn:btih:C59947918640B715268FC7D883821EC3E92FE6E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113612.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Sonny Stitt - Tune-Up! (1972) 1993, Muse Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113613.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ TechSmith Snagit 2024.2.1 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113614.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Data Merge for Mac 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113615.jpg" />
 </div>
 
 
@@ -472,7 +550,7 @@ Ngguitarboy - Woolabaloola (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113616.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ Navicat for MongoDB on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113617.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ TechSmith Camtasia 2023 Studio 2023.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113618.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ Oscar Peterson - Con Alma: Live in Lugano (1964) 2023, Mack Avenue [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113619.jpg" />
 </div>
 
 
@@ -561,83 +639,6 @@ Oscar Peterson - Con Alma: Live in Lugano (1964) 2023, Mack Avenue [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFD4D0C7BCC84A30993D85E652DB8FF5C2F00E37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706365   (113620) от 12.03.2024
-
-Михаил Волконский | Горсть бриллиантов (2015) [MP3, Маргарита Иванова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям. «Русский Дюма», так называли его современники, написал более двадцати исторических романов и повестей.
-Рассказ-быль «Горсть бриллиантов» повествует о том, как молодой человек, простодушный и чистый сердцем дворянин (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий рассказ-быльИздательство: Нигде не купишьПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6623F0556181C655D5372BF6C07E0B7FB01B1F8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706229   (113621) от 12.03.2024
-
-Navicat for Oracle on Mac 16.3.7 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat for Oracle — идеальное решение для администрирования и разработки Oracle, которое позволяет создавать, редактировать базы данных, выполнять SQL-запросы и проще подключаться к удаленному Oracle. Он имеет интуитивно понятный графический интерфейс и предлагает мощные визуальные инструменты, такие как редактор запросов с возможностью подсветки синтаксиса.
-Предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6E25B966B8BCAEDF4AB29A5112819EA072416B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706354   (113622) от 12.03.2024
-
-Kenny Barron - The Source (2023) Artwork Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What If [8:02]
-02. Isfahan [6:14]
-03. Teo [6:05]
-04. Daydream [9:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A253AB56CC345EB8E27CDB72C7BFD07E7F7CCF9
 ```
 
 

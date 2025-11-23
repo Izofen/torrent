@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.14 (0107) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12842.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Genius Art: Image AI Generator v1.3.8 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12848.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BBE2E84D4774979A7CDE2A5B70A3DF50A4EA4DDC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12861.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:52300C3FBE796227BC213993776BD4EB44AE1C61
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12862.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.0 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12876.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:17F94B4268985AD912E5F5812B7E3E83CB177877
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12882.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:17F94B4268985AD912E5F5812B7E3E83CB177877
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12888.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8F85BA3F67CA554560E3878E6492720448400F27
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12892.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EBBCB4B566271CF78AF8491ACA9FC5FB849BF29A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12893.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:EBBCB4B566271CF78AF8491ACA9FC5FB849BF29A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12898.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:B6A5921A0DB06EABC8885BB3A06BBE16A14F8AA3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12901.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:29396AA3FD1F901BFF34521ED4B3C94C411B6E02
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12908.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7537DF61F4B9C44859BE9E803B5B91A1447DCCA9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12910.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe After Effects 2025 25.3.1.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12915.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:0EEBD28CEC2CAC349AC89A9F1763E2A9F879290B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12926.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:450DC797973C1041665BA09E583C8590A127D297
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12929.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:4859F70548DAE58BEA1EE72C079ED0110BFF5254
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12930.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:A105EEB24D45BF7C22E7429F4A96522BB9207BAA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12935.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B1E88410191D5B5930D66728348C867380E9A08F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12938.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.7 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12955.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ TikTok Private Plus v40.6.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12956.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ PotPlayer 250625 (1.7.22569) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12995.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.0 RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13047.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:2762F2945D1FF4EAF1A68055D00AEC5E7A8FF610
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13053.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Proton VPN 5.12.25.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13062.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ R-Wipe & Clean 20.0.2514 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13076.jpg" />
 </div>
 
 

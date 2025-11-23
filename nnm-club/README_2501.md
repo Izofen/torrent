@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65774.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FF0FCF8C219AABEF8CF61E8CBE1C9EBE29D46F88
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65775.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BB4F5059C5E9BB164ABBF0CED326771705FD1B5F
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65776.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9DCA9E8EF0878C9BA3D313D323F3ABAC8BD54364
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65777.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Luminiscent Dance Boom (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65778.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B45C8A817E3E40721F38F67EB555843C83C19B34
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65779.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Sonic Academy & Slate Digital - ANA 2 Ultra Bundle 2.5.6 VSTi, VSTi 3, AAX (x64)
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65780.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:CE688984C45862723E6F7C77E4EDA5052128728C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65781.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:E7BEB0402C74B51285EC597EBAA6BC417E4815FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65782.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:0E6A57DD26ABF1236778F20A7FCC433ED946913E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65783.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5F559A5383C26C11D9300FAA05589991FCE9CB4B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65784.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:1429558B2B60F332FD1EDAADF462A7E80C98B0BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65785.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A67A046D61B4A5446663070CDA6DDAC6F385D03D
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65786.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:109157021B2C606332E9210C53486DDB977B9903
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65787.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:E2E50D63A0711227EA1270F3AD30E0AD47D75ECC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65788.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:E92B73DBA8C8FDD859F734D786E07084E51868A1
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65789.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:C47BCF5FE46743C0E5D812D79D9B7FC0A41CEDC4
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65790.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Google Chrome 138.0.7204.50 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65791.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:3C6F48902EA7507C4059EC3A5B935CE63A581280
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65792.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:C13990957FF1B288B56303CE7E988E88286BE388
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65793.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:85152872CBCDD1F97248B779BBD50BFECD000849
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65794.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65795.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Questron II (1988) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65796.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65797.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65798.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:366EE537612133B8B1BAE1488817DF79F669E555
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65799.jpg" />
 </div>
 
 

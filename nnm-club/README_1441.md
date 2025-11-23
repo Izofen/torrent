@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37819.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AE5F66FE689A52888FEE0A9BA9B15E0AEA4DB30E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37820.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Auslogics SSD Optimizer 2.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37821.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ City Car Driving (2016) [Ru/Multi] (1.5.9.2/dlc) Repack Other s [Home Edition] [
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37822.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:FC51BE3ECD91BEA950434C475B08A49A9C68C165
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37823.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Mers Academy, Владислав Казмирук  | Работа с ручны�
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37824.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37825.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37826.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E6CE0A2C01104E460B82296926C81363337FC6BD
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37827.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:0A5FEA016CB92F80C278731E1935F612354071EB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37828.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Microsoft прекратит поддержку Windows 10 в октябре 202
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37829.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:EB969FD5B1205989A65602F96F72FD9B82998DB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37830.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:8150B9E9ED79395116DFDE232F6262CDCAC4E9A0
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37831.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37832.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37833.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:5737D5CCC6A250264C7757AADBD7B9762C59E8EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37834.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ StartAllBack 3.8.13 build 5197 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37835.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:24758A43D40DFB84A432C749EF279BA412144953
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37836.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:0FEE3B08D6D4207F54E8335D54A1421C4B97F0FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37837.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:1B4497FE25B31EC241231712ECCB98ADAC8BB495
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37838.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:73905C0CD34F9D80F9D01D10B0200F1D1DD0977C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37839.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:2057B05B7D3C454848ACE8D7FD3946937A2F291C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37840.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Heart of Darkness (1998) [Ru/En] (1.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37841.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:24A7585F14383153D29CF7A254598BEFD54D3F83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37842.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:53C05835923FECAEFA8D4628E49CEC26380DE0BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37843.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:1B8755A05EB6D9821B7FF9B376466346D7BE214C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37844.jpg" />
 </div>
 
 

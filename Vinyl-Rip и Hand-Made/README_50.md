@@ -1,3 +1,55 @@
+###  Публикация: 1663991   (177947) от 06.10.2023
+
+Владимир Кузьмин - Три Альбома (1987-1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Борисович Кузьмин (род. 31 мая 1955, Москва, СССР) — советский и российский музыкант, гитарист, мультиинструменталист, автор песен, звукорежиссёр, вокалист. Один из основателей и лидеров группы «Карнавал», лидер группы «Динамик», народный артист РФ (2011).
+Владимир Кузьмин — талантливый рок-музыкант, композитор и исполнитель, который сумел покорить сердца (   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1254A68D021771EDD4B767628C7B63A639EA2EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428854   (178227) от 04.12.2020
+
+Roxy Music - Manifesto (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Art Rock, New Wave, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178227.jpg" />
+</div>
+
+
+###  Подробнее
+
+East Side
+A1 Manifesto
+A2 Trash
+A3 Angel Eyes(   Читать дальше...   )Жанр: Art Rock, New Wave, Pop RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666645   (178333) от 06.10.2023
 
 Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -6,7 +58,7 @@ Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178333.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178333.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178416.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178416.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178953.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178953.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179036.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179036.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179060.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179060.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179068.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179676.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179676.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179695.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179695.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180013.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180116.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180116.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180228.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180228.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180248.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180259.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180259.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180368.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180375.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180375.jpg" />
 </div>
 
 
@@ -403,6 +455,33 @@ magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428056   (180596) от 01.12.2020
+
+Massive Attack - Mezzanine  (1998) 2013, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180596.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Angel
+A2 Risingson
+A3 Teardrop
+B1 Inertia Creeps(   Читать дальше...   )Жанр: Trip HopПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F856FFF29F9FC2FC57918BCF9FF411AA729D221F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665828   (180623) от 02.10.2023
 
 Мираж - Не в первый раз... (2004 / 2023) hand made, remastered [FLAC|44/16|tracks|CD-Rip] <Pop, Dance, Disco>
@@ -411,7 +490,7 @@ magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180623.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180623.jpg" />
 </div>
 
 
@@ -430,6 +509,33 @@ magnet:?xt=urn:btih:195B308004824B301633075387620139447D9723
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427597   (180664) от 01.12.2020
+
+Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180664.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mysterons
+A2 Sour Times
+A3 Strangers
+A4 It Could Be Sweet(   Читать дальше...   )Жанр: Trip HopПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665727   (180860) от 02.10.2023
 
 Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
@@ -438,7 +544,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180860.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180860.jpg" />
 </div>
 
 
@@ -465,7 +571,7 @@ October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180956.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180956.jpg" />
 </div>
 
 
@@ -492,7 +598,7 @@ Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181262.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181262.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181613.jpg" />
 </div>
 
 
@@ -546,7 +652,7 @@ Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182296.jpg" />
 </div>
 
 
@@ -573,7 +679,7 @@ Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183203.jpg" />
 </div>
 
 
@@ -587,111 +693,6 @@ Vader — польская дэт/трэш-метал группа, основа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B21BD40FAFB97AF20AC965FB64E0BE21F0A406A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665143   (183346) от 29.09.2023
-
-Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Room In Hell (04:50)
-02. Shadowcult (04:44)
-03. Seven Churches (Live) (03:27)
-04. Swing Of The Axe (Live) (03:54)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B931EDF1117518584E5DE032C35BBEDB4EB4349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664893   (183669) от 28.09.2023
-
-Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/Greatest Hits (1986, 1987) (Melodia, USSR/Wifon, Poland) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183669.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Secret Service» (с англ. — «Тайная служба») — шведская музыкальная группа, исполнявших свои произведения в жанре популярной музыки в 1980-х годах. Состав группы в разное время менялся, неизменными её участниками являются клавишник и Тим Норелл, последний является автором подавляющего большинства песен группы Secret Service.
-
-Secret Service — легендарная (   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94AAAF91AE0B9CD6A49947356A02621D92AA1F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665006   (183997) от 28.09.2023
-
-Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost Horizon - пауэр-метал группа из Гетеборга, Швеция.2001 - Awakening The World
-2003 - A Flame To The Ground BeneathЖанр: Power MetalПродолжительность: 01:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C6AE0A14B08B4DD6B01EE17E315418169EB977
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664670   (184797) от 27.09.2023
-
-Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] Heavy/Power/Symphonic Metal
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассел Аллен (англ. Russell Allen; родился 19 июля 1971 года в Лонг Бич) — американский певец, вокалист прогрессив-метал группы Symphony X, а также грув-метал супер-группы Adrenaline Mob.2005 - The Battle
-2007 - The Revenge
-2010 - The Showdown
-2014 - The Great DivideЖанр: Melodic Heavy Metal, Symphonic/Power MetalПродолжительность: 06:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
 ```
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28402.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DA73AB1FDFD252CA18C3504F183D81C1CF5BAB47
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28403.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Google отменяет инклюзивность
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28404.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28404.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Google отменяет инклюзивность
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28405.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28405.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Snappy Driver Installer Origin R777 | Драйверпаки 25.00.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28406.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:46A9E0FBF698FC225E25CEBC10DCD00B97177D6B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28407.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28407.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:49578228F8B037D5B6B3760C67FEC1EFA7DF7C6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28408.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ IObit Driver Booster Pro 12.2.0.542 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28409.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:125530D5F3C831DB80D29A1ECCCE6BF605505014
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28411.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:125530D5F3C831DB80D29A1ECCCE6BF605505014
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28412.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:125530D5F3C831DB80D29A1ECCCE6BF605505014
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28413.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:125530D5F3C831DB80D29A1ECCCE6BF605505014
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28414.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28414.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:125530D5F3C831DB80D29A1ECCCE6BF605505014
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28415.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28415.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:CDCF9C8CDD2B10F4884108EB4B336C0639EEEAB3
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28416.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:4AD6C700540BBB5A725EFF5CBB4D97B00A7D07CE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28417.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:B6E8F971E014AA3B45BD880B60FABCB93389CFC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28418.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:F02194E34BCE25D35793FE794C2AB939A80D8F01
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28419.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Min Browser 1.34.0 + standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28420.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:B2B3DC2C20C58B4866EF5E091C617237BF7B3638
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28421.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Windows 10 Pro 22H2 19045.5371 x64 by SanLex [Lightweight] [Ru/En] (2025.02.05)
 >>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28422.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28422.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ uTorrent Pro 3.6.0 Build 47196 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28423.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:9B3C2861D93F91BE1B248722E67DDC31B91DA6D0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28424.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:9B3C2861D93F91BE1B248722E67DDC31B91DA6D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28425.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28426.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:AB0BB22E8B3D9AA13768A224824E71637AAF99A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28427.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Dr.Web 6.00.16.01270 portable by Xemera [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28428.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28428.jpg" />
 </div>
 
 

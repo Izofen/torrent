@@ -6,7 +6,7 @@ Psiphon 3 build 182 (23.04.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58727.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Driver Booster Pro 11.4.0.60 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58728.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1164FA0CA864CA21B02878B8D6B60BDCA31374C3
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58735.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Activation Scripts (MAS) 2.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58737.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Photoshop 2024 25.7.0.504 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58740.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D130A8C3113D08CD94442D25EEED691E1B566003
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58745.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Audacity 3.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58749.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ HDCleaner 2.070 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58751.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Skype 8.118.0.205 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58752.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Q-Dir 11.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58753.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Zoner Photo Studio X 19.2403.2.536 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58754.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Firefox Browser 125.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58771.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ UltraSearch Professional 4.1.3.915 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58774.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wondershare UniConverter Ultimate 15.5.7.61 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58776.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Topaz Video AI 5.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58781.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Icecream Screen Recorder PRO 7.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58784.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Balabolka 2.15.0.869 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58785.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ WinToUSB Technician 8.8 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58786.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ HopToDesk 1.41.9.0 Portable + Install [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58790.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Windows 10 Manager 3.9.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58791.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ EF Commander 24.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58792.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Windows 10 Manager 3.9.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58795.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.8 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58802.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.1 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58804.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Rosetta Stone: Изучение языков v8.24.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58808.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Internet Download Manager 6.42 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58810.jpg" />
 </div>
 
 

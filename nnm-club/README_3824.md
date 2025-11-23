@@ -1,3 +1,83 @@
+###  Публикация: 1697271   (119106) от 05.02.2024
+
+Sacrify Souls - The New Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Stranger In Town (00:05:01)
+02 - We Born To Die (00:04:08)
+03 - Long Way To The Darkness (00:07:51)
+04 - Crossroad (00:08:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E175C2783F4B8758E3602EAB5E57BC4BDCAFE77B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696910   (119107) от 05.02.2024
+
+Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мельбурнский квинтет Acolyte занимает видное место на австралийской музыкальной сцене как мощный и исследовательский представитель современной прогрессивной музыки, создающий яркий музыкальный ландшафт театральных мелодий, сокрушительных риффов, высоких соло и образцовой технической музыкальности.2016 - Shades of Black
+2021 - Entropy
+.Жанр: Progressive Metal, Prog RockПродолжительность: 01:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6227DBFF2E1CD0143806A6224B37846455483A2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696893   (119108) от 05.02.2024
+
+Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zindagi Se Badi Sazaa Hi Nahi (11:21)
+02. Na Urooj De (11:52)
+03. Yeh Inayatein Gazab Ki (11:10)
+04. Kahan Aake Rukne the Raaste (11:03)(   Читать дальше...   )Жанр: WorldПродолжительность: 02:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFEF5562B2520EFEE6CBE44855F0C089D89C3B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696731   (119109) от 05.02.2024
 
 Якорь - Русская готика (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
@@ -6,7 +86,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119109.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ magnet:?xt=urn:btih:286411809A1FBC98123649ED17EA8DFDA240FAF7
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119110.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ Garmin: City Navigator Taiwan NT 2023.30 [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119111.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ Fort Firewall 3.11.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119112.jpg" />
 </div>
 
 
@@ -108,7 +188,7 @@ magnet:?xt=urn:btih:1F2DEAB0587254EC22976DCB433C0FD2E5BAE142
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119113.jpg" />
 </div>
 
 
@@ -132,7 +212,7 @@ magnet:?xt=urn:btih:01C5F64B89ED3E6FC34E2BBE173544914638AEE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119114.jpg" />
 </div>
 
 
@@ -156,7 +236,7 @@ magnet:?xt=urn:btih:01C5F64B89ED3E6FC34E2BBE173544914638AEE5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119115.jpg" />
 </div>
 
 
@@ -181,7 +261,7 @@ magnet:?xt=urn:btih:AA5F5CC1A303B642AFF3EA5050ACB603784E76D7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119116.jpg" />
 </div>
 
 
@@ -206,7 +286,7 @@ Glary Disk Cleaner 6.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119117.jpg" />
 </div>
 
 
@@ -230,7 +310,7 @@ Jazzy - Constellations (Expanded) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119118.jpg" />
 </div>
 
 
@@ -257,7 +337,7 @@ magnet:?xt=urn:btih:AEBCD3C1923B7AA1F60371F277DEAF0B13B32AD7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119119.jpg" />
 </div>
 
 
@@ -283,7 +363,7 @@ Kim Wilde - Close (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119120.jpg" />
 </div>
 
 
@@ -310,7 +390,7 @@ magnet:?xt=urn:btih:0DB3A8046469358060444E498816D5E02DFE326F
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119121.jpg" />
 </div>
 
 
@@ -334,7 +414,7 @@ magnet:?xt=urn:btih:BA7B08C11C9BCC1844AD359FE546FEC38071E3A8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119122.jpg" />
 </div>
 
 
@@ -359,7 +439,7 @@ magnet:?xt=urn:btih:897F4E9B266D61A52834918A549C92D0068EFE86
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119123.jpg" />
 </div>
 
 
@@ -383,7 +463,7 @@ Chromium 121.0.6167.140 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119124.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ magnet:?xt=urn:btih:D7E8332457A9607094EDAA3473C6730DF0F895F7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119125.jpg" />
 </div>
 
 
@@ -434,7 +514,7 @@ magnet:?xt=urn:btih:83ADFEE537693E08765A97A1B56863A5CDD3768C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119126.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ Music Collection 3.6.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119127.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ JetBrains DataSpell for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119128.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ Bryan Adams - Waking Up The Neighbours (1991) 1st German Press [APE|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119129.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ magnet:?xt=urn:btih:59D45C19F5C14F7AD0934B937FE1188757A566F8
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119130.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119131.jpg" />
 </div>
 
 
@@ -568,86 +648,6 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EA67BA7B3458A6A00D9A1CFE6D17704EF09DFDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697052   (119132) от 05.02.2024
-
-Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - One Last Ride (00:04:08)
-02 - King Of Kings (00:04:13)
-03 - The Dark Portals Of Agony (00:04:03)
-04 - Dwarven Storm (00:05:58)(   Читать дальше...   )Жанр: Power, Symphonic MetalПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55F1EA7BBA24FD6CCB86237CC23BFC9485C6B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697091   (119133) от 05.02.2024
-
-Н. Г. Бутейкис | Организация производства предприятий общест­венного питания (1990) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены вопросы организации производства предприятий общест­венного питания, прогрессивные формы обслуживания потребителей.
-Особое внимание уделено организации работы столовых на промышленных предприятиях. В 3-м издании (2-е - 1985 г.) рассмотрены новые виды оборудования, используемого на предприятиях общественного питания.
-Для  учащихся  ПТУ и лиц, обучаемых на производстве.Жанр: Учебная литератураИздательство: Высшая школаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAADC48066B8AE82477503FFF2367B7F67B66D54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696669   (119134) от 05.02.2024
-
-DJ PafTron - Freestyle Arena (2023) [MP3|320 Kbps] <Freestyle, Electronic, Breakbeat>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to Freestyle Arena (Сontents Skit)
-02. Freestyle Electric
-03. Freestyle Electric 2
-04. Freestyle Jamix(   Читать дальше...   )Жанр: Freestyle, Electronic, BreakbeatПродолжительность: 03:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A67EF2DC289FA775DF7F71D7B40A53F57C9A433
 ```
 
 

@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2507.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera One 122.0.5643.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2508.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5879640DFBF62AC4D338E5E0EF58E692D2DE5C47
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2509.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2510.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5BCABB1075CDAF917FC06FDCED61B280F8D9BF05
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2511.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2512.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C47924BD32F444B6857FEA0CF7A6E7412E77CD50
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2513.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:ACA6E4B0B4C2CDF51DC7FCA04523EF64CB8B6DC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2514.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8248B350D8E7DF6DD3E78EFC0A1415F8322F7ED0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2515.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Microsoft Windows 11 [10.0.22631.5909], Version 23H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2516.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:BBCED8EFF7A104D88BB971CD2BAB87968A6F23DD
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2517.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Microsoft Windows 11 [10.0.26100.6584], Version 24H2 (Updated September 2025) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2518.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:1828E40F5929499DFFC920C46F99BCA0ACA4A9E2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2519.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:6961934AA6359A22962672586932840EE9437DFF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2520.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PotPlayer 250910 (1.7.22613) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2521.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Star Fire Eternal Cycle (2025) [Ru/Multi] (1.26.325) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2522.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:AAFF2F4EEA4B1266FE4841EF8244444F9D0CF9D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2523.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AB1E12FAA92B9506B48B7CB35E4D000BBEDEB210
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2524.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ KMPlayer 4.2.3.25 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2525.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:E40300060944C15FEBC496E866B62068CF1F94B3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2526.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:79EB4FAF6026E7AABFBF1A73AED6B0D9D667ED62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2527.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E4FDDD7D02FAC1CB15D57D5F3AE14DC173ECEDF2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2528.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:C414BF28A27EDDF65307AE9DFC4E17E776ACDADD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2529.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:5026AC550464D662507C0FB962B68AC7FF00E8A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2530.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AOMEI Partition Assistant Technician Edition 10.9.0 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2531.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:3803F69966D837F90580C7CA4CA80C92FFACF539
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2532.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1698172   (117754) от 14.02.2024
+
+В России начали выпускать новые дизельные моторы: 6 цилиндров, 360 л.с. и ресурс 1 млн километров
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_117754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ярославский моторный завод «Автодизель» начал серийное производство средних рядных двигателей ЯМЗ-537. В сравнении с моторами серии ЯМЗ-536 за счет роста рабочего объема с 6,65 л до 7,7 л их максимальная мощность увеличилась с 330 до 360 л.с., максимальный крутящий момент – до 1500 Нм, а удельный расход топлива остался прежним, сообщили  в пресс-службе ЯМЗ.Первые (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699631   (117755) от 14.02.2024
+
+Плохие парни / Bad Hombres (2023) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отчаянно пытаясь прокормить семью, нелегальные иммигранты Феликс и Альфонсо нанимаются на работу к Донни. Но их новый работодатель оказался настоящим психопатом, и теперь остаться в живых становится самой сложной работой в их жизни.Производство: США / BondIt, Broken Open Pictures, Buffalo 8 ProductionsЖанр: Триллер, криминалРежиссер: Джон СталбергАктеры: Диего Тиноко, Хемки Мадера, Томас Джейн, Люк Хемсворт, Тайриз Гибсон, Пол Йоханссон, Ксавьер Эстрада, Ник Кассаветис, Джефф Арарат, Джулия ХартманПеревод: Дублированный (OKKO)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED5B4E0036A38BC0979C9CE49A44D30D45B3EFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699638   (117756) от 14.02.2024
+
+Windows 11 x64 Rus by OneSmiLe [22631.3155]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+Удалены все модерн приложения.
+Поиск работает
+Вырезана телеметрия(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A71044D01E60F04A362E61CA86002AFB65326DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699626   (117757) от 14.02.2024
 
 Microsoft Office 2021 for Mac LTSC v.16.82 VL [Multi/Ru]
@@ -6,7 +81,7 @@ Microsoft Office 2021 for Mac LTSC v.16.82 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117757.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4046]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117758.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ SolidWorks 2024 SP1 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117759.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ CCleaner 6.21.10918 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117760.jpg" />
 </div>
 
 
@@ -109,7 +184,7 @@ magnet:?xt=urn:btih:2BF3F37624CDE2DE56AC469AF40B19961BAFA618
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117761.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ magnet:?xt=urn:btih:130130A21B469D3D6E1A60E506E29DA7BC5FA9E6
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_117762.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_117762.jpg" />
 </div>
 
 
@@ -157,7 +232,7 @@ magnet:?xt=urn:btih:130130A21B469D3D6E1A60E506E29DA7BC5FA9E6
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117763.jpg" />
 </div>
 
 
@@ -181,7 +256,7 @@ magnet:?xt=urn:btih:C11476D844FD45A7664F77E316FB505CE4D0703D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117764.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ CCleaner 6.21.10918 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117765.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ magnet:?xt=urn:btih:D98510117C0F045CF7700C46B60E29090E17A6FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117766.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ The Funeral Procession - In Still Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117767.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ Topor - Wieczna kazn (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117768.jpg" />
 </div>
 
 
@@ -307,7 +382,7 @@ magnet:?xt=urn:btih:F0B5FA760BBC5E4E5919B7FFE5A46D9A93FDC583
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117769.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ Vintlechkeit - Alt har en ende... (2021) Demo [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117770.jpg" />
 </div>
 
 
@@ -358,7 +433,7 @@ Feeder 4 v.4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117771.jpg" />
 </div>
 
 
@@ -383,7 +458,7 @@ VA - Billboard Top Pop Hits, 1960 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117772.jpg" />
 </div>
 
 
@@ -410,7 +485,7 @@ Adam Astrup - Songs From Before (2024) [FLAC|Lossless|WEB-DL|tracks] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117773.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ Jay Aston - I Spy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117774.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ Path Finder 2167 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117775.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ Lyna Mahyem - Mon âme (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul/Funk/R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117776.jpg" />
 </div>
 
 
@@ -515,7 +590,7 @@ Miguel Angel Torres - Opera Eneida (2024) [MP3|320 Kbps] <Progressive Rock, Heav
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117777.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:5862E08A2BC363FEBC5AC3082A6967E6B0D04A16
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117778.jpg" />
 </div>
 
 
@@ -567,7 +642,7 @@ Find Any File (FAF) 2.4.2b6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117779.jpg" />
 </div>
 
 
@@ -579,84 +654,6 @@ Find Any File не содержит никаких подменю с настр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87547DD068F75A06A847F79D8BB7CE30984AADAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699566   (117780) от 13.02.2024
-
-Seth James - Lessons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Glamour Of Life [00:00:13]
-02. Honky Tonkin’ (I Guess I Done Me Some) [00:03:20]
-03. Real Good Itch [00:02:34]
-04. Who's Foolin' Who [00:02:51](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C17643CD1F8B0733BC20577D0A6442E50A5966A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699551   (117781) от 13.02.2024
-
-TechSmith Camtasia 2023 Studio 2023.3.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 1995 - 2024 TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0163E18A9CE78E19525EE66F313F07A6A6BAC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699353   (117782) от 13.02.2024
-
-Topor - Wieczna kazn (2023) [MP3|320 Kbps] <Thrash, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the Gates of Valhalla (03:01)
-02. Zimna jak stal (03:59)
-03. Fight for Metal (03:14)
-04. Wieczna kaźń (03:30)(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4AFF65DA5E7B0E15B60059FB63F553943FD8E7
 ```
 
 

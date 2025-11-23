@@ -6,7 +6,7 @@ NASA показала снимок «лица» на Марсе, сделанн�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40420.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NASA показала снимок «лица» на Марсе, сделанн�
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40421.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DAA0ACC449D207E368C5FDAB100A64932FA4B0FE
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40422.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:61FDD2647CE4516EB093BA285B0B5A9E4C897D98
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40423.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:236B5FED69A7C84084D752F3E7A03A8F1D322F04
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40424.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C015E8556034C3A50473EB4A19A789DC01D8B06B
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40425.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Inkscape 1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40426.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:D2B5569865587D5F7939C1616004DDAD52F83AB9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40427.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Portal (2007) [Ru/Multi] (Build 13095453) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40428.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:AF023E1CB907EE3E54C8B7CE78749E37D53AA80B
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40429.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:4DA336D84106970E60D0C81C3CA8200A3E6572B3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40430.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40431.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Windows 10 Pro 22H2 19045.4894 x64 by SanLex [Lightweight] [Ru/En] (2024.09.26)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40432.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.18/dlc) Repack dixen18
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40433.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:7363DE4EC998E552EB664229DD3DE5A36F8A8071
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40434.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.1 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40435.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:9BD4D91C7EAD86163EF22BB033BD12C238B911BA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40436.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ CorelDRAW Graphics Suite 2024 25.2.1.313 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40437.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:1A8B9255E7A507C73A36A50DF57ADDE2A52D0D6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40438.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40439.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ CorelDRAW Technical Suite 2024 25.2.1.313 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40440.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:30FF92E553754DD832A6304AC8797C816129D535
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40441.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:AA24164D686CF762FE329243D090C3202CF8808D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40442.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:9480C984643FDBB3F808C994824559C2EB2FFF5B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40443.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:0E26165AD4ADA94E8AC98A53423AB8CBE0DE138B
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40444.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F8EB6D55441A55B0A9202CA88982017E7BD5974E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40445.jpg" />
 </div>
 
 

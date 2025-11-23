@@ -1,3 +1,79 @@
+###  Публикация: 467578   (82367) от 15.03.2012
+
+Lenovo b570e Windows 7 Максимальная SP1x64 7601 [rus]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью готовый к работе образ системы Lenovo b570e
+Образ состоит из трех разделов:
+1 - системный раздел 100 mb (восстанавливать обязательно)
+2 - операционная система
+3 - дополнительный раздел (можно не восстанавливать)Язык интерфейса: rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467712   (82371) от 15.03.2012
+
+Отряд особого назначения / Forces speciales (2011) [1080p] Blu-Ray
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая французская журналистка похищена в Афганистане талибами. Правительство Франции отказывается выполнять условия похитителей. Тогда талибы размещают в Интернете жестокое видео с обратным отсчетом времени до ее казни. На выручку девушке отправляется элитный отряд французского спецназа. Но мало отбить жертву у бандитов, нужно еще вывести ее на Большую землю. Возвращение домой становится крестным путем и для гражданской журналистки, и для бывалых вояк-спецназовцев.Жанр: боевик, драма, приключенияРежиссер: Стефан РибожаАктеры: Дайан Крюгер, Джимон Хунсу, Бенуа Мажимель, Дэнис Меночет, Рафаэль Персонас, Морьяна Алауи, Ален Аливон, Мехди Неббу, Раз Деган, Чеки КариоПеревод: ДублированныйПродолжительность: 01:48:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467713   (82372) от 15.03.2012
+
+Отряд особого назначения / Forces speciales (2011) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая французская журналистка похищена в Афганистане талибами. Правительство Франции отказывается выполнять условия похитителей. Тогда талибы размещают в Интернете жестокое видео с обратным отсчетом времени до ее казни. На выручку девушке отправляется элитный отряд французского спецназа. Но мало отбить жертву у бандитов, нужно еще вывести ее на Большую землю. Возвращение домой становится крестным путем и для гражданской журналистки, и для бывалых вояк-спецназовцев.Жанр: боевик, драма, приключенияРежиссер: Стефан РибожаАктеры: Дайан Крюгер, Джимон Хунсу, Бенуа Мажимель, Дэнис Меночет, Рафаэль Персонас, Морьяна Алауи, Ален Аливон, Мехди Неббу, Раз Деган, Чеки КариоПеревод: ДублированныйПродолжительность: 01:48:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468269   (82374) от 15.03.2012
 
 Just Cause 2 Limited Edition + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | Naitro
@@ -6,7 +82,7 @@ Just Cause 2 Limited Edition + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82374.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Road Rash [En] (RePack) 1996 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82375.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:A8D6F21A6F8CD73CFE1B7CD9848B0EC884DD6781
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82379.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ Beegie Adair and David Davidson - Parisian Cafe (2009) [MP3|320 кб/с]<Jazz,In
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82380.jpg" />
 </div>
 
 
@@ -111,7 +187,7 @@ magnet:?xt=urn:btih:AB1F6BE1FF0DAAC3012FD4334713C599010EFED4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82381.jpg" />
 </div>
 
 
@@ -135,7 +211,7 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82382.jpg" />
 </div>
 
 
@@ -168,7 +244,7 @@ Gerald Albright - New Beginnings (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82384.jpg" />
 </div>
 
 
@@ -193,7 +269,7 @@ magnet:?xt=urn:btih:A557A48D7E8DBB04D3C6BC01F0DE7382A27B4DA0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82385.jpg" />
 </div>
 
 
@@ -220,7 +296,7 @@ Club Des Belugas - Forward (2012) [MP3|~245 кб/с (V0)]<Electronic, Nu Jazz, N
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82386.jpg" />
 </div>
 
 
@@ -253,7 +329,7 @@ magnet:?xt=urn:btih:5BE53CDEDE37381C67923FC770FEFCCC06756C3D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82387.jpg" />
 </div>
 
 
@@ -278,7 +354,7 @@ magnet:?xt=urn:btih:9D313313658525CE12433DDBB08C8F63D8A37B7C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82388.jpg" />
 </div>
 
 
@@ -302,7 +378,7 @@ magnet:?xt=urn:btih:1BC88D6AA59F684622ADD3A1BE2A00559FD9668A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82391.jpg" />
 </div>
 
 
@@ -328,7 +404,7 @@ magnet:?xt=urn:btih:FFAF1272CDBE02CAA215360C37630D3B833E55B9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82393.jpg" />
 </div>
 
 
@@ -355,7 +431,7 @@ Devil's Train - Devil's Train (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82394.jpg" />
 </div>
 
 
@@ -388,7 +464,7 @@ Devil's Train - Devil's Train (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82395.jpg" />
 </div>
 
 
@@ -417,7 +493,7 @@ magnet:?xt=urn:btih:B7A40BDAA8E2990BB5AA30968BC6F49A96BE7E85
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82399.jpg" />
 </div>
 
 
@@ -443,7 +519,7 @@ magnet:?xt=urn:btih:B7A40BDAA8E2990BB5AA30968BC6F49A96BE7E85
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82400.jpg" />
 </div>
 
 
@@ -467,7 +543,7 @@ magnet:?xt=urn:btih:26AAEC4EA09A98CDB32E9BF30FC161919C02EAD6
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82403.jpg" />
 </div>
 
 
@@ -500,7 +576,7 @@ magnet:?xt=urn:btih:8515322FE95110655123B803E63D9485A959E32A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82404.jpg" />
 </div>
 
 
@@ -525,7 +601,7 @@ magnet:?xt=urn:btih:B6F4981633E2C855261911F1A5C527FDE24BD656
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82405.jpg" />
 </div>
 
 
@@ -549,7 +625,7 @@ magnet:?xt=urn:btih:66E84E677104CBE49DA5DECA5AEBB6810683F750
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82406.jpg" />
 </div>
 
 
@@ -574,7 +650,7 @@ magnet:?xt=urn:btih:0C0CFE9610F74EF08EDBC92AC2D413B51D52DCD1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82407.jpg" />
 </div>
 
 
@@ -598,7 +674,7 @@ magnet:?xt=urn:btih:0C0CFE9610F74EF08EDBC92AC2D413B51D52DCD1
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82408.jpg" />
 </div>
 
 
@@ -610,89 +686,6 @@ magnet:?xt=urn:btih:0C0CFE9610F74EF08EDBC92AC2D413B51D52DCD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:924DA02348A2E39EA398818917CFEF0C44673C82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468533   (82410) от 16.03.2012
-
-Эрл Стэнли Гарднер | Сигнал смертельной опасности [2010] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Сигнал смертельной опасностиЖанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF34762AF0070D37B05E3A0B8296A6AA5E0EDBF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468120   (82412) от 16.03.2012
-
-Selfplayers - Vibrations (2012) [MP3|320 кб/с]<reggae, ragga-jungle, electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82412.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Intropetition (1:12)
-2 - No War (2:41)
-3 - Будь Свободен (5:11)
-4 - Дым (3:25)
-5 - Live Dictaphone Jam 1 (1:40)
-6 - Gusli (4:29)
-7 - Счастье (3:29)
-8 - Time Is Right (feat. V-Joint) (3:34)
-9 - Live Dictaphone Jam 2 (1:02)
-10 - Who Can Tell Me (feat. Gala Ga) (3:38)(   Читать дальше...   )2012Жанр: reggae, ragga-jungle, electronicПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DD169EBAE9760D81CB69D983C062C9C99A5213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468537   (82413) от 16.03.2012
-
-Эрл Стэнли Гарднер | Убийца вышивающий крестом [2010] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Убийца вышивающий крестомЖанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E6030D73C3CEB596BCD0697C2C94C13D6A9DF7
 ```
 
 

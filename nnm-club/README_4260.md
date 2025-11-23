@@ -1,3 +1,76 @@
+###  Публикация: 1677249   (130960) от 08.12.2023
+
+Viber 21.4.0.0 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber - десктопная версия популярного мобильного приложения для IP-телефонии, с помощью которого можно свободно отправлять сообщения, совершать голосовые и видеовызовы (HD качество) другим пользователям Viber, вне зависимости от того каким устройством они пользуются, к какой сети подключены и в какой стране находятся.
+Программа автоматически синхронизирует с мобильным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217B426F902DA1FC2E00FA7E0B2B06F45A2A1FEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682640   (130963) от 08.12.2023
+
+Анатомия падения / Anatomie d'une chute / Anatomy of a Fall (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь успешной писательницы Сандры Войтер переворачивается после загадочной смерти мужа. Ей предъявляют обвинение в убийстве. Однако чем дальше ведется расследование, тем больше всплывает подозрительных обстоятельств.Производство: Франция / Auvergne Rhône-Alpes Cinéma, Canal+Жанр: Триллер, драма, криминалРежиссер: Жюстин ТриеАктеры: Сандра Хюллер, Сванн Арло, Мило Машадо Гранер, Антуан Райнарц, Сэмюэл Тейс, Дженни Бет, Саадиа Бентайеб, Камилль Рутерфорд, Анн Ротгер, Софи ФийерПеревод: Многоголосый профессиональный (Alphaproject)Язык озвучки: РусскийСубтитры: Английские (hardsub)Продолжительность: 02:29:06Реклама: Присутствует баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596478   (130964) от 31.12.2012
+
+Рисованная графика - Artworks by Live4ArtInLA
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора под ником Live4ArtInLA.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AF04BD71C915717E2E77BC6E8E1F692B42C520
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682630   (130965) от 08.12.2023
 
 Отмороженные (2023) WEBRip [H.264] (сезон 1, серии 1-17 из 17)
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130965.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Rayearth | Magic Knight Rayearth | Рыцари магии [1997, OVA, 3 из 3]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130967.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Progressive Rock - Rock Legends (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130968.jpg" />
 </div>
 
 
@@ -87,7 +160,7 @@ magnet:?xt=urn:btih:7FBD2FBC4CD93B5C0201F22B34668703FD1FE51E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130969.jpg" />
 </div>
 
 
@@ -111,7 +184,7 @@ Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130971.jpg" />
 </div>
 
 
@@ -135,7 +208,7 @@ magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130972.jpg" />
 </div>
 
 
@@ -159,7 +232,7 @@ Zentimo xStorage Manager 3.0.5.1299 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130973.jpg" />
 </div>
 
 
@@ -183,7 +256,7 @@ magnet:?xt=urn:btih:65840A167218B150DE2AEC9C53595A6B6B29FA8B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130974.jpg" />
 </div>
 
 
@@ -207,7 +280,7 @@ AmigosCode, Nelson Djalo | Mastering Kubernetes (2023) WEB-DL [AD] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130975.jpg" />
 </div>
 
 
@@ -232,7 +305,7 @@ magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130976.jpg" />
 </div>
 
 
@@ -256,7 +329,7 @@ New year wallpapers 2013 (30.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130977.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ Covenant - Nexus Polaris (1998) [WavPack|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130978.jpg" />
 </div>
 
 
@@ -311,7 +384,7 @@ Covenant - Nexus Polaris (1998) [WavPack|Lossless]<Melodic Black Metal>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130980.jpg" />
 </div>
 
 
@@ -335,7 +408,7 @@ magnet:?xt=urn:btih:8F4DDAC8246530E52CBE21C530CDA45D5B404600
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130982.jpg" />
 </div>
 
 
@@ -359,7 +432,7 @@ magnet:?xt=urn:btih:EB39878903832AF08FA915F638EC0B6F95896EAF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130983.jpg" />
 </div>
 
 
@@ -383,7 +456,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130984.jpg" />
 </div>
 
 
@@ -407,7 +480,7 @@ magnet:?xt=urn:btih:1B63DD8C13F4EB5CAF1712F946A412C7B58DB856
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130985.jpg" />
 </div>
 
 
@@ -431,7 +504,7 @@ Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130986.jpg" />
 </div>
 
 
@@ -455,7 +528,7 @@ magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130987.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ Klonoa Phantasy Reverie Series (2022) [Multi] (1.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130988.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ magnet:?xt=urn:btih:CEC02D36DDB531EB3A204AC6983FC6377DA454FA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130989.jpg" />
 </div>
 
 
@@ -527,7 +600,7 @@ magnet:?xt=urn:btih:EA1142D68B624A400D53E186ED9BA82CB971ADA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130990.jpg" />
 </div>
 
 
@@ -551,7 +624,7 @@ magnet:?xt=urn:btih:80FD51F71F5DF21D41F799F013981BE0EFDBDAD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130991.jpg" />
 </div>
 
 
@@ -562,81 +635,6 @@ magnet:?xt=urn:btih:80FD51F71F5DF21D41F799F013981BE0EFDBDAD8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD935B732336AD9A5EB04F00A25F8EACBFBC8C35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682693   (130992) от 08.12.2023
-
-Topaz Photo AI 2.1.4 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B8D784440F174099FBB1849D3F4668B6C2F9BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682740   (130993) от 08.12.2023
-
-StartAllBack 3.7.1 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130993.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43ACE20AA41177F0A4A35FDA6FA96562A48A16C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682616   (130994) от 08.12.2023
-
-Алексей Ковтунов | Системный призрак (Книга 6) (2023) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130994.jpg" />
-</div>
-
-
-###  Подробнее
-
-— Ну что, Грог? Готово? Написал аннотацию?
-— Да говно вопрос, бери... — Бык вручил мне шуршащую, но почему-то липкую бумажку.
-— Но... Эмм... Тут написано "ЫОДБЖмядлаы лывт"? Ты думаешь, это хорошая аннотация?
-— Говорил же, говно твой вопрос. А я и писать то не умею... — пожал плечами Бык, и невозмутимо потопал куда-то в сторону теплиц.Жанр: Боевая фантастикаИздательство: Аудиокниги своими рукамиПродолжительность: 08:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9515B47E5A37B86AE122550BE20CE7D0675227C1
 ```
 
 

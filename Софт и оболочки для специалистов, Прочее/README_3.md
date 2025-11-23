@@ -6,7 +6,7 @@ ADB AppControl 1.8.6 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35283.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ PyMOL 3.1.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36087.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Maptorium GoogleSat Cache [Ru/En]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36210.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ DipTrace 5.1.0 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36286.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Microsoft .Net Packages AIO 12.11.24 RePack by xetrin [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36416.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ FreeCAD 1.0.0 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36710.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ JetBrains RubyMine 2024.3 (x64-arm64) Repack by Sitego
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36786.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Altium Designer 25.0.2 Build 28 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36810.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Golden Software Grapher 24.1.213 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38200.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ SolidWorks 2024 Premium SP5.0  [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38455.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Altair S-FRAME 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38914.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ HCL Lotus Domino Notes 14.0 [Ru/En] + Nomad Safelinx Verse Traveler + C REST API
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39238.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Altair Inspire 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40403.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Altair HyperWorks Suite 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40406.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Altair Flow Simulator 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40408.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ GoldSim 14.0 R3 Build 449 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40477.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Visual Studio Code 1.94.0 + Автономная версия (Standalone) [Mult
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41424.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ AMD Radeon Software Adrenalin Edition 24.9.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41525.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Veeam ONE 12.2.0 Build 4093 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42253.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ AnyLogic Professional 8.9.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42337.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Sublime Text 4 Build 4180 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42391.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Automation Studio Professional Edition 7.0.0.10038 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42968.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ ZWCAD Architecture 2025 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44129.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ PathWave Advanced Design System 2025 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44130.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Microsoft .NET 6.0.33 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44236.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44253.jpg" />
 </div>
 
 

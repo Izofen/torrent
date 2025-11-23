@@ -6,7 +6,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by Balatan [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52773.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ O Launcher 12.3 (ARM64) Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52793.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Today Weather - Прогноз погоды 2.2.1-15.140524 Mod by Kirlif' [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52800.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Edge 124.0.2478.71 (ARM64) Lite-Mod by Rarity$ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52816.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ UpNote - Записка, дневник 9.4.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52824.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ GreenTuber - неофициальный клиент YouTube 0.1.4.2 Mod by MDNI
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52839.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Songsterr Guitar Tabs & Chords v5.24.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52849.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Smart Launcher 6.4 build 031 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52898.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Zaycev.net v9.4.0 Mod by Timozhai  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52927.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Smart Launcher 6.4 build 031 Lite-Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52933.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B6FA20DFB34502A134CA59FB1E5ABB2A26BD41E5
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52945.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ NewPipe Sponsor Block 0.27.0 Mod by N3k1t4_1996 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52953.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ViewBox v1.8.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52975.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52983.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BitTorrent Pro - Torrent App 8.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53008.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53015.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Pro PDF Reader v1.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53027.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53037.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ BIG Launcher 5.3.0 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53038.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:FB6D18D423A70270B27F04537AB031255B5F6383
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53041.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ BitTorrent Pro - Torrent App 8.2.7 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53044.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:7751D96DF156C1592D676474D90716D9656D845F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53060.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Minecraft: Pocket Edition 1.21.10.20.BETA Mod by MODAPKOKI [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53172.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53451.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PicWish: AI Photo Editor v1.6.15 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53457.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by cvvar00 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53472.jpg" />
 </div>
 
 

@@ -1,3 +1,123 @@
+###  Публикация: 1829231   (202246) от 25.10.2025
+
+Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202246.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тёмные времена страх и риск неизбежны. Мы рискуем попасться патрулю НСДАП, который выискивает тех, кто с ними не согласен. Мы рискуем, что нас изобьют или застрелят немецкие солдаты, потому что мы выступаем против режима. Мы рискуем потерять всё - даже наших любимых. Так мы и живём. Так мы пытаемся выжить. В эти непроглядно тёмные времена.Тип издания: LicenseРазработчик: Paintbucket GamesЖанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D096C5C4DDCED78E2FA538520D17D98D60254D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654774   (202282) от 22.08.2023
+
+Undead Wilderness: Survival (2023) [Ru/Multi] (0.1) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Undead Wilderness: выживите в неумолимых джунглях, разгадайте их тайны и спаситесь от безжалостной орды кровожадных зомби. Собирайте мусор, управляйте ресурсами и боритесь за свою жизнь в напряженной гонке против растущей угрозы нежити. Undead Wilderness - душераздирающая игра на выживание, в которой игроки оказываются в неумолимых джунглях, наполненных кровожадными (   Читать дальше...   )Тип издания: SceneРазработчик: VortexByte StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485D47CF911CD452DDFD1907C2A9E95D4B0F7022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615083   (202295) от 24.02.2023
+
+Remorse: The List (2022) [Multi] (1.1.1/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remorse: The List представляет собой мрачное приключение, где протагонист должен изучать небольшой городок Хидегпуст. Пользователи попадают на пугающие локации, управляя персонажем от первого лица. Игра выполнена в жанре хоррор-бродилки, где присутствуют элементы шутера. Получится сражаться с опасными существами при помощи холодного и огнестрельного оружия, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Ashkandi, TruthkeyЖанр: Экшны, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Испанский, ВенгерскийЯзык интерфейса: Английский, Испанский, Венгерский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263FE8C8B76D6A58A1A3B9AEF59C73A7AB1B379A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830228   (202384) от 26.10.2025
+
+Midnight Scenes: The Highway (2020) [Ru/Multi] (1.27a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Midnight Scenes: The Highway - поинт-н-клик хоррор-жанре, где вы возьмете на себя роль Клэр Барнс и вместе с ней пройдете таинственную историю того, что в темноте дороги может ожидать истинный ужас. На протяжении короткой истории вам предстоит окунуться в мрачный мир Midnight Scenes: The Highway, вдохновленный классическими телесериалами 60-х, такими как "Сумеречная (   Читать дальше...   )Тип издания: LicenseРазработчик: White Blanket GamesЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B8DC53F2E958CB9B3B5D9B78AA10B83BC281C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830040   (202440) от 26.10.2025
+
+Jenny LeClue - Detectivu (2019) [Ru/Multi] (2.2.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jenny LeClue - это увлекательный приключенческий детектив, затрагивающий тему взросления. Действие игры происходит в сонном городке Артуртоне. Вас ждет множество запоминающихся сложных персонажей и уникальная эстетика. Делайте свой выбор и формируйте метавысказывание. Вы не только выбираете путь Дженни, решая ее судьбу, но и помогаете ей распутать сложный клубок (   Читать дальше...   )Тип издания: LicenseРазработчик: MografiЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076E1C71A2123DA22E0E630A43930910E245F6F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325284   (202441) от 26.10.2025
 
 Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) License GOG
@@ -6,7 +126,7 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202441.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202441.jpg" />
 </div>
 
 
@@ -30,7 +150,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202442.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202442.jpg" />
 </div>
 
 
@@ -54,7 +174,7 @@ Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202582.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202582.jpg" />
 </div>
 
 
@@ -78,7 +198,7 @@ Loretta (2023) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202595.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202595.jpg" />
 </div>
 
 
@@ -102,7 +222,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203090.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203090.jpg" />
 </div>
 
 
@@ -126,7 +246,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203228.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203228.jpg" />
 </div>
 
 
@@ -150,7 +270,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203267.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203267.jpg" />
 </div>
 
 
@@ -174,7 +294,7 @@ PixARK (2019) [Ru/Multi] (1.151/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203797.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203797.jpg" />
 </div>
 
 
@@ -198,7 +318,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204000.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204000.jpg" />
 </div>
 
 
@@ -222,7 +342,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204048.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204048.jpg" />
 </div>
 
 
@@ -246,7 +366,7 @@ Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204094.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204094.jpg" />
 </div>
 
 
@@ -270,7 +390,7 @@ Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204382.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204382.jpg" />
 </div>
 
 
@@ -294,7 +414,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205009.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205009.jpg" />
 </div>
 
 
@@ -318,7 +438,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205116.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205116.jpg" />
 </div>
 
 
@@ -342,7 +462,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205205.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205205.jpg" />
 </div>
 
 
@@ -366,7 +486,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.0 Build 9076338) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205416.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205416.jpg" />
 </div>
 
 
@@ -390,7 +510,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205679.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205679.jpg" />
 </div>
 
 
@@ -414,7 +534,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205685.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205685.jpg" />
 </div>
 
 
@@ -438,7 +558,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205689.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205689.jpg" />
 </div>
 
 
@@ -462,7 +582,7 @@ Hidden Folks (2017) [Ru/Multi] (2.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206434.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206434.jpg" />
 </div>
 
 
@@ -486,7 +606,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206436.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206436.jpg" />
 </div>
 
 
@@ -497,126 +617,6 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E1907ECA8BECF2A4DD48FE00944C203AE7A21E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652778   (206465) от 13.08.2023
-
-The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206465.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Inheritance of Crimson Manor - это игра-головоломка в жанре хоррор, действие которой происходит в красивом и загадочном особняке викторианской эпохи с темной тайной. Проработав более десяти лет личным помощником загадочного железнодорожного магната Хэдли Стрэнджа, известие о его внезапной и неожиданной смерти вместе со всей семьей застало вас врасплох. Теперь (   Читать дальше...   )Тип издания: LicenseРазработчик: MediaCity GamesЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEDD24CFF1634D1E8A77ADE9761A027E088250B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614571   (206669) от 22.02.2023
-
-Notch - The Innocent LunA: Eclipsed SinnerS (2012) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Notch - The Innocent LunA: Eclipsed SinnerS выделяется на фоне других визуальных новелл своим сюжетом и атмосферой. Это не та игра, где надо следить за развитием отношений между персонажами и выбирать, с кем в итоге протагонист заведет роман. Вместо этого тайтл предлагает окунуться в психологический хоррор. Показанная тут история очень депрессивная. Проект изобилует (   Читать дальше...   )Тип издания: LicenseРазработчик: Angels Blue Digital EntertainmentЖанр: Adventure, Visual Novel, HorrorЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A498A0A5F6FA75177B82C4D1D2DECB2B465F830
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578853   (207448) от 24.09.2022
-
-Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фабрики (2008) [Ru] (1.0) License
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо друзей - Лана, Лео, Тим и Макс решили остаться на ночь на берегу прекрасного лесного озера. Ничто не предвещало беды: ребята играли в футбол и даже не обратили внимания на то, что детектор вампиров на поясе у Макса светится красным. Проснувшись, ребята не досчитались Лео. Никто не видел, куда он пропал, но если в деле замешаны вампиры, Лео грозит страшная (   Читать дальше...   )Тип издания: LicenseРазработчик: Silver Style EntertainmentЖанр: Приключeния, КвeстЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9CAC286B91FC6AB7E8FA14698C90644FC26697A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611255   (207645) от 11.02.2023
-
-Twinsen's Little Big Adventure 2 Classic (1997) [Multi] (3.2.4.3/dlc) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twinsen's Little Big Adventure 2 Classic – это экшен приключение с элементами квеста, которое подарит Вам массу эмоций и положительного игрового опыта. Сюжет игры повествует о Твинсене – главном герое прошлой и нынешней части, которого преследует череда неприятностей. С самого начала ему предстоит помочь своему другу – летающему динозавру, который был ранен во время (   Читать дальше...   )Тип издания: LicenseРазработчик: [2.21]Жанр: Приключение, Экшны, ГоловоломкаЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1474C2F196C4D2D46A49C4D2270A8F002346376B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647838   (208506) от 20.07.2023
-
-The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208506.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Manhole: Masterpiece Edition открывает перед каждым игроком совершенно новый мир для исследования, который расположен прямо под обычными городскими улицами. Эта захватывающая адвенчура ведет игроков по огромному бобовому стеблю в царство фантастических миров, каждый из которых превосходит предыдущий своей захватывающей историей. Уникальность проекта заключается (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Приключение, Обучающая, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091BC9379F8F15937AC922E9CCF5D9D945708692
 ```
 
 

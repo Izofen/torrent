@@ -1,3 +1,77 @@
+###  Публикация: 478989   (87158) от 08.04.2012
+
+Огонь на поражение / The Shooting (1967) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_87158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это — история Запада, одинокого и жестокого мира, населенного бедными и необразованными людьми, борющимися за выживание. Долгое время уже вгрызаются в землю в поисках золота четверо партнеров — Уилл, его брат Коэн, Коли и Лилланд.
+Их жизнь однообразна, скучна и тяжела, они живут в жуткой глуши и, похоже, нет никаких надежд на светлое будущее, потому что золотишка в земле маловато даже для одного, а не то, чтобы на четверых.
+Однажды, когда припасы совсем подошли к концу, Коэн и Лилланд отправляются в городишко (   Читать дальше...   )Жанр: Вестерн, ПриключенияРежиссер: Монте ХеллманАктеры: Джек Николсон, Уилл Хатчинс, Уоррен Оутс, Милли Перкинс, Чарльз Истман, Б. Дж. Мерхолц, Уолли Мун, Брэндон КэрроллПеревод: Русский (двуголосый закадровый) + АнглийскийПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99588135566A3BA31375D9558AB37D8179E94857
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479863   (87159) от 08.04.2012
+
+Южный календарь (2011) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87159.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положены три новеллы молодого писателя Антона Уткина. А связывает их между собой место действия (юг) и тема неприкаянности: герои фильма не смогли вписаться в современную действительность. Главная тема фильма – неустроенность героев в современном мире. Фильм состоит из трех новелл.Жанр: ДрамаРежиссер: Денис КарроАктеры: Ангелина Миримская, Виктория Исакова, Алексей Девотченко, Ольга Тумайкина, Михаил Кабанов (II), Николай Козак, Дмитрий Ратомский, Ольга Стрелецкая, Андрей Таратухин, Светлана Дикаанидас, Александра НижегородоваПродолжительность: 01:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0977BB029F93B6950736751D709F424907DBDEC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478867   (87161) от 08.04.2012
+
+Василий Суриков (1959) TVRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Исторический, биографическийРежиссер: Анатолий РыбаковАктеры: Лариса Кадочникова, Евгений Лазарев, Георгий Вицин, Владимир Белокуров, Георгий Милляр, Евгений Моргунов, Анатолий Кубацкий, Леонид Галлис, Вадим Ганшин, Николай Горлов, Николай Кутузов, Владимир Пицек, Михаил Погоржельский, Геннадий Юдин, Александра ДаниловаПродолжительность: 01:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339A14393DEF96F353ACA9547FF5824E7BFF1455
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479797   (87162) от 08.04.2012
 
 Литовский транзит [12 из 12] (2003) DVDRip
@@ -6,7 +80,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87162.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ Antonio Vivaldi - 5 Concerti for Bassoon, Strings & Continuo: Milan Turkovic & I
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87163.jpg" />
 </div>
 
 
@@ -60,7 +134,7 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87167.jpg" />
 </div>
 
 
@@ -84,7 +158,7 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87168.jpg" />
 </div>
 
 
@@ -108,7 +182,7 @@ magnet:?xt=urn:btih:C4D153CB4D79F8D92C13F6B8AFECB03F1ACDEC72
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87172.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ magnet:?xt=urn:btih:6086E3B0B4B44E5DF1AEBBEAF0F86656E06E3186
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87175.jpg" />
 </div>
 
 
@@ -156,7 +230,7 @@ magnet:?xt=urn:btih:6086E3B0B4B44E5DF1AEBBEAF0F86656E06E3186
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87176.jpg" />
 </div>
 
 
@@ -182,7 +256,7 @@ magnet:?xt=urn:btih:6E1C1B73699061EFFB8E4387A5FFB8C09CB19327
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87178.jpg" />
 </div>
 
 
@@ -208,7 +282,7 @@ magnet:?xt=urn:btih:A70DD4EBE287520ED591338B7F4867F4241D4024
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87183.jpg" />
 </div>
 
 
@@ -234,7 +308,7 @@ magnet:?xt=urn:btih:37E4CB89B17987174C5A3A52B89E49799611DF9B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87184.jpg" />
 </div>
 
 
@@ -258,7 +332,7 @@ magnet:?xt=urn:btih:546A5C95DE8DF434D5BBE8583C374B30F98E69D1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87185.jpg" />
 </div>
 
 
@@ -286,7 +360,7 @@ magnet:?xt=urn:btih:F4D87E7A6AE58A7F47BE550A7162600944041C62
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87186.jpg" />
 </div>
 
 
@@ -310,7 +384,7 @@ magnet:?xt=urn:btih:635AA3E62EE2C69C67658C86D66771B309C19397
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87187.jpg" />
 </div>
 
 
@@ -334,7 +408,7 @@ magnet:?xt=urn:btih:7C74E31C20BA6372FDEA081762E659B4ED1D35D7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87188.jpg" />
 </div>
 
 
@@ -358,7 +432,7 @@ magnet:?xt=urn:btih:7C74E31C20BA6372FDEA081762E659B4ED1D35D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87189.jpg" />
 </div>
 
 
@@ -382,7 +456,7 @@ magnet:?xt=urn:btih:ACAC3B73F4CBDFF7F85CFA6F636F9CC4AD9C9CBE
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87192.jpg" />
 </div>
 
 
@@ -406,7 +480,7 @@ magnet:?xt=urn:btih:A682F8E491C7FFA385272CD2D7C293AE3ED5B8B2
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87193.jpg" />
 </div>
 
 
@@ -430,7 +504,7 @@ magnet:?xt=urn:btih:A682F8E491C7FFA385272CD2D7C293AE3ED5B8B2
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87194.jpg" />
 </div>
 
 
@@ -454,7 +528,7 @@ Necronomicon / Книга Мертвых: Потерянные души (P) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87196.jpg" />
 </div>
 
 
@@ -478,7 +552,7 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87197.jpg" />
 </div>
 
 
@@ -511,7 +585,7 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87199.jpg" />
 </div>
 
 
@@ -535,7 +609,7 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87200.jpg" />
 </div>
 
 
@@ -565,7 +639,7 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87201.jpg" />
 </div>
 
 
@@ -576,84 +650,6 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479969   (87205) от 08.04.2012
-
-Вадим Попов и др. | Сборник бизнес-планов с рекомендациями и комментариями [2006] [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продемонстрирован процесс бизнес-планирования на фирме. Приведены реальные бизнес-планы организаций различных сфер деятельности, реализация которых позволила их разработчикам достичь высокого коммерческого успеха, а инвесторам получить значительный доход. Приведены типовые формы документации, отвечающей требованиям международного бизнеса. Дан анализ типовых ошибок в разработке бизнес-планов. Определено направление квалифицированной разработки плана развития бизнеса фирмы.
-
-Для студентов, аспирантов и преподавателей экономических факультетов и вузов, а также бухгалтеров, экономистов, менеджеров и специалистов, занимающихся подготовкой экспертизы и реализации бизнес-планов. Книга "Сборник бизнес-планов с рекомендациями и комментариями", написанная автором Попов В.М., предназначена для широкого круга читателей, интересующихся литературой из раздела . Книга может быть полезна и интересна студентам высших и средне-специальных учебных заведений.
-
-Учебник: Вадим Попов и др. | Бизнес-планирование: Учебник [2001]Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAD321A37D3CB132880BD5033FDFFD80F3C1792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480098   (87206) от 08.04.2012
-
-Филипп Ванденберг | Сборник книг [1996-2011] [FB2, DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Филипп Ванденберг (Philipp Vandenberg). Настоящее имя - Ханс Дитрих Хартель (Hans Dietrich Hartel)
-Немецкий писатель, автор научно-популярных книг по эзотерической и археологической тематике, а также исторических и детективных романов.
-Родился 20 сентября 1941 в Бреслау. Ванденберг учился в гимназии курфюрста Максимилиана в старинной герцогской резиденции городе Бургхаузен. По окончании ее в 1963 Ванденберг изучал в Мюнхене историю искусств и германистику. В 1965 году он поступил волонтером в «Пассауер Нойен Прессе», что позже, в 1967 году, обеспечило ему пост руководителя редакции «Бургхаузер Анцайгер». В 1968 году он несколько месяцев работает редактором новостей в мюнхенской «Абендцайтунг». С 1968 по 1974 год Ванденберг трудится на иллюстрированный журнал «Квик», а с 1974 по 1976 в должности литредактора журнала «Плейбой» в Мюнхене. После этого он становится свободным художником и занимается писательством под псевдонимом Филипп Ванденберг.1996-2011Формат: FB2 (9 книг), DJVU (1 книга)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0F3E443D421392A97069BC90DB18320AB7A4AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479963   (87207) от 08.04.2012
-
-Алексей Бобл, Андрей Левицкий | S.T.A.L.K.E.R. Воины Зоны [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочная сила сбивает над Зоной Отчуждения армейский вертолет. Спецгруппа военных сталкеров отправляется на поиски упавшей машины, чтобы спасти ее единственного пассажира. Неожиданно на десантников начинается охота. Зловещие сообщения приходят на ПДА, их отправитель неизвестен. Бывшие товарищи становятся врагами, странные существа и ранее неизвестные аномалии встают на пути. С боем пробиваясь через Зону, военсталы пытаются понять, что происходит, кто заманил их в смертельную ловушку...Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A123BA8511ED70C1684295582374A481AA815E4E
 ```
 
 

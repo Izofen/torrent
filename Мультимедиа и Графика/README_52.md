@@ -1,3 +1,77 @@
+###  Публикация: 1580835   (231609) от 03.10.2022
+
+ZebraDesigner Pro 3.2.2 Build 611 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_231609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для дизайна этикеток со штрихкодами ZebraDesigner Pro делает простым создание сложных этикеток с фиксированными или переменными данными. Данная программа обновлена для поддержки большинства операционных систем, а также принтеров практически всех классов.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5101C7BA4657FAADA83D2ED41A26D34FF8805A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554820   (231683) от 01.06.2022
+
+Capture One Pro 22 15.2.2.5 RePack by KpoJIuK [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_231683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One PRO - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02912BE842534EC1ADAE5B2245BA1D19C6C1085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546546   (232033) от 30.05.2022
+
+Imagenomic Professional Plugin Suite 1739 [Ru/En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_232033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imagenomic Professional Plugin Suite – набор из 3-х плагинов для Adobe Photoshop.
+
+Noiseware – плагин для Adobe Photoshop, предназначенный для коррекции шумов на цифровых фото. Имеется функция мультипредпросмотра, позволяющая сравнить результаты работы фильтра с разными настройками и функция брекетинга основных параметров фильтра, генерирующая серию превьюшек в автоматическом (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A429F874576988A81D5FED381E462B8BFA1066
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578815   (233352) от 24.09.2022
 
 Spectrasonics Keyscape 1.3.3d Standalone, VSTi, VSTi 3 (x64) + Library [En]
@@ -6,7 +80,7 @@ Spectrasonics Keyscape 1.3.3d Standalone, VSTi, VSTi 3 (x64) + Library [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233352.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233352.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ Free Video Editor 1.4.58.919 Premium [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233544.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233544.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ DxO FilmPack 6.2.0 Build 255 Elite [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234361.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234361.jpg" />
 </div>
 
 
@@ -83,7 +157,7 @@ Avidemux 2.8.1 Release + Portable (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234451.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234451.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ SpeedTree Modeler v9.1.1 Cinema Edition Win x64 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234893.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234893.jpg" />
 </div>
 
 
@@ -133,7 +207,7 @@ magnet:?xt=urn:btih:A0FB97E7FEC296BA372A6C4F34547C88FCA3AFA3
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234914.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234914.jpg" />
 </div>
 
 
@@ -157,7 +231,7 @@ Parametric - Ducky Verb 1.0.0 VST 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235012.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_235012.jpg" />
 </div>
 
 
@@ -181,7 +255,7 @@ Tone2 - Electra 3.2.1 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235274.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235274.jpg" />
 </div>
 
 
@@ -205,7 +279,7 @@ Tone2 - Saurus 4.0.2 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235336.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235336.jpg" />
 </div>
 
 
@@ -229,7 +303,7 @@ CyberLink AudioDirector Ultra 13.4.2903.0 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235543.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235543.jpg" />
 </div>
 
 
@@ -253,7 +327,7 @@ Ashampoo Photo Commander 17.0.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235689.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235689.jpg" />
 </div>
 
 
@@ -278,7 +352,7 @@ Movie To GIF 3.2.0.0 Portable by Igor-1980 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235787.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235787.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ Hornil StylePix 3.0.7.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235808.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235808.jpg" />
 </div>
 
 
@@ -330,7 +404,7 @@ Wise Video Converter 2.3.1.66 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235817.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235817.jpg" />
 </div>
 
 
@@ -354,7 +428,7 @@ Polydigm - Klimper 2.0.8 Standalone, VST 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236285.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236285.jpg" />
 </div>
 
 
@@ -379,7 +453,7 @@ Tipard Total Media Converter 9.2.38 RePack (& Portable) by TryRooM (07.04.2023) 
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236319.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236319.jpg" />
 </div>
 
 
@@ -403,7 +477,7 @@ Soundevice Digital - Pluralis 1.1 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236506.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236506.jpg" />
 </div>
 
 
@@ -427,7 +501,7 @@ Abyssmedia Video Converter Plus 2.3.0.0 (x64) RePack (& Portable) by Dodakaedr [
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236515.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236515.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ Movie To GIF 3.2.0.0 Portable by FC Portables [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236539.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236539.jpg" />
 </div>
 
 
@@ -476,7 +550,7 @@ SkinFiner 5.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236851.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236851.jpg" />
 </div>
 
 
@@ -500,7 +574,7 @@ Martinic - AX73 1.2.1 VSTi (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236876.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236876.jpg" />
 </div>
 
 
@@ -524,7 +598,7 @@ Apowersoft Screen Capture Pro 1.5.0.0 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237089.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237089.jpg" />
 </div>
 
 
@@ -549,7 +623,7 @@ NovoNotes - HPL2 Processor 2.1.1 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237146.jpg" />
 </div>
 
 
@@ -562,80 +636,6 @@ HPL2 Processor - Идеальный звук в наушниках.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F6151F5C2855567D189010846CC271623DB502D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630300   (237171) от 30.04.2023
-
-Soundly - Place it 1.0.1 VST 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин Place it в Soundly Voice Designer был настолько популярен, что мы получили бесчисленное количество запросов на автономную версию для всех DAWS и наборов для редактирования — и мы прислушались!
-Place it позволяет вам эмулировать звук выбранного динамика и размещать его в одной из 40 различных сред - и все это на основе мастерски записанных импульсных характеристик (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FFBCF5B62207870E4492BE6E3B13551CED02B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630367   (237177) от 30.04.2023
-
-PSPaudioware - Lexicon PSP 42 2.0.0 VST, VST 3, AAX (x64) Repack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lexicon PSP42 — это высококачественный плагин для цифровой стереофонической задержки и фразового сэмплера, основанный на легендарном процессоре Lexicon PCM42, известном своей уникальной концепцией и отличительным звучанием.
-В версии 2 оригинальное видение Lexicon PSP42 было улучшено как в звуковой точности, так и в гибкости функций. В дополнение к пышному алгоритму (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5E47E0D5E9358DFDDD52C20860FE86F6F1CC99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630847   (237178) от 02.05.2023
-
-BDtoAVCHD 3.1.1 [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237178.jpg" />
-</div>
-
-
-###  Подробнее
-
-BDtoAVCHD - бесплатная и простая в использовании программа, которая позволяет быстро создавать AVCHD-диски из Blu-Ray или HD MKV-файлов, получая на выходе данные готовые к записи на DVD5 или DVD9. Приложение сжимает видео без потери качества изображения, причем пользователь может самостоятельно задавать желаемый размер данных (4.7 Гб (DVD5), 8.5 Гб (DVD9), USB 4 (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35F7FD67A8CC3DFD023F570821D72C025ACD681
 ```
 
 

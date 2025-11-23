@@ -1,3 +1,78 @@
+###  Публикация: 462840   (80516) от 06.03.2012
+
+Схватка / The Grey (2011) HDRip
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80516.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Аляске потерпел крушение самолет, и оставшиеся в живых пассажиры оказались в плену безлюдной снежной пустыни, где только стая волков скрашивает пейзаж. Люди хотят выжить любой ценой, и теперь им предстоит смертельная схватка…Производство: США / 1984 Private Defense ContractorsЖанр: Боевик, Триллер, ДрамаРежиссер: Джо КарнаханАктеры: Лиам Нисон, Фрэнк Грилло, Дермот Малруни, Даллас Робертс, Джо Андерсон, Нонсо Анози, Джеймс Бэдж Дэйл, Бен Брэй, Энн Опеншоу, Питер ГиргесПеревод: ДублированныйПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78453A80B4007EB8C3BFA10CA5E19D46F7DE185A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463338   (80518) от 06.03.2012
+
+PTC MathCAD Prime 2.0 F000 x86+x64 [2012, MULTILANG +RUS] 2.0 Build F000 [Мультиязычный (русский присутствует)]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сведения об использовании Mathcad Prime 2.0
+Mathcad применяется для выполнения, документирования и совместного использования вычислений и инженерных расчетов. Mathcad позволяет объединить инженерно-ориентированные математические записи, форматированные тексты, графики и изображения в единый документ, что облегчает визуализацию, проверку и документирование знаний и совместное выполнение работы. При вводе уравнений в документ результаты рассчитываются автоматически. Mathcad отличается надежностью и обладает всеми функциональными возможностями, необходимыми для вычислений, обработки данных и инженерных расчетов.
+Mathcad позволяет брать производные, рассчитывать корни уравнений, анализировать данные, решать системы уравнений и обыкновенные дифференциальные уравнения. При изменении любого числа, переменной или уравнения выполняется мгновенный перерасчет всех данных в документе.
+С помощью Mathcad можно легко выполнять преобразование единиц измерения из одной системы в другую. Mathcad помогает находить ошибки, сделанные (   Читать дальше...   )Название программы: PTC MathCAD PrimeЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463654   (80527) от 06.03.2012
+
+Синтел / Sintel (2010) DMRip [H.264/4K]
+
+>>След.
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта трогательная история произошла в красочном и фантастическом мире. В мире, где одинокой девушке по имени Синтель предстоит отправиться на поиски своего необычного маленького питомца, которого она приютила… Эта история о крепкой дружбе и неожиданных поворотах судьбы, которая порой бывает очень сурова…Производство: Нидерланды / Blender FoundationЖанр: Мультфильм, Компьютерная анимация, Короткометражка, Фэнтези, ДрамаРежиссер: Колин ЛевиПеревод: ДублированныйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Russian, Russian (Demiurg.e), Ukrainian, EnglishПродолжительность: 00:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0B3907FBF986BA77DD2A8E743098F3D44465CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463495   (80541) от 07.03.2012
 
 V-Tunes - Variable (2006) [FLAC|Lossless]<Psy-Progressive>
@@ -6,7 +81,7 @@ V-Tunes - Variable (2006) [FLAC|Lossless]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80541.jpg" />
 </div>
 
 
@@ -38,7 +113,7 @@ V-Tunes - Variable (2006) [FLAC|Lossless]<Psy-Progressive>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80555.jpg" />
 </div>
 
 
@@ -62,7 +137,7 @@ magnet:?xt=urn:btih:3477B09FC8872BD5845E3AB8160F75FE2AF72AC9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80563.jpg" />
 </div>
 
 
@@ -89,7 +164,7 @@ magnet:?xt=urn:btih:DABC62373880E230ECA0D8A437E24609B631C579
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80569.jpg" />
 </div>
 
 
@@ -113,7 +188,7 @@ Adrenaline Mob - Omerta (2012) [MP3|320 кб/с]<Alternative Metal / Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80571.jpg" />
 </div>
 
 
@@ -146,7 +221,7 @@ VA - Christopher Lawrence & John '00' Fleming - Global Trance Grooves Vol. 1: Tw
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80572.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ VA - Christopher Lawrence & John '00' Fleming - Global Trance Grooves Vol. 1: Tw
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80574.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ magnet:?xt=urn:btih:F5A79D2B9A8BFA37CE1239B3A3027D2B82A4CD77
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80577.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:6DCE08C48A683119419A13C7DD11452C809ECC5E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80579.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ Passenger 10 - Blue Harbour (Around The World in 60 Minutes)[MP3|320 кб/с]<Ch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80593.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ magnet:?xt=urn:btih:BDE256860B4F2EFD726107FB62AEA365BAD644C0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80596.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ magnet:?xt=urn:btih:3282C4A58CCD534B555B851314A7648F06A76FCE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80597.jpg" />
 </div>
 
 
@@ -334,7 +409,7 @@ magnet:?xt=urn:btih:B9E64BC5AD5AE5CBA9A858D5DE6E30DE3932EA71
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80600.jpg" />
 </div>
 
 
@@ -358,7 +433,7 @@ magnet:?xt=urn:btih:752CE3FFB61D152A9654DED307A5CC2DD7DCD91D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80601.jpg" />
 </div>
 
 
@@ -384,7 +459,7 @@ magnet:?xt=urn:btih:C0CA424B73C3DC7F6E47F84575EA01929B033727
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80610.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ magnet:?xt=urn:btih:569482C17FE37F7082A86D9323A55322964F13C0
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80618.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ magnet:?xt=urn:btih:D4E894D1934C6D64D3A27B20AC92CAA9A3207599
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80619.jpg" />
 </div>
 
 
@@ -457,7 +532,7 @@ magnet:?xt=urn:btih:3AA74B6C4B957C5920C7F6523E928D45A560A370
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80623.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ magnet:?xt=urn:btih:BF129BC1D409A67E6D9F54380F6DFC3DE667228D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80624.jpg" />
 </div>
 
 
@@ -505,7 +580,7 @@ magnet:?xt=urn:btih:BF129BC1D409A67E6D9F54380F6DFC3DE667228D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80631.jpg" />
 </div>
 
 
@@ -529,7 +604,7 @@ magnet:?xt=urn:btih:CFEC5CC22CE046EF60EE3EF67830C6EED92F0820
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80636.jpg" />
 </div>
 
 
@@ -553,7 +628,7 @@ magnet:?xt=urn:btih:755BF52FF2C283DB3A11C36FCA30C9F91C217FFB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80638.jpg" />
 </div>
 
 
@@ -578,89 +653,13 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80643.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Жанр: RockРежиссер: Milton LageАктеры: ZZ TopПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463816   (80644) от 07.03.2012
-
-Схватка / The Grey (2011) BDRip [H.264]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80644.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Аляске потерпел крушение самолет, и оставшиеся в живых пассажиры оказались в плену безлюдной снежной пустыни, где только стая волков скрашивает пейзаж. Люди хотят выжить любой ценой, и теперь им предстоит смертельная схватка…Производство: 1984 Private Defense Contractors / Liddell Entertainment / Scott Free ProductionsЖанр: Боевик, триллер, драма, приключенияРежиссер: Джо КарнаханАктеры: Лиам Нисон, Фрэнк Грилло, Дермот Малруни, Даллас Робертс, Джо Андерсон, Нонсо Анози, Джеймс Бэдж Дэйл, Бен Брэй, Энн Опеншоу, Питер ГиргесПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE7C94AB393630C4FC15D30E30BD4D34C3ADE9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463256   (80650) от 07.03.2012
-
-MacDonald | Pro Silverlight 5 in C# [2012] [PDF] [Eng]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Silverlight — это плагин для браузера, который позволяет запускать приложения, содержащие анимацию, векторную графику и аудио-видео ролики, что характерно для RIA (Rich Internet application).
-Silverlight предоставляет графическую систему, схожую с Windows Presentation Foundation, и объединяет мультимедиа, графику, анимацию и интерактивность в одной программной платформе. Он был разработан, чтобы работать с XAML и с языками Microsoft .NET. XAML используется для разметки страниц, использующих векторную графику и анимацию. Текст, содержащийся в приложениях Silverlight, доступен для поисковых систем, так как он не компилируется, а доступен в виде XAML. Silverlight также можно использовать для того, чтобы создавать виджеты для Windows Sidebar в Windows 7.
-Silverlight может воспроизводить WMV, WMA и MP3 для всех поддерживаемых браузеров, не требуя при этом дополнительных компонентов, таких как Windows Media Player. Так как Windows Media Video 9 является реализацией стандарта SMPTE VC-1, Silverlight поддерживает (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8180332510E81BD73A526994F94EBE54E03DFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463069   (80653) от 07.03.2012
-
-Станислав Хохель | Ступени сознания [2008] [DJVU]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами четвертое издание бестселлера Станислава Хохеля - уникальной книги, которая станет вашим путеводителем по дороге к успеху.
-Если ваша жизнь складывается не совсем так, как вам хотелось бы, задумайтесь - почему это происходит. Почему жизнь одних людей полна радостных событий, успеха и признания, а других - скучна и печальна? Не верьте в счастливые стечения обстоятельств, рождение в рубашке и прочие чудеса! Несомненно, чудеса случаются, но чтобы они случались именно с вами, вы должны обладать определенными личными качествами. Помните: успех вашей жизни зависит именно от вас.
-Известный психолог и тренер Станислав Хохель проведет вас по 15 ступеням Лестницы успеха и духовного роста, и на каждой ступени вы овладеете определенным качеством, необходимым для того, чтобы ваша жизнь изменилась к лучшему.2008Формат: DJVU
 
 ## Скачать торент
 ```bash

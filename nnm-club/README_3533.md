@@ -1,3 +1,81 @@
+###  Публикация: 1715051   (111540) от 12.04.2024
+
+Secta - Panzer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'mon [00:03:46]
+02. Panzer [00:03:45]
+03. Dulce Dinamita [00:04:48]
+04. Todo o Nada [00:03:56](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4B59ACF8B3ADACAC8BD9F8A63AA81B1E101442
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715530   (111541) от 12.04.2024
+
+Марина Серова | Частный детектив Татьяна Иванова. В постели с банкиром (2023) [MP3, Софья Симак]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111541.jpg" />
+</div>
+
+
+###  Подробнее
+
+И знаменитым сыщикам порой докучают проклятые конкуренты. А когда ими становятся друзья, то вообще караул! Давний приятель частного детектива Татьяны Ивановой Андрей Мельников частенько сватает Тане состоятельных клиентов. Но на этот раз решил сам сыграть первую скрипку, оставив Ивановой роль эскорт-девицы при банкире Сысоеве. Мало того, Андрей с особым рвением вмешивается (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 07:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95B04651E43682F2ED532AE50E048FA9EC098E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714619   (111542) от 12.04.2024
+
+Эридан - Не предавай мечты (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, female vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иди вперёд [00:03:42]
+02. Восхождение [00:03:52]
+03. За горизонтом неба [00:04:59]
+04. Время [00:05:11](   Читать дальше...   )Жанр: Alternative rock, female vocalПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4963D4E27D349E3E52A86C569FDC976EA5961F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715337   (111543) от 12.04.2024
 
 VA - Relaxing Evening Jazz Chill out Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
@@ -6,7 +84,7 @@ VA - Relaxing Evening Jazz Chill out Playlist (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111543.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Monocast - Детства край (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111544.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:4DD227C4733AD627DC5EE8EABAA29A22D23871D5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111545.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ magnet:?xt=urn:btih:A19FC200702A5FB9CBCB29B58CB9D74FB277F6EF
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111546.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ Vivaldi 6.6.3271.61 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111547.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ magnet:?xt=urn:btih:FFF776D6338285A5CC9096112B8EB3074DD05162
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111548.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ Carter The Unstoppable Sex Machine - 1992_ The Love Album (1992) Remaster, 2023,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111549.jpg" />
 </div>
 
 
@@ -184,7 +262,7 @@ Lumen feat. Olympic Orchestra - Над пропастью... (2024) EP [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111550.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ Image Uploader 1.4.0 Build 5138 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111551.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ VA - Footsteps On The Dancefloor, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111552.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ magnet:?xt=urn:btih:04762E57BF09D43302243426D72469BFF88D5B8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111553.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ magnet:?xt=urn:btih:04762E57BF09D43302243426D72469BFF88D5B8C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111554.jpg" />
 </div>
 
 
@@ -309,7 +387,7 @@ PIDKey Lite 1.64.4 b41 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111555.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ VA - 10 Years Of Suanda Music - Mixed by Mhammed El Alami (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111556.jpg" />
 </div>
 
 
@@ -360,7 +438,7 @@ VA - Footsteps On The Dancefloor, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111557.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ Papik - Cocktail Mina Vol.3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111558.jpg" />
 </div>
 
 
@@ -414,7 +492,7 @@ magnet:?xt=urn:btih:7F8D480C60793CF2711DA81A34DC7ECBFFF07FEF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111559.jpg" />
 </div>
 
 
@@ -441,7 +519,7 @@ magnet:?xt=urn:btih:82764E9457DFD6AA316491640035692F5E271DEA
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111560.jpg" />
 </div>
 
 
@@ -467,7 +545,7 @@ Antarsys - Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111561.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ magnet:?xt=urn:btih:8568ED2CECA383094BD049383069566DB70C46EB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111562.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ VA - Armin van Buuren - A State Of Trance 1168 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111563.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ VA - Voices From The New Cool Vol. 2 (Nu Jazz Crooners & Female Jazz Singers) (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111564.jpg" />
 </div>
 
 
@@ -572,7 +650,7 @@ magnet:?xt=urn:btih:3E40629A9938DB1CFD3D9C587DAECEFEB7A1BD9C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111565.jpg" />
 </div>
 
 
@@ -583,79 +661,6 @@ magnet:?xt=urn:btih:3E40629A9938DB1CFD3D9C587DAECEFEB7A1BD9C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F45A08C02C7C3E1E6E4E2FFDE13334A28D80F98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715460   (111566) от 12.04.2024
-
-NIUBI Partition Editor 9.9.5 Technician Edition Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111566.jpg" />
-</div>
-
-
-###  Подробнее
-
-NIUBI Partition Editor (Repack & Portable) – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
-В отличие от других менеджеров разделов в программу NIUBI Partition (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37255F9F9375EF966F7C793EA57506B0EDE72ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715543   (111567) от 12.04.2024
-
-Kurayukaba | Краюкаба [2024, Movie] WEBRip 544p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективное агентство "Ооцудзи" работает медленно. Сутару и его малолетний приятель Саки берутся за любую работу, даже за ту, которая кажется гораздо более рискованной, чем стоит. Сейчас в городе сезон фестивалей, но вдали от посторонних глаз прокатилась волна загадочных исчезновений. Газетчик нанимает Сутару для расследования, предполагая, что ответы могут (   Читать дальше...   )Производство: Team OneOneЖанр: приключенияРежиссер: Цукахара СигэёсиПеревод: Официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A11C343DAF241DC4F4C874E494F72D89CD78A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715556   (111568) от 12.04.2024
-
-Собачья жизнь: Друзья навек / Zai jian, Li Kele / So Long for Love (2023) WEB-DLRip [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в семье наступают непростые времена, на помощь приходит очаровательный щенок по кличке Кола. Новый друг способен вдохнуть жизнь и научить людей искренней любви и преданности.Производство: Китай / Matt Film, Asia Pacific National Film Cultural Media, Beijing DengfengЖанр: семейный, драмаРежиссер: Ван СяолеАктеры: Янь Ни, Тань Сунъюнь, Джеки У, Цзян Лун, Чжао Сяотан, Фэн Лэй, Ли Хучэн, Гао Лу, Госюн Ху, Лю ЯцзиньПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Английские, Китайские (hardsub)Продолжительность: 01:45:28Реклама: Присутствуют вставки аудио и видео рекламы.
-
-## Скачать торент
-```bash
-нет
 ```
 
 

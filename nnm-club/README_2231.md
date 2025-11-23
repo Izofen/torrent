@@ -6,7 +6,7 @@ Geekbench 6.3.0 Pro RePack (& Portable) by elchupacabra [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58371.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UltraUXThemePatcher 4.4.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58372.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Auslogics Video Grabber 1.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58373.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PowerISO 8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58374.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AA972061B80756D599E97692FDE7438162BD7610
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58375.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6602F5E8207BB3217096790BF32DA1958742FC4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58376.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:36DBA61C5522EDC931A6B068DF93E74EF1AA1F32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58377.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:989EF31E4DF143FC7BE8211CE293BFBB338F7718
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58378.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Весна на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58379.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F4B985A2640962E339D22D4CE367D494E31C9272
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58380.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5BF835AED126D29F84B79FFBE2795EEE056862A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58381.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:384D88B06BBD258169FB3FEA00F340342B9FE6ED
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58382.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58383.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A808C7C6EC7688ED03B4DB734DF01532C374F60A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58384.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ FCC восстанавливает правила в отношении сете
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58385.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ SIGERSHADERS XS Material Presets Studio 6.2.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58386.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:CD03E5BE4AED755652107EA7BBDBDF16029DE622
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58387.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:5BDD8879E8E2FACE43332613CCF63B9216721C82
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58388.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58389.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Rise of the Triad (2013) [En] (1.5.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58390.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Diluvian Winds (2023) [Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58391.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Carista OBD2 v8.4 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58392.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:9AE3A751F38541095901354EB0E72A99230D4209
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58393.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:4390C3EE2F9AD65F61C5C5D0144C24E2020E3C9C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58394.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:C7C17E7D20E64B2AF57CD3170BC699EE1AE91F32
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58395.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:DA0C60822CB32A08665BCC8F10150DCD1F69B35E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58396.jpg" />
 </div>
 
 

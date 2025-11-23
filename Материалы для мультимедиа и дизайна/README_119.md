@@ -1,3 +1,149 @@
+###  Публикация: 1828973   (199935) от 24.10.2025
+
+Иллюстрации - UI8 - Artificial Intelligence & Futuristic [AI, EPS, FIG, PNG, SVG, XD]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199935.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Искусственный интеллект и футуризм» — это набор уникальных иллюстраций, подходящих для любой ниши искусственного интеллекта. Идеально подходит для UI/UX-дизайна, презентаций, рекламы и многого другого.Формат: AI, EPS, FIG, PNG, SVG, XDРазрешение файлов: 10417x10417
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E04A829B0B78D3FEBEAB9E8D28598B2481521A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828841   (199972) от 24.10.2025
+
+Сборник - One Click Boutique - The Everything Bundle [PSD, PAT, ATN, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой сборник макетов, экшнов и прочих полезных инструментов для творческих задач.Формат: PSD, PAT, ATN, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8558479FE84363098CB2762E7F091366C2177086
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828843   (199985) от 24.10.2025
+
+Сборник - Pixelbuddha - 144 Dithering Bitmap Vector Shapes - 1440 [AI, EPS, PNG, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайте волю своему воображению с этими 144 универсальными растровыми и векторными фигурами, которые перенесут ваши проекты в мир научно-фантастического чуда. Их футуристический шарм добавит вашим проектам завораживающего измерения, наполнив их пленительной, потусторонней сущностью. От пикселизированных абстрактных форм до цифровых геометрических фигур — эти элементы (   Читать дальше...   )Формат: AI, EPS, PNG, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521DB0AD376359BB5765624A12013EB787A95F2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621514   (200848) от 25.03.2023
+
+Звуковые библиотеки - GNP Crescendo Records - Real Hollywood Sound Effects [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_200848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор эксклюзивных звуковых спецэффектов голливудского качества от Alan Howarth.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785845242A163E2329058C671B344D8EBF5CF281
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621086   (200851) от 23.03.2023
+
+3D модели - Kitbash3D - High Tech Streets [FBX, OBJ, MTL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_200851.jpg" />
+</div>
+
+
+###  Подробнее
+
+ОСВЕЩАЙТЕ ДОРОГИ ЗАВТРА
+Воплотите в жизнь свои яркие утопии и будущие развитые цивилизации с помощью высокоскоростной монорельсовой дороги, голографических панелей, застекленных башен, узлов связи, технологических камер, вакуумных капсул и многих других деталей и интерьеров из этого набора! Заполните улицы своей научной фантастикой, осветите дорожки своего высокотехнологичного (   Читать дальше...   )Формат: FBX, OBJ, MTL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307C7ECA2A2D08F52618E866E9C275F7DEF25DFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621090   (200864) от 23.03.2023
+
+3D модели - KitBash3D - Neo Shanghai [FBX, OBJ, MTL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_200864.jpg" />
+</div>
+
+
+###  Подробнее
+
+КИБЕРПАНК СТАЛ БОЛЬШЕ
+Создавайте мегаполисы будущего с отчетливой эстетикой киберпанка или азиатскими мотивами. Используйте маленькие, средние или большие городские кварталы, башни и массивные строения из этого набора, чтобы создавать колоссальные мегаполисы, которые затмят современный Шанхай!Формат: FBX, OBJ, MTL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFF212F641F80F1A7652562C629331D9B812B44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621083   (200865) от 23.03.2023
 
 3D материалы - Kitbash3D - OUTPOST [FBX, OBJ, MTL, BLEND]
@@ -6,7 +152,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200865.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200865.jpg" />
 </div>
 
 
@@ -31,7 +177,7 @@ magnet:?xt=urn:btih:726AB68EB0AE7B099A9F534500E67831C87A458D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200869.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200869.jpg" />
 </div>
 
 
@@ -56,7 +202,7 @@ magnet:?xt=urn:btih:CCC92A84474F3C029A7D66CC6600E5810F95606B
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200936.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200936.jpg" />
 </div>
 
 
@@ -80,7 +226,7 @@ magnet:?xt=urn:btih:415B95360F2B7E0B206F49081B5942C89CEFD390
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201622.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201622.jpg" />
 </div>
 
 
@@ -104,7 +250,7 @@ magnet:?xt=urn:btih:8ACC76B8DEE4A251BAF493B80B9A48925DC58B97
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201639.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201639.jpg" />
 </div>
 
 
@@ -128,7 +274,7 @@ magnet:?xt=urn:btih:7BE6D2528C216B943729346D9019221A3D5A56AD
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201645.jpg" />
 </div>
 
 
@@ -152,7 +298,7 @@ magnet:?xt=urn:btih:0A46805EED7A13043172D6D053BBA0E99CBA0DC1
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201667.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201667.jpg" />
 </div>
 
 
@@ -176,7 +322,7 @@ magnet:?xt=urn:btih:D70E712D9ED36CA940D6867600A3FC83A13FE086
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201747.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201747.jpg" />
 </div>
 
 
@@ -200,7 +346,7 @@ magnet:?xt=urn:btih:2B7A2E80565CEA02D80DD535DBFD3C8702F95343
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201835.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201835.jpg" />
 </div>
 
 
@@ -224,7 +370,7 @@ magnet:?xt=urn:btih:24F24C54579A63FCFC450D2D4DE4D761DCDDAD5D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201845.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201845.jpg" />
 </div>
 
 
@@ -248,7 +394,7 @@ magnet:?xt=urn:btih:EFF43EB40AA665F7F2625356B99D317DCA909EC1
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201885.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201885.jpg" />
 </div>
 
 
@@ -272,7 +418,7 @@ magnet:?xt=urn:btih:C9602DA7A5DA2D9C9E2F731B06160D473EE5134C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201891.jpg" />
 </div>
 
 
@@ -296,7 +442,7 @@ magnet:?xt=urn:btih:948FED53E4E8EB2940CF3377A18BE21702A72B65
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201939.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201939.jpg" />
 </div>
 
 
@@ -320,7 +466,7 @@ magnet:?xt=urn:btih:B146B4473CA2755E989810187A5F6AEA1526CCEB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202111.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202111.jpg" />
 </div>
 
 
@@ -344,7 +490,7 @@ magnet:?xt=urn:btih:228CEC506F90045F88931682280BCC961D8DB604
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202164.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202164.jpg" />
 </div>
 
 
@@ -368,7 +514,7 @@ magnet:?xt=urn:btih:2950E39A89070DE03E62064D1CAB39725AF48EB8
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202188.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202188.jpg" />
 </div>
 
 
@@ -392,7 +538,7 @@ magnet:?xt=urn:btih:54793DE83BE5611AA37EECF13125AFE39668B5C4
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202205.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202205.jpg" />
 </div>
 
 
@@ -416,7 +562,7 @@ magnet:?xt=urn:btih:8EB871F48A7E0284FB9C4A435C3097C3BAC53626
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202379.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202379.jpg" />
 </div>
 
 
@@ -440,7 +586,7 @@ magnet:?xt=urn:btih:AF42ABF600EFCAAA99E2079BAA721AAC65A270EE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202389.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202389.jpg" />
 </div>
 
 
@@ -464,7 +610,7 @@ magnet:?xt=urn:btih:9DC874176BAFD684748B7035A1DC1B7219B388AB
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202412.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202412.jpg" />
 </div>
 
 
@@ -477,152 +623,6 @@ magnet:?xt=urn:btih:9DC874176BAFD684748B7035A1DC1B7219B388AB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F69A8CC27EBF07C7D2392634130309D2BFE1813C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830131   (202414) от 26.10.2025
-
-Ui Kits - UI8 - Convert [PDF]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Convert — это шаблон сайта, ориентированный на конверсию, для SaaS- и технологических стартапов. Он включает в себя 10 уникальных страниц и 5 CMS-коллекций для удобного управления контентом. Начните конвертировать посетителей сайта в клиентов с помощью этого шаблона Framer.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9E4771677D216550491946FAFE182CB4CD734A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830127   (202418) от 26.10.2025
-
-3D print - Zenith Studios - Dexter Morgan [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляните на новейшую коллекционную фигурку Zenith с помощью этой эксклюзивной модели вдохновленной неким экспертом-криминалистом, хранящим темную тайну.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB57DDA1AA92C8C1BC43238D9F8F800DB456AB94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830095   (202430) от 26.10.2025
-
-Растровый клипарт - Adobe Stock - Steampunk Heroine [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202430.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 стоковых изображений героини в стиле стимпанк.Формат: JPGРазрешение файлов: 2403x3600 - 4912x7360
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AE471BD505009E3CE89DE214A6721FA2E38559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830028   (202451) от 26.10.2025
-
-Звуковые библиотеки - BOOM Library - Cinematic Motion [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не позволяйте вашим фильмам и видеопроектам звучать неподвижно или безжизненно, вдохните в них движение и энергию с CINEMATIC MOTION . Передовая библиотека звуковых эффектов, созданная для того, чтобы ваша аудитория почувствовала динамику, темп и кинематографическую мощь вашего проекта . CINEMATIC MOTION — это звуковая библиотека, созданная для того, чтобы вывести (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D38FF4857427C26C529412D3737BA419F525F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830022   (202457) от 26.10.2025
-
-Пресеты - Pat Kay - The Complete Collection - Adobe Lightroom Preset Pack [XMP, DNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202457.jpg" />
-</div>
-
-
-###  Подробнее
-
-56 профессиональных пресетов Adobe Lightroom для любого стиля фотографии.
-
-Бонусом к пресетам к комплекту также идет набор мобильных обоев из авторских снимков.Формат: XMP, DNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A857FC094308C7507A0F70F07D17E66A179F01D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608127   (203152) от 03.02.2023
-
-Плагин-панели скриптов - Brusherator for Photoshop 1.8 [ZXP, JSX, EXE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brusherator - это плагин, представляющий из себя систему из нескольких панелей и скриптов, которая позволит вам работать с высокой эффективностью и скоростью. Это не менеджер кистей для ваших инструментов, который предоставит вам все инструменты, которые у вас есть, а скорее - настраиваемый хирургический стол, когда у вас есть все инструменты, необходимые для конкретной (   Читать дальше...   )Формат: ZXP, JSX, EXE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680C8A49561E1B6C34E981F5C812D795F4926258
 ```
 
 

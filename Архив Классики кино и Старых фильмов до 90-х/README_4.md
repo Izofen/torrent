@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129703.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ABB115062EE19A9F9A9E8811FD5AFBE87E838BC7
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130479.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1809A99B276C7BDE44E2D84D701BBA984C05F956
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131963.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F96840165C5840C6FF41B8ADEE80A9D42876A129
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133480.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DCF252E8BD2BA6B6B8D3C012BCF3DC4AC2B18334
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133555.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DCF252E8BD2BA6B6B8D3C012BCF3DC4AC2B18334
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133566.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:437B8FAD435830C238E60EB3DE0DDF373272F414
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133572.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:06CAC60FD0EEAB8FA88B010A283385CF27588102
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146324.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:F54C8BC1398879887BCD6218EE316023127CDF32
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151767.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F54C8BC1398879887BCD6218EE316023127CDF32
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152029.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6808DA06ED72D310E68559AAB0A007495BF1B36C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157340.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9495A8824F79FFF049BFECE07354C23D05D233CB
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158357.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:AEBFEBD7F6FF5FC7CF597A1EF28CCC5356333382
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167860.jpg" />
 </div>
 
 
@@ -316,6 +316,30 @@ magnet:?xt=urn:btih:A290E1ED668E60BAE802B5FAD41443A23E2EE0C8
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 135582   (168591) от 19.10.2025
+
+Приказ: огонь не открывать (1981) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_168591.jpg" />
+</div>
+
+
+###  Подробнее
+
+1941. В первые дни Великой Отечественной войны батальон советских солдат занимает позицию на одном из участков восточной границы. Четвертый год солдаты несут службу на этих рубежах. Но даже находясь вдали от активных военных действий, они понимают: смертельная опасность – где-то рядом, и может возникнуть каждую минуту. Японские милитаристы устраивают провокации, (   Читать дальше...   )Жанр: Военный, драмаРежиссер: Юрий Иванчук, Валерий ИсаковАктеры: Владлен Бирюков, Николай Иванов, Александр Потапов, Александр Силин, Евгений Герасимов, Виктор Незнанов, Эрнст Романов, Наталья Егорова, Николай Гринько, Сергей Сазонтьев, Раджаб Адашев, Вадим Захарченко, Игорь Пушкарев, Алексей СафоновПеревод: ОригинальныйПродолжительность: 1:27:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429618   (175718) от 07.12.2020
 
 Ярость зверя (Первобытная ярость) / Rage, furia primitiva (Primal Rage) (1988) BDRip [H.264] [AVO] [PR]
@@ -324,7 +348,7 @@ magnet:?xt=urn:btih:A290E1ED668E60BAE802B5FAD41443A23E2EE0C8
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175718.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175718.jpg" />
 </div>
 
 
@@ -340,6 +364,30 @@ magnet:?xt=urn:btih:D765C7E6BFF31320DC0B581472B297379AC7054A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427799   (181434) от 30.11.2020
+
+Джамиля (1968) DVDRip [H.264]
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в далеком киргизском аиле во время Великой Отечественной войны. Молодая солдатка Джамиля полюбила Данияра, проживающего в их ауле раненого фронтовика. Ее чувство находит отклик в сердце Данияра. Но неожиданно для себя Джамиля получает письмо от мужа, в котором тот пишет, что вскоре вернётся домой из госпиталя. Это известие заставляет влюблённых (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Драма, мелодрама, военныйРежиссер: Ирина ПоплавскаяАктеры: Наталья Аринбасарова, Сюйменкул Чокморов, Насредин Дубашев, Алиман Джангорозова, Алтынбек Кенжеков, Мухтар БахтыгиреевПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318E15DEA6365FE94F8E05F53FA4E7DADD38E7A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588006   (191978) от 02.11.2022
 
 Как преуспеть в делах, когда ты дурак и плакса / Comment reussir... quand on est con et pleurnichard (1974) BDRip [H.264]
@@ -348,7 +396,7 @@ magnet:?xt=urn:btih:D765C7E6BFF31320DC0B581472B297379AC7054A
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191978.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191978.jpg" />
 </div>
 
 
@@ -372,7 +420,7 @@ magnet:?xt=urn:btih:117046B53E691D292AE937DC06BBA7CDD3B62BA4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211372.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211372.jpg" />
 </div>
 
 
@@ -396,7 +444,7 @@ magnet:?xt=urn:btih:EFCD0CDB7A80291810663CF685537DB7DDDECD66
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218942.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218942.jpg" />
 </div>
 
 
@@ -420,7 +468,7 @@ magnet:?xt=urn:btih:2DD102EEE6699171043C19483DAB35E9D6CD4056
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220508.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220508.jpg" />
 </div>
 
 
@@ -444,7 +492,7 @@ magnet:?xt=urn:btih:E744EA8ECD995006026618522C185E033B7C8529
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222316.jpg" />
 </div>
 
 
@@ -469,7 +517,7 @@ magnet:?xt=urn:btih:C2C4938DB2DC5E4D38FFCD70682FE79853FCB1DD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225534.jpg" />
 </div>
 
 
@@ -493,7 +541,7 @@ magnet:?xt=urn:btih:A62800ED53CD70E19812C03C0813AE6D2453282F
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225835.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225835.jpg" />
 </div>
 
 
@@ -517,7 +565,7 @@ magnet:?xt=urn:btih:12B5D31F41E25D69ED517B427349AEE520CAAD66
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228879.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_228879.jpg" />
 </div>
 
 
@@ -543,7 +591,7 @@ magnet:?xt=urn:btih:45BB353765A0E164524BFEB5CC8B9ACFFD5C8217
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229630.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229630.jpg" />
 </div>
 
 
@@ -567,7 +615,7 @@ magnet:?xt=urn:btih:C07E2C80900027366F20BCEE9E57E89C5E200E48
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_246419.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_246419.jpg" />
 </div>
 
 
@@ -578,58 +626,6 @@ magnet:?xt=urn:btih:C07E2C80900027366F20BCEE9E57E89C5E200E48
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491860   (246522) от 04.05.2012
-
-Бандолеро! / Bandolero! (1968) [720p] BDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дерзких контрабандистов и отважных бандолеро, мексиканские простолюдины считают лицами поэтическими. Ди - крепкий парень вне закона. Он со своим приятелем решает ограбить банк в маленьком техасском городке. Во время налета в перестрелке один из них убивает богатого владельца местного ранчо. Полиция арестовывает грабителей и приговаривает их к смертной казни через повешение.
-
-Узнав о случившимся брат Ди, с намерением освободить «бригаду», прибывает в город под видом палача. При побеге они берут в заложники девушку по имени Мария. Шериф этого городка Джонсон клянется во чтобы-то ни стало поймать преступников и бросается в погоню.
-
-Номексиканское солнце улыбается не всем. Когда до границы остается буквально полмили, путь беглецам преграждает шайка жестоких мексиканских бандолеро...Жанр: боевик, драма, мелодрама, криминал, вестернРежиссер: Эндрю В. МакЛагленАктеры: Джеймс Стюарт, Дин Мартин, Рэкел Уэлч, Джордж Кеннеди, Эндрю Прайн, Уилл Гир, Клинт Ричи, Денвер Пайл, Том Хитон, Руди ДиасПеревод: Многоголосый закадровыйПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE87A628591AAE4CAF5A7E0AFE07DCF1A9EFA2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491544   (248009) от 05.05.2012
-
-Холокост 2000 / Дождь огня / Holocaust 2000 / Rain of Fire (1977) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеалистически настроенный президент крупной атомной корпорации Роберт Кейн терпит поражение в борьбе с собственным сыном Энджелом за право руководить предприятием. Энджел стремится быстрее осуществить варварский проект, ибо он — пришедший на землю Антихрист.Жанр: Триллер, Драма, ФантастикаРежиссер: Альберто Де МартиноАктеры: Кирк Дуглас, Саймон Уорд, Агостина Белли, Энтони Куэйл, Вирджиния МакКенна, Спирос Фокас, Иво Гаррани, Александр Нокс, Адольфо Чели, Ромоло ВаллиПеревод: Одноголосый закадровыйПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9CC811539C7CCADF0DFDB9E8DE63481503F152
 ```
 
 

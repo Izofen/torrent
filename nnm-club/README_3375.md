@@ -1,3 +1,80 @@
+###  Публикация: 1732670   (107432) от 26.06.2024
+
+Louis Prima - 1937 - 1939 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fifty Second Street [2:50]
+02. The Love Bug Will Bite You [3:07]
+03. I Just Can't Believe You're Gone [2:35]
+04. Rhythm on the Radio [2:34](   Читать дальше...   )Жанр: SwingПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D11C50DAD5DE633201F56222E49E8120A80BF79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732752   (107433) от 26.06.2024
+
+Народ | Сказки и потешки для самых маленьких (2010) [MP3, Александр Бордуков, Вениамин Смехов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература (ИД СОЮЗ).
+С детской сказки начинается знакомство ребёнка с миром литературы, человеческих взаимоотношений и миром в целом. Данный сборник призван сделать это знакомство легким и приятным. Всем известные и любимые с детства персонажи сказок и потешек не только развлекут вашего малыша, но и станут его первыми друзьями на пути к взрослой (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAC09B595E7486CF01CCE42C77FDE68761651D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732790   (107434) от 26.06.2024
+
+Копенгаген ночью / Kobenhavn ved Nat (1910) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре семейные пары собрались в театр. Но мужья опоздали к началу. Не нарочно. И вот жены в театре, а у мужей свободный вечер... Куда они пойдут? Все мужчины, во все времена в целом одинаковы... :) Одно плохо - наступит утро следующего дня.
+И обратите внимание на "Танец ящериц" - это же просто рок-н-ролл какой-то! И это в 1910 году.Производство: Дания / BioramaЖанр: короткометражный, комедия, немое киноРежиссер: Карл АльструпАктеры: Фредерик Дженсен, Оскар Стриболт, Лауриц Олсен, Emilie Sannom, Карл Альструп, Magna Redøhl, Mathilde Felumb Friis, Виктория Петерсен, Карл Петерсен, Agnes LorentzenПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA26989B4713BF92D5167714C16BF1F2A33A65C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732741   (107435) от 26.06.2024
 
 Sumac - The Healer (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, Post-Metal>
@@ -6,7 +83,7 @@ Sumac - The Healer (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107435.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Red Norvo And His Orchestra - 1936 - 1937 (2000) Classics [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107436.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ magnet:?xt=urn:btih:B56C868BCDECB0FC525ADF54FBFA204256CEFCA3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107437.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:663DA9E90960D6A1FB8BCB9C3BBF6429F550EEE7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107438.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ magnet:?xt=urn:btih:644DC045FFFB7A4E0C3EBA7ACBCB9280CD477323
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107439.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ Zampolit | Рождение империи (Книга 2).  Полудержав
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107440.jpg" />
 </div>
 
 
@@ -158,7 +235,7 @@ magnet:?xt=urn:btih:D77B0CE0D923583E4E7EA7982BD0503322AFC8DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107441.jpg" />
 </div>
 
 
@@ -182,7 +259,7 @@ magnet:?xt=urn:btih:611678DF81C9C4089CB6F7D548DE5CC61B45011D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107442.jpg" />
 </div>
 
 
@@ -206,7 +283,7 @@ magnet:?xt=urn:btih:7DD7FED2B925C17DC97943CD020FFD9EE4EA8341
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107443.jpg" />
 </div>
 
 
@@ -230,7 +307,7 @@ magnet:?xt=urn:btih:53000697912134763F5131D98163F5B9C71A91E8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107444.jpg" />
 </div>
 
 
@@ -254,7 +331,7 @@ Firefox Browser 127.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107445.jpg" />
 </div>
 
 
@@ -278,7 +355,7 @@ Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107446.jpg" />
 </div>
 
 
@@ -305,7 +382,7 @@ magnet:?xt=urn:btih:F888C9B6AC97AA51F2438B2218F04DE7D3827702
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107447.jpg" />
 </div>
 
 
@@ -332,7 +409,7 @@ magnet:?xt=urn:btih:76E898EB5B5D6839ED61C0C05B3A7EB953E691C8
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107448.jpg" />
 </div>
 
 
@@ -359,7 +436,7 @@ magnet:?xt=urn:btih:5F0AFC34AB2C15FDBDFCE68070FC0AFCAB6B9A7C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107449.jpg" />
 </div>
 
 
@@ -384,7 +461,7 @@ Terence Fixmer - The Paradox In Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <i
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107450.jpg" />
 </div>
 
 
@@ -411,7 +488,7 @@ VA - DJ Hits Vol. 110 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107451.jpg" />
 </div>
 
 
@@ -438,7 +515,7 @@ Motor Gypsy - Motor Gypsy II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107452.jpg" />
 </div>
 
 
@@ -465,7 +542,7 @@ MaxX & Love - These Blues Might Get You Too (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107453.jpg" />
 </div>
 
 
@@ -492,7 +569,7 @@ John Vlasic - After the Sunset (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107454.jpg" />
 </div>
 
 
@@ -519,7 +596,7 @@ Lester Young With Count Basie - Classic Columbia, Okeh And Vocalion (1936 - 1940
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107455.jpg" />
 </div>
 
 
@@ -546,7 +623,7 @@ Bottenhavet - Ljud i Tysta Rum (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107456.jpg" />
 </div>
 
 
@@ -573,7 +650,7 @@ Mass Infection - Shadows Became Flesh (2018) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107457.jpg" />
 </div>
 
 
@@ -587,87 +664,6 @@ Mass Infection - Shadows Became Flesh (2018) [FLAC|Lossless|image + .cue] <Bruta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A2A6F2BE9C4C04390E7D431C9FCD5A19BE0852
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732523   (107458) от 25.06.2024
-
-Mordaza - El orden del caos (2020) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Hedor De La Inmundicia
-02. Amok
-03. Toro De Falaris
-04. Necropsia(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38CF5762E21A42369F4C2A232AFE3E9E1FE68FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732471   (107459) от 25.06.2024
-
-Leonardo979 - Overdrive Motel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive Motel (3:27)
-02. Limo Voodoo (3:28)
-03. Loser (3:37)
-04. By This River (5:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94C48E9C729C56E1996C660B98B7055B390692A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732491   (107460) от 25.06.2024
-
-Helen Humes - 1948 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Out for Tears [3:19]
-02. Married Man Blues [3:14]
-03. Somebody Loves Me [2:27]
-04. Don't Fall in Love with Me [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79019371A894BA0BACBA1D937F8D8FDD568B2674
 ```
 
 

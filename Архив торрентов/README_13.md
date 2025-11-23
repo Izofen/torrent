@@ -6,7 +6,7 @@ OCCT 14.2.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8130.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.12 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8135.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MediaHuman YouTube Downloader 3.9.16 (1208) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8148.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ XnView MP 1.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8154.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6216 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8157.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:15618B6C6D4BE898DF5FEACEAE97F01C75A72646
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8163.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Proton VPN 5.3.81.321 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8166.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8181.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:18E0CD5BBB5ED4FF2A8816F2364BD7E9E51796C1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8189.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Freemake Video Converter 5.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8291.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Notepad++ 8.8.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8300.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Bandicam 8.2.0.2523 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8301.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TechSmith Snagit 25.3.0 build 7627 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8304.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ K-Lite Codec Pack 19.1.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8310.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (12.08.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8327.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Flyoobe 1.0.104 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8328.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:37A21DA60EC144B7DD71CA59DAEB0BCC380DE0CC
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8335.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Animal Planet: Cинее царство (Лазурная страна). Аку�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8343.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:F7F1B8647AE9D8A4D9BD4F18EDAB444280D947D9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8348.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bandicam 8.2.0.2523  RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8450.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Allavsoft Video Downloader Converter 3.28.2.9340 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8453.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ StaxRip 2.48.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8462.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Native Instruments - Kontakt 8.6.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8466.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ FreeTube 0.23.6 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8473.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ AIMP 5.40.2690 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8486.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:346990F5B0E8B3538DF559E867ADAFACB0CF3629
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8644.jpg" />
 </div>
 
 

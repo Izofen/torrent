@@ -1,3 +1,77 @@
+###  Публикация: 1410718   (238528) от 29.04.2022
+
+Медиатека: молитвы, библия, евангелие, требы v1.2.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушать и читать Православную литературу с текстовой синхронизацией. Молитвослов, библия, евангелие, песнопения, акафисты, православные аудиокниги, молитвы. Слушайте 7 дней бесплатно! Читайте бесплатно всегда! Заказывайте Требы во многие храмы и монастыри прямо из приложения. Создано по благословению протоиерея Андрея Лемешонка.Тип издания: Пиратка / UnlockedРелиз состоялся: 27 апреля 2022 г.Разработчик: Audiolitera.ruПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E426F9476B3CA168E35703CB16EE6B169E332080
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572472   (238863) от 27.08.2022
+
+AntiBAG Тахограф 2.0.108 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тахограф в кармане!Тип издания: PaidРелиз состоялся: 19 июл. 2022 г.Разработчик: ZlojDalnoboy.PLПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D841DC156CAE2B20CDAB042C59D4B585ECA18F89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572653   (238896) от 27.08.2022
+
+Learn English - 6000 Essential Words 4.1.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстро пополняйте свой словарный запас с помощью самого эффективного метода: метода визуальной памяти с картинками и карточками.
+
+Это приложение подходит для начинающего, среднего и продвинутого уровней с более чем 6000 слов с картинками и произношением носителей языка. 10 основных тем, разделенных на 145 уроков со словарем по различным темам, значительно обогатят (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22 авг. 2022 г.Разработчик: PORO ENGLISHПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2042236FA0A9B200FC97B9F4CD86F9A255DDCCB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452773   (239625) от 24.04.2022
 
 CamSam PLUS v3.7.7 [Ru]
@@ -6,7 +80,7 @@ CamSam PLUS v3.7.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239625.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239625.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ ReVanced YouTube Music 5.17.51 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240089.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240089.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ FullReader - читалка всех форматов книг v4.3.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241262.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241262.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ magnet:?xt=urn:btih:CE5774CFFD74FBDE088943EAB117E23675716F10
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241609.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241609.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ GPS Waypoints Navigator v9.24 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241889.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241889.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242224.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242224.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ Camera Pro 3.4.0 Mod by vitaxa978 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242560.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242560.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ Gismeteo Lite 1.1.6 Mod by artpen, Grisha180288, Digika [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242666.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242666.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ Joy Walls - 4k Wallpapers App v1.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243216.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243216.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ Aurora Store 4.1.1 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243350.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243350.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ KinoHome 1.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243903.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243903.jpg" />
 </div>
 
 
@@ -276,7 +350,7 @@ Xmind: Mind Map & Brainstorm 1.9.7 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244143.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244143.jpg" />
 </div>
 
 
@@ -300,7 +374,7 @@ magnet:?xt=urn:btih:ED2B10C298F77C3A8EDFA6EEEF7F5EA9292A4D04
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244447.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244447.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ Wall Factory v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244666.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244666.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ Strava: бег и велоспорт 264.11 Lite-Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245298.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245298.jpg" />
 </div>
 
 
@@ -375,7 +449,7 @@ Colorize Images v4.0.27 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245815.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245815.jpg" />
 </div>
 
 
@@ -399,7 +473,7 @@ Hawk Map Pro v2.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246909.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246909.jpg" />
 </div>
 
 
@@ -424,7 +498,7 @@ GPS АнтиРадар v37.0  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246953.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246953.jpg" />
 </div>
 
 
@@ -448,7 +522,7 @@ magnet:?xt=urn:btih:C4CF45E744D24A0F0406455EBE4BBA17253EF56A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246967.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246967.jpg" />
 </div>
 
 
@@ -473,7 +547,7 @@ Kinoplay - просмотр фильмов онлайн 0.1.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247335.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247335.jpg" />
 </div>
 
 
@@ -497,7 +571,7 @@ magnet:?xt=urn:btih:4763AD780FDD7C04157DD3EEB52FB282BCCAECC6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247381.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247381.jpg" />
 </div>
 
 
@@ -524,7 +598,7 @@ magnet:?xt=urn:btih:32DC2DE2795BED842E384B7B7E92027277514DF8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247438.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247438.jpg" />
 </div>
 
 
@@ -551,7 +625,7 @@ magnet:?xt=urn:btih:664B8E29E175BB2F86D5B5B9C9E8B36BF60B6855
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247583.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247583.jpg" />
 </div>
 
 
@@ -562,79 +636,6 @@ magnet:?xt=urn:btih:664B8E29E175BB2F86D5B5B9C9E8B36BF60B6855
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:308A529EEBF4EA612BA1B39E8FCFBC6905D68149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456369   (247706) от 08.06.2023
-
-Русский самогон 2 v5.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширенная версия приложения "Русский самогон".
-Основные выполняемые функции:Тип издания: Купленная версия с Маркета (Paid) и FreeРелиз состоялся: 13.02.2023Разработчик: Roma ShilovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D85A2E3922D76A4E0AE816BC600256954AE987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440191   (247754) от 06.06.2023
-
-Colorize it v2.1.1 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои старые черно-белые фотографии, раскрасив их с помощью искусственного интеллекта! "Colorize it" - это приложение, которое использует нейронные сети и методы искусственного интеллекта для автоматической раскраски изображений в оттенках серого. Он отлично работает со всеми типами фотографий: полностью полутоновыми, тонированными сепией, частично (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 16.05.2023Разработчик: reAImagineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833985   (247813) от 02.11.2025
-
-AI Photo Editor Pro - Polish v1.685.235 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоторедактор - коллаж фото предлагает все, что вы хотите редактировать арт фото. Множество стильных эффектов, фильтров, монтаж, сеток и удаление объектов помогут вам создать привлекательный рисования, даже если вы никогда не редактировали фотографию раньше. превратить ваши фотографии в настоящие произведения искусства в стиле аниме с Аниме фото функция. Мультяшные (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.11.2025Разработчик: InShot Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319B31A1053866BAA5CB02E8F67FBF53D055C07D
 ```
 
 

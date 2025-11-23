@@ -6,7 +6,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Repack Other s [Ultimate Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37247.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Download Master 7.1.3.1733 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37248.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:021AD7A253320F78548D2634759CFB6F8FFD140D
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37249.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0AB91CB0B11F1EA7AAF21D4D5CDBF5EC80C54CAE
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37250.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A4B254D6C46F995201C6562D5AD199D7127EA67E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37251.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ S.T.A.L.K.E.R. 2 подошел к запретной зоне
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37252.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ S.T.A.L.K.E.R. 2 подошел к запретной зоне
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37253.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ art of rally (2020) [Ru/Multi] (1.5.7/dlc) License GOG [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37254.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A7A7D5B3064CF05A1FAAC0665B9BABC3629D085D
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37255.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:84FF74AAD1571D75E5F2A444509A228C8BF54331
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37256.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:EDB4A19D9EF8AEC2D5D43B05033E1B9734B9FD12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37257.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:EDB4A19D9EF8AEC2D5D43B05033E1B9734B9FD12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37258.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:EDB4A19D9EF8AEC2D5D43B05033E1B9734B9FD12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37259.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:EDB4A19D9EF8AEC2D5D43B05033E1B9734B9FD12
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37260.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:08666F85530F4C69BB9EF899D59D28E69AC11FF3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37261.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:9BBF39A831C4E618B441111E3D682D6E46D31F9B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37262.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Millennia (2024) [Ru/Multi] (1.0.22991.F/dlc) Repack FitGirl [Premium Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37263.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:1737E74368D90E375814B2A13DD825C01B741935
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37264.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:C480604066BC83D4C8839D697CAA2A9FE1F0C6C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37265.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:C480604066BC83D4C8839D697CAA2A9FE1F0C6C4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37266.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:BA4873FA13BE5DD096C9B4C75FB8D0E7030FE2C1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37267.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:1715E223C620283D8E4FB4742ED75E98B47DBBE0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37268.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Grey Attack - Back to Greysland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37269.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Eden weint im Grab - Reliquiem (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37270.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Trapeze - Lost Tapes, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37271.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Gauntlet Rule - After the Kill (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37272.jpg" />
 </div>
 
 

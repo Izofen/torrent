@@ -6,7 +6,7 @@ VA - Top 100 Best Bass House '19 (Part 1) (2019) [MP3|320 Kbps] <House, Future H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170146.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Trance Dance 2022 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170310.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170330.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Uplifting Only Top 10: October 2023 (2023) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170408.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Silent Shore Trance - Essential Classics Vol. 3 (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170434.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - A Strangely Isolated Place 2019 (2019) ASIP [FLAC 2.0|44.1/24|tracks|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170438.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Levitated - Trance Essentials Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170455.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Merry Christmas/Dance Music Party (2019) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170468.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ DJ Shadow - Our Pathetic Age (2019) 2CD [FLAC|Lossless|tracks + .cue] <Trip Hop,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170556.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Exos - Green Beat (2019) X/OZ Music [FLAC|Lossless|WEB-DL|tracks] <Techno, Minim
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170660.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Mansur - Karma (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Darkjazz, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170895.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Pan Sonic (Pan-Sonic, Panasonic, Pansonic, Rude Mechanic) - Discography 29 Relea
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170923.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ P.H.A.T.T. - P.H.A.T.T. (2011) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171401.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - ADE 2023 [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171430.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Trance: The Vocal Session 2024 Playlist by ZYX Music! (2023) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171697.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Lounge Sex Tribal Ethnic Sensual Atmospheres, Sounds for Sex (2023) [MP3|32
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171706.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Trance: The Vocal Session 2024 Playlist by ZYX Music! (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171717.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Vorso - Holonomy (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Dubstep, Bre
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171723.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Roger Shah - Magic Island Vol. 12 (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171735.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Trance: The Vocal Session 2024 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172100.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Lost Engineer - Antigravity (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172105.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172113.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Volkor X - The Loop (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172116.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - 10 Years Of Suanda Music - Mixed by FEEL (2023) [MP3|320 Kbps] <Trance, Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172123.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Cosmic Gate - Mosaiik Chapter One and Two (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172284.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Electronic Elements - Amsterdam 2023 [MP3|320 Kbps] <House, Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172321.jpg" />
 </div>
 
 

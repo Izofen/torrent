@@ -1,3 +1,78 @@
+###  Публикация: 1703966   (114660) от 02.03.2024
+
+С богами: Последние 49 дней / Singwa hamkke: ingwa yeon / Along With the Gods: The Last 49 Days (2018) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший мстительный призрак Ким Су-хон предстаёт перед королём Подземного мира, и ангел смерти Кан-ним просит для него прохождение обычной процедуры — он уверен, что сможет убедить судей в невиновности своего подопечного. Король соглашается, но ставит условия: в течение 49 дней ангелы должны вознести душу старика Хо, чьё земное время давно истекло, и доказать невиновность (   Читать дальше...   )Производство: Корея Южная / Dexter Studio, Realies PicturesЖанр: фэнтези, приключения, драма, детективРежиссер: Ким Ён-хваАктеры: Ха Джон-у, Чу Джи-хун, Ким Хян-ги, Ма Дон-сок, Ким Дон-ук, Ли Джон-джэ, Чо Хан-чхоль, Лим Вон-хи, Ким Мён-гон, Чон Ю-анПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0D77DDE4CD3FA5966D7C44371A3B577E3D0BB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703870   (114661) от 02.03.2024
+
+Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MAD (2:47)
+02. Mirrors (3:42)
+03. 81 Special (3:56)
+04. Raccoons (3:28)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2FEE7616D857E139316C83A0F068914327FA7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703947   (114662) от 02.03.2024
+
+Жизнь Мухомацу / Muhomatsu no issho / Muhomatsu, the Rikshaw Man (1958) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по роману Сюнсаку Иваситы «Жизнь Мацу Неприрученного»... Конец XIX - начало XX века. Жил в городе Куруме рикша по имени Мацугоро. Был он озорной, весёлый, смелый, никому ничего не уступал, не прощал никаких обид. За грубость и озорство его прозвали «Неприрученным». Все его побаивались, но и уважали за справедливость и доброту. Однажды Мацугоро увидел, как ребятишки (   Читать дальше...   )Производство: Япония / Toho CompanyЖанр: драма, комедияРежиссер: Хироси ИнагакиАктеры: Тосиро Мифунэ, Хидэко Такаминэ, Хироши Акутагава, Тисю Рю, Тёуко Иида, Харуо Танака, Дзюн Татара, Кэндзи Касахара, Каору Мацумото, Нобуо Накамура, Ичиро Аришима, Тиэко Накакита, Сэйдзи Миягути, Бокудзэн Хидари, Кокутэн КодоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (borysd и Сергей О.Яковлев), английскиеПродолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879C7EFD03B3FD218267C9CB44CE93B0944DC394
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703915   (114663) от 02.03.2024
 
 VA - Андрей Петров - Музыка из к/ф "Жестокий романс" (1985) [FLAC 24/192|Lossless|tracks] <Soundtrack, Folk>
@@ -6,7 +81,7 @@ VA - Андрей Петров - Музыка из к/ф "Жестокий ро�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114663.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:8CE9793F36D1E7AD68ED27AB1BC3A21A29DE0531
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114664.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:AE03BA2F98CE81DC8A1630189501E6FD45D55D39
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114665.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ VA - Trance Party 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114666.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ magnet:?xt=urn:btih:9C8BF9CFE685E7196E0BFEB6EF49CA67DA18EA44
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114667.jpg" />
 </div>
 
 
@@ -138,7 +213,7 @@ magnet:?xt=urn:btih:AFF0CCAE4B76990F5DB83D1E89D9B6854CC6584E
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114668.jpg" />
 </div>
 
 
@@ -164,7 +239,7 @@ Calibre 7.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114669.jpg" />
 </div>
 
 
@@ -188,7 +263,7 @@ VA - The Metal Griffin (2024) [MP3|320 Kbps] <Metal, Hard, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114670.jpg" />
 </div>
 
 
@@ -215,7 +290,7 @@ magnet:?xt=urn:btih:A980B273C7D5E475767EF5B022FAE6A4E3FBF644
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114671.jpg" />
 </div>
 
 
@@ -239,7 +314,7 @@ Sumatra PDF 3.6.15974 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114672.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ magnet:?xt=urn:btih:F8F488747C31F1ABDBB6DDE83AF3DF0117F7B3B5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114673.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ HiPER Calc Pro (Scientific Calculator) 10.4.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114674.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ magnet:?xt=urn:btih:56A98E4247716FE6193E49B165483586E03DB547
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114675.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ FinePrint 11.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114676.jpg" />
 </div>
 
 
@@ -364,7 +439,7 @@ magnet:?xt=urn:btih:8B6D025377FF1E46AA603EDF9A046DC0A00AD172
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114677.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ magnet:?xt=urn:btih:B7AF8DDD6D4E0BD2C8F370D00C98C8F8F4935260
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114678.jpg" />
 </div>
 
 
@@ -412,7 +487,7 @@ magnet:?xt=urn:btih:1EE9A71892FE465609BC4FBB8B73AA7AEF8C2B94
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114679.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ magnet:?xt=urn:btih:4ACFECE56DDD6EAA6ED1F8B396AD21F41C329DFE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114680.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114681.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ magnet:?xt=urn:btih:A5DBA3E47F0A8CACA268CD1A66D0A30400877F92
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114682.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ magnet:?xt=urn:btih:8AAE1D1765C69753D82467FD3910242F142BBF64
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114683.jpg" />
 </div>
 
 
@@ -538,7 +613,7 @@ magnet:?xt=urn:btih:A1C6EBC648D6F8A0B927F43108486A062004A27E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114684.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ magnet:?xt=urn:btih:6C9A263166C5AC94561F3D584D2DE5ECA3915C9B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114685.jpg" />
 </div>
 
 
@@ -576,81 +651,6 @@ magnet:?xt=urn:btih:6C9A263166C5AC94561F3D584D2DE5ECA3915C9B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02174CBA884FE9FA9AF74ADDAE8EF2776CE88542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703979   (114686) от 02.03.2024
-
-VA - Mandarin Chill Out, Vol. 4 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sami Sivananda - Buddha Life (3:49)
- 02. Lounge Groove Avenue - Next To The Sun (4:20)
- 03. Peter Pearson - Waiting For The Right Time (5:14)
- 04. Eskadet - Te Revoir (6:38)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA32FC1A52677B4F91E6B8D91C4496950F1109C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703846   (114687) от 02.03.2024
-
-Летние люди (1995) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представители русского дворянства собрались на даче. Юный дворянин Влас, влюблённый в хозяйку имения, жеманная поэтесса, писатель, который уже давно перестал писать, легкомысленная жена, ее любовник и ревнивый муж. Их жизнь протекает размеренно и неторопливо. Они ведут разговоры ни о чём, скучают и ссорятся, флиртуют и веселятся… Но даже страстные романы, которые (   Читать дальше...   )Производство: Россия / АО Светосервис, Kovsag, Лефортовский Банк, Роскомкино, Восточно-Европейская КинокомпанияЖанр: драмаРежиссер: Сергей УрсулякАктеры: Сергей Маковецкий, Светлана Рябова, Виктор Гвоздицкий, Сергей Колтаков, Мария Аронова, Ирина Купченко, Наталия Вдовина, Лика Нифонтова, Владимир Большов, Фёдор ДобронравовСубтитры: ОтсутствуютПродолжительность: 01:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79023A18FC7EDD8A3C22B9DECCAD646F852129D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703987   (114688) от 02.03.2024
-
-Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыцаря-неудачника [2015, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощь страны определяется числом и силой рыцарей-магов, и тут Япония, как и положено, впереди планеты всей. Именно поэтому в рыцарскую школу Хагун приезжает учиться Стелла Вермиллион по прозвищу Алая Принцесса – дома талантливая девушка достигла потолка, а в стране Ямато сильных соперников хоть отбавляй, есть куда расти. Каково же было удивление 15-летней наследницы (   Читать дальше...   )Производство: Silver Link, NexusЖанр: приключения, фэнтези, эттиРежиссер: Онума СинЯзык озвучки: Японский, русский (AniLibria, AniDUB, AniFilm)Субтитры: Русские (Adyson & Esito & Rinon Ninqueon, Матадор & Buka63 & Nachtwandler)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100D48A9353E776931E38856418A9626F8720B67
 ```
 
 

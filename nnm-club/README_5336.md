@@ -1,3 +1,181 @@
+###  Публикация: 1516838   (164217) от 13.12.2021
+
+Формула 1. Сезон 2021. Этап 22. Гран-при Абу-Даби. Квалификация, Гонка (11-12.12.2021) HDTVRip [H.264/1080p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 22, Арена:  Автодром Яс Марина (Абу-Даби, ОАЭ)
+Квалификация. 11 декабря 2021, суббота.
+Гонка. 12 декабря 2021, воскресенье.
+(   Читать дальше...   )Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Матч ТВ: Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский (SkySports F1HD).Субтитры: отсутствуютПродолжительность: 01:22:08 квалификация; 02:16:36 гонка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEA35486345AD95280836D83E69EE3A79076F64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346123   (164218) от 18.12.2019
+
+Экшены - GraphicRiver - Water Art Photoshop Action - 24972587 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Water Art - экшен фотошоп превратит ваши изображения в акварельное полотно. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7529251E1A07A37FFFA3046FE949D39E20DB5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516973   (164219) от 13.12.2021
+
+The Allman Brothers Band - Shades Of Two Worlds (1991) [FLAC|Lossless|tracks + .cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The Line
+02. Bad Rain
+03. Nobody Knows
+04. Desert Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16219E2626E68ECF40FDD519EA35CD97C36FECE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432483   (164220) от 17.12.2020
+
+Леонид Сухоруков | Белая дорожка, черная судьба (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164220.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Стаса и Олеси все начиналось очень хорошо. Любовь. Молодость. Здоровье. Перспективы. Все двери были открыты перед ними. Все дороги стелились перед ними. Но они выбрали дорожку. Рождение ребенка их не остановило. Семья начала стремительно деградировать. Так как с каждым днем денег на наркотики требовалось больше, Стас пошел на грабежи и убийства. Молодые люди все (   Читать дальше...   )Жанр: Современные детективы, ТриллерыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80218473E6FD4B27603A8E5DE7B7B325D77D0B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598038   (164221) от 17.12.2022
+
+VA - Summer Soft Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Cross -- Sailing (4:16)
+02. Fleetwood Mac -- Tusk (2018 Remaster) (3:39)
+03. Jefferson Starship -- Miracles (6:52)
+04. Jackson Browne -- Running On Empty (4:58)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681802E7082B712BB6F3443AF354BED62ACBA759
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673741   (164222) от 02.11.2023
+
+Google Chrome 119.0.6045.106 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3668BE323499985C1606721A2F8E44C627DEB413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346257   (164223) от 18.12.2019
+
+Убийство в Белом доме / Murder at 1600 (1997) WEBRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захват американских заложников в Северной Корее вызвал бурю возмущения в Белом Доме. Президент Америки близок к тому, чтобы принять решение вмешаться и атаковать Корею. Тем временем в самом здании Белого Дома обнаружена убитая женщина, бывший секретарь.
+Расследование поручено полицейскому детективу Харлану Реджису, до этого не связанному с правительственными и секретными (   Читать дальше...   )Производство: США / Regency Enterprises, Warner Bros. Pictures Co.Жанр: боевик, триллер, драма, криминал, детективРежиссер: Дуайт Х. ЛиттлАктеры: Уэсли Снайпс, Дайан Лэйн, Дэниэл Бензали, Деннис Миллер, Алан Алда, Ронни Кокс, Дайан Бэйкер, Тейт Донован, Харрис Юлин, Том РайтПеревод: Дублированный (Варус-Видео)Субтитры: английские (полные/SDH)Продолжительность: 01:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3464C1E93C00FFD1C75CABE01DFDBB44C2DA3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673576   (164224) от 02.11.2023
 
 FastStone Capture 10.3 + Portable [Multi/Ru]
@@ -6,7 +184,7 @@ FastStone Capture 10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164224.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ Cocktail High Sierra Edition 11.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164225.jpg" />
 </div>
 
 
@@ -54,7 +232,7 @@ VA - The Best Of Suanda Dark 2022 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164226.jpg" />
 </div>
 
 
@@ -81,7 +259,7 @@ OpenHashTab v3.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164227.jpg" />
 </div>
 
 
@@ -105,7 +283,7 @@ Google Chrome 79.0.3945.88 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164228.jpg" />
 </div>
 
 
@@ -129,7 +307,7 @@ magnet:?xt=urn:btih:F252410AB6594EA6B9575419379936E7B2A892C3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164229.jpg" />
 </div>
 
 
@@ -153,7 +331,7 @@ magnet:?xt=urn:btih:BB0E2CC0F0ECB462AE9931CC07543E6FD89DCDBD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164230.jpg" />
 </div>
 
 
@@ -179,7 +357,7 @@ magnet:?xt=urn:btih:A52A7DB149B0BD35C591DCEC5406BBD3A95B931D
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164231.jpg" />
 </div>
 
 
@@ -206,7 +384,7 @@ magnet:?xt=urn:btih:28143EACE5D8AECA2C83089297ED00504E8844A2
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164232.jpg" />
 </div>
 
 
@@ -230,7 +408,7 @@ Wondershare Filmora Х v10.7.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164233.jpg" />
 </div>
 
 
@@ -254,7 +432,7 @@ magnet:?xt=urn:btih:9454EDFC57CADB7708883C19CBC33B0452CF9D7A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164234.jpg" />
 </div>
 
 
@@ -281,7 +459,7 @@ SiteSucker Pro 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164235.jpg" />
 </div>
 
 
@@ -305,7 +483,7 @@ magnet:?xt=urn:btih:FC222C9C92512091B2C15F4BBA05CE2EECC7881E
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164237.jpg" />
 </div>
 
 
@@ -329,7 +507,7 @@ magnet:?xt=urn:btih:20474099D8AFADD9B8979BDF6D1E2767818B9714
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164238.jpg" />
 </div>
 
 
@@ -353,7 +531,7 @@ magnet:?xt=urn:btih:1693F84782002B29D722AEC656F7D15310D8C24D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164239.jpg" />
 </div>
 
 
@@ -377,7 +555,7 @@ magnet:?xt=urn:btih:46932ABFE6E61AFD1DD51D7BA547E7D766CFC476
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164240.jpg" />
 </div>
 
 
@@ -401,7 +579,7 @@ VA - Summer Rock Vibes (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164241.jpg" />
 </div>
 
 
@@ -428,7 +606,7 @@ magnet:?xt=urn:btih:AA41F1B151AEE26A706B083352436D497792923A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164242.jpg" />
 </div>
 
 
@@ -454,7 +632,7 @@ magnet:?xt=urn:btih:1DB0B8F707ACE7331C87392165A0B991D0CB0986
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164243.jpg" />
 </div>
 
 
@@ -465,185 +643,6 @@ magnet:?xt=urn:btih:1DB0B8F707ACE7331C87392165A0B991D0CB0986
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C7BE86FEAFEB740F0426B496A1912C94F58EAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346202   (164244) от 18.12.2019
-
-Подопытные кролики в космосе. Признания астронавта / Les Cobayes du cosmos: confidences d'astronautes (2018) DVBRip [H.264] [hand made 50fps]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Насколько человеческое тело и разум могут со временем адаптироваться к невесомости? Каково влияние космических путешествий на космонавтов и как можно уменьшить их негативные последствия? В этом фильме 12 космонавтов поделятся своими историями и расскажут об отпечатке, оставленном космосом. В завершение мы увидим, как далеко зашел прогресс в области космических медицинских (   Читать дальше...   )Производство: Франция, Cocottesminute ProductionsЖанр: Документальный, научно-популярный, космосРежиссер: Жан-Кристоф РибоПеревод: Двуголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A743A3E08D3BDBD566E9BC4B55817A24E3D6F47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517010   (164245) от 13.12.2021
-
-Обитатели / The Lodgers (2017) WEB-DLRip [H.264] [Локализованная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландия, 1920-е годы. Близнецы Рейчел и Эдвард ведут уединённый и довольно странный образ жизни в старом поместье. Каждую ночь их дом оказывается во власти зловещей сущности, которая диктует жильцам определённые правила: быть в постели к полуночи и не позволять гостям переступать порог дома, а если кто-то из близнецов попытается сбежать, жизнь другого окажется под (   Читать дальше...   )Производство: Ирландия / Avatar Audio Post Production, Bowsie Workshop, E-Color Studios, Epic Pictures Group, Outer Limits Post ProductionЖанр: Ужасы, триллер, драма, мелодрама, детективРежиссер: Брайан О’МэллиАктеры: Шарлотта Вега, Билл Милнер, Юджин Саймон, Дэвид Брэдли, Дирдри О’Кейн, Мо Данфорд, Рошин Мёрфи, Брендан О’Рурк, Эммет Келли, Энтони МерфиПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (full), Итальянские (full)Продолжительность: 01:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6BFE8370987F03FF5CD013842B753514908B5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432328   (164246) от 17.12.2020
-
-О. Трахтенберг | Беседы с учителем по историческому материализму (1924) [DJVU, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие цели ставит свое предлагаемый очерк?
-
-Выяснить основные положения марксистского миропонимания, дающего незаменимый и плодотворный метод познания мира в целом и общества, как его части.
-(   Читать дальше...   )Жанр: История, науковедение, философия, логика, психология, социология, политология, экономика, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF16F07DC92A7242108DA05D6658998D43B2BC4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597947   (164247) от 17.12.2022
-
-Котик ДжеймS - 2 Albums (2021-2022) [MP3|320 Kbps] <Soft punk,  Alternativo, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мечты [00:03:51]
-02. Королева [00:04:23]
-03. Муравей [00:05:00]
-04. Наркоман [00:03:10](   Читать дальше...   )Жанр: Soft punk,  Alternativo, RockПродолжительность: 2 CD, 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962F0545285FF0C13ED45A1AAB4F43F980DCF72D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346204   (164248) от 18.12.2019
-
-Google Chrome 79.0.3945.88 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D0D319A869D948B08746C49F9B87E73D4A576C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673746   (164249) от 02.11.2023
-
-simplewall 3.7.5 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой в использовании и нетребовательный к ресурсам компьютера фаервол, имеющий все необходимые опции для блокировки входящего и исходящего трафика приложений.
-Поддерживаются два режима работы: фильтрация по белому или черному списку.
-Работа simplewall реализована через возможности WFP (Windows Filtering Platform).Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E6A1DEBE36B875D6F045C6BE040CF30E6DEBA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598158   (164250) от 17.12.2022
-
-Мария Вой | Сиротки (Книга 2). Отцеубийцы (2022) [MP3, Кирилл Головин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение романа «Сиротки» Марии Вой.
-
-Шарка выбрала свою сторону: теперь последний в мире кьенгар сражается на стороне Сироток. Их гетман Ян Хроуст не знает поражений, усталости и сомнений и готов предать огню и мечу все, что у него есть, ради своей мести.
-Королевство все глубже погружается в пекло братоубийственной войны. Но этого ли хотел Свортек, когда передавал (   Читать дальше...   )Жанр: Героическое фэнтези, Детективное фэнтезиПродолжительность: 13:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA5A793BBF402F17F9E66BE82914C8900179B89
 ```
 
 

@@ -6,7 +6,7 @@ VA - Compilation  part 114 New Eurodisco (2024) [MP3|320 Kbps] <New Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45751.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:57102198055920FCE87B14196DF266F95956E9F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45752.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BA91B3CD72624F532166CAE98D8000E6A3BD8E55
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45753.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ NetLimiter 5.3.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45754.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Opera One 113.0.5230.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45755.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6752B3C67B8B27AF6B96BCD442E39BCFC9C86F86
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45756.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Reface: Face Swap AI Generator v4.19.3 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45757.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Sisco Le Voyageur - Complation disc 1 (2024) [MP3|320 Kbps] <Newage, Enigmatic, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45758.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:0BBA7B5B2A418060F41901DB40911E6CC368E914
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45759.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:E9AB9287EBA1F7ACF472B022388996889794FED1
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45760.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:22A80883699E8E727EA38B2DC44B40F501328A46
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45761.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:22A80883699E8E727EA38B2DC44B40F501328A46
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45762.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Pet Shop Boys - Feel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Techno
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45763.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:96A22C8DC46D0BE51AA32B393D87C62D2E92C17A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45764.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C937610CD1548E9D3EFA5DE7ED93F66756A41437
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45765.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:5E5A443006D080C2DB9BB11F11CF8212B46D3FC8
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45766.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Music News For Forum vol.015 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45767.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:CCD59673BB8C6399BA8B325E4EBD1E7F4CA45684
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45768.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:06CD56764E9C0BD67226915E8C3D2DD6D427017A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45769.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sisco Le Voyageur - Complation disc 2 (2024) [MP3|320 Kbps] <Newage, Enigmatic, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45770.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:066938CF0C999BA08B10C05BE3A7775E0B4BE5B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45771.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:066938CF0C999BA08B10C05BE3A7775E0B4BE5B9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45772.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:11E044360BB82839555F1371E553BB8D3AC6C779
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45773.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 5 (2024) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45774.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Proprofiling, Алексей Филатов | Онлайн курс по про�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45775.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:1387FFD13121793EC5439F06F75ECB5F1DFDEAE4
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45776.jpg" />
 </div>
 
 

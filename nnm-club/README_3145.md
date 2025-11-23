@@ -1,3 +1,81 @@
+###  Публикация: 1822216   (100874) от 05.10.2025
+
+Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скорбящий пpизpaк хочет уйти в отставку 2 [2025, TV, 1 из 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон Nageki no Bourei wa Intai Shitai.
+
+Описание на первый сезон.Наступил золотой век для кладоискателей, которые в поисках славы, несмотря на опасности, совершают набеги на хранилища сокровищ по всему миру. Неизмеримые богатства, слава и власть ждут тех, кто одержит победу.
+«Давайте станем охотниками за сокровищами!»(   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Таката МасахироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B858257F8D7A08668E225490CE4155FEB033E816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822215   (100875) от 05.10.2025
+
+Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон Spy x Family.
+
+Описание на первый сезон:
+Над миром нависла страшная угроза! Шпиону «Сумраку» предстоит выполнить сложнейшую миссию в своей карьере… стать примерным семьянином. Под видом любящего мужа и отца он должен проникнуть в элитную школу и сблизиться с верхами мира политики. На первый взгляд прикрытие вышло великолепное, во только его жена — наёмная (   Читать дальше...   )Жанр: приключения, комедия.Режиссер: Имай ЮкикоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14E7DC78BF779A6CC938B540DDAF403E87D8BAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822211   (100876) от 05.10.2025
+
+Macrorit Partition Expert 8.6.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF843E2495DAAECF0D9186F465F8E7E9F61850F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768895   (100877) от 26.12.2024
 
 Мечтатели (1934) WEBRip
@@ -6,7 +84,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100877.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ AlimkhanOV A. - Black (The 4th Album) (2024) [MP3|320 Kbps] <Italo-Disco, Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100878.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:5A64BEC4D256BF702D6D4122F2442F683DD3BD45
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100879.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:E7F2091FD03CDDECC0E45DA42F3CD6C5E72B29FB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100880.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:3B2D692915D17FA6932653B49B6822B9A20BC22E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100881.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ magnet:?xt=urn:btih:35F97BAA76201E555CD33052307E93B5DE47A747
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100882.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ Lynyrd Skynyrd - Comin' Down (Live Mountain View 1988) (2023) [MP3|320 Kbps] <So
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100883.jpg" />
 </div>
 
 
@@ -184,7 +262,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 07 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100884.jpg" />
 </div>
 
 
@@ -211,7 +289,7 @@ Coheed and Cambria - Claudio Covers (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100885.jpg" />
 </div>
 
 
@@ -238,7 +316,7 @@ Dave Koz & Friends - Christmas Ballads: 25th Anniversary Collection (2022) Just 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100886.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ Rencontre Nocturne - Recap 2024 (2024-12-18) [MP3|320 Kbps] <Progressive House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100887.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ Bill Harris - Holiday Improvisations (1998) Daddy Jazz Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100888.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ Signal выставил ультиматум Европе из-за планов
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100889.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100889.jpg" />
 </div>
 
 
@@ -340,7 +418,7 @@ Signal выставил ультиматум Европе из-за планов
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100890.jpg" />
 </div>
 
 
@@ -364,7 +442,7 @@ VA - Musical kaleidoscope part 55 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100891.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ VA - Musical kaleidoscope part 56 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100892.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ Sardø - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100893.jpg" />
 </div>
 
 
@@ -445,7 +523,7 @@ magnet:?xt=urn:btih:3166098A34FFFDCEC5EE53A2CB02541D55227584
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100894.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ magnet:?xt=urn:btih:1F0E647B81433462E0A9CDBE34510562BF38A8C5
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100895.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ magnet:?xt=urn:btih:01FD6D46F3F3E91E1F9FB770C5AA6E4C9BEA94F4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100896.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ magnet:?xt=urn:btih:F8155A05446F533F76CBB069A6A81F89E9BB655D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100897.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ magnet:?xt=urn:btih:69F6DB392BB99FAB771CE46097B68042D8BD226F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100898.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ magnet:?xt=urn:btih:0E45A244587E854C7090D41C1C263A110A7216E1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100899.jpg" />
 </div>
 
 
@@ -581,84 +659,6 @@ magnet:?xt=urn:btih:0E45A244587E854C7090D41C1C263A110A7216E1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8042006640F3A6AC172954A0E2CB84213AD6262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822584   (100900) от 07.10.2025
-
-Skill Issue, Skill Issue | Подготовка к Golang собеседованию (2025) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс ориентирован, главным образом, на тех, кто намеревается перейти на язык Go с другого языка программирования, сохраняя при этом свой текущий уровень, а порой даже улучшая его. Он окажется полезным в преодолении синдрома самозванца, особенно если вы давно не проходили собеседования и не знаете, чего от них ожидать и как к ним подготовиться. Также курс пригодится (   Читать дальше...   )Производство: Skill IssueЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66903871E671AC298B7072CA74B7581166F44BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822641   (100901) от 07.10.2025
-
-EchøNova - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In the Shadow
- 02 - Don’t Let Me Go
- 03 - Unspoken Dreams
- 04 - Take a Deep Breath(   Читать дальше...   )Жанр: Dance, OtherПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2836DBB3ADE36F6B4CB12AC773F37C274DD749
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822644   (100902) от 07.10.2025
-
-EchøNova - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Golden Sun
- 02 - Deep Chill
- 03 - Relaxing Music
- 04 - When All Else Fades, I’m Still With You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6937BA2C347253A4D91766A468AD99D39DECDC1D
 ```
 
 

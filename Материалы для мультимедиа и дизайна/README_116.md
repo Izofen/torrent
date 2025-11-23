@@ -1,3 +1,149 @@
+###  Публикация: 1589529   (189818) от 10.11.2022
+
+Футажи - Big Films - Dark Magic Pack [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189818.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Автора: "Набор Dark Magic Pack создан специально для кинематографистов, работающих над фантастическими и фэнтезийными фильмами. С этим пакетом мы даем вам доступ к огромному арсеналу эффектов темной магии, которые позволят вам создавать необычные миры и эпические боевые сцены! Просто перетащите эти эффекты в кадр и начните создавать свои собственные темные (   Читать дальше...   )Формат: MOVРазрешение файлов: 3840x2160, 4096x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85B3EB459ECF29D3D311EF8F33E75D8BD012DE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588609   (191233) от 05.11.2022
+
+Растровый клипарт - Creative Market - Ikebana Botanical Asset Collection - 6103306 [ATN, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_191233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Икебана - это коллекция высококачественных элементов: цветы, лепестки, листья, бутоны и прочее. Комбинируя их вы сможете получить огромное количество вариаций. 80 элементов в PSD формате, без фона, с реалистичным освещением. Целый цветочный магазин в одной сборке.Формат: ATN, PSDРазрешение файлов: 2000x1600-4620x4452
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243D4A865CF0C4BBD3413E8E973F3327EECAAA06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588455   (191482) от 04.11.2022
+
+Кисти - ArtStation - 1850 Hand Painted Alpha Graffiti, Paints & Decals (MEGA Pack) - Vol 12 [PNG, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь давайте перейдем к истории этого пакета:
+Этот мега-пакет представляет собой самую большую, уникальную, наиболее полную и разнообразную коллекцию практичных и высококачественных 4k Альфа-граффити ручной росписи и красок, которые у вас могут быть.
+Наличие этой мега-коллекции позволит увеличить вашу библиотеку и привнести эти классные элементы в вашу работу.Формат: PNG, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF1251CDA21CE9D81330596CE288976438B4F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588439   (191496) от 04.11.2022
+
+Растровый клипарт - Plants [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция растений. Используйте, просто перетаскивая элементы в Photoshop.Формат: PSDРазрешение файлов: 9000x12500-19822x19790
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175183A19196CC33D3EFDF0784C68C8240CDF2A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588446   (191560) от 04.11.2022
+
+Шаблоны - Halloween Pumpkin Mock-up [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продвинутый, простой в редактировании макет. В нем есть все необходимое для создания реалистичного вида вашего проекта. Гарантирует хороший внешний вид для ярких и темных дизайнов и идеальное прилегание к форме. Простая навигация, хорошо описанные слои.Формат: PSDРазрешение файлов: 4000x2670
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5841442034AE709E9D3C6D071B3BC70F917454
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658145   (191656) от 06.09.2023
+
+Футажи - Big Films - SCI-FI Infinity Pack  [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191656.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Автора: "SCI-FI Infinity Pack — это инструмент №1 для кинематографистов, позволяющий поднять свои научно-фантастические проекты на новый уровень. Пакет SCI-FI Infinity Pack, наполненный множеством космических истребителей из внешнего мира, эпическими механическими роботами (Ходьба, бег, борьба. Рендеринг с нескольких ракурсов.), гигантскими космическими кораблями, (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080, 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9390948D6104C6A53C4AA881065D7DF96543387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587909   (191892) от 02.11.2022
 
 Растровый клипарт - Creative Market - Ultimate Collage Creator 1000+ - 6174097 [JPG, PNG]
@@ -6,7 +152,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191892.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191892.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ magnet:?xt=urn:btih:704927F8F417E3D7BFDBDC273B1B499FF12D8A10
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192481.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192481.jpg" />
 </div>
 
 
@@ -54,7 +200,7 @@ magnet:?xt=urn:btih:95D9D895485E6A2F49061724D809A1678DB48D7F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192527.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192527.jpg" />
 </div>
 
 
@@ -79,7 +225,7 @@ magnet:?xt=urn:btih:E0E4004AD178A021B1D3428CF987112C13BC79EF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193303.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193303.jpg" />
 </div>
 
 
@@ -103,7 +249,7 @@ magnet:?xt=urn:btih:B475748BFB5DA31BDC743FC0F0EFB4DDEB583AD8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193304.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193304.jpg" />
 </div>
 
 
@@ -127,7 +273,7 @@ magnet:?xt=urn:btih:4F941D1E8FA40CA0B9F35A7FB70EA3DB3CBCEBD9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193305.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193305.jpg" />
 </div>
 
 
@@ -151,7 +297,7 @@ magnet:?xt=urn:btih:C02D757DAC41DEE26387B2874EC00DDAFBDFF488
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193324.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193324.jpg" />
 </div>
 
 
@@ -177,7 +323,7 @@ magnet:?xt=urn:btih:AC56A6B42AD46CD9C0B6E8072073C6674BE6A482
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193325.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193325.jpg" />
 </div>
 
 
@@ -204,7 +350,7 @@ magnet:?xt=urn:btih:5D05B27169260E3B0F52189369A7017CE9E6854A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193328.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193328.jpg" />
 </div>
 
 
@@ -228,7 +374,7 @@ magnet:?xt=urn:btih:3249EA559B8229F4F82850E3F76D5938E4E5967A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193331.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193331.jpg" />
 </div>
 
 
@@ -252,7 +398,7 @@ magnet:?xt=urn:btih:0258BF7D319D5ADE629EF0EBC35F16C76FEECA30
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193338.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193338.jpg" />
 </div>
 
 
@@ -276,7 +422,7 @@ magnet:?xt=urn:btih:92EF4255F2D704B91F142EF6A9EFDDC36983FFAF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193339.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193339.jpg" />
 </div>
 
 
@@ -302,7 +448,7 @@ magnet:?xt=urn:btih:D3F53EBC30C135D17BDAEFF646FA5FE01E6E2907
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193340.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193340.jpg" />
 </div>
 
 
@@ -329,7 +475,7 @@ Ui Kits - UI8 - Camero - CRM Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193342.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193342.jpg" />
 </div>
 
 
@@ -353,7 +499,7 @@ magnet:?xt=urn:btih:D2387C6FB225F50A8013ED34CF993E3F4DB62BAE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193344.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193344.jpg" />
 </div>
 
 
@@ -377,7 +523,7 @@ magnet:?xt=urn:btih:DFF70AB28E2B215EDB31475E38C37558FE07FFB6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193373.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193373.jpg" />
 </div>
 
 
@@ -402,7 +548,7 @@ magnet:?xt=urn:btih:2C4E1FC649C50833D346D108D94FCF43CD606DB1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193375.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193375.jpg" />
 </div>
 
 
@@ -426,7 +572,7 @@ magnet:?xt=urn:btih:4E9EEB2D81B7F4CC2C096171D72BEBD610551FE5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193455.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193455.jpg" />
 </div>
 
 
@@ -450,7 +596,7 @@ magnet:?xt=urn:btih:237F213411FBC5AC37AABFC4FDE0223923F6C69C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193576.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193576.jpg" />
 </div>
 
 
@@ -476,7 +622,7 @@ magnet:?xt=urn:btih:D3B04034BF4594C2E17426AD3E14FE453D7B2F60
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193603.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193603.jpg" />
 </div>
 
 
@@ -489,158 +635,6 @@ Rowcha сочетает (   Читать дальше...   )Формат: OTF, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B41AA4070DAE2B848D45201C2EB1BC5B51FA6DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828032   (193703) от 23.10.2025
-
-Пресеты - Zhenya Swan Presets - Metallic Blues [XMP, LRTEMPLATE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти пресеты я создал после съёмки на одной из самых известных вилл Италии на средиземноморском побережье Сорренто. Мраморные интерьеры, изящная текстура колонн и итальянская архитектура в сочетании с бирюзовой морской водой и глубоким синим небом — вот что вдохновило меня на создание этой совершенно особенной коллекции. Я часто использую её в своих трэвел-материалах (   Читать дальше...   )Формат: XMP, LRTEMPLATE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF318AE84329DFCCAC4650212ABA4DD418058FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828027   (193708) от 23.10.2025
-
-Шрифты - MyFonts - PGF Glyphos [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193708.jpg" />
-</div>
-
-
-###  Подробнее
-
-PGF Glyphos — это римский шрифт с засечками с широкими краями из семейства глифических шрифтов, сочетающий в себе чёткую, выразительную эстетику и архитектурную точность. Развиваясь на основе проекта «Legan», выпущенного в 2011 году , он теперь включает пять различных начертаний и курсив , каждый из которых обеспечивает резкий контраст для повышения универсальности (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4106B3974490BE4D722B5E49E760748C58C6FEA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653996   (193867) от 23.08.2023
-
-Кисти - Blender Market - VK Gamedev - Blender Ornaments Brushes [BLEND, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кисти для скульптинга орнамента в Blender 3D. Идеально подходит для скульптинга доспехов, оружия, средневековых стен и других поверхностей.
-Продукт предназначен как для начинающих, так и для профессиональных художников и студентов, чтобы упростить процесс скульптинга.
-Набор кистей настроен с помощью пользовательских текстур, настроек и миниатюр, а также правильно (   Читать дальше...   )Формат: BLEND, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220159AD00BC24249EDA3D65125F88941C58060A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652842   (194329) от 13.08.2023
-
-Экшены - GraphicRiver - Splatter Watercolor 2 Photoshop Action - 44080874 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Splatter Watercolor 2 - новые кисти, новая техника и новый вид брызжущей акварели. Высокодетализированные текстуры и вариации акварельных элементов добавляют реализма и артистизма. Чтобы глубже погрузиться в красоту искусства и ускорить рабочий процесс, действие включает в себя множество пресетов! Пресеты облегчат вашу работу, но если вы не будете осторожны, они (   Читать дальше...   )Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB93A692ED921D1AC8D713D1B75869233CFC0F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648344   (195287) от 23.07.2023
-
-3D модели - 3D Scan Store - 10x Animation Ready Body Scan Pack [ZTL, FBX, TGA, JPG]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195287.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 готовых к анимации отсканированных мужских и женских тел:
-- Каждая модель представлена в ZTL формате с 6 сабдивами
-- Карты альбедо и карты нормалей в 8k
-- Развернутые карты глаз, рта, зубов и ресниц(   Читать дальше...   )Формат: ZTL, FBX, TGA, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340CC317AE6E732DE462C8234F85CFD83A4C00D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648138   (195336) от 21.07.2023
-
-3D модели - 3D Scan Store - Male and Female 3D model Bundle 48x Head Scans [ZTL, OBJ, MTL, PSD]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195336.jpg" />
-</div>
-
-
-###  Подробнее
-
-48 высококачественных сканов женских и мужских голов разных возрастов:
-- Каждая модель представлена в ZTL формате с 6 сабдивами
-- Карты альбедо 16k в формате PSD и 8k в формате JPG
-- Развернутые карты глаз, рта, зубов и ресниц(   Читать дальше...   )Формат: ZTL, OBJ, MTL, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422D2D59A32B24F53F19875CD8CE407F892487AA
 ```
 
 

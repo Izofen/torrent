@@ -1,3 +1,180 @@
+###  Публикация: 1600630   (155927) от 28.12.2022
+
+FSNotes 6.0.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155927.jpg" />
+</div>
+
+
+###  Подробнее
+
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Украинский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3351F511C99EA0640E4CF81D6600D826122D464F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194683   (155928) от 25.12.2017
+
+VA - Inner Harmony Vol.1 (Find The Inner Peace With These Super Calm Electronic Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sangre De La Tierra  -  El Sueno Del Mar (Original Mix)  5:00
+02.  Prana Tones  -  Yoga Anthem (Original Mix)  4:37
+03.  Sunyata Project  -  Mystic Adventures (Oriental Chill Mix)  3:11
+04.  Sami Sivananda  -  Buddha Life (Original Mix)  3:49(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 02:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98299E03E7CCA628BFB95BA23FF88B37561A8249
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426311   (155929) от 21.12.2020
+
+Калифорния / Kalifornia (1993) WEB-DLRip [H.264/720p] [Unrated] [Open Matte]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист и его любовница-фотограф, изучают поведение убийц-маньяков, собирая материалы для книги. В особенности их интересуют места, где совершаются преступления. Они отправляются в экспедицию на автомобиле и ненароком подсаживают в машину еще одну парочку.
+
+Уж лучше бы они этого не делали - ведь угрюмый заросший детина, сопровождаемый писклявой дурехой, - сумасшедший (   Читать дальше...   )Производство: США / PolyGram Filmed Entertainment, Viacom Productions, Propaganda FilmsЖанр: триллер, драма, криминалРежиссер: Доминик СенаАктеры: Брэд Питт, Дэвид Духовны, Джульетт Льюис, Мишель Форбс, Кэти Ларсон, Дэвид Милфорд, Джон Заркен, Дэвид Роуз, Томми Чаппелль, Джадсон ВонПеревод: Многоголосый профессиональный, авторский (одноголосый)Субтитры: русские, английскиеПродолжительность: 01:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E573FD12BD028F74C25AB2CFC38510C6C5259FD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518380   (155930) от 19.12.2021
+
+The Clock - The Best World Clock 4.6.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоклассные часы – точное время в любой точке мира. Мгновенное определение времени суток и часовых поясов, благодаря отображению на часах.
+После запуска эти часы мирового времени для Mac всегда находятся в верхнем меню (menubar). Нажав на ее изображение вы увидите выпадающий список активных часов мирового времени. Добавить новые часы можно кнопкой «плюс», выполнив (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17.12.2021Разработчик: Fabrice LeyneПоддерживаемая ОС: OS X 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FF565C876F1C2CA128DF8BE3F1244A69A7D47D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600699   (155931) от 28.12.2022
+
+Винсент Ван Гог | Письма к брату Тео (2021) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155931.jpg" />
+</div>
+
+
+###  Подробнее
+
+К сожалению, литературный архив мастеров искусства невелик. Художники редко берутся за перо, но к счастью, есть и исключения. Существует замечательная переписка и дневники нескольких, действительно великих художников. Среди них на одном из самых первых мест – письма Ван Гога. Они звучат по-особому, они ни на что непохожи. Есть документы более величественные – своды (   Читать дальше...   )Жанр: биографии и мемуары, документальная литература, зарубежная публицистикаПродолжительность: 16:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01B6B908FBF19B0D0AD65EC3444CD298A91915F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085563   (155932) от 22.12.2016
+
+Монстры против пришельцев.Большой отрыв БОБа. / Monsters vs. Aliens.B.O.B.'s Big Break (2009) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155932.jpg" />
+</div>
+
+
+###  Подробнее
+
+У БОБа день рождения и друзья мутанты решили приготовить для него разрывной сюрприз.Производство: США | DreamWorks AnimationЖанр: Короткометражный анимационный фильмРежиссер: Роберт ПортерПеревод: Дублированный, любительский многоголосый (закадровый)Субтитры: Русские, Английские (вшитые, отключаемые)Продолжительность: 00:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA7C9919D56BFB026F71AE7EB2708FBC26F7C1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588625   (155933) от 13.12.2012
+
+Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard RockРежиссер: Dick CarruthersПродолжительность: 02:04:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968196   (155935) от 23.12.2015
 
 Питер Бретт | Копье Пустыни (2015) [FB2]
@@ -6,7 +183,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155935.jpg" />
 </div>
 
 
@@ -32,7 +209,7 @@ magnet:?xt=urn:btih:19BC1D7055350D0D7E8AA57B7C23D7BC89ABF7FD
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155937.jpg" />
 </div>
 
 
@@ -56,7 +233,7 @@ Master of Typing - Мастер Печати на Китайском  3.2.2 [Mul
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155938.jpg" />
 </div>
 
 
@@ -80,7 +257,7 @@ magnet:?xt=urn:btih:DC6C4EDCEB7FB56152A41798D00509D562C88A7C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155939.jpg" />
 </div>
 
 
@@ -104,7 +281,7 @@ AVS Video Software 12.9.6.25 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155940.jpg" />
 </div>
 
 
@@ -128,7 +305,7 @@ Fission 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155941.jpg" />
 </div>
 
 
@@ -152,7 +329,7 @@ magnet:?xt=urn:btih:3CEE6D456A8A42FD3A4B63EAC6543CD9AD2BCADC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155942.jpg" />
 </div>
 
 
@@ -176,7 +353,7 @@ magnet:?xt=urn:btih:39F776DBE454A018AAAB1EFE8A493EB54AF148E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155943.jpg" />
 </div>
 
 
@@ -200,7 +377,7 @@ GraphicConverter 11 v11.1.2 (build 4216) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155944.jpg" />
 </div>
 
 
@@ -224,7 +401,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155945.jpg" />
 </div>
 
 
@@ -248,7 +425,7 @@ Titiyo - Hidden (2008) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155946.jpg" />
 </div>
 
 
@@ -275,7 +452,7 @@ magnet:?xt=urn:btih:904B48E854C8E90664CAA76986AECFC4FCA21AB4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155949.jpg" />
 </div>
 
 
@@ -302,7 +479,7 @@ magnet:?xt=urn:btih:7D4A9FCA51B169634CBB0E2275201FB7283B4C1D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155950.jpg" />
 </div>
 
 
@@ -326,7 +503,7 @@ magnet:?xt=urn:btih:2191FC671D4DBF914F5AEF280A78D1FF197DFD8E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155951.jpg" />
 </div>
 
 
@@ -350,7 +527,7 @@ magnet:?xt=urn:btih:F694881F1F87EFA4DB515141F24E226E6F5B07C9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155953.jpg" />
 </div>
 
 
@@ -374,7 +551,7 @@ Hellgate London (2007) [Ru] [macOS WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155954.jpg" />
 </div>
 
 
@@ -400,7 +577,7 @@ Deflection 5.15.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155955.jpg" />
 </div>
 
 
@@ -425,7 +602,7 @@ VA - Stell Recordings: Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House,H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155956.jpg" />
 </div>
 
 
@@ -452,7 +629,7 @@ magnet:?xt=urn:btih:8824C6B7661F2155B9DC97F8AB3FF3C2AE6778DD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155957.jpg" />
 </div>
 
 
@@ -464,182 +641,6 @@ magnet:?xt=urn:btih:8824C6B7661F2155B9DC97F8AB3FF3C2AE6778DD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC487EBEE7CD3ADEA2C6446476EB734D1323E1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600684   (155959) от 28.12.2022
-
-Фергюс Хьюм | Загадка Пикадилли (2022) [MP3, Иван Шевелев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спенсер Эллерсби, единственный сын богатого вест-индского плантатора, вернулся из путешествия и отправился на бал, а по возвращении с него случайно обнаружил тело убитой девушки. Подозрение падает на его друга. Детективы начинают расследование, которое вскрывает целый клубок тайн и загадок. Финал будет неожиданным...Жанр: детектив, триллерПродолжительность: 05:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A9BA1FC00A53FE029F064B29A98F3723703779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346864   (155960) от 21.12.2019
-
-EtreCheck Pro 6.1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минималистичное и очень простое в использовании приложение macOS, которое собирает важную информацию о вашей системе и помогает вам делиться ею с другими
-
-Сбор важной информации о ваших аппаратных компонентах Mac, установленном программном обеспечении или запущенных процессах может оказаться довольно сложным для неопытных пользователей или трудоемким временем для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Etresoft, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E24ECE94972738C0C019AEACAD6623C65795CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433712   (155961) от 21.12.2020
-
-Проекты - VideoHive - Happy New Year (4K slideshow) - 29809152 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселый анимированный шаблон After Effects, который можно использовать для отображения любимых фотографий и видеоклипов в трехмерной среде. В нем есть несколько динамически анимированных панелей фотографий, плавающих среди воздушных шаров и конфетти. Произведите впечатление на свою аудиторию этим волшебным шаблоном AE. Идеально подходит для Рождества, Нового года, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424B22E5A691637D86304B1535D83371DE3660C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270631   (155962) от 20.12.2018
-
-VA - Infrasonic: The Best Of 2018 (Mixed by Solis & Sean Truby) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract Vision presents Subbota – Noonday Shadows (extended mix) (05:50)
-02. Sam Valar – Dreamwalker (extended mix) (05:50)
-03. Arggic – Dreamyness (extended mix) (05:46)
-04. Arti5an – Come What May (feat Anki - extended mix) (06:34)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C342660FAA38224835D5C19D83D7D8C2CF577E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853817   (155964) от 27.12.2014
-
-Весёлая хроника опасного путешествия / Argonavtebi (1986) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыкальный, лирический, комедияРежиссер: Евгений ГинзбургАктеры: Зураб Кипшидзе, Александр Абдулов, Лика Кавжарадзе, Сергей Шакуров, Теймураз Циклаури, Роман Рцхиладзе, Нугзар Квашали, Джемал Багашвили, Игорь Рух, Анатолий Калмыков, Вахтанг Татишвили, Александр Басилая, Анри Басилая, Валентин Манохин, Елена Степанова, Эльвира Зубкова, Леонид ЯрмольникПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10258E87F407242A638CFDB6DB8576EDB89DEBCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968209   (155965) от 23.12.2015
-
-Жюль Верн | Таинственный остров (1980) [DJVU]
-
->>Художественная литература
->>Приключенческая проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155965.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Таинственный остров» (фр. L'Île mystérieuse) — роман-робинзонада французского писателя Жюля Верна, впервые опубликованный в 1874 году. Является продолжением известных произведений писателя «20 000 льё под водой» и «Дети капитана Гранта». В книге повествуется о событиях, происходящих на вымышленном острове, где остановился капитан Немо на своей подводной (   Читать дальше...   )Жанр: ПриключенияПеревод: А. Худадовой, Н. НемчиновойФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FCC2EACEDBD587EF8551B16E3D205F28D74B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600649   (155966) от 28.12.2022
-
-Popol Ace - Stolen From Time (1975) Reissue, 1990, Polydor [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bury Me Dead - 5:50
-2. Today Another Day - 5:45
-3. Jester - 3:58
-4. Soft Shoe Dancer - 4:37(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC8BD068CF232335514CFC5EC433E9299292C79
 ```
 
 

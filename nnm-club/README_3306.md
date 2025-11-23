@@ -1,3 +1,81 @@
+###  Публикация: 1741560   (105638) от 07.08.2024
+
+VA - Ultimate Unforgettable Smooth Lounge Vacation Playlist to Relax and Recharge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - One Hundred Ways (4:02)
+02. Chillaxonic - Call of the East (4:16)
+03. Kool&Klean - Dream with Me (4:39)
+04. eJazz Artistry - Story of My Life (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54353F7BF56D6E84A1538C8D25FDD58B4D4DBE00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741597   (105639) от 07.08.2024
+
+Страх / Я больше не верю в любовь / La paura / Non credo piu all amore (1954) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм на основе новеллы Стефана Цвейга "Страх"... История о муках, которые приносят измена и обман. Ирэн Вагнер, жена предпринимателя и мать двоих детей, рассталась со своим любовником. Но тени прошлого преследуют её: к ней приходит бывшая любовница её возлюбленного и начинает шантажировать. Ирэн запутывается в клубке лжи, однако, каково будет её удивление, (   Читать дальше...   )Производство: Италия, Германия / Aniene Film, Ariston Film GmbHЖанр: драмаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Матиас Виман, Ренате Маннхардт, Курт Кройгер, Элизе Аулингер, Эдит Шульце-Веструм, Штеффи Струкс, Аннелоре Вид, Рольф Дейнингер, Альберт Херц, Клаус КинскиПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (на места без перевода и полные), английскиеПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C58683BD80C756D77002EAA8609F7DA5362DC09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741554   (105640) от 07.08.2024
+
+The Red Earth Blues Band - 308 Red (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barn Find (2:44)
+02. Dumb Things (3:30)
+03. The Audition (4:08)
+04. So Old (3:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583A1E7487F7F20D9B40ED47F78DB0EE18893B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741648   (105641) от 07.08.2024
 
 Наталья Корнева | Зачем ты вновь меня томишь, воспоминанье (2023) [MP3, Puffin Сafe]
@@ -6,7 +84,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105641.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ VA - Funky Jazz House Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105642.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Soul.Blues - The Easy Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105643.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Jay Lang - Jay Lang and the Devil's Due (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105644.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Blues Pickers - Night Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105645.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ The Honey Badgers - Shakin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105646.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ The Achievers - Easy Going Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105647.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ Cotton Wing - Nothing but Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105648.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ Dillion James - Heavy Keys (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105649.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ magnet:?xt=urn:btih:A97EB1F230394D7F212D2DFE5D9DA51F0EF15ABA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105650.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ magnet:?xt=urn:btih:2EC29A8D351429FB1C08BEBFDC95332FCE2F5908
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105651.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ magnet:?xt=urn:btih:FC3BE0C2B21C0CC21CBD68216A1856F468AD6753
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105652.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105653.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ magnet:?xt=urn:btih:38330361791F45B76377183E7837F8EBA6815ED2
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105654.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ magnet:?xt=urn:btih:A72DB1B71641936CB80F84F946993FF93149D782
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105655.jpg" />
 </div>
 
 
@@ -395,7 +473,7 @@ magnet:?xt=urn:btih:03C3B3D7ACEA9F95F51B02700A3B30E563CD5322
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105656.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ Firefox Browser 129.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105657.jpg" />
 </div>
 
 
@@ -443,7 +521,7 @@ magnet:?xt=urn:btih:CB46F7488236C2D96F34200EFB0DDDA284D6BD0A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105658.jpg" />
 </div>
 
 
@@ -467,7 +545,7 @@ magnet:?xt=urn:btih:C575341F9710A12C749DC5FEE4EA56D4CED668B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105659.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ magnet:?xt=urn:btih:2E8AACA593B095956ECDF8F6C287B2B2DB13C93A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105660.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ Cher - Living Proof (2001) Deluxe Edition, Reissue, 2024 [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105661.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ magnet:?xt=urn:btih:6DFC99645B916593F6243974865B6D7AA90034A9
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105662.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105663.jpg" />
 </div>
 
 
@@ -583,81 +661,6 @@ magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA866BE66A729389180C11EEA06C2D27493573E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741569   (105664) от 07.08.2024
-
-Депрессия моего мужа / Милый впал в депрессию / Tsure ga utsu ni narimashite (2011) BDRip [H.264/720p] [JP RU / Sub]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять лет назад Харуко вышла замуж за Микио. Он работает в технической поддержке IT-компании, а она рисует мангу, которая, правда, успеха не имеет. Над их семейным очагом постепенно сгущаются тучи — нервная работа вгоняет Микио в депрессию, он теряет настроение, аппетит и интерес к жизни. Врач советует ему бросить такую работу, иначе последствия могут быть непредсказуемы. (   Читать дальше...   )Производство: Япония / Central Arts, CineMove, Gentosha...Жанр: драмаРежиссер: Киёси СасабэАктеры: Аои Миядзаки, Масато Сакаи, Мицуру Фукикоси, Кандзи Цуда, Юта НаканоПеревод: нетЯзык озвучки: японскийСубтитры: русские (Пеликан), английскиеПродолжительность: 02:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A8932B5DAA987F427307B135E405BFCB74A843
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741437   (105665) от 06.08.2024
-
-Дитя солнца (1933) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои фильма – труженики-хлопководы, ратующие за развитие хлопководства в Армении, об изменениях в жизни героев после установления советской власти в Армении.Производство: СССР / АрменкиноЖанр: драма, немое киноРежиссер: Патвакан БархударянАктеры: Р. Степанян, К. Гегамян, К. Симонян, Израиль Буниатян, Григор Аветян, Марика Чмшкян, Грачья НерсисянСубтитры: русские (интертитры)Продолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2300246A3A8B2150EBEC32F31103930F65D7E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741340   (105666) от 06.08.2024
-
-Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Derdian - пауэр-метал группа из Италии, Милан, образованная в 1998 году.2005 - New Era Pt. 1
-2007 - New Era Pt. 2: War Of The Gods
-2010 - New Era Pt. 3: The Apocalypse
-2013 - Limbo(   Читать дальше...   )Жанр: Power MetalПродолжительность: 08:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A7345F8E979EFC41132885DE591AC37B3645FE
 ```
 
 

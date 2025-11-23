@@ -6,7 +6,7 @@ Master-Skills & Андрей Скидан | Программирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28507.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28508.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1C4998F0B8CE0A4AFE37B52CA885FCC89A85C6BE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28509.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28509.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1C4998F0B8CE0A4AFE37B52CA885FCC89A85C6BE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28510.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6A5C8769FAA5FF8D1B2F46A016517815F296BBF6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28511.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ DRM-Play v1.56.2 Lite Mod by ajrys (обновление)  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28512.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28512.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:E827EEB78C233E70363A9586FF7C74D6B050A0F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28513.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28513.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E827EEB78C233E70363A9586FF7C74D6B050A0F1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28514.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A59374620BC7C8B8A006870D9DEAB5E990D6D1F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28515.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D993B20974ADC3DD6D2F5BB045F51954FCB3FD99
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28516.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:52C5824250482904D7BCA8D00D7EC16A162B28C6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28517.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28517.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:4F043ADBADFFE416CEB78168F620A48134183C82
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28518.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:4BE65AB51CC3E496F1F472F97CF40BE4683DB3BA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28519.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28519.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:39C4EDE2B45EAA85B95A7A2CC56B1EA6CF224A56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28520.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28520.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Merion Academy, Никита Буцев | Онлайн-курс по сетев�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28521.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Topaz Gigapixel AI Pro 8.2.1 RC + models Portable by 7997 (x64) [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28522.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28522.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F3DC63A8BB5E087D0D5DEEF1646304FE462AA8BD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28523.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28523.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:B66D51966A9CD98FF4BE5A6E2AB5A22D42C56E86
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28524.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28524.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Topaz Gigapixel AI 8.2.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28525.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:DC57BD75C5F745A63FDCABC74058787CEBEF10CF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28526.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28526.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Geekbrains | Профессия Программист Android (2015) PCRec [H.2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28527.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Dying Light: The Following (2016) [Ru/En] (1.38.0/dlc) Repack xatab [Enhanced Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28528.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ EMPO - курсы SEO с гарантией роста позиций [Прод�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28529.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ ITVDN | VUE.JS (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28530.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:1ED7E1F22EDBED0FE5F6442A64FBE8BA4A018D94
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28531.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:247AAAEC9947079DFE8D5DE8E3BE6B1BBAEC6CBF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28532.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28532.jpg" />
 </div>
 
 

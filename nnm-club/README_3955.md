@@ -1,3 +1,81 @@
+###  Публикация: 1692374   (122512) от 16.01.2024
+
+To The Max! - Midnight Tea (2024) [MP3|320 Kbps] <Heavy Rock'n'Roll, Garage, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Master [00:03:37]
+02 - Speed [00:03:46]
+03 - No Matter What [00:04:08]
+04 - P.O.V [00:03:59](   Читать дальше...   )Жанр: Heavy Rock'n'Roll, Garage, Stoner, DoomПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1635BECED329FF0F947A8710B15693BD7F3170E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692422   (122513) от 16.01.2024
+
+Журнал | Цветок №1 (475) (январь 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5DEFB4385686389B4FB5ACDA5A9AD8FEF49214
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692365   (122514) от 16.01.2024
+
+Александра Анненская | Николай Васильевич Гоголь. Жизнь и творчество (2008) [MP3, Игорь Серебряный]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиобиблиотека школьника.
+Александра Никитична Анненская (1840–1915) – педагог и известная детская писательница XIX – начала XX века, сестра П.Н. Ткачева, супруга Н.Ф. Анненского.
+Издание содержит великолепно написанную, знаменитую работу Александры Анненской «Биографический очерк А.Н. Анненской. Гоголь. Его жизнь и литературная деятельность».
+Произведение (   Читать дальше...   )Жанр: Русская литература, классика, биографический очеркИздательство: ИДДК, БизнессофтПродолжительность: 03:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483008D6E0E96B0C0BA8169064A3C510F68855CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692511   (122515) от 16.01.2024
 
 DxO PhotoLab 6 ELITE Edition 6.13.0 [Multi]
@@ -6,7 +84,7 @@ DxO PhotoLab 6 ELITE Edition 6.13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122515.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ Magia Nera - Vlad (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122516.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MetaImage for Mac 2.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122517.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ PowerTribe - Up with the Sword (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122518.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122519.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ ScrollNavigator 5.15.3 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122520.jpg" />
 </div>
 
 
@@ -161,7 +239,7 @@ K-Lite Codec Pack Update 18.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122521.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ Chris Rea - The Blue Jukebox (2004) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122522.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ magnet:?xt=urn:btih:4B7EA95C14F7B47751ED8F402D259637F5B53C24
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122523.jpg" />
 </div>
 
 
@@ -236,7 +314,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264/720p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122524.jpg" />
 </div>
 
 
@@ -260,7 +338,7 @@ Chris Rea - Blue Street (Five Guitars) (2003) [OGG Vorbis|480 Kbps] <Blues Rock,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122525.jpg" />
 </div>
 
 
@@ -287,7 +365,7 @@ magnet:?xt=urn:btih:A504A6D0EF67542F2C78D5BE8FCEC49A6C7FECEE
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122526.jpg" />
 </div>
 
 
@@ -311,7 +389,7 @@ magnet:?xt=urn:btih:38B2C6C5E1EFE50B805946699627D06CBF6FCC79
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122527.jpg" />
 </div>
 
 
@@ -336,7 +414,7 @@ magnet:?xt=urn:btih:0E2B67FF170AB0A6BBDA664C2D3777E34AFBE308
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122528.jpg" />
 </div>
 
 
@@ -362,7 +440,7 @@ magnet:?xt=urn:btih:65A7FE6A247E0674390577E0317750FD89B92F6F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122529.jpg" />
 </div>
 
 
@@ -388,7 +466,7 @@ magnet:?xt=urn:btih:9A7325D4705C79B46CDB8588DE0AB360284CA59E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122530.jpg" />
 </div>
 
 
@@ -412,7 +490,7 @@ Adobe InCopy 2024 v.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122531.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ DxO PhotoLab 7 ELITE Edition 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122532.jpg" />
 </div>
 
 
@@ -462,7 +540,7 @@ magnet:?xt=urn:btih:C40415859F17B49186CCE5F679A78ECC93661AA2
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122533.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:DD98880513D64386D8006B0D9AE71B27AA1C9228
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122534.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Remaster, 2023, MVKA/Grandmono R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122535.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ Fort Firewall 3.10.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122536.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ magnet:?xt=urn:btih:47FCFD6D58E4B7445B08BFF5331F8C4251461D42
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122537.jpg" />
 </div>
 
 
@@ -572,78 +650,6 @@ magnet:?xt=urn:btih:47FCFD6D58E4B7445B08BFF5331F8C4251461D42
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B49A645ADEF53F720E3710C1F5EBB4734003BCA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692487   (122538) от 16.01.2024
-
-Журнал | Садовод и огородник №1 (516) (январь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122538.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262B5E256D3946BF0FE397AC3D76685273958A06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692497   (122539) от 16.01.2024
-
-VueScan Pro for Mac 9.8.25 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122539.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan является приложением для работы со сканерами Minolta, HP, Nikon, Epson, Polaroid, Canon и мн.др. Поддерживается работа с глубиной цвета, а также автоматическая и ручная настройки большого количества параметров и пакетного режима сканирования. VueScan поддерживает больше 2800 моделей сканеров. Приложением предусмотрено автоустранение дефектов с изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 Hamrick SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8DE1CDB45A9D57330D4593C73D30ADD1563BEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692453   (122540) от 16.01.2024
-
-FBackup 9.9.849 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122540.jpg" />
-</div>
-
-
-###  Подробнее
-
-FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFEDD617C310EAA333A0B9D1D435846DFABE3DA
 ```
 
 

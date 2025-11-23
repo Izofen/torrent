@@ -6,7 +6,7 @@ Wise Care 365 Pro 7.1.0.692 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34309.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:866506E6352A1B48048D07F8380C29C21E83E01E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34310.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:52ADE134D5421E3CD36F0B21FAA21DAFBD5B3AE0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34311.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ DR14 T.meter 2.0.0 [x32, x64] (py)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34312.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ TikTok Private Plus (PayBack Edition) v37.7.3 Mod by TikTok Updates + Plugin Upd
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34313.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.1.54706 Extra Mod by Balatan [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34314.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:4C0472438B6FAD584BD8CD7452B6310157DFE19C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34315.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Audacity 3.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34316.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:2B9E5195E9B0D31004DEF4A02750C0E9159F8694
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34317.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A430A5FA71A1DE87BFB52866AD786BCFCF53F1BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34318.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3D3BFC385F96DD73C1AB8FAE685AB2FC36E4CA07
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34319.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ One Read / Все Документы Читатель - Офис v1.2.1.39 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34320.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6035440CA8094689BFD733A30C40BD0498F235B6
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34321.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.8.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34322.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:5E2E7C287AE8E55D358BEA7494AB7222E43A8406
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34323.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Awesome 90's Hits (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34324.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:22AB0F4A480B62F6245A939541FA8E3071D66728
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34325.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:22AB0F4A480B62F6245A939541FA8E3071D66728
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34326.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:9F4C95DC8E65CEAC070D3F3B7CEFC56D422A064B
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34327.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:2EC8C65324AEC0CC81FCF8ED765487B8703DC6E8
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34328.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:9684D68A1A83E9EEFD53BFDE6CE0C5D20622F0D7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34329.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:7DEDCDFE3574CE7355D31FFA0671DBA49F7B036A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34330.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:31705045EB049125642D9C679B326A6B76AFA27E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34331.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34332.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:21A6AAE4FABC09A96CFE6BF77D3C85F980363718
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34333.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Age of History 3 1.035 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34334.jpg" />
 </div>
 
 

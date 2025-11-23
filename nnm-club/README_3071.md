@@ -1,3 +1,99 @@
+###  Публикация: 471671   (97436) от 22.03.2012
+
+Pybus Groove Quartet - Good Evening (2011) [MP3|192 кб/с]<Jazz, Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97436.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Good Evening (6:02)
+2.Natural Blend (6:17)
+3.Green Tea (5:18)
+4.Chatterbox (5:57)
+5.Sweet Soul (6:32)
+6.Fot-li (3:57)
+7.Misterios al Descubierto (6:21)
+8.Shamtime (5:15)2011Жанр: Jazz, FunkПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3418B4286ADBB410358C360A46F8E56AE1CD8F24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471442   (97437) от 22.03.2012
+
+Borknagar - Urd (2012) [MP3|192 кб/с]<Black Metal / Progressive Viking/Folk Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97437.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Epochalypse 06:08
+2. Roots 05:55
+3. The Beauty of Dead Cities 04:15
+4. The Earthling 06:51
+5. The Plains of Memories 04:27
+6. Mount Regency 06:08
+7. Frostrite 04:50
+8. The Winter Eclipse 08:45
+9. In a Deeper World 05:422012Жанр: Black Metal / Progressive Viking/Folk MetalПродолжительность: 00:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21BBAD42D6D82304EB39EFA7302D9765B4C1751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470990   (97438) от 22.03.2012
+
+SRS - Совместный [DNИL, DiZou, Benny] (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (DiZou, DNИL, Benny)
+02. О своём (Benny, DNИL, DiZou, Alex Grey, SLY)
+03. Отрадный (solo: DNИL)
+04. Возвращение (DNИL & KSENIA)
+05. Все реже (DNИL & DiZou)
+06. Каждому своё (DNИL & DiZou)
+07. НеделА (DiZou, DNИL, Benny)
+08. Давай братан (solo: DiZou) 256 кб/с
+09. Время (DNИL & DiZou)
+10. Пару историй (Benny & DNИL)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 01:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F021582CD9904FB29AFFBA08EADF2E645C623D8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471884   (97439) от 22.03.2012
 
 Водная жизнь (серия 4 из 26) / Water Life (2007)  BDRip [720p]
@@ -6,7 +102,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97439.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ magnet:?xt=urn:btih:CFF763FB9D51FE7772BEA9C9903999239DB43432
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97440.jpg" />
 </div>
 
 
@@ -58,7 +154,7 @@ VA - Organic Wick (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97441.jpg" />
 </div>
 
 
@@ -91,7 +187,7 @@ Various Artists - Tranceffect 17 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97443.jpg" />
 </div>
 
 
@@ -124,7 +220,7 @@ VA - XXXL Клубный Весна (2012) [MP3|192 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97449.jpg" />
 </div>
 
 
@@ -157,7 +253,7 @@ magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97452.jpg" />
 </div>
 
 
@@ -182,7 +278,7 @@ Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97453.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97453.jpg" />
 </div>
 
 
@@ -214,7 +310,7 @@ BurnAware Free 4.8 Beta 2 [Rus/Eng/Ukr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97455.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97455.jpg" />
 </div>
 
 
@@ -238,7 +334,7 @@ BurnAware - простая, но могучая программа для зап
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97456.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97456.jpg" />
 </div>
 
 
@@ -262,7 +358,7 @@ BurnAware - простая, но могучая программа для зап
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97461.jpg" />
 </div>
 
 
@@ -286,7 +382,7 @@ magnet:?xt=urn:btih:16407446C489124AFE97712CB2A2BE3469F863FA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97462.jpg" />
 </div>
 
 
@@ -310,7 +406,7 @@ magnet:?xt=urn:btih:4578BF2B7C9150B646C6584B836F3B590A94096E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97463.jpg" />
 </div>
 
 
@@ -334,7 +430,7 @@ magnet:?xt=urn:btih:AEEC196C490C5CD2A47C4CF6D0B57BA0DFB2491A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97465.jpg" />
 </div>
 
 
@@ -358,7 +454,7 @@ magnet:?xt=urn:btih:EA020B7BAB07EC430B344C75A683E0D21699C80B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97466.jpg" />
 </div>
 
 
@@ -382,7 +478,7 @@ magnet:?xt=urn:btih:D8291924B466B48325091C7628CE00FF82C32D43
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97467.jpg" />
 </div>
 
 
@@ -406,7 +502,7 @@ magnet:?xt=urn:btih:B0B3A07E60DF26FC47C0F7996AE5199CE87E2A3C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97468.jpg" />
 </div>
 
 
@@ -434,7 +530,7 @@ magnet:?xt=urn:btih:F3CB1E89F8B59EFFB1AF71EE14FE2616A2AD5C13
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97469.jpg" />
 </div>
 
 
@@ -458,7 +554,7 @@ magnet:?xt=urn:btih:DA98D70C168CA289DD2E5AF21318A74D6F546EAA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97470.jpg" />
 </div>
 
 
@@ -482,7 +578,7 @@ magnet:?xt=urn:btih:00B23C5E0D2CE8771071563801792973E0767880
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97471.jpg" />
 </div>
 
 
@@ -506,7 +602,7 @@ magnet:?xt=urn:btih:AC291A407757D4E69E3A079CCEE4B731C7281D62
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97472.jpg" />
 </div>
 
 
@@ -534,7 +630,7 @@ magnet:?xt=urn:btih:6612A261603468982326119ADE089A6577951A5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97476.jpg" />
 </div>
 
 
@@ -558,7 +654,7 @@ magnet:?xt=urn:btih:DE479A87E60327744187EA637DA804824BA2AB53
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97477.jpg" />
 </div>
 
 
@@ -582,7 +678,7 @@ magnet:?xt=urn:btih:CB89B0F8576D8ECBE05DC750E26B68D20DB71636
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97479.jpg" />
 </div>
 
 
@@ -593,96 +689,6 @@ magnet:?xt=urn:btih:CB89B0F8576D8ECBE05DC750E26B68D20DB71636
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:233F40E3E7A4E3F750613649302FCF92748AA6D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472444   (97480) от 23.03.2012
-
-Формула 1. Гран-При Малайзии. 2-ая свободная практика (2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EF954EB8C0FD769CC7384F5CBE91A529E7D916
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471931   (97481) от 23.03.2012
-
-VA -Top-Hits.Только хиты на Танцполе (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97481.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flash и Ксения - На Крыльях Ветра (Radio Edit) (3:09)
-2. Макс Барских - Dance (Russian Version) (3:21)
-3. Глюкоза - Кошка (3:23)
-4. Юлия Паршута - Ты Мой Пароль (3:22)
-5. Ак$ис - Вернись (4:36)
-6. Потап и Настя Каменских - Не Хватило Воздуха (3:26)
-7. Макsим - Осколки (3:40)
-8. Анна Суворова - Слезы На Твоей Подушке (2:35)
-9. Винтаж и DJ Smash - Москва (3:45)
-10. Dan Balan - Лишь до утра (Dance Version) (3:21)2012Жанр: PopПродолжительность: 06:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F67E58C6AE2AD102DFD4BBD30F60743099C9D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472041   (97482) от 23.03.2012
-
-VA - XXXL Дворовой Весна (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ляля Размахова - Дворовая
-02. Без Фильтра - Бывали дни (дворовая версия)
-03. Женя Белоусов - Вечером на лавочке
-04. Катерина Голицына - Романс Дворовой
-05. Гриша Заречный - Дворовая
-06. Scrash - Хулиган
-07. Валентин Стрыкало - Наше лето
-08. Кабриолет - Песню нежно напевала
-09. Алексин - Страшная
-10. Валерий Залкин - Одинокая ветка сирени2012Жанр: PopПродолжительность: 06:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D65A11BBFDF2F0383DD4F43EB66CE6A5CD22D9
 ```
 
 

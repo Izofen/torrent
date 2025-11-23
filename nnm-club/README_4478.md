@@ -1,3 +1,76 @@
+###  Публикация: 1679390   (138506) от 25.11.2023
+
+Multitouch 1.27.22 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2022 Brass Monkery LLCПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A91E23CDFC893D840EED330F297E816B1000EFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315926   (138507) от 30.12.2019
+
+Enen no Shouboutai | Пламенный отряд [2019, TV] [24 из 24] WEB-DL 1080p raw+rus
+
+>>След.
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Токио объят пламенем. Всё дело в феномене самовозгорания, которым страдают жители. Справиться со взбунтовавшимся огнём по силам лишь членам Пламенных отрядов, в чьи ряды так спешит вступить Синра. В униформе Восьмого отряда, ловко манипулируя своими дьявольскими ступнями, наш герой не позволит городу обратиться в пепел! Вот только призраки прошлого и тайна, сокрытая (   Читать дальше...   )Производство: Япония, David ProductionЖанр: Боевик, Тёмное фэнтези, Научная фантастика, ПриключенияРежиссер: Хатисэ ЮкиЯзык озвучки: Японская и русская
+1) дубляж от ТО "Студийная Банда"Субтитры: надписи, неотключаемыеПродолжительность: 24 эп. по ~24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF2B4381E1F5327827C7763F61FF6659884CBAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273131   (138508) от 30.12.2018
+
+The Bat! Professional 8.7.0 (Рождественская версия) [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138508.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6A071CAF5DE4AF6EFEC52F26826D543112C8B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088623   (138509) от 31.12.2016
 
 Наконец-то Рождество / Finalmente a casa (2008) SATRip
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138509.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Bokutachi wa Benkyou ga Dekinai [TV-2] | Мы не можем учиться! [�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138511.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:314E79E40459E24665CE8E134360A6DAE06FCCD2
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138512.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:EF5F5DDD6B2DB630B925BF04CE4157E21091D9DA
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138514.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:0D1E582A5877D5AD164131A5FE130CED39313035
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138515.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:23C836B5A51587B93F247968519C0D9F146739D1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138516.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:55714AA2D8B11996B2C55865735456D5081EEF11
 >>Прошедшие конкурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138518.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ magnet:?xt=urn:btih:55714AA2D8B11996B2C55865735456D5081EEF11
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138519.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:7CFE6F59FDBAB462865E0B4BECC18CEFD730772C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138522.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ magnet:?xt=urn:btih:89ED36690989F940EE84A9FEC6A51D461581F758
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138523.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:728ECFD9F1B376879D4EC0146501406EED683DAC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138524.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ Google Earth Pro 7.0.2.8415 Final + PortableAppZ [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138525.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ Google Earth. Программа предназначена для работы 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138528.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ magnet:?xt=urn:btih:4B76F2374DBE08DE2D809A58F8313FB3DCD153F3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138529.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ magnet:?xt=urn:btih:90741CAFC2A51C175763BAE6277FD0C978F2916F
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138530.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:39BAC27542D87EE602BC764A748A15AB1DBCC47D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138531.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:5D0AF434F082A3EC1BB2CD4C06AD8681A805BCE9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138532.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ magnet:?xt=urn:btih:EBDF6022EEAFC744FC8517A55728B03A6C1536B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138534.jpg" />
 </div>
 
 
@@ -446,7 +519,7 @@ VSO ConvertXtoDVD 6.0.0.12 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138536.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138537.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Movavi Photo Editor 5.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138538.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138539.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ magnet:?xt=urn:btih:5B34C111400533B7AF81DE2F9A8C67553C9295ED
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138540.jpg" />
 </div>
 
 
@@ -558,82 +631,6 @@ magnet:?xt=urn:btih:5B34C111400533B7AF81DE2F9A8C67553C9295ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FC889965B1BB0223354444EAA78ED9EF8C21F62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349047   (138543) от 30.12.2019
-
-EasyBCD 2.4.0.237 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138543.jpg" />
-</div>
-
-
-###  Подробнее
-
-EasyBCD - менеджер загрузки операционных систем для Windows, позволяющий быстро настроить загрузку ОС и использовать несколько операционных систем на одном компьютере (поддерживаются все версии Windows, Linux, Mac OS X и BSD). С помощью EasyBCD можно установить и сконфигурировать загрузочные записи ОС, что позволит загружать любую из поддерживаемых операционных систем (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FF05C37BE078637DE2EE95BA3437F2AF00746C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436136   (138544) от 30.12.2020
-
-Advanced Renamer 3.87 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
-Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D606A7B13CD1D5C3E82359EBFBDD00C6A6966DE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679246   (138545) от 25.11.2023
-
-Nail Within - Sound Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Death Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bleeding Society (feat. Tom Angelripper) [3:39]
-02 - Eyes Of Evil [2:06]
-03 - Sound Of Demise [4:06]
-04 - Regression... And The Price We Pay [3:47](   Читать дальше...   )Жанр: Metal, Death Metal, Melodic Death MetalПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A58D3003B5CE5BA576876924341D00E24BEF5B3
 ```
 
 

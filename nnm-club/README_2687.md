@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70610.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ExtraDisks 25.2.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70611.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - House of the past years (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70612.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Stoto - Compilation (2025) [MP3|320 Kbps] <Electronic, Instrumental>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70613.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Lacuna Coil - Sleepless Empire (2025) [FLAC|Lossless|image + .cue] <Gothic, Alte
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70614.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ TuneIn Radio Pro v37.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70615.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F5D6050345ECF522EFA920D53C508B5E70A23FD0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70616.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Compilation part 143 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70617.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - ADE Underground Amsterdam Sampler (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70618.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Ori Uplift - Uplifting Only Episode 627 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70619.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:5D8394B2C28C916CF02EC402701CEA596A576345
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70620.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:D7DA83AF58024418D2C830E013DAC41396EBFF45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70621.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Dick Hyman - Plays The Great American Songbook (1994) 2CD, MusicMasters Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70622.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:9CD2101B9897BDCC1A392EA09ECB728880512CD7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70623.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:F6237058E2EB956433CEA6D302539B79584CEEA6
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70624.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Les McCann - How's Your Mother (1967) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70625.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Johnny Valdivia - Mandolin Cover Compilation (2025) [MP3|320 Kbps] <Instrumental
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70626.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:FC8546BB2F59AD5542BB850DE2CBC6729B68FDF9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70627.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Process Lasso Pro  15.1.0.41 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70628.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70629.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:87179B3297DBE0E58B570F99D009833A21FDD4B3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70630.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:B8783B7164E4968142D1FE74B626703FC64BC5EF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70631.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Fidel Wicked - Compilation (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70632.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Ginger Evil - The Way It Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70633.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Winter Tech House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70634.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:69BC9CACEEE4EA595F5A47B72818B4F29A0A9614
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70635.jpg" />
 </div>
 
 

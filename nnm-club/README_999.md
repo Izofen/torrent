@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26322.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:BE5FF24494AF0B5F813FC42D0ADD89EFF10CA3F4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26323.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CAD3FACE085CAC2F36DA13E10AC72948A49AA28D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26324.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0753DB37BF6F14785350EE57BC4C3B84C61574E3
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26325.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:349426AB492667D3F33CCDDCC3366A83B4BB54A3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26326.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:7F503A15FEE17EBD02CA84C48AFDCA3C81719C14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26327.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1CDAC96CA3153898EE68140B587F62727DDFCD80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26328.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:5969C351D405D8A5D93B4B6FA282C2AAB5E0A31A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26329.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:0DACC29B65A81FD8C2BD8E19C8633423296D797D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26330.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7432D25957C7C34CE01E26A512778CEEBB924DFA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26331.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7432D25957C7C34CE01E26A512778CEEBB924DFA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26332.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26332.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The First Berserker Khazan (2025) [Ru/Multi] (480684) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26333.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:6A8C84FABDD580168ABBFFE9F199854B4E8B6A42
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26334.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3CD6856B107F94FA8841C5CFE85E83114AFA3730
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26335.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26335.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:3CD6856B107F94FA8841C5CFE85E83114AFA3730
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26336.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26336.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C17276E11DB75161C77A9F17E2B8774312082A6E
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26337.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26337.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:41D74F4BEE31561049E585E71364F2C125FE3BCA
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26338.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:988C235DE1AED1B67EFDF10AE245EA0CE39ADBFD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26339.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26339.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:F5043DA466FFC5B6316D9897663E86B9CF8D2D31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26340.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ StartAllBack 3.9.5 build 5256 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26341.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:197156AD5E24E982FD538D756620677E2F3023C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26342.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26342.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2C04EBD3939037C139BDB26811AB3C1CF2F7F87E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26343.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29.106/dlc) Repack W
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26344.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26345.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26345.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:E19147BC75F8D5F4F24458A664E81FBBF44FEC70
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26346.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26346.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:02E7673886389F7571AF5856EA4A1F4F1E6B4C86
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26347.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26347.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61517.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deep Purple - Machine Head (Remix 2024, Remaster 2024) (1972) Remix, Remaster, 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61518.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:20DBF197FF82FB55288BC899BB5BB9F23F156C46
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61519.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Macrorit Partition Extender 2.3.2 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61520.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ HWiNFO 8.00 Build 5400 + Portable (28.03.2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61521.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Topaz Video AI 4.2.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61522.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AquaSoft Stages 15.2.03 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61523.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E4049E6E941FA2EC1BD8205A2B9A1F8174AD363D
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61524.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Topaz Photo AI 2 for Mac 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61525.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:14C1F8839FDC757E0FF7C52AB7B1048C06D2A7C1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61526.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:B5E2433766CFFD9D62E4F3CBAE9BD493C93141B9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61527.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:2BCB92F808A32C64E51359F39AD815594D5755C9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61528.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:6A72D60B5726DC4E76DA6D2CDE8BD112F3413FBF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61529.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Topaz Video AI for Mac 4.2.2 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61530.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Topaz Gigapixel AI for Mac 7.0.5 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61531.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Techno Bunker 4 (2024) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61532.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VanDyke SecureCRT and SecureFX 9.5.1 ARM/iNTEL [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61533.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:EF02A58EC3F5976AB1145D47F2CB75C81BF7D12B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61534.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Atomix VirtualDJ 2023 Pro Infinity 8.5.7921 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61535.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Office Installer & Office Installer+ 1.11 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61536.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Gekkan Mousou Kagaku | Delusional Monthly Magazine | Псевдонаучный 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61537.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61538.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:C7BC3321B59AECAAE0D01B183749B25395AAD794
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61539.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Victoria II (2) (2010) [Ru/Multi] (4904558/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61540.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:F65F19E830EF8958EBF332C7FEF7375FBD235262
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61541.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Distant Bloom (2024) [Multi] (1.0) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61542.jpg" />
 </div>
 
 

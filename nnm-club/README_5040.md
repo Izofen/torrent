@@ -1,3 +1,179 @@
+###  Публикация: 1600684   (155959) от 28.12.2022
+
+Фергюс Хьюм | Загадка Пикадилли (2022) [MP3, Иван Шевелев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спенсер Эллерсби, единственный сын богатого вест-индского плантатора, вернулся из путешествия и отправился на бал, а по возвращении с него случайно обнаружил тело убитой девушки. Подозрение падает на его друга. Детективы начинают расследование, которое вскрывает целый клубок тайн и загадок. Финал будет неожиданным...Жанр: детектив, триллерПродолжительность: 05:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A9BA1FC00A53FE029F064B29A98F3723703779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346864   (155960) от 21.12.2019
+
+EtreCheck Pro 6.1.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минималистичное и очень простое в использовании приложение macOS, которое собирает важную информацию о вашей системе и помогает вам делиться ею с другими
+
+Сбор важной информации о ваших аппаратных компонентах Mac, установленном программном обеспечении или запущенных процессах может оказаться довольно сложным для неопытных пользователей или трудоемким временем для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Etresoft, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E24ECE94972738C0C019AEACAD6623C65795CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433712   (155961) от 21.12.2020
+
+Проекты - VideoHive - Happy New Year (4K slideshow) - 29809152 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселый анимированный шаблон After Effects, который можно использовать для отображения любимых фотографий и видеоклипов в трехмерной среде. В нем есть несколько динамически анимированных панелей фотографий, плавающих среди воздушных шаров и конфетти. Произведите впечатление на свою аудиторию этим волшебным шаблоном AE. Идеально подходит для Рождества, Нового года, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424B22E5A691637D86304B1535D83371DE3660C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270631   (155962) от 20.12.2018
+
+VA - Infrasonic: The Best Of 2018 (Mixed by Solis & Sean Truby) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract Vision presents Subbota – Noonday Shadows (extended mix) (05:50)
+02. Sam Valar – Dreamwalker (extended mix) (05:50)
+03. Arggic – Dreamyness (extended mix) (05:46)
+04. Arti5an – Come What May (feat Anki - extended mix) (06:34)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C342660FAA38224835D5C19D83D7D8C2CF577E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853817   (155964) от 27.12.2014
+
+Весёлая хроника опасного путешествия / Argonavtebi (1986) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыкальный, лирический, комедияРежиссер: Евгений ГинзбургАктеры: Зураб Кипшидзе, Александр Абдулов, Лика Кавжарадзе, Сергей Шакуров, Теймураз Циклаури, Роман Рцхиладзе, Нугзар Квашали, Джемал Багашвили, Игорь Рух, Анатолий Калмыков, Вахтанг Татишвили, Александр Басилая, Анри Басилая, Валентин Манохин, Елена Степанова, Эльвира Зубкова, Леонид ЯрмольникПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10258E87F407242A638CFDB6DB8576EDB89DEBCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968209   (155965) от 23.12.2015
+
+Жюль Верн | Таинственный остров (1980) [DJVU]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155965.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Таинственный остров» (фр. L'Île mystérieuse) — роман-робинзонада французского писателя Жюля Верна, впервые опубликованный в 1874 году. Является продолжением известных произведений писателя «20 000 льё под водой» и «Дети капитана Гранта». В книге повествуется о событиях, происходящих на вымышленном острове, где остановился капитан Немо на своей подводной (   Читать дальше...   )Жанр: ПриключенияПеревод: А. Худадовой, Н. НемчиновойФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FCC2EACEDBD587EF8551B16E3D205F28D74B17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600649   (155966) от 28.12.2022
+
+Popol Ace - Stolen From Time (1975) Reissue, 1990, Polydor [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bury Me Dead - 5:50
+2. Today Another Day - 5:45
+3. Jester - 3:58
+4. Soft Shoe Dancer - 4:37(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC8BD068CF232335514CFC5EC433E9299292C79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518397   (155968) от 19.12.2021
 
 Kryder - Kryteria Radio 321 (Kryder Yearmix) (2021-12-15) [MP3|192 Kbps] <Progressive House>
@@ -6,7 +182,7 @@ Kryder - Kryteria Radio 321 (Kryder Yearmix) (2021-12-15) [MP3|192 Kbps] <Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155968.jpg" />
 </div>
 
 
@@ -33,7 +209,7 @@ magnet:?xt=urn:btih:021A12698E398516B9DDD26109E61C9AF7A08EAD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155969.jpg" />
 </div>
 
 
@@ -57,7 +233,7 @@ magnet:?xt=urn:btih:BBE08D820E75BDB10ED123645DC97AB9AD46CD95
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155970.jpg" />
 </div>
 
 
@@ -81,7 +257,7 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155971.jpg" />
 </div>
 
 
@@ -114,7 +290,7 @@ Them - Manor of the Se7en Gables (2018) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155973.jpg" />
 </div>
 
 
@@ -141,7 +317,7 @@ VA - Nick Warren - The Soundgarden - Volume One (2014) Hope Recordings [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155974.jpg" />
 </div>
 
 
@@ -168,7 +344,7 @@ magnet:?xt=urn:btih:CAEA7ACC43FE4D04EAF0E8C553CFDD2758ECC7DD
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155976.jpg" />
 </div>
 
 
@@ -192,7 +368,7 @@ magnet:?xt=urn:btih:5EDD62C4F2E5005AB3B275647C4645A89C50479D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155977.jpg" />
 </div>
 
 
@@ -216,7 +392,7 @@ One Last Day - Прости, что так (2022) [MP3|320 Kbps] <Alternative Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155979.jpg" />
 </div>
 
 
@@ -243,7 +419,7 @@ Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155980.jpg" />
 </div>
 
 
@@ -270,7 +446,7 @@ Loopback 2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155981.jpg" />
 </div>
 
 
@@ -295,7 +471,7 @@ magnet:?xt=urn:btih:8FEB08D478A25BC2564139D609D8BAAAAE61CF08
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155982.jpg" />
 </div>
 
 
@@ -319,7 +495,7 @@ Boston - Walk On (1994) [FLAC|Lossless|tracks + .cue] <Arena Rock, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155983.jpg" />
 </div>
 
 
@@ -346,7 +522,7 @@ magnet:?xt=urn:btih:8DDF01C9FA12CCA9B136F65F0BE8709A2127AC69
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155984.jpg" />
 </div>
 
 
@@ -370,7 +546,7 @@ magnet:?xt=urn:btih:AFB41EBED7EC0C5EF907A8F55917CA9E10BCDF0E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155986.jpg" />
 </div>
 
 
@@ -397,7 +573,7 @@ magnet:?xt=urn:btih:D3086A7FF3E8603BB7B07C0C981ADFA1B5DE4EE3
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155987.jpg" />
 </div>
 
 
@@ -421,7 +597,7 @@ magnet:?xt=urn:btih:21CD690FCDD31916192870131EA1FEFF877AC3A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155988.jpg" />
 </div>
 
 
@@ -445,7 +621,7 @@ Disk Xray 2.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155990.jpg" />
 </div>
 
 
@@ -472,7 +648,7 @@ magnet:?xt=urn:btih:A9AF2CC585AD1645818839F5C27B173948C165D8
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155991.jpg" />
 </div>
 
 
@@ -483,198 +659,6 @@ magnet:?xt=urn:btih:A9AF2CC585AD1645818839F5C27B173948C165D8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21045F4026E0C744FDB44B726A988F0F257F4BB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738250   (155993) от 24.12.2013
-
-Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поговорим о любви 1
-1. Любимая (Cheri Cheri Lady) 3:46
-2. Немного любви (With A Little Love) 3:33
-3. Бурные воды (Wild Wild Water) 4:18
-4. Ты - мое сердце, ты - моя душа (You're My Heart, You're My Soul) 5:32
-5. Как ангел (Just Like An Angel) 3:14
-Поговорим о любви 2
-1. Небеса будут знать (Heaven Will Know) 4:02
-2. Любовь здесь больше не живет (Love Don't Live Here Anymore) 4:22
-3. Почему именно сегодня? (Why Did You Do It Just Tonight?) 4:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194041   (155994) от 25.12.2017
-
-Санный спорт. Кубок мира 2017-2018. 5-й Этап. Лейк-Плесид (США). Женщины - Спринт (16.12.2017) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155994.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 декабря 2017 года
-Кубок мира 2017-2018. 5-й Этап. Лейк-Плесид (США)
-Спринт — Женщины
-Стадион: Олимпийская санно-бобслейная трасса (Лейк-Плесид, США)Телекомпания: FIL TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3140F4920A492B70A8561C5FC18A533380B59DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085779   (155995) от 22.12.2016
-
-Спортсмен PRO. Тренировка 2.18 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Твой персональный фитнес тренер.
-Силовые тренировки:
-• 50 подтягиваний
-• 50 подъемов ног в висе(   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 16 ноября 2016 гРазработчик: AxiomMobileПоддерживаемая ОС: Android 4.1+Жанр: Здоровье и фитнесЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D553AF496C9EA425BB8EF4BF07214A6727433C6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433162   (155996) от 21.12.2020
-
-Малышка с характером / The Doorman (2020) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155996.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом она – солдат спецподразделения, в настоящем - швейцар в роскошном отеле, где готовится дерзкое ограбление. Лишь она стоит между безжалостными преступниками и бесценными произведениями искусства, спрятанными в стенах отеля.Производство: США / Double Dutch International, Smash Media, CR8IV DNAЖанр: Боевик, триллерРежиссер: Рюхэй КитамураАктеры: Руби Роуз, Жан Рено, Аксель Хенни, Руперт Эванс, Джулиан Федер, Кайла Лорд Кэссиди, Луис Мэндилор, Дэн Сауфуорф, Хидэаки Ито, Дэвид СакурайПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2D627397D3F05E05BC25DCFC4F08A2D87F7363
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968393   (155997) от 23.12.2015
-
-Александр Бузмаков, Ирина Васильчикова | Библия кофе (2011) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллионы людей не представляют сегодня своей жизни без кофе. Эта книга для тех, кто любит и ценит кофе, кто хочет попробовать новые рецепты и узнать про любимый напиток больше.
-•Сорта кофе;
-•На что обратить внимание при покупке зерен;
-•Как хранить кофе;(   Читать дальше...   )Жанр: Кулинария. Напитки. КофеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F17A5F0662D9010A60A95956FC5D60A31DADD9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270658   (155998) от 20.12.2018
-
-VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luc Forlorn - Feel So High 5:51
-02. Marga Sol, Darles Flow - Need You Tonight 5:04
-03. Aybee, Players Play Music - Pieces Of My Mind (Radio Edit) 3:32
-04. Blondee - Move Your Body (Club Mix) 4:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54D5B1EB5748A2220A3B8DC3CB21F7D196A7BA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600501   (155999) от 28.12.2022
-
-South of Reality - 4 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2015 - South of Reality
-2022 - Lone Star State Of Mind
-2022 - Southland(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 4 CD, 02:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED32C5DF50912B5F83BE83D12D8C344A59A2A157
 ```
 
 

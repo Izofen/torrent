@@ -1,3 +1,155 @@
+###  Публикация: 1828032   (193703) от 23.10.2025
+
+Пресеты - Zhenya Swan Presets - Metallic Blues [XMP, LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти пресеты я создал после съёмки на одной из самых известных вилл Италии на средиземноморском побережье Сорренто. Мраморные интерьеры, изящная текстура колонн и итальянская архитектура в сочетании с бирюзовой морской водой и глубоким синим небом — вот что вдохновило меня на создание этой совершенно особенной коллекции. Я часто использую её в своих трэвел-материалах (   Читать дальше...   )Формат: XMP, LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF318AE84329DFCCAC4650212ABA4DD418058FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828027   (193708) от 23.10.2025
+
+Шрифты - MyFonts - PGF Glyphos [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193708.jpg" />
+</div>
+
+
+###  Подробнее
+
+PGF Glyphos — это римский шрифт с засечками с широкими краями из семейства глифических шрифтов, сочетающий в себе чёткую, выразительную эстетику и архитектурную точность. Развиваясь на основе проекта «Legan», выпущенного в 2011 году , он теперь включает пять различных начертаний и курсив , каждый из которых обеспечивает резкий контраст для повышения универсальности (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4106B3974490BE4D722B5E49E760748C58C6FEA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653996   (193867) от 23.08.2023
+
+Кисти - Blender Market - VK Gamedev - Blender Ornaments Brushes [BLEND, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кисти для скульптинга орнамента в Blender 3D. Идеально подходит для скульптинга доспехов, оружия, средневековых стен и других поверхностей.
+Продукт предназначен как для начинающих, так и для профессиональных художников и студентов, чтобы упростить процесс скульптинга.
+Набор кистей настроен с помощью пользовательских текстур, настроек и миниатюр, а также правильно (   Читать дальше...   )Формат: BLEND, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220159AD00BC24249EDA3D65125F88941C58060A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652842   (194329) от 13.08.2023
+
+Экшены - GraphicRiver - Splatter Watercolor 2 Photoshop Action - 44080874 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splatter Watercolor 2 - новые кисти, новая техника и новый вид брызжущей акварели. Высокодетализированные текстуры и вариации акварельных элементов добавляют реализма и артистизма. Чтобы глубже погрузиться в красоту искусства и ускорить рабочий процесс, действие включает в себя множество пресетов! Пресеты облегчат вашу работу, но если вы не будете осторожны, они (   Читать дальше...   )Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB93A692ED921D1AC8D713D1B75869233CFC0F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648344   (195287) от 23.07.2023
+
+3D модели - 3D Scan Store - 10x Animation Ready Body Scan Pack [ZTL, FBX, TGA, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195287.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 готовых к анимации отсканированных мужских и женских тел:
+- Каждая модель представлена в ZTL формате с 6 сабдивами
+- Карты альбедо и карты нормалей в 8k
+- Развернутые карты глаз, рта, зубов и ресниц(   Читать дальше...   )Формат: ZTL, FBX, TGA, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340CC317AE6E732DE462C8234F85CFD83A4C00D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648138   (195336) от 21.07.2023
+
+3D модели - 3D Scan Store - Male and Female 3D model Bundle 48x Head Scans [ZTL, OBJ, MTL, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195336.jpg" />
+</div>
+
+
+###  Подробнее
+
+48 высококачественных сканов женских и мужских голов разных возрастов:
+- Каждая модель представлена в ZTL формате с 6 сабдивами
+- Карты альбедо 16k в формате PSD и 8k в формате JPG
+- Развернутые карты глаз, рта, зубов и ресниц(   Читать дальше...   )Формат: ZTL, OBJ, MTL, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422D2D59A32B24F53F19875CD8CE407F892487AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596504   (196319) от 30.06.2023
 
 Шаблоны - Mironova.studio - Шаблон фотокниги Russia & Виньетка [PSD]
@@ -6,7 +158,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196319.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196319.jpg" />
 </div>
 
 
@@ -32,7 +184,7 @@ magnet:?xt=urn:btih:DE3376FA0FB23D9F46DB1CB25EFDE2B01F0DF9A3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196375.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196375.jpg" />
 </div>
 
 
@@ -56,7 +208,7 @@ magnet:?xt=urn:btih:0AF4E6FA9DD487C2B3A143D1464CB54F0D9B1791
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196380.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196380.jpg" />
 </div>
 
 
@@ -80,7 +232,7 @@ magnet:?xt=urn:btih:1C4A5837E30BEEB332C88AF14BD822C5411E24A2
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196384.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196384.jpg" />
 </div>
 
 
@@ -104,7 +256,7 @@ magnet:?xt=urn:btih:11381EEDB42DE94F1D7C2726AF8010FC0E19210B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196400.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196400.jpg" />
 </div>
 
 
@@ -128,7 +280,7 @@ magnet:?xt=urn:btih:2D3BB480C220434A2397A86E561F81E6C01E8C97
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196402.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196402.jpg" />
 </div>
 
 
@@ -152,7 +304,7 @@ magnet:?xt=urn:btih:8E7363E4FD5DA0D6FBDD3D130AFE84CA465029EA
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196404.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196404.jpg" />
 </div>
 
 
@@ -176,7 +328,7 @@ magnet:?xt=urn:btih:A2D98D0326186A1ED2547E42A1593F4AD2F6C4D5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196408.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196408.jpg" />
 </div>
 
 
@@ -200,7 +352,7 @@ magnet:?xt=urn:btih:F2CE3EEA9878EC9CFAE1780CD11045D2CD2A07B4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196829.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196829.jpg" />
 </div>
 
 
@@ -224,7 +376,7 @@ magnet:?xt=urn:btih:C04F64F061DE4E4EF8ABFF43A47395D4D5CDE5AC
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196914.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196914.jpg" />
 </div>
 
 
@@ -248,7 +400,7 @@ magnet:?xt=urn:btih:1F446AE6E9A5385DCEEF2967481F2D69FF5278E6
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197489.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197489.jpg" />
 </div>
 
 
@@ -272,7 +424,7 @@ magnet:?xt=urn:btih:AE94E503E14CAE0C56B063B13346793A1901F7AF
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197502.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197502.jpg" />
 </div>
 
 
@@ -296,7 +448,7 @@ magnet:?xt=urn:btih:FDB365EED91FBEFBE594A03BC475451A5F5089DC
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197530.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197530.jpg" />
 </div>
 
 
@@ -320,7 +472,7 @@ magnet:?xt=urn:btih:5A711D6BC32D4F5D72E956FEECF82C872BA20E9F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197605.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197605.jpg" />
 </div>
 
 
@@ -344,7 +496,7 @@ magnet:?xt=urn:btih:7346FE5F1AFA99E6393DA08D498CBB1B5EBAD2C7
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197620.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197620.jpg" />
 </div>
 
 
@@ -371,7 +523,7 @@ magnet:?xt=urn:btih:A7257174B49412111A19EB854842CE435F55D132
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197628.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197628.jpg" />
 </div>
 
 
@@ -395,7 +547,7 @@ magnet:?xt=urn:btih:0541EAD66E31FD87253B2F7D2B0891C7F708A6FA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197630.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197630.jpg" />
 </div>
 
 
@@ -419,7 +571,7 @@ magnet:?xt=urn:btih:123B363914B6E33A12AF3EA88148F83361E44379
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197696.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197696.jpg" />
 </div>
 
 
@@ -443,7 +595,7 @@ magnet:?xt=urn:btih:43BCCA7EF4ED7C637C9742F97F00CF975C1EE599
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197699.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197699.jpg" />
 </div>
 
 
@@ -467,7 +619,7 @@ magnet:?xt=urn:btih:1F16C3A548C807A88904A0342D65B0CEA7D6AC8E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197701.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197701.jpg" />
 </div>
 
 
@@ -478,153 +630,6 @@ magnet:?xt=urn:btih:1F16C3A548C807A88904A0342D65B0CEA7D6AC8E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6577E55675D653576385F46457767BB0E7D76A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636822   (197710) от 01.06.2023
-
-Текстуры - 20 Slate Stone Texture HQ [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор тёмных каменных текстур.Формат: JPGРазрешение файлов: 6720x4480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724962349406E0CDCE262D8A49585F9A6181D8F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636828   (197715) от 01.06.2023
-
-Текстуры - Creative Market - 20 Golden Foil Texture - 10951219 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор золотых фонов в высоком разрешении.Формат: JPGРазрешение файлов: 6720x4480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C561932D78A3F9C0AA3BC6DC7A4F6991FBDD5D94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636238   (197762) от 29.05.2023
-
-3D print - Pikachu cosplays by FONTOURA3D [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция моделей для 3d-печати - Пикачу, который косплеит других персонажей.
-
-Пикачу — существо из серии игр, манги и аниме «Покемон».
-(   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D220B28D1110713A23E92698B22866F1DC2782EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635961   (197870) от 28.05.2023
-
-Фоны - 20 Abstract Backgrounds HQ [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной набор "абстрактных" фонов.Формат: JPGРазрешение файлов: 2000x2666
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5271E38279D4AC0BAC4190F00B9A481A988C7B79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635978   (197873) от 28.05.2023
-
-Фоны - 10 Leather Texture Background [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197873.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 кожаных текстур в высоком разрешении.Формат: JPG, PNGРазрешение файлов: 5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869D25C64D462E4CBD0437D5C4BFB4A66DB49687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635977   (197882) от 28.05.2023
-
-Текстуры - 15 Organic Grass Texture Pack [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё один набор текстур с травой.Формат: JPG, PNGРазрешение файлов: 4984x4992
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6228E06AB547C5E1AF62B44D157E5AC97DC01E4
 ```
 
 

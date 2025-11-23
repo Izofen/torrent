@@ -1,3 +1,178 @@
+###  Публикация: 1518239   (161050) от 18.12.2021
+
+Smultron 12 v12.5.3 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smultron - простой и удобный редактор. Smultron - простой и элегантный текстовый редактор, с которым можно легко создавать и редактировать любые неформатированные тексты.
+По словам разработчика, при создании редактора ставилась задача снабдить программу богатой функциональностью и обеспечить удобство ее использования как для опытных пользователей, так и для новичков. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 Peter Borg Apps ABПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCE304A289F837B309B8A59B350C8FD469D1667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674572   (161051) от 05.11.2023
+
+JUG Ru Group | Heisenbug 2023 Autumn. Конференция по тестированию не только для тестировщиков (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heisenbug - крупнейшая в России конференция по тестированию программного обеспечения. В программе выступления разного формата: от 25 до 45 минут и более, с 10 утра до 7 вечера.
+
+Доклады и дискуссии для специалистов разных профилей: QA-инженеров, разработчиков, тимлидов, директоров по качеству. Конференция больше ориентирована на технологии, чем на процессы и методологии.Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 47:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6C04E1760C9CC28964F076082E61DC59AA89F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598872   (161052) от 21.12.2022
+
+Няня / Nanny (2022) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иммигрантка из Сенегала Аиша устраивается на нелегальную работу няней в дом богатой пары с Манхэттена. Эта работа для нее — шанс на то, чтобы перевезти из Сенегала своего маленького сына, и Аиша готова на все, чтобы сохранить ее. Однако с каждым днем обстановка в доме становится все более зловещей и няня чувствует присутствие потусторонних сил, которые вторгаются (   Читать дальше...   )Производство: США / Blumhouse Television, First Look Media, LinLay Productions, Stay Gold FeaturesЖанр: ужасы, триллер, драмаРежиссер: Никиату ДжусуАктеры: Анна Диоп, Мишель Монахэн, Синква Уоллс, Морган Спектор, Роуз Декер, Лесли Аггамс, Olamide Candide-Johnson, Jahleel Kamara, Princess Adenike, Мици ПрэттПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русские, украинскиеПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279079DCF9EC4643726BCCB9E126C9F9AF6C20E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433197   (161053) от 20.12.2020
+
+Фотографии - Gumroad - Grass Photo Pack [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161053.jpg" />
+</div>
+
+
+###  Подробнее
+
+100 отобранных вручную фотографий из моих недавних поездок в Йосемити и Крит. Готовы для ваших личных или коммерческих концептуальных изображений! Пожалуйста, отметьте и поделитесь, если вы используете что-либо в своих концепциях! Я бы хотел посмотреть, как вы их используете! :) Наслаждайтесь!Формат: JPGРазрешение файлов: 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1C9CC6FA5C7634D7E69C65E5F80504ED08AF98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598860   (161054) от 21.12.2022
+
+Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2364.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B203C0EF5713AF8C9A6FE341953692017DAFC03B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518124   (161055) от 18.12.2021
+
+По следу монстра (18.12.2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161055.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вооружен и очень опасен» В Екатеринбурге две девушки расстреляны в упор. Безутешные матери в гневе. У сыщиков несколько версий… Почему под подозрение попал коллега одной из жертв? Как лучшие друзья стали смертельными врагами? И как детская обида превратила человека в монстра?Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFE8BC31A859DF7F29672C63EE8C505203CD86C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674491   (161056) от 05.11.2023
+
+Успех (1984) DVDRip [H.264/1080p] [handmade upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой режиссёр Геннадий Максимович Фетисов после расставания с женой уезжает из Москвы — областной театр пригласил его поставить чеховскую «Чайку».
+У режиссёра, который стремится поставить классику так, как только он её видит , трудный характер; он жёстко ведёт большой корабль постановки спектакля по намеченному им курсу. При этом у него своеобразная манера работы (   Читать дальше...   )Производство: СССР, МосфильмЖанр: драмаРежиссер: Константин ХудяковАктеры: Леонид Филатов, Алиса Фрейндлих, Александр Збруев, Лев Дуров, Лариса Удовиченко, Анатолий Ромашин, Людмила Савельева, Алла Мещерякова, Марина Полицеймако, Вацлав ДворжецкийПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDB2D4C9BED618F490ECF66A0EC3D859BE99C22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673207   (161057) от 05.11.2023
 
 Призраки в Венеции / A Haunting in Venice (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
@@ -6,7 +181,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161057.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ Boz Digital Labs - Pan Knob 1.0.2 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161058.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ magnet:?xt=urn:btih:F71AB8A95C643D57D118F563E88042FB97D08F83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161059.jpg" />
 </div>
 
 
@@ -78,7 +253,7 @@ magnet:?xt=urn:btih:D77A8ABD8C4DD7D809C200A2543DA91A7FEDD91F
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161060.jpg" />
 </div>
 
 
@@ -102,7 +277,7 @@ magnet:?xt=urn:btih:1E497ADA633474515A177BCD582EE18E4D8E221B
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161061.jpg" />
 </div>
 
 
@@ -126,7 +301,7 @@ magnet:?xt=urn:btih:9CEDC9FFB7586F13181D211FDBDD025CE8566144
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161062.jpg" />
 </div>
 
 
@@ -150,7 +325,7 @@ VA - Swing & Bass Compilation Album, Vol. 2 (2020) [AAC|~323 Kbps] <Drum & Bass,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161063.jpg" />
 </div>
 
 
@@ -177,7 +352,7 @@ magnet:?xt=urn:btih:F28BEF3D8F1451BC29CA47019B81AF30DE648517
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161064.jpg" />
 </div>
 
 
@@ -201,7 +376,7 @@ magnet:?xt=urn:btih:E2851480FEE50B55A2B48870676F479A8F453A0C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161065.jpg" />
 </div>
 
 
@@ -225,7 +400,7 @@ Firefox Browser 95.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161066.jpg" />
 </div>
 
 
@@ -249,7 +424,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161067.jpg" />
 </div>
 
 
@@ -273,7 +448,7 @@ magnet:?xt=urn:btih:002B55D41860F9832430E13CF883DA28B299F82F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161068.jpg" />
 </div>
 
 
@@ -297,7 +472,7 @@ magnet:?xt=urn:btih:7FA66B72AF3899857FC340720478A8EA9CF13079
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161069.jpg" />
 </div>
 
 
@@ -321,7 +496,7 @@ magnet:?xt=urn:btih:3BBE95223194395D3ECD037FC7D8DA1C7A028AD3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161070.jpg" />
 </div>
 
 
@@ -345,7 +520,7 @@ magnet:?xt=urn:btih:88855D47C549D5632CE26E564D64A72040C7758E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161071.jpg" />
 </div>
 
 
@@ -369,7 +544,7 @@ VA - Angel Voices, Vol. 2 (Enigmatic Chill and Mystic Tracks to Relax) (2021) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161072.jpg" />
 </div>
 
 
@@ -396,7 +571,7 @@ magnet:?xt=urn:btih:5D58ABC576968F11B8BF763EF8B2FE6887BA998D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161073.jpg" />
 </div>
 
 
@@ -420,7 +595,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161074.jpg" />
 </div>
 
 
@@ -444,7 +619,7 @@ magnet:?xt=urn:btih:B588C563E83F54708A0708B7ECD95FA06A6CF838
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161075.jpg" />
 </div>
 
 
@@ -455,181 +630,6 @@ magnet:?xt=urn:btih:B588C563E83F54708A0708B7ECD95FA06A6CF838
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FD33C71A3F460358283FD1DE498443D8D97E5AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518087   (161076) от 18.12.2021
-
-VA - Swing & Bass Compilation Album, Vol. 3 (2021) [AAC|~308 Kbps] <Drum & Bass, Electro Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chic - Everybody Dance (Mista Trick Remix) (4:52)
-02. Entita, Simple Souls - Souldier (4:31)
-03. Euphorics, Doc - Goocha (5:39)
-04. Booker T, The MG's - Green Onions (Hiphoppapotamus & Fizzy Gillespie Remix) (3:49)(   Читать дальше...   )Жанр: Drum & Bass, Electro SwingПродолжительность: 01:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83D38EFB63050069E1EFE7587070B55FB1B8B18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433305   (161077) от 20.12.2020
-
-Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldier of Love (6:17)
- 02. Skin (3:57)
- 03. Kiss of Life (5:04)
- 04. Love Is Found (4:05)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6605FAC84AC63740100D8ADEA0FEB8523D73CF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598932   (161078) от 21.12.2022
-
-Дизайн Календарей 17.0 RePack (& Portable) by elchupacabra [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн Календарей - это доступная и удобная программа для создания красивых календарей с фотографиями на любой год или месяц. Достаточно выбрать формат и оформление проекта, добавить фотографии - и получить превосходный результат. Программа позволяет подготовить сотни вариантов календарей в самых разных стилях: классическом и современном, строгом или изящном, деловом (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E7094B6B8AB146D3AED1A0855C2A707DCED375
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518020   (161079) от 18.12.2021
-
-4K YouTube to MP3 4.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161079.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: © OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A388112412DC775A3025368E0EAC8169E20DFEE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598867   (161080) от 21.12.2022
-
-Microsoft Windows 11 [10.0.22621.963], Version 22H2 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E092AE4845BC1DEF101A5C18CFC6B8506798B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433279   (161081) от 20.12.2020
-
-38 попугаев (1976-1991) DVDRip [H.264] [EN / Ru, En sub] [PR]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые истории о забавных приключениях четырех друзей — болтливой Мартышки, застенчивого Слоненка, разумного Попугая и задумчивого Удава.
-Данная версия предназначена для детей, изучающих английский язык.Производство: СССР / СоюзмультфильмЖанр: Кукольный, Детский, ОбучающийРежиссер: Иван УфимцевЯзык озвучки: АнглийскийСубтитры: русские, английскиеПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A87D246871A85F2E00D72DB5C350F8464D25E2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518215   (161082) от 18.12.2021
-
-Clearview X 3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая в использовании утилита для чтения электронных книг, оснащенная библиотечной полкой, поддерживает популярные форматы электронных книг, такие как PDF, EPUB (без DRM), CHM, MOBI, FB2 и комиксы (CBR, CBZ). Вы можете делать аннотации, вставлять закладки и выполнять свободный поиск, а также получать доступ к своим заметкам, закладкам и коллекциям книг на нескольких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2021Разработчик: © 2012-2021 Canoe SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C975D1FED5F7595668ED79CDEB42361A1444AD
 ```
 
 

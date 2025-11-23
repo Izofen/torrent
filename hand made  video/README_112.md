@@ -1,3 +1,75 @@
+###  Публикация: 1651355   (207059) от 06.08.2023
+
+Дело было в Пенькове (1957) DVBRip [H.264/1080p] [Колоризованная версия] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тракторист Матвей Морозов (Тихонов), парень веселый и озорной, гроза всей деревни. Его любила дочь председателя, и любви этой отец не одобрял. Тем не менее Матвей на ней женился, и все было бы тихо да спокойно, но... В колхоз к деду приехала из Ленинграда Тоня, и устоявшиеся нравы и обычаи в деревне начинают меняться. Она собирает молодежь, затевает строительство (   Читать дальше...   )Производство: СССР, Студия им. ГорькогоЖанр: драма, мелодрамаРежиссер: Станислав РостоцкийАктеры: Вячеслав Тихонов, Светлана Дружинина, Майя Менглет, Владимир Ратомский, Валентина Телегина, Анатолий Кубацкий, Юрий Медведев, Александра Харитонова, Юрий Мартынов, Елена МельниковаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 1:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8E4504CFB97E23D9EF755C478B3B2724AF61E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651349   (207068) от 06.08.2023
+
+Бинго Бонго / Bingo Bongo (1982) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек-обезьяна, найденный где-то в джунглях Конго, перевезен в Милан и назван Бинго-Бонго. Одна лишь Лаура, женщина-антрополог, верит в человеческие качества этого необузданного полуживотного, и их привязанность друг к другу даже перерастает в любовь.Производство: Италия, Германия (ФРГ) / IntercapitalЖанр: комедия, семейныйРежиссер: Паскуале Феста КампанилеАктеры: Адриано Челентано, Кароль Буке, Феличе Андреази, Энцо Робутти, Вальтер Д’Аморе, Роберто Марелли, Альфио Патане, Элизабет Коббен, Маурицио Табани, Марио БариллаПеревод: Многоголосый профессиональный (СЕЕ)Язык озвучки: русский, итальянскийСубтитры: русские (pgs)Продолжительность: 01:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D59FD9A42647572B6C081B4C8DBA2F4DEED86DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650977   (207097) от 04.08.2023
+
+Пчелиная матка (Королева пчел: Современная история) / The Conjugal Bed (Una storia moderna - L'ape regina) (1963) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодожены любят друг друга. В их супружеской постели царит идиллия, но когда женщина беременеет, всё меняется. Провокационная и удачная сатира на католическую мораль. Черная комедия о мужчине, долго добивавшегося молодой капризной женщины, а, наконец, женившегося на ней, горько пожалевшем об этом. Жена своей непрерывной властно-нежной опекой сводит мужа в могилу. (   Читать дальше...   )Производство: Италия, ФранцияЖанр: драма, комедияРежиссер: Марко ФеррериАктеры: Уго Тоньяцци, Марина Влади, Вальтер Гиллер, Сини, Риккардо Феллини, Джан Луиджи Полидоро, Нино Винджелли, Акилле Майерони, Ренато Монтальбано, Вера РагацциПеревод: Одноголосый закадровыйЯзык озвучки: русский, итальянскийСубтитры: английские, итальянскиеПродолжительность: 01:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1807CCB3A3791A47ABFB36F595828F0D87CE45C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651046   (207107) от 04.08.2023
 
 Красотки / Bimboland (1998) DVDRip [H.264/1080p] [Handmade Upscale AI]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207107.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207107.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:31049C410C5AA500BF7F31BD6F11D9586FBAD919
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207121.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207121.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:E6DDB9886E511ADE09B682C128B404BBEB87A169
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207279.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207279.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:C41D12AFCEB7BE0D8D50DE5D3380FDEE940D2511
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207611.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207611.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:6BFCB253D2BCA69EEFC996331876BEE34F0CEBDF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207804.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207804.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:C7438560428560F2A4226366852F800020BA4281
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207860.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207860.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:906C35F550F880C321AC09110F825149F382A8A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207914.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207914.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:53DC9EA26C1228A17D7226626CD8DE06D089610E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208038.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208038.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:7565DE8020806F2821CC77C6CEFBB9D22BD29B82
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208068.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208068.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:5B6DC0528EC02FBE26D01B6BC61D02E97C868B9A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208189.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208189.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:DD8556B148AD833A8D0F36EB986BC600D9824B7D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208430.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208430.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:32374C762DE56E0B1C6DA3B0E3E4FDE424816404
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208487.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208487.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:89F9F15E2B2E9345123855EBFD9B94F79244919F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208550.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208550.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:7F5AF7DD3FA5D5523CD786042FE776B977B6D903
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208580.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208580.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:117381A9247EEA9A50D625EBA5338B6E1B29D656
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208655.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208655.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:9A2AF6C814470B69EC474B2714C6CACD60C74F04
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208733.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208733.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:701A81D5A4E9D7868396C27FB3C6F299AE056326
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208860.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208860.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ magnet:?xt=urn:btih:20F57EBFDB2A31AE4E6C268B1CC1B586466C4302
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208884.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208884.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:BA1B552AF2E6749290D0C670FDCFFDDF342BB36C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209119.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209119.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:F8D57D1809D27C8FFB1FA5FF2F0BBFE8A8A85FF5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209143.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209143.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:621470F394F824301AA326553D97DC0E0DD0C1B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209152.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209152.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ magnet:?xt=urn:btih:F2033046BA49EDF5F8A3CF1EAEAF45DF88F73475
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209245.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ magnet:?xt=urn:btih:F15ADB9F2CB4F4410CD22F4A8F332D7894CB303F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209253.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209253.jpg" />
 </div>
 
 
@@ -550,79 +622,6 @@ magnet:?xt=urn:btih:F15ADB9F2CB4F4410CD22F4A8F332D7894CB303F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E382C2EF5A60F68D6013109D8ABA4917C9AB2960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645117   (209494) от 08.07.2023
-
-Лицо со шрамом / Scarface (1983) BDRip [H.265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем — «Лицо со шрамом»…Производство: США / Universal PicturesЖанр: драма, криминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель Салазар, Арнальдо СантанаПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D306F1DD66417B32B75F05B60C4D8CCD3A706867
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644760   (209566) от 06.07.2023
-
-Ксения, любимая жена Фёдора (1974) DVDRip [H.264/1080p-LQ] [hand made Remastered Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о любви, о непростых семейных отношениях, о душевной ёмкости и щедрости — о том, что необходимо в жизни каждому человеку.
-Муж и жена в течение пятнадцати лет мотались по стройкам в ожидании собственного жилья. Наконец, семье дают отдельную квартиру, и Ксения ждёт ребёнка. Однако появляются новые проблемы.Производство: СССР, ЛенфильмЖанр: мелодрамаРежиссер: Виталий МельниковАктеры: Лев Дуров, Алла Мещерякова, Василий Меркурьев, Олег Белов, Станислав Любшин, Азат Шеренц, Мамикон Манукян, Людмила Зайцева, Владимир Татосов, Нина Ильина, Армен Хостикян, Мария Артемова, Лаура Геворкян, Зинаида Дорогова, Игорь НагавкинПродолжительность: 01:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E48F857E7E05CD58A59349CC4C6D09B64F25281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644317   (209653) от 05.07.2023
-
-Эта замечательная жизнь / It's a Wonderful Life (1946) BDRip [H.265/2160p]  [10 bit] [Hand made upscale AI, Colorized]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джордж Бейли, владелец кредитной компании в выдуманном американском городке Бедфорд Фоллс, честный, отзывчивый, любящий муж и отец, подавлен свалившимися на него невзгодами и подумывает о самоубийстве. Очевидно, что человек, отказывающийся от самого большого дара Бога – жизни – нуждается в помощи ангела-хранителя. И Небеса отправляют ему на выручку Кларенса, единственного (   Читать дальше...   )Производство: США, Liberty FilmsЖанр: фэнтези, драма, мелодрама, семейныйРежиссер: Фрэнк КапраАктеры: Джеймс Стюарт, Донна Рид, Лайонел Бэрримор, Томас Митчелл, Генри Треверс, Бьюла Бонди, Фрэнк Фэйлен, Уорд Бонд, Глория Грэм, Х.Б. УорнерПеревод: Многоголосый профессиональный (MVO, DVD Магия)Язык озвучки: русский, английскийСубтитры: русские (pgs), английские (pgs)Продолжительность: 02:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DB461E9EA816EA9A811FC4E25F4EF6BB76525E
 ```
 
 

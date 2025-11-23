@@ -6,7 +6,7 @@ Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141095.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zuma Star Wars / Зума: Звездные войны (2007) [En] (1.0) Unoffic
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141101.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sine Mora [En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141131.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Alien Shooter 2: Reloaded (2009) [Ru/En] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141180.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141277.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dungeon Golf (2023) [En] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141311.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.1) Unofficial SiMPLEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141366.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Transmissions: Element 120 (2016) [Ru] (1.06) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141415.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mystery Trackers 17: The Secret of Watch Hill (2019) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141418.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Livelock (2016) [Ru/En] (1.0.25218) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141656.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bladed Fury (2018) [En/Ch/Jp] (1.0.1819) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141717.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Amnesia: The Dark Descent / Амнезия. Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141764.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141816.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Cave (2013) [Ru/En] (1.0/u2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141934.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141977.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Californium (2016) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141981.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ NotGTAV (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142159.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lost Grimoires: Stolen Kingdom / Утерянные Гримуары: Краде
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142212.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chimeras 3: Cursed and Forgotten / Химеры 3: Проклятые и заб�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142418.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142552.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142666.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Nerved (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142931.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142953.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kerbal Space Program (2015) [Ru] (1.11.0.03045/dlc) Repack xatab (обновля
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142956.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143018.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143035.jpg" />
 </div>
 
 

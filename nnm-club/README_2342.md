@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61257.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D73B50735EE02615C900904432A82A5E88C0DFE
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61258.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6942F02C8748A4E7121B736D2C9E8AF193E053BA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61259.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61260.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D993A6A3A57DD2E3D0F77F458D554A48AB522716
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61261.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A8949E48F60095DF691E627A987563874B39A848
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61262.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Three Kingdoms Zhao Yun (2024) [Multi] (1.1.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61263.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/Multi] (3.12/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61264.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FC89AFC447C5431E34AE95D5D104FE6FEEE278C3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61265.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E854AD90301118FEC6A39E5837CACD53483634F2
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61266.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:32E412912F1FFD9891DE254BA03D4CEDBCD8034E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61267.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:32E412912F1FFD9891DE254BA03D4CEDBCD8034E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61268.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - CLUB HITS | Dance Music 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61269.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:37047C1D3CD028FE67EB183B0C493DC86C7866C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61270.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:5946E89D3D3540BAD00EC3BAFA2A14A408E0275A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61271.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ RipX DAW Pro for Mac 7.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61272.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PJ Masks Power Heroes: Mighty Alliance (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61273.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BetterMouse for Mac 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61274.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:4D3AF56D0FA3B58A88D0D3E2F744C3F7F058EFCC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61275.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Scene SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61276.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:17665912CCA5CF26E8953E2A658F6ED52935A65C
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61277.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:D37A03434EECF028EF15CFF420AB64B1B0BEEF71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61278.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:59D2571EEA3691E7369B8AE720897D9F5434A20A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61279.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61280.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:A854CFFA11D4B66B87F668B5B7810BD2EB8345EC
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61281.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:8FB48C7B3F27CD986230CBD60F7B0DF39E9218D9
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61282.jpg" />
 </div>
 
 

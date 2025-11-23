@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14660.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14661.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C1B1C72BA0B23CDD59050B059AC7D4B5A5741FA1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14662.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C67974D4BE0F867A003C18E2FAF55BBFCC882892
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14663.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14664.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14665.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BMW теперь будет сама  включать поворотники
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14666.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ BMW теперь будет сама  включать поворотники
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14667.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ BMW теперь будет сама  включать поворотники
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14669.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Internet Download Manager 6.42 Build 41 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14670.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Mindseye (2025) [Multi] (4598223/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14671.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14672.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:EE1303DA3D306B76EF9ABB24AA3D50A512313961
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14673.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:138004CAD3AB07D0909BA99B711E58B1F06EAC2A
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14674.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:C8C3165C3B82EB4368A9B21F4FF5D955BA7666AB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14675.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Creatures: Village (2004) [En] (1.11) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14676.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14677.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:C268BB735F97BB6FBC783AD07457806326E0E80A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14678.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:66F8779E40ADFDF642066170FEE3C27600A71012
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14679.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:555D0EA08669EA726D07E8CC88E45F68DB352A4D
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14680.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ TreeSize Professional 9.5.1.2105 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14681.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Activation Program 1.12 b03  Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14682.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:7E4F6E2E3C4D0E40718FCF097C110E3EE37DDA2E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14683.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B30C828D7E5F7F1CEA24806984C9B0B57EEF6D93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14684.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:4BDD4B4B47E6EBE452DA43DBC84DE558B2567CEC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14685.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14686.jpg" />
 </div>
 
 

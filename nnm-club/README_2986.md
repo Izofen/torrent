@@ -1,3 +1,80 @@
+###  Публикация: 483782   (89320) от 18.04.2012
+
+Великолепный век / Muhtesem Yuzyil (2011) WEB-DLRip [13-22]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал повествует о правлении султана Сулеймана Великолепного и его страстной любви к украинской красавице Роксалане. Согласно канонам исламской веры, султан мог иметь четырех законных жен и столько наложниц, сколько сможет содержать. При этом, дети первой жены становились преемниками престола. Роксолана еще девочкой была захвачена в плен и переправлена в Стамбул, (   Читать дальше...   )Жанр: Драма, Мелодрама, СемейныйРежиссер: Дурул Тайлан, Ягмур ТайланАктеры: Небахат Чехре, Акан Ялабык, Сельма Эргеч, Халит Эргенч, Филиз Ахмет и др.Перевод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: turok1990Продолжительность: 10 серии по ~01:40:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482784   (89323) от 18.04.2012
+
+Жак Фреско - Проект «Венера» / Jacque Fresco - The Venus Project (2002-2011) DVDRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео-интервью с футурологом, промышленным дизайнером, изобретателем,
+архитектором, мыслителем и философом - Жаком Фреско. Жак Фреско коротко рассказывает
+про основные принципы ресурсо-ориентированной экономики и отвечает на вопросы.
+(   Читать дальше...   )Жанр: Документальный фильм
+
+Официальный СайтРежиссер: Jacque Fresco, Roxanne MeadowsПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 24 x  ~ от 00:03:00 мин. - до 01:30:00 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60FE9E9ED175E7A3CA6936073CF2AC36E444BAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484562   (89324) от 18.04.2012
+
+Милый друг / Bel Ami (2012) [H.264] DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жоржа влекут деньги, секс и власть. Обольстительная внешность и железные нервы карточного игрока, обворожительные манеры и когти хищника — и Париж, город порока и страсти, лежит у его ног…Жанр: ДрамаРежиссер: Деклан Доннеллан, Ник ОрмеродАктеры: Роберт Паттинсон, Кристина Риччи, Ума Турман, Кристин Скотт Томас, Наталия Тена, Колм Мини, Холли Грэйнджер, Филип Гленистер, Пип Торренс, Джеймс ЛэнсПеревод: ДублированныйПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7A95367C63A599103B6C418D5863212AD7943B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484603   (89329) от 18.04.2012
 
 Жизнь прекрасна / 50/50 (2011) DVD9
@@ -6,7 +83,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89329.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89330.jpg" />
 </div>
 
 
@@ -56,7 +133,7 @@ magnet:?xt=urn:btih:D40FB0BFC8080513F86D2D43733905BAD3ED0A1C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89331.jpg" />
 </div>
 
 
@@ -80,7 +157,7 @@ Windows 7 Ultimate Core-2 & AUZsoft x64x86 v.14.12 [RUS]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89332.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ Resident Evil Director's Cut [Ru] (P/Emul) 1997 | MarkusEVO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89337.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ Resident Evil Director's Cut [Ru] (P/Emul) 1997 | MarkusEVO
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89338.jpg" />
 </div>
 
 
@@ -156,7 +233,7 @@ magnet:?xt=urn:btih:EC7CFEF70E470DE895DAE8335A87E147DA75B58F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89339.jpg" />
 </div>
 
 
@@ -180,7 +257,7 @@ GarageBand [5.0+Jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89340.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ GarageBand — ваша собственная студия звукозапис
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89341.jpg" />
 </div>
 
 
@@ -233,7 +310,7 @@ magnet:?xt=urn:btih:DE5891661B3F43205DA415FF7349F3FC3A876767
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89343.jpg" />
 </div>
 
 
@@ -257,7 +334,7 @@ magnet:?xt=urn:btih:58BA254B461DD4B79AEF0A883E7AD6C9CBDB6C40
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89344.jpg" />
 </div>
 
 
@@ -281,7 +358,7 @@ magnet:?xt=urn:btih:9946E7AA6DB04698311E264E04FD460049F7A298
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89348.jpg" />
 </div>
 
 
@@ -311,7 +388,7 @@ magnet:?xt=urn:btih:9946E7AA6DB04698311E264E04FD460049F7A298
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89349.jpg" />
 </div>
 
 
@@ -335,7 +412,7 @@ maxrexfax | Безопасный триалрезет [2011] [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89351.jpg" />
 </div>
 
 
@@ -363,7 +440,7 @@ magnet:?xt=urn:btih:C3DFC5B2ABB89ED351D87C456C5ACE493F615768
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89356.jpg" />
 </div>
 
 
@@ -387,7 +464,7 @@ magnet:?xt=urn:btih:AB8E31EC83B581136A79CFD8593B49A95E7BD5AD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89360.jpg" />
 </div>
 
 
@@ -411,7 +488,7 @@ VA - Absolute Acoustic 2012 (2012) [MP3|~197-254 кб/с (V 0)]<Acoustic Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89363.jpg" />
 </div>
 
 
@@ -444,7 +521,7 @@ magnet:?xt=urn:btih:D04C23F07CDF36D0E8F8610706B5E2CB9BFF3011
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89364.jpg" />
 </div>
 
 
@@ -468,7 +545,7 @@ magnet:?xt=urn:btih:4E9C00357826CEFB8F5BA371DF7E8BAAF61FCB17
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89366.jpg" />
 </div>
 
 
@@ -492,7 +569,7 @@ PuppetShow 4: Return to Joyville Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89367.jpg" />
 </div>
 
 
@@ -516,7 +593,7 @@ magnet:?xt=urn:btih:F593A10D280A42D04262414BCF32B6D2B28DDCD0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89370.jpg" />
 </div>
 
 
@@ -540,7 +617,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89371.jpg" />
 </div>
 
 
@@ -573,7 +650,7 @@ Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89372.jpg" />
 </div>
 
 
@@ -589,91 +666,6 @@ Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Roc
 08. Marry Me (4:25)
 09. Hands Up (3:47)
 10. Fool 4U (4:21)2012Жанр: Blues, Blues-RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484853   (89374) от 19.04.2012
-
-Jack White - Blunderbuss (2012) [MP3|~245 кб/с (V0)]<Blues-Rock, Garage Rock, Indie Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missing Pieces
-02. Sixteen Saltines
-03. Freedom At 21
-04. Love Interruption
-05. Blunderbuss
-06. Hypocritical Kiss
-07. Weep Themselves To Sleep
-08. I'm Shakin'
-09. Trash Tongue Talker
-10. Hip (Eponymous) Poor Boy(   Читать дальше...   )2012Жанр: Blues-Rock, Garage Rock, Indie RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E636E3572BAEBB8448F95D13170DC04B985CC169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484991   (89375) от 19.04.2012
-
-Шерлок Холмс: Игра теней / Sherlock Holmes: A Game of Shadows from AGR (2011) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I See Everything
-02. That Is My Curse (Shadows - Part 1)
-03. Tick Tock (Shadows - Part 2)
-04. Chess (Shadows - Part 3)
-05. It's So Overt It's Covert2011Жанр: SoundtrackПродолжительность: 01:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9160CBDD1589153484FFAB4827165532651D3FF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485023   (89376) от 19.04.2012
-
-Diginoiz - Old School Rockin' Live Drums [AIFF|MIDI|REFILL|REX|WAV][английский]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Old School Rockin' Live Drums - библиотека аутентичной rock/pop перкуссии эпохи 80-х. Библиотека содержит: - 61 петлю (BPM: 80, 90, 100, 110, 120, 180), - 36 сбивок (BPM: 80, 90, 100, 110, 120,) - миди файлы, в качестве дополнения. Для ознакомления также приложена Демо версия: Old School Rockin Live Drums - Promomix (MP3, 256 kbps, 44.1 kHz, Joint Stereo).Название программы: Diginoiz - Old School Rockin' Live DrumsЯзык интерфейса: английскийФормат: AIFF, MIDI, REFILL, REX, WAV
 
 ## Скачать торент
 ```bash

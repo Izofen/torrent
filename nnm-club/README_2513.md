@@ -6,7 +6,7 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66086.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66087.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Larry McCray - Heartbreak City (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66088.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Inglorious - V (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66089.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gasoline Lollipops - Kill The Architect (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66090.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Michael Kaeshammer - The Pianist (2015) Self-Released [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66091.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Dustin Douglas & the Electric Gentlemen - IV (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66092.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:C8276A0EB3D50132B5182F43E4CA38FA8B007CB6
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66093.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:4F1FA464C803DA37191FAEFBCB0E0105B1F34234
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66094.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ V.A. - Best of BOSSA NOVA COVERS (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nov
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66095.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:2CE81F5A7F85D0F73126D1FB2C078CF3CE44877F
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66096.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:E83A772DEA9B32E65438611ABB6129AE9C6676E4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66097.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66098.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:5F1A243FE4C972AED39D1D2A1D72AC7DC41E535A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66099.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66100.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Ca
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66101.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:2C345B075B8D9C425A5E5321C370748F3938EE32
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66102.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Ca
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66103.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:57A7307C22F2516E5E67BCA5705D3B74D4E69E32
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66104.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66105.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - La Noche Blanca En Ibiza, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66106.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:5A06A5238F69FB89C5F5E4E7969E75269E255547
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66107.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:EB1D639B2D79EF8B9A3BE4C6DDFD1B8EC7DD43CC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66108.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66109.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Evadne - The Fragile Light of Fireflies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66110.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Johnny de City - Mashup Avenue 027 (2025-05-30) [MP3|320 Kbps] <Dance, Electro P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66111.jpg" />
 </div>
 
 

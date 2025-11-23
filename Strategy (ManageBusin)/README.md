@@ -6,7 +6,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10962) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42d/dlc) Repack Other s [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_429.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_683.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.250900) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_714.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_727.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1378.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.12r/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1393.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ City Game Studio: a tycoon about game dev (2019) [Ru/Multi] (1.24.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1409.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1736.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rising Lords (2020) [Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2259.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2268.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ TerraScape (2024) [Ru/Multi] (1.2.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2269.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.10) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2270.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0-552065/dlc) Repack LetsPlay [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2276.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.01.010/dlc) Repack Let'sРlay [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3029.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) Repack Let'sРlay [Complete edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3068.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.12R/dlc) Repack Let'sРlay [Complete Bu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3519.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Sims 4 (2014) [Ru/Multi] (1.117.244.1020/dlc) Repack Wanterlude [Deluxe Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3816.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) Repack Yaroslav98
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3956.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Colonists (2018) [Ru/Multi] (1.9.17.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4250.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Coral Island (2023) [Multi] (1.2.1239/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4513.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Prison Architect (2015) [Ru/Multi] (1.02 r11056/dlc) Repack Let'sРlay [Total Lo
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4566.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4743.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Oddsparks: An Automation Adventure (2024) [Multi] (s31271/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5057.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.5.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5187.jpg" />
 </div>
 
 

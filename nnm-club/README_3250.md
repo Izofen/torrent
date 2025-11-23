@@ -1,3 +1,79 @@
+###  Публикация: 1750630   (104181) от 21.09.2024
+
+PDF24 Creator 11.20.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104181.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
+Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9BD5FAFFEB2BABF85393D5315FD68E4B8DA8E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750752   (104182) от 21.09.2024
+
+HOFA - Colour Delay 1.0.0 VST 3, AAX (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104182.jpg" />
+</div>
+
+
+###  Подробнее
+
+HOFA Color Delay предоставляет вам все знаковые звуки дилея для вашего продакшн. Благодаря четырем уникальным стилям задержки, которые можно свободно комбинировать, нет никаких ограничений для ощущения ретро и вашей творческой свободы.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CBADF80FA91F3A474BBDA3A67D956311F93FEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750718   (104183) от 21.09.2024
+
+Seether - The Surface Seems So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-grunge, hard-rock, alternative-metal, nu-metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judas Mind (4:34)
+02. Illusion (4:02)
+03. Beneath The Veil (3:44)
+04. Semblance Of Me (4:16)(   Читать дальше...   )Жанр: Post-grunge, hard-rock, alternative-metal, nu-metalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE08D2241B2EA9A54D69BD6D559611E702DCECB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750743   (104184) от 21.09.2024
 
 Пьета / Pieta (2012) BDRip [H.264/720p]
@@ -6,7 +82,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104184.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:9BDA08AEEAE276C4917D2E24BCC5CACCE6985DBF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104185.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ VA - DJ Hits Of October 1997 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104186.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ Sweet - Full Circle (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104187.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:EF248D292D9D3DA920D58154EBA0BB990DE1F1FA
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104188.jpg" />
 </div>
 
 
@@ -134,7 +210,7 @@ Firefox Browser 130.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104189.jpg" />
 </div>
 
 
@@ -158,7 +234,7 @@ Secret Garden - Songs In The Circle Of Time (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104190.jpg" />
 </div>
 
 
@@ -185,7 +261,7 @@ magnet:?xt=urn:btih:705EFDF10B2E5D40944EFDB16BADADCEA4DFFD5C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104191.jpg" />
 </div>
 
 
@@ -212,7 +288,7 @@ Sandboxie 5.69.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104192.jpg" />
 </div>
 
 
@@ -236,7 +312,7 @@ magnet:?xt=urn:btih:479794D06540FB53A4A99DDD26145C5E04B0D09D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104193.jpg" />
 </div>
 
 
@@ -260,7 +336,7 @@ magnet:?xt=urn:btih:AC56EAE00790C53E66FFD5D068E8CA2D59E75753
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104194.jpg" />
 </div>
 
 
@@ -285,7 +361,7 @@ Stan Getz - The Complete Quintet Sessions (1948 - 1952) 1994, Blue Moon [WavPack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104195.jpg" />
 </div>
 
 
@@ -312,7 +388,7 @@ Lyle Lovett And His Large Band - Lyle Lovett And His Large Band (1989) [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104196.jpg" />
 </div>
 
 
@@ -339,7 +415,7 @@ Eduardo Belo - Belo and the Beasts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104197.jpg" />
 </div>
 
 
@@ -366,7 +442,7 @@ Bright Eyes - Five Dice, All Threes (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104198.jpg" />
 </div>
 
 
@@ -393,7 +469,7 @@ David & The HeartStrings - David & The HeartStrings (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104199.jpg" />
 </div>
 
 
@@ -420,7 +496,7 @@ magnet:?xt=urn:btih:EF743B4F1282963941F9D6C244B4BECB6207F02F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104200.jpg" />
 </div>
 
 
@@ -446,7 +522,7 @@ magnet:?xt=urn:btih:E473D67667A68C2DEDB494A5A921106047E17B4D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104201.jpg" />
 </div>
 
 
@@ -472,7 +548,7 @@ magnet:?xt=urn:btih:E02D63319845885CD28749B365B4AC5D97486B83
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104202.jpg" />
 </div>
 
 
@@ -498,7 +574,7 @@ Sinner's Blood - Dark Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104203.jpg" />
 </div>
 
 
@@ -525,7 +601,7 @@ magnet:?xt=urn:btih:FD213E6711BCC2635D9294469F575FE1154FA63E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_104204.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_104204.jpg" />
 </div>
 
 
@@ -549,7 +625,7 @@ magnet:?xt=urn:btih:FD213E6711BCC2635D9294469F575FE1154FA63E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104205.jpg" />
 </div>
 
 
@@ -575,7 +651,7 @@ Vision Divine - Blood And Angels' Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104206.jpg" />
 </div>
 
 
@@ -589,85 +665,6 @@ Vision Divine - Blood And Angels' Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CEED6AAEC5A8E738D45BD73A961290C93EC88CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750569   (104207) от 20.09.2024
-
-Neptune - End Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metal Hearts
-02. Brightest Steel
-03. The End Of Time
-04. Revenge(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E937BB597093B59BF20A13A4695907446162907
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750466   (104208) от 20.09.2024
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир.Тур 1-й. Атлетико (Мадрид, Испания) - Лейпциг (Германия) (19.09.2024) IPTV [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 1-й. Атлетико (Мадрид, Испания) - Лейпциг (Германия) (19.09.2024)
-СУДЬЯ Кружляк Иван (Словакия)
-СТАДИОН «Сивитас (Ванда) Метрополитано» (Мадрид)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452773878EC5EC5896E3A0D20C788384AF4F629F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750309   (104209) от 20.09.2024
-
-It Dies Today - Studio Albums (3 releases) (2004-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104209.jpg" />
-</div>
-
-
-###  Подробнее
-
-It Dies Today — американская металкор-группа, образованная в Буффало, штат Нью-Йорк, в сентябре 2001 года.2004 - The Caitiff Choir
-2006 - Sirens
-2009 - LividityЖанр: MetalcoreПродолжительность: 02:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7372AACEF0E2BCB6D2549DF9E4B1A1C415965A
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1690582   (124020) от 07.01.2024
+
+В погоне за камнем (2023) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный ювелир города Хан решает устроить роскошное мероприятие — показ самого драгоценного бриллианта в России. Однако его планы рушатся, когда трое отчаянных, столкнувшихся с финансовыми трудностями, решают украсть это великолепие.
+В процессе поиска грабителей выясняется, что дочь самого ювелира оказалась вовлечена в этот интригующий заговор. Теперь злоумышленники (   Читать дальше...   )Производство: Россия / 136 StudioЖанр: Криминал, боевик, триллерРежиссер: Ибрагим УрсановАктеры: Магомед Магомедов, Ахмедхан Абунивайсов, Сулеймам Алиев, Ибрагим Урсанов, Папум МуржаидоваПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D921D0A340D48332AB8ABBB2535BBE1F8E44C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690421   (124021) от 07.01.2024
+
+Мумия / The Mummy (1999) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124021.jpg" />
+</div>
+
+
+###  Подробнее
+
+На бескрайних просторах египетской пустыни компания сорвиголов разных национальностей рыщет в поисках несметных сокровищ фараона, над которыми тяготеет жуткое древнее проклятие. Рядом с кладом покоится мумия коварного жреца, жестоко казненного за ужасное убийство могущественного правителя Египта. Золотоискатели потревожили многовековой покой гробницы, и мумия встает (   Читать дальше...   )Производство: США / Universal Pictures, Alphaville FilmsЖанр: фэнтези, приключения, боевикРежиссер: Стивен СоммерсАктеры: Брендан Фрейзер, Рэйчел Вайс, Джон Ханна, Арнольд Вослу, Кевин Дж. О’Коннор, Джонатан Хайд, Одед Фер, Эрик Авари, Стивен ДанэмПеревод: Дублированный (AlexFilm), многоголосый профессиональный (Лицензия), двухголосый профессиональный (Premier Video Film)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099A0A0653A516916678E4600712E65CDCD1EAD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689953   (124022) от 07.01.2024
+
+Россия и Китай впервые совместно протестировали квантовую спутниковую связь
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_124022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия и Китай впервые провели совместные испытания системы квантовой связи, передав информацию на расстоянии около 3800 км.Для эксперимента использовался китайский спутник Mozi, а в России специально для этого была построена первая в стране наземная станция спутниковой квантовой связи.Усилиями большой коллаборации ученых и инженеров создана уникальная приемная станция, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690456   (124023) от 07.01.2024
 
 The Night is Grey (2024) [En] (1.0) Scene SKIDROW
@@ -6,7 +79,7 @@ The Night is Grey (2024) [En] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124023.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124024.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:657525096F9DA97358D0B50DF7D2E0BA4E0B4AF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124025.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124025.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:657525096F9DA97358D0B50DF7D2E0BA4E0B4AF6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124026.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:12BB9BFCEBEF87554B595FBFE238F1A4953D0AAC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124027.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Krabathor - Lies & The Rise of Brutality (2014) Compilation [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124028.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ Krabathor - Orthodox (1998) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124029.jpg" />
 </div>
 
 
@@ -182,7 +255,7 @@ Krabathor - Unfortunately Dead (2000) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124030.jpg" />
 </div>
 
 
@@ -209,7 +282,7 @@ Krabathor - Dissuade Truth (2003) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124031.jpg" />
 </div>
 
 
@@ -236,7 +309,7 @@ Alai Oli - Снег и пепел, Volume 2: ТТП (2023) [MP3|320 Kbps] <Regga
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124032.jpg" />
 </div>
 
 
@@ -263,7 +336,7 @@ magnet:?xt=urn:btih:E38F73B8109ADB6E6BD1D27ADCC9A444F687ED5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124033.jpg" />
 </div>
 
 
@@ -287,7 +360,7 @@ Atomic Freak - Nuclear Meltdown (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124034.jpg" />
 </div>
 
 
@@ -314,7 +387,7 @@ magnet:?xt=urn:btih:39CA247F811FE41D60AF32C11AC4271B96D1BF50
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124035.jpg" />
 </div>
 
 
@@ -340,7 +413,7 @@ magnet:?xt=urn:btih:B9549733CCDA7034C8ED2CED573CD27E155132C9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124036.jpg" />
 </div>
 
 
@@ -365,7 +438,7 @@ VA - The Best Club Tracks 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124037.jpg" />
 </div>
 
 
@@ -392,7 +465,7 @@ PowerDirector – Video Editor v13.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124038.jpg" />
 </div>
 
 
@@ -416,7 +489,7 @@ magnet:?xt=urn:btih:258671166232429DA85E3C6FB44608BD30D98622
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124039.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ magnet:?xt=urn:btih:934017EF05E38C95BB2353CB30DC4640B14513BE
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124040.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ magnet:?xt=urn:btih:9136EE1201D25AC7D3BA83A5E1DC82B7D241B396
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124041.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:74DD48D37BB989EAD9CFC35FF4C01ABCAC84981B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124042.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124043.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ magnet:?xt=urn:btih:2AC1EA4620A79A9A606C6D32BF0EA921323D711E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124044.jpg" />
 </div>
 
 
@@ -570,7 +643,7 @@ magnet:?xt=urn:btih:2A2BBD076B01FE4AC57A50B464357445B89D04AF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124045.jpg" />
 </div>
 
 
@@ -582,83 +655,6 @@ magnet:?xt=urn:btih:2A2BBD076B01FE4AC57A50B464357445B89D04AF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38DB671F18568F337C7DF06E4EB85986E103551A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690231   (124046) от 06.01.2024
-
-Георгий Берёзко | Знамя на холме (Командир дивизии) (1946) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало литературной деятельности Георгия Березко — военные и первые послевоенные годы. Творческой самобытностью писателя-баталиста отмечены его повести «Знамя на холме» («Командир дивизии») и «Ночь полководца». Они рассказывают о мужестве и железной стойкости советских людей, творивших во время Великой Отечественной войны бессмертные подвиги.
-
-Для детей старшего (   Читать дальше...   )Жанр: ПовестьИздательство: ДетгизФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7766440F0BBF6452DBA45BF7DD60B6E71A84B002
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690332   (124047) от 06.01.2024
-
-Расплата за флирт / Fixing a Flirt (1912) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я опять на своем коньке, то есть расплетаю на тему того, что ничто не ново, и все что есть, уже было. О чем фильм? О том как молодой человек пригласил в кафе девушку, объект своих обожаний. Она принимает приглашение, а уж там в кафе, простите за современный слэнг, разводит молодого человека на денежки и "динамит". А фильму, между тем, больше ста лет. Не (   Читать дальше...   )Производство: США, Lubin Manufacturing CompanyЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: George Reehm, Фрэнсис Не Мойер, Споттисвуд Аиткен, Бобби Барнс, Уолтер СталлПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6CE3BD5BEC5627187FD9241176F0F45B4DB475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690307   (124048) от 06.01.2024
-
-Mursic - Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ominous Terror (4:52)
-02. Unbreakable (3:05)
-03. Muse (3:44)
-04. The Chase (4:26)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15B625C823EA9A2733C70503A4D67A78597905D
 ```
 
 

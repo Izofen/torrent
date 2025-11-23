@@ -1,3 +1,76 @@
+###  Публикация: 1697626   (118794) от 07.02.2024
+
+Журнал | Инженерные системы №1 (2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118794.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Инженерные системы» - научно-технический журнал. В журнале печатаются материалы в области отопления, вентиляции, кондиционирования воздуха, газоснабжения, водоотведения, энергосбережения, энергоаудита, автоматизации систем и защиты окружающей среды. Читательская аудитория: специалисты в области инженерных систем в строительстве — проектировщики, монтажники, специалисты (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АС СЗ Центр АВОКФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03520A64C06BC318CEA961A29CF2ED8BD245352
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697662   (118795) от 07.02.2024
+
+Никита Киров | Замок Короля Пауков (2024) [MP3, Илья Маликов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын генерала проявил себя в одном бою, но его уже отправляют в другой. Северяне осадили замок Короля Пауков, важнейшую крепость для обороны страны. Армия отправляется прогнать этих варваров и загнать их в болота.Но мало кто знает, что в подземельях замка спрятаны запретные технологии прошлого. Они могут как возродить Старый мир, так и уничтожить его снова. Смотря (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛитРес: чтецПродолжительность: 12:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91437B06006D6C44910780FF3CAD50366D2E623D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697176   (118796) от 07.02.2024
+
+Анне Штерн | Тайны старого города (Книга 1). Счастье момента (2023) [MP3, Вероника Райциз]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые на русском. Новый цикл захватывающей исторической прозы от одной из самых популярных немецких писательниц.
+ Берлин. 1922 год. Хульда Гольд – острумная, бесстрашная и чрезвычайно популярная акушерка в своем районе. Ей нравится помогать людям, а любопытство и желание во всем разобраться порой заводит ее в опасные ситуации. Так произошло и в этот раз. Найдена (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига (АСТ)Продолжительность: 10:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D36333A4C2CC1DC85C874DD7CEAFE94943C291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697667   (118797) от 07.02.2024
 
 Монстр / Kaibutsu / Monster (2023) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +79,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118797.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Wise Duplicate Finder Pro 2.1.1.61 RePack & (Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118798.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ Opera One 107.0.5045.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118799.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ magnet:?xt=urn:btih:E85A69816FC3DE17882AD1D6649FA9DACF9B531F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118800.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ Blender 3.6.8 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118801.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ magnet:?xt=urn:btih:8FA94B84C31A218E4388CE97331F664B8F404304
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118802.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:F9262FFD3AA4496E4C153F045EB116BB85C2B79D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118803.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta | Моя 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118804.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Wise Disk Cleaner 11.0.8.822 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118805.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:38307B6BBA3633F0808C2EE5250030EF6ACDA5E1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118806.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:254BDD6C5A2A8DA8F211828D39AAF4A2CEC73594
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118807.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:A5CBF8DDB7904736AD8020F84A86A14D2B8CDC61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118808.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ HomeBank 5.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118809.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ FastCopy Pro 5.6.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118810.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Newfangled Audio - Recirculate 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118811.jpg" />
 </div>
 
 
@@ -375,7 +448,7 @@ Google Chrome 121.0.6167.161 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118812.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ magnet:?xt=urn:btih:568134BF7A0CBDA95FEF488A8542426425C00884
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118813.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ magnet:?xt=urn:btih:5566AB0CBF4C4B77C1D98EA3B9C2D6215610F9B4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118814.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ ReviverSoft PC Reviver 4.0.2.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118815.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ magnet:?xt=urn:btih:B479CB5BD129D1D03E7377E6B3C37F0195896C7A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118816.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ Steel Echoes (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118817.jpg" />
 </div>
 
 
@@ -519,7 +592,7 @@ ToDesk 4.7.2.1 [Ru/En/Cn]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118818.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ magnet:?xt=urn:btih:96B12DC2A6129D9FA23FE1EF2A91FCC7840DE069
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118819.jpg" />
 </div>
 
 
@@ -556,78 +629,6 @@ magnet:?xt=urn:btih:96B12DC2A6129D9FA23FE1EF2A91FCC7840DE069
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:248BF5EA25C8935111D222A8BB7095E14D989081
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697531   (118820) от 07.02.2024
-
-Смеющаяся смерть / The Laughing Dead (1989) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группе туристов, приехавших в Мексику, выпадает шанс увидеть фольклорный фестиваль «Смеющаяся смерть». Казалось, ничто не предвещает беды. Но мистическая земля древних Майя преподносит свои жуткие сюрпризы. Тысячи лет назад богине смерти Ацтеков принесли в жертву всё человечество. И вот она вернулась... Здесь нелегко сохранить жизнь, ещё труднее сохранить разум.Производство: США / Skouras PicturesЖанр: ужасыРежиссер: Сомтов СучариткулАктеры: Джои Аседо, John Anthoni, Хэнк Азкона, Брюс Барлоу, Джордж Барнетт, Эдвард Брайант, Майкл Бустаманте, Matt Demeritt, Премика Итон, Ryan EffnerПеревод: Двуголосый профессиональный (Дмитрий Полонский и Елена Соловьёва)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF920156058BE3658590364D5DDD2AD60FA77146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692031   (118821) от 07.02.2024
-
-Гора девственности / Fusi / Virgin Mountain (2015) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118821.jpg" />
-</div>
-
-
-###  Подробнее
-
-43-летний мужчина всё ещё живёт со своей матерью. Он, словно в спячке, идёт туда, куда его ведёт монотонная жизнь. Появление деятельной Альмы и 8-летней Херы нарушает его холостяцкие привычки...Производство: Исландия, Дания / Blueeyes Productions, Nimbus Film ApS, RVK StudiosЖанр: драмаРежиссер: Дагюр КауриАктеры: Гуннар Йонссон, Ильмюр Кристьяунсдоуттир, Сигюрйоун Кьяртанссон, Маргрет Хельга Йоханнсдоттир, Аднар Йоунссон, Торстейнн Гуннарссон, Фридрик Тоур Фридрикссон, Вальтер ГримссонПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, исландскийСубтитры: русские (два варианта), английскиеПродолжительность: 01:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E634C4A2E12650C4D82C7E56664D27A78551EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697705   (118822) от 07.02.2024
-
-Capture One 23 Enterprise 16.3.5.1929 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACB7AB2E1907C248E280E9C27B2A5B337E8CC29
 ```
 
 

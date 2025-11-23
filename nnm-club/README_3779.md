@@ -1,3 +1,76 @@
+###  Публикация: 1699223   (117936) от 12.02.2024
+
+BoltAI 1.13.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117936.jpg" />
+</div>
+
+
+###  Подробнее
+
+BoltAI — это универсальный инструмент, который повышает производительность в широком спектре профессий, от написания текстов и разработки до управления и предпринимательства.
+BoltAI — это мощный помощник ИИ, предназначенный для пользователей macOS. Он использует технологию OpenAI GPT для предоставления помощи ИИ в приложениях macOS. В нем есть библиотека подсказок, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2023 Podzim LLCПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21F003BB2C55607DBA163903C033BD5FE91029F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699300   (117937) от 12.02.2024
+
+Журнал | Здоровье №1-2 (802) (январь-февраль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ИД журнала «Здоровье»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398921D93059D82FA68B9E267A9DFFD2AB0EB44B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699339   (117938) от 12.02.2024
+
+AlDente Pro fo Mac 1.25 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энтузиасты из Австрии создали небольшую, но полезную утилиту под названием AlDente. Она способствует более щадящему и эффективному использованию аккумуляторов любых MacBookТип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2023 AppHouseKitchenПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF42DBDE9F16DA900C1B2FDDA8E1C1166D64111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699307   (117939) от 12.02.2024
 
 Moom 3.2.26 [En]
@@ -6,7 +79,7 @@ Moom 3.2.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117939.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ ExamDiff Pro Master Edition 14.0.1.23 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117940.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ BlueHarvest 8 v.8.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117941.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ magnet:?xt=urn:btih:3DC392E88796D48926A483EB93C92BF3C76D6A46
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117942.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:CF72091955B39A3D019C98D8FDFFDF6C75933A98
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117943.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ Video Cut&Crop&Join for Mac 3.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117944.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ Terminal Carnage - Feast upon the River Styx (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117945.jpg" />
 </div>
 
 
@@ -181,7 +254,7 @@ magnet:?xt=urn:btih:43277445355A226EE607A7DBE6B742697A692389
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117946.jpg" />
 </div>
 
 
@@ -207,7 +280,7 @@ magnet:?xt=urn:btih:4F79DFE056971D3BB7B70C18C9D3DC97A4AC6550
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117947.jpg" />
 </div>
 
 
@@ -233,7 +306,7 @@ magnet:?xt=urn:btih:71459AF8BC04CAC826CFB539B458ECF475CF0284
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117948.jpg" />
 </div>
 
 
@@ -257,7 +330,7 @@ The Pineapple Thief - It Leads To This (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117949.jpg" />
 </div>
 
 
@@ -284,7 +357,7 @@ magnet:?xt=urn:btih:BC5AEEB2F6B0B14AD43EB6F0B2CB71D58F32B9D5
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117950.jpg" />
 </div>
 
 
@@ -308,7 +381,7 @@ Terminal Carnage - Feast upon the River Styx (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117951.jpg" />
 </div>
 
 
@@ -335,7 +408,7 @@ Soren Andersen - Skybar (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117952.jpg" />
 </div>
 
 
@@ -359,7 +432,7 @@ magnet:?xt=urn:btih:2D1DB073381A1A1C9B5C6E3B704BE482ABCE4045
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117953.jpg" />
 </div>
 
 
@@ -385,7 +458,7 @@ Emanuele Uva - Harbor Harmonies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117954.jpg" />
 </div>
 
 
@@ -412,7 +485,7 @@ Metallica - Metallica (1991) Reissue, Remastered, 2010, Vertigo [OGG Vorbis|480 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117955.jpg" />
 </div>
 
 
@@ -439,7 +512,7 @@ VA - Deep Sexy Funky House (2024) [MP3|320 Kbps] <House, Funky House, Nu Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117956.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ magnet:?xt=urn:btih:C5F603A05844913B502D7B1A713D94DD5608E568
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117957.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ James Brown - 100% James Brown (2024) [MP3|320 Kbps] <Pop, Soul, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117958.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ Mike Mareen - LP Dance Control (1985) Reissue, Remastered, 2022, Klaus Steiner S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117959.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Black Sabbath - Live In Boston 1992 (2020) 2 x CD, Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117960.jpg" />
 </div>
 
 
@@ -571,7 +644,7 @@ magnet:?xt=urn:btih:0942B126BF8C892ED9CDD386FE7D4ED33FEA4B70
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117961.jpg" />
 </div>
 
 
@@ -582,79 +655,6 @@ magnet:?xt=urn:btih:0942B126BF8C892ED9CDD386FE7D4ED33FEA4B70
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:365FB952C290F95897CEE3B5D0E798F5201E73AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699280   (117962) от 12.02.2024
-
-Л. Нерсисян, С. Нерсисян | Изобразительное искусство 4 класс (2009) [PDF] [AM]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Կերպարվեստի 4 դասարանի դասագրքի մեջ ներառված են նկար գրեու դասեր, (   Читать дальше...   )Жанр: УчебникЯзык: АрмянскийИздательство: «Зангак» / «Զանգակ»Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B703A3BD0E24DD21FC13DFBEF39DF3712797452
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699320   (117963) от 12.02.2024
-
-Журнал | Историк №9 (105) (сентябрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117963.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяИздательство: АНО "СМИ Журнал "Историк"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E838D048D4DF792FF104DA4852BB8F7915854D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699175   (117964) от 12.02.2024
-
-Роджер Желязны и др. | Сборник «Глубина» (выпуск 51) (2023) [MP3, Роман Панков и др.]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живёт под горой и охраняет несметные сокровища? Конечно же, это дракон! Они известны с глубокой древности и столько историй им посвящено! Змей Горыныч, Смауг Золотой, Фалькор, Бармоглот… Огромные и крошечные, коварные и уставшие, забавные и величественные, вызывающие страх и уважение...
-В этом выпуске мы собрали несколько историй про огнедышащих героев фэнтези. Погружайтесь, (   Читать дальше...   )Жанр: ФантастикаИздательство: Творческое объединение Независимых чтецовПродолжительность: 07:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BCF9CEB54600DEB56C32BF77A2BD1D0D4D86ED
 ```
 
 

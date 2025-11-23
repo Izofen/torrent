@@ -6,7 +6,7 @@
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60139.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5E2E39F07B76D05EB88BBF84B7732246B10C37B5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60140.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:301D2AF126C7A3503499155773ACB0F97980A377
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60141.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:805386FFD03113E8A11B1409B28D966F9687E3AF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60142.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7C53DE1F4F61D80FC38494CD74FE2B26F5E8CA13
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60143.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ IconTo Pro 7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60144.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E85047648BC1AE2E8C1DC6130273CF81B448F7D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60145.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Inkbound (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60146.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Mark Knopfler - One Deep River (Deluxe Edition) (2024) 2 x CD [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60147.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:1DC912329F98A1840FD75D4FDF1EE21B4EF84CFF
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60148.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:402276D7FF66F77D4E900979586DAACF8EE4BB9D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60149.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F7EE6910DF99D53D43791F94E404DE998CE7E0DC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60150.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:54B7DD552DE868192F927B8166943C2F6EDBFE50
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60151.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:8E1CE379BB3FC3EFBC0E0F74B0248CE97F383D24
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60152.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:2497D839EA860EB6AB9A5422E8A8A5A4E67174E5
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60153.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Total Commander 11.03 (03.04.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60154.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:D008D84786C298FF4DCA7DD72F1BFD9785648D9B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60155.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Midori Browser 11.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60156.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:5E11FF62DCE20B3FE09F51D4416B716648DF29D9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60157.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60158.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:4FFA69F530BEE4227E4D3F384257FDCF6D0D8FD7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60159.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Shadow Strikers (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60160.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:CB0B08759973C72CD5DB835816BD32692B366090
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60161.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:48DB8648B0157D045942584CE2046C977C318E3A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60162.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ BBC: По странам и континентам. Южная Америка / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60163.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:DF711ECFE1BCF26027F8902F13A5B2F900A36455
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60164.jpg" />
 </div>
 
 

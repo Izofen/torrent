@@ -6,7 +6,7 @@ javascript.ru | Интенсив по RxJS (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25698.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? V / Danmachi V / Мож
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25699.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A65513667B896A6AF3B7443DC5CC056BDE44EB54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25700.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Oblivion VPN (Unofficial Warp Client) 7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25701.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25701.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A863A1185CDCCFDC271E37428A4A1D442448D3DD
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25702.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DC26FC6DDF98A1BE56E1247605A7F8E7E5D04F73
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25703.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3F2CFF8BCE56196FBF720EBB3382F06B34F24728
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25704.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25704.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Sorax | Курс по Coffeescript (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25705.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25706.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Coloso., LouLL_AroLL | 30 Days from 0 Skill to Pro 3D Artist with Daz & Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25707.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25707.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Hisense обвинили в продаже LED-телевизоров под в�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25708.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25708.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Hisense обвинили в продаже LED-телевизоров под в�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25709.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25709.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Hisense обвинили в продаже LED-телевизоров под в�
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25710.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25710.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lara Croft: Guardian of Light v1.2.1RC14 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25711.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25711.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:ED97B7C62E62B8F142B238A6BE49B34E07BA37BA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25712.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25712.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:86D0AFDF817D4BF61BEDB7432798AED9935F47D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25713.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25713.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Process Audio - Protility 1.0.0 VST 3, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25714.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:C8D1BF0E2612AAE1E9C2E2B75924EC2BBF19A637
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25715.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25715.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:22A4DF722EF8FAFAF3F47FEB8F92F629DFA45BE8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25716.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:F2B26156D2D01FF1A71F94358B76412B7FE6C541
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25717.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - 101 Dance Hits (2003) [MP3|320 Kbps] <Progressive House, Trance, House, Big
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25718.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25718.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - One Shot '80 Volume 8 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25719.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25719.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:072BA1A8DA940D70D4C87131C8E58754691DA4A0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25720.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:1E0EF40CF4576A2D6510E121FBB18602CE2549AA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25721.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25721.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:DD92F44DCAF0BC3A4C103379E25D30165C8DC22E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25722.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25722.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Jibaku Shounen Hanako-kun Drama CD: Houkago Shounen Hanako-kun | Туалетн�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25723.jpg" />
 </div>
 
 

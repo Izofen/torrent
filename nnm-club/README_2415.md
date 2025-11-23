@@ -6,7 +6,7 @@ Zorin OS 17.1 Pro / Core / Edu [x64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63155.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCleaner 6.22.10977 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63156.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:A1514058A5D68AF892C38B020D6F46C8B2E9EBBE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63157.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:34A9B21FA79C7DB4460B8644127E451BF3E0164A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63158.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63159.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63160.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Cutting Crew - All For You - The Virgin Years 1986-1992 (2024) 3xCD, Compilation
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63161.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таи�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63162.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:96C5536862A076106547220FC45BFBE996D92805
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63163.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Draw.io 24.0.4+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63164.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:80C4503208397C413D654BCA2429FA8EE4080E5F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63165.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:ECC5BA1982720588D009C51DB325FB690D2E2264
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63166.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ PdfFactory Std & Pro 8.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63167.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:8E21DC4CF184DE8791A3FA50E02A986F9CE899CF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63168.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:B7B16F4D9A3CC1EA6A5434CCD941FD7F95E4E3ED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63169.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:27797E18DE867672CEA4B4945640D5E9499F4C11
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63170.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F1E125F31B7DB44B673AC2185642B14CC12ED88C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63171.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ K-Lite Codec Pack Update 18.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63172.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 24/192|Lossless|tracks] <Classic Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63173.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ pdfFactory Pro 8.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63174.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:345A12A903CC0E83A476860EF91F88F2AFB47645
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63175.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:BF87B649229CCF3EF3387E93B4C60953A62F33DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63176.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Shottr for Mac 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63177.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:1CD3042E877799A4BEB0FBD929C11D723D37E608
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63178.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:0FD07B3A4C000B594AE47D95D4FADBCE45ECF576
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63179.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:089C0D2F85E512DB947C81528657C73DCE7DB2E4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63180.jpg" />
 </div>
 
 

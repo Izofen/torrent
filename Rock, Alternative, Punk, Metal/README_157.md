@@ -6,7 +6,7 @@ Duff McKagan - Lighthouse (Expanded Edition)(2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112903.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Steel Rath - Steel Rath (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112906.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aktarum - Gang Of Trolls (2010) [FLAC|Lossless|image + .cue] <Black Metal, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112908.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112914.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Soultrace - Born Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112918.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nightblaze - Nightblaze (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112921.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eddie Zeeman - Detours and Treasures (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112926.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Inner Axis - Midnight Forces (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112933.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Gym Beast Mode Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112937.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:80B34CBAC36B04C813872335A261174F67054C2F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112961.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:8282997BC790D5AEB6C59A8AF667EB9F59806780
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112971.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cruzh - The Jungle Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112992.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112993.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Don't Drop the Sword - Path to Eternity (2017) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112994.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112996.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hammer King - König und Kaiser (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112998.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:E345C7D08B04980F04CB1CC411661C144E5BE561
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113002.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Misanthrope - ΑXΩ (Le Magistère De L'Abnégation) (2017) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113005.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Morta Skuld - Creation Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113006.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hideous Divinity - Unextinct (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical-Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113012.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Grimwind - XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113013.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dark Voice of Angelique - Endgame (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113016.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ KoscHei - Темница (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113017.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113019.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Trust X - Перевёрнутые Сны (2017) [FLAC|Lossless|image + .cue] <H
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113028.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Digimortal - Белое знамя (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113031.jpg" />
 </div>
 
 

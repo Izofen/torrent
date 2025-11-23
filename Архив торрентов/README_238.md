@@ -6,7 +6,7 @@ Topaz Video AI 5.1.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54924.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ExtraDisks 24.5.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54928.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StartAllBack 3.7.10 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54930.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MSActBackUp 1.2.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54939.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.30.6900 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54940.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ StartAllBack 3.7.10 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54968.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F7FED454EF37988BD6C79D7B1DA9DA2A11E21B3B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54969.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Opera One 110.0.5130.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54973.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Telegram Desktop 5.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54979.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Microsoft .NET 6.0.31 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54980.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Skype 8.120.0.207 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54982.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Perfectly Clear WorkBench 4.6.1.2662 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54983.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Firefox Browser 126.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54987.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ HWiNFO 8.03 Build 5455 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54990.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Waterfox Current G6.0.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54991.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Topaz Video AI 5.1.0 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54995.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ TikTok 34.9.5 Mod by Dmitry Nechiporenko + Plugin 1.39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55002.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Microsoft PowerToys 0.81.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55007.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Change MAC Address 24.05 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55010.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Steinberg Cubase Pro 13.0.40.251 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55014.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Psiphon 3 build 183 (27.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55020.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ PotPlayer 240509 (1.7.22233) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55023.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Rosetta Stone: Изучение языков v8.25.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55028.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Adobe Premiere Pro 2024 24.4.1.2 (x64) Portable by 7997 [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55042.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Master PDF Editor 5.9.84 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55080.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Firefox Browser 126.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55081.jpg" />
 </div>
 
 

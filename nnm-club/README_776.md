@@ -6,7 +6,7 @@ Allavsoft Video Downloader Converter 3.28.0.9225 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20501.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Email Aqua Mail - Fast, Secure v1.55.0 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20502.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20502.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EBCA31BFB1AF4AA5DDA57FF56FEF397ECC9CC9F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20503.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20503.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:16556C27225CEC9A053B6899B093B87D0C84C400
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20504.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20504.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:700F55D88AAAA334F849210C558EDCA058B2DE70
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20505.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20505.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:AA0669A80A73F1CA11C56CFFCEE0F0E4F4642455
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20506.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20506.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ TreeSize Professional 9.4.2.2004 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20507.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20507.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:A5D8BD691D64D3A693A3AD46AA706835552503F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20508.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20508.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Chaplin: The Missing Pieces v4.0.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20509.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20509.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Sacre Bleu (2025) [Ru/Multi] (1.0.10) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20510.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20510.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20511.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Williams Asiedu | Mastering Python (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20512.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20512.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:01061A4C6F339E78548037FCBE292BF620936628
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20513.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20513.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:3A1CB0722A88B82359F34D1910C74BE1E03EA7E6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20514.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20515.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:108964DE9465E4BA96CA1A94F9E4E8D75A47A7E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20516.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Joseph Babcock, Raghav Bali | Generative AI with Python and PyTorch: Navigating 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20517.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20517.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:E5955F4F72D443514972BFB8651B54E1AA0830D1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20518.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:B3879676BEE75AD807BB861AEDD8FCEBA86016C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20519.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20519.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:1547014B1EDBC59BAD82B6AD5B1D3F8F864E80D4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20520.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20520.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:396D5E6A8987D5A9D29CE63E523ED94E734E2EFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20521.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20522.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20522.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20523.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20523.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:B47C89515A1BD74BD86B4FC6D75F2A81BACC8225
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20524.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Reg Organizer 9.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20525.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ George Vondriska | Создайте станцию для беспроводно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20526.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20526.jpg" />
 </div>
 
 

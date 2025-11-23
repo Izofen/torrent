@@ -1,3 +1,99 @@
+###  Публикация: 1672540   (168828) от 28.10.2023
+
+DP Animation Maker 3.5.23 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальная 2D анимационная программа, которая позволяет вам превращать неподвижные изображения в живые движущиеся сцены. Создавайте живые, дышащие миры из своего неподвижного изображения с минимальными усилиями. DP Animation Maker позволяет создавать живые сцены с яркостью и передавать движения людям и объектам.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BF4C4CEB608EFC0CF2D8F582910921F929189F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672492   (168836) от 28.10.2023
+
+Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AF26C6A4652058928B20BAC32018BC2DB0037A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672317   (168842) от 28.10.2023
+
+Master PDF Editor 5.9.70 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BF2DBE8B58018403C593ABC39A44E825C44009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344883   (168848) от 12.12.2019
+
+Freemake Video Converter 4.1.10.479 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52923ECAC1D4F0859AB597186AC0944AB3F0932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344915   (168867) от 12.12.2019
 
 Яндекс.Браузер 19.12.2.200 [Multi/Ru]
@@ -6,7 +102,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168867.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ Teorex Inpaint 10.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168868.jpg" />
 </div>
 
 
@@ -54,7 +150,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168870.jpg" />
 </div>
 
 
@@ -79,7 +175,7 @@ Microsoft Visual Studio 2019 Community 16.3.9 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168874.jpg" />
 </div>
 
 
@@ -103,7 +199,7 @@ PortableApps.com Platform 23.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168875.jpg" />
 </div>
 
 
@@ -129,7 +225,7 @@ Advanced Installer 17.7 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168877.jpg" />
 </div>
 
 
@@ -153,7 +249,7 @@ PureSync 6.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168880.jpg" />
 </div>
 
 
@@ -177,7 +273,7 @@ AIMP 5.10 Build 2414 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168882.jpg" />
 </div>
 
 
@@ -201,7 +297,7 @@ SoftMaker Office Professional 2021 rev. S1040.1126 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168884.jpg" />
 </div>
 
 
@@ -225,7 +321,7 @@ Athentech Perfectly Clear Complete 3.9.0.1707 Repack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168893.jpg" />
 </div>
 
 
@@ -250,7 +346,7 @@ Wise Care 365 Pro 5.4.5.541 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168898.jpg" />
 </div>
 
 
@@ -274,7 +370,7 @@ magnet:?xt=urn:btih:866F7726CEE5BDF878050CCE59FE3863D4F58FFE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168899.jpg" />
 </div>
 
 
@@ -298,7 +394,7 @@ AIDA64 Extreme Edition  6.80.6226 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168907.jpg" />
 </div>
 
 
@@ -322,7 +418,7 @@ DxO PureRAW 2 for Mac v.2.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168908.jpg" />
 </div>
 
 
@@ -347,7 +443,7 @@ Autorun Organizer 5.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168911.jpg" />
 </div>
 
 
@@ -371,7 +467,7 @@ Mailbird Pro 2.9.92.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168913.jpg" />
 </div>
 
 
@@ -396,7 +492,7 @@ VueScan Pro 9.8.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168915.jpg" />
 </div>
 
 
@@ -420,7 +516,7 @@ RAM Saver Professional 23.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168918.jpg" />
 </div>
 
 
@@ -444,7 +540,7 @@ Microsoft Visual Studio 2019 Enterprise 16.3.9 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168925.jpg" />
 </div>
 
 
@@ -468,7 +564,7 @@ CherryPlayer 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168927.jpg" />
 </div>
 
 
@@ -493,7 +589,7 @@ Microsoft Visual Studio 2019 Professional 16.3.9 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168930.jpg" />
 </div>
 
 
@@ -517,7 +613,7 @@ Balabolka 2.15.0.832 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168931.jpg" />
 </div>
 
 
@@ -530,102 +626,6 @@ Balabolka 2.15.0.832 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8DF49E0CF4A82424D6765A8669605D06D43E825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510792   (168933) от 07.12.2021
-
-Waves - Complete V13 13.0.10 (2021.12.05) VST, VST3, AAX, STANDALONE (x64) Online Installer [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью законченный парк виртуальных эффектов и инструментов от A до Z наивысшего качества и с поддержкой 64-разрядных систем! С более быстрыми сканированием, загрузкой и обработкой, Waves V13 открывает новые измерения мощности высокопроизводительных плагинов. Пожалуй, самое известное имя в мире среди производителей профессиональных аудио эффектов обработки. Мастеринг, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80820E7549AA5C18126DF8EA7C83326879064F85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672436   (168962) от 28.10.2023
-
-RAR for Linux 6.24 [x32, x64] (tar.gz)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168962.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR - это консольное приложение, позволяющее управлять архивными файлами в режиме командной строки. RAR обеспечивает сжатие, шифрование, восстановление данных и многие другие функции, описанные в руководстве пользователя (rar.txt). RAR поддерживает только архивы формата RAR, которые по умолчанию имеют расширение имени файла .rar. ZIP и другие форматы не поддерживаются. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1D515A131741D67418CA215AE4EFFA81E6DDAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672427   (168969) от 28.10.2023
-
-Аналоги лекарств, справочник v3.0.5 Mod by vadj [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник лекарств с возможностью поиска дешевых аналогов к дорогим лекарствам. Подбор дженериков с аналогичным действующим веществом, и с указанием актуальной цены. Теперь у пользователя есть выбор, какое лекарство ему приобрести и сколько при этом потратить. Сэкономьте на дорогих препаратах используя дешевые аналоги. Для работы требуется интернет.Тип издания: AdfreeРелиз состоялся: 23.10.2023Разработчик: Involta.RuПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D197B087FA6714FB9C630D42036791512F44D8DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596744   (168972) от 11.12.2022
-
-SophiApp 1.0.90 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168972.jpg" />
-</div>
-
-
-###  Подробнее
-
-SophiApp — это графический наследник Sophia Script for Windows. Бесплатная и полностью опенсорная программа для тонкой настройки Windows 10 и Windows 11. SophiApp предлагает современные UI/UX, более 130 твиков, и показывает как можно настроить Windows официальными методами, ничего не сломав в ОС. Правильная работоспособность программы гарантируется лишь в при использовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75FD0E6036C32C2032BB0280DFCFE0BE28846CC
 ```
 
 

@@ -6,7 +6,7 @@ Muhammad H. Rashid (ed.) | Power Electronics Handbook (2006) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30851.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30851.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DCEC735993EB7CFC88802CD82373B389D82727CA
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30852.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B5BC1F08FC8EDAFDBB716B5EBD8D3A1D598475CA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30853.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30853.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1DD2AC9B7036743D4338D684C2C7D530FDFE8D3C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30854.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30854.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:32B9E20AE9633402277C0EF9523371F7F3D4100D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30855.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30855.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:68ECD93B975F961009BBC534C973BA552CD2AD3B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30856.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30856.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:4ACECFA9FFEB5CE40E55D778DCF6F65F9772AD89
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30857.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30857.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:A57C8E4EB46AB617623251903E0A302D67BC972F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30858.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30858.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Firefox Browser 134.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30859.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30859.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E5AAD6F43C5110AD60658D7617EA46142EF1C4C6
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30860.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30860.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ OpenNumismat 1.9.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30861.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:4A6D5654A1B6F96E803749FDD542DF1A0EEA4CA3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30862.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30862.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7830C14E2DC3B1C5D53E0B0D652B613B8424C20C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30863.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30863.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:A68119B146B4E151F2913CA207AED88441097230
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30864.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30864.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:09FECCEF3D93F5E91489B22F79E5163F82307383
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30865.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30865.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:29382C9B451683EDFC8346C0A3A13062977382C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30866.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30866.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:26C43B03CE46ACA8613561A5041892ABFCB77334
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30867.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30867.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Volker Bertelmann - The Day of the Jackal (Original Series Soundtrack) (2024) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30868.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F14529F36CF769C1A8198788DFE55CE5E4A69A08
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30869.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30869.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Icecream PDF Editor Pro 3.28 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30870.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30871.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:546C56BFA50E0782D5F917686C9190C96F034EC9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30872.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30872.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:4B2D69A0EF01EDAD5D01165C545DFA619DA2B930
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30873.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Google Chrome 132.0.6834.84 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30874.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30874.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Running With Rifles (2015) [Ru/Multi] (1.98.1/dlc) Repack Pioneer
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30875.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:88A5957B8D053E2097D6F864D07BB252C7059DAE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30876.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30876.jpg" />
 </div>
 
 

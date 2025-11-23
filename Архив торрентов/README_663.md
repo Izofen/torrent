@@ -1,3 +1,51 @@
+###  Публикация: 1272876   (140645) от 29.12.2018
+
+ICQ 10.0 build 12414 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140645.jpg" />
+</div>
+
+
+###  Подробнее
+
+ICQ — одна из самых популярных программ для мгновенного обмена сообщениями в режиме реального времени. С помощью ICQ пользователь может найти себе друзей по своим интересам или же связаться с коллегами, членами семьи независимо от того где они находятся. В ICQ можно не только обмениваться мгновенными сообщениями, а и общаться с помощью видеокамеры, в режиме чата, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD1FD4511213E60E9534ED222C91C86FCC35F47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520643   (140649) от 29.12.2021
+
+ConceptDraw Office for Mac 8.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140649.jpg" />
+</div>
+
+
+###  Подробнее
+
+ConceptDraw Office – пакет приложений для бизнес-продуктивности, разработанный компанией CS Odessa . Пакет ConceptDraw Office включает в себя инструменты для создания и обработки интеллект-карт (mind map), программное обеспечение для управления проектами, и графический редактор для создания бизнес–графики. Приложения в составе ConceptDraw Office поддерживают авторскую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 1993 — 2021 CS Odessa Corp.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B47B1B33317E19763BFEA3A012EC9D59E4DDF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195699   (140664) от 30.12.2017
 
 4K Video Downloader 4.4.1 [Multi/Ru]
@@ -6,7 +54,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140664.jpg" />
 </div>
 
 
@@ -32,7 +80,7 @@ Loaris Trojan Remover 3.0.73.208 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140665.jpg" />
 </div>
 
 
@@ -56,7 +104,7 @@ magnet:?xt=urn:btih:E34D8FDC9FDE68301FB4FE0E0CA4446391266A1B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140666.jpg" />
 </div>
 
 
@@ -80,7 +128,7 @@ ChrisPC Win Experience Index 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140669.jpg" />
 </div>
 
 
@@ -104,7 +152,7 @@ Comedy Woman. 10 лет (2017.12.29) WEB-DLRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140686.jpg" />
 </div>
 
 
@@ -128,7 +176,7 @@ Rhinoceros 7 v7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140690.jpg" />
 </div>
 
 
@@ -153,7 +201,7 @@ magnet:?xt=urn:btih:8353B94B5340688934C05A467446EF5D84CA997D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140692.jpg" />
 </div>
 
 
@@ -177,7 +225,7 @@ Raycord - Exotic Jazz (2016) [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Instru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140694.jpg" />
 </div>
 
 
@@ -204,7 +252,7 @@ ScanMyReg 3.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140695.jpg" />
 </div>
 
 
@@ -229,7 +277,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140697.jpg" />
 </div>
 
 
@@ -253,7 +301,7 @@ magnet:?xt=urn:btih:E79B3E7EC7AECDFA9E72DD3D611CAB2E629E0486
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140714.jpg" />
 </div>
 
 
@@ -277,7 +325,7 @@ Alcohol 120% 2.0.3 Build 8426 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140720.jpg" />
 </div>
 
 
@@ -301,7 +349,7 @@ FontExplorer X Pro 6.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140722.jpg" />
 </div>
 
 
@@ -327,7 +375,7 @@ Wondershare UniConverter 12.5.3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140724.jpg" />
 </div>
 
 
@@ -352,7 +400,7 @@ magnet:?xt=urn:btih:845A7E8DE59BE889854C08AFE77CEC217674F9F5
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140731.jpg" />
 </div>
 
 
@@ -379,7 +427,7 @@ Bears Wallpapers (17.12.12)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140751.jpg" />
 </div>
 
 
@@ -403,7 +451,7 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (12.2020) [PDF, 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140754.jpg" />
 </div>
 
 
@@ -427,7 +475,7 @@ Helicopters Wallpapers (17.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140756.jpg" />
 </div>
 
 
@@ -451,7 +499,7 @@ magnet:?xt=urn:btih:9916B17DB3608BBF840BFB197A44C5C6B86E6B3D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140761.jpg" />
 </div>
 
 
@@ -475,7 +523,7 @@ App Swap Drawer Premium v1.0.2.512 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140762.jpg" />
 </div>
 
 
@@ -499,7 +547,7 @@ Panda Free Antivirus 16.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140772.jpg" />
 </div>
 
 
@@ -523,7 +571,7 @@ Foxit PDF Reader 2023.3.0.23028 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140773.jpg" />
 </div>
 
 
@@ -547,7 +595,7 @@ Gilrs Wallpaper (17.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140774.jpg" />
 </div>
 
 
@@ -571,7 +619,7 @@ VA - Space Holidays Vol. 6 (2014) 2CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140778.jpg" />
 </div>
 
 
@@ -585,54 +633,6 @@ VA - Space Holidays Vol. 6 (2014) 2CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3961CC606A6017E73C4558856CF0EEC1879FFCA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739949   (140783) от 30.12.2013
-
-Карательный отряд / Force of Execution (2013) BDRip [720p] [VO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США | Voltage PicturesЖанр: БоевикРежиссер: Киони ВаксманАктеры: Стивен Сигал, Винг Реймз, Дэнни Трехо, Хесус мл., Брен Фостер, Дженни Гэбриэлль, Дэвид Хаус, Сара Минник, Эрик Стейниг, Дж. Энтони Пена, Дилан Кенин ...Перевод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: (Vano)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored), ИспанскийПродолжительность: 01:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7006775379B745703FE7CC871E20EE45255B8E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678890   (140787) от 23.11.2023
-
-Adobe Premiere Pro 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro 2024 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C768193EC46A40D0B70475E26B0186A88FFBF0ED
 ```
 
 

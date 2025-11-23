@@ -6,7 +6,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.22 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17014.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E9681504351D65AB09CBB26D764B9D595C0A80FE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17016.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Wise Care 365 Pro 7.2.5.702 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17021.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:68763735BC6203BD040DCF4F7C9FC222F70A8249
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17037.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MediaHuman YouTube Downloader 3.9.12 (2405) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17050.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Jigsawscapes® - Пазлы v3.8.13 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17090.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Magic Eraser / Магический ластик v2.21.25 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17096.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Smart AudioBook Player Pro v11.4.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17108.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ MediaHuman YouTube Downloader 3.9.12 (2305) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17120.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ SnapEdit - AI photo editor v7.3.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17124.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Internet Download Manager 6.42 Build 38 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17127.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ CPU-Z v1.49 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17133.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Display Driver Uninstaller 18.1.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17157.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Vanced Tube v5.3.81.304 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17158.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GPU Shark II 2.8.1.0+ Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17160.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FurMark 2.8.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17166.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:431FFC669267D18C765E8C3245FD6AA7A1C3D3E1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17170.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Internet Download Manager 6.42 Build 38 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17184.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:482045F12102FEE5FD8A330EC706491F4C19F915
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17193.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ R-Drive Image Technician 7.3 Build 7307 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17194.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:F22D17CFEEE40CDD1584592B7B3AC48387E9D8C7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17197.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2F878169F8D1B635F7263658C8DA373ECCF242D3
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17218.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:4E57564EAA3C40ED42F883662EE3C7F970A14264
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17220.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Los
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17248.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ MediaHuman YouTube Downloader 3.9.11 (2205) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17278.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MediaHuman YouTube to MP3 Converter 3.9.11 (2205) RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17285.jpg" />
 </div>
 
 

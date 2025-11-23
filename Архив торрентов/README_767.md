@@ -1,3 +1,75 @@
+###  Публикация: 968090   (158233) от 22.12.2015
+
+Могучие утята 2 / D2: The Mighty Ducks (1994) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй части фильма «Могучие утята» становятся птицами большого полета. Теперь бывшие неудачники - национальная сборная, которая отправляется на Игры доброй Воли в Лос-Анджелес. Гордон Бомбей приглашен тренером в новую команду, где он снова встречает своих старых друзей. Вместе они прошли огонь и воду. Но в солнечной Калифорнии их ждут еще и медные трубы: юным (   Читать дальше...   )Производство: США / Walt Disney Pictures, Avnet/Kerner ProductionsЖанр: Спорт, Комедия, Драма, СемейныйРежиссер: Сэм УайзманАктеры: Эмилио Эстевес, Кэтрин Эрбе, Майкл Такер, Ян Рубес, Карстен Норгаард, Мария Эллингсен, Джошуа Джексон, Элден Хенсон, Шон Уайсс, Мэтт Доэрти, Брэндон Квинтин Адамс, Гэретт Рэтлиф Хенсон, Маргерит Моро, Винсент Ларуссо, Коломба Якобсен-Дерстин, Аарон Лор, Тай О’Нил, Кенан Томпсон, Майк Витар, Скотт УайтПеревод: Профессиональный (многоголосый закадровый) x2Продолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8BF9F50B7140FCF524D7913CA13CE959ED7E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968081   (158238) от 22.12.2015
+
+Могучие утята 3 / D3: The Mighty Ducks (1996) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ребята из команды «Уток» поступили в престижный колледж. Там уже есть своя хоккейная команда старшеклассников. В борьбе за лидерство все средства хороши: сплетни, интриги и сексуальная соседка…Производство: США / Walt Disney Pictures, Avnet/Kerner ProductionsЖанр: Спорт, Комедия, Драма, СемейныйРежиссер: Роберт ЛиберманАктеры: Эмилио Эстевес, Джеффри Нордлинг, Дэвид Селби, Хайди Клинг, Джошуа Джексон, Джосс Экленд, Элден Хенсон, Шон Уайсс, Винсент Ларуссо, Мэтт Доэрти, Гэретт Рэтлиф Хенсон, Маргерит Моро, Майкл Кудлиц, Кристофер Орр, Аарон Лор, Тай О’Нил, Кенан Томпсон, Майк Витар, Бенжамин Салисбери, Джастин Вонг, Скотт УайтПеревод: Профессиональный (многоголосый закадровый) x2Продолжительность: 01:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2438FE339E7C08CBB5A4AE78BA51DD401C108AEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968178   (158240) от 22.12.2015
+
+Структура Момента. Вернет ли Украина долг? (22.12.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Украина должна России 3 млрд долларов. Перевод средств должен был состояться 21 декабря, однако, как подтвердил Минфин РФ, платеж так и не был произведен. Неисполнение Киевом своих обязательств означает дефолт, который формально наступит 31 декабря, когда завершится льготный период, в течение которого украинская сторона ещё может погасить задолженность. Есть ли вероятность (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программа, политикаПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0E58102B9EF8CB31115AA86288A3FD91D9AF72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967877   (158247) от 22.12.2015
 
 Испанец (2015) HDTVRip [H.264/720p-LQ] (серии 1-4 из 4)
@@ -6,7 +78,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158247.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:E881BEF0683E9EBD7E31E3EC18BB2B79D4F6F04A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158256.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Nemo & Jaymon - Jahreszeiten (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158264.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ LPF12 - The White Room (2010) [FLAC|Lossless|WEB-DL|tracks] <Industrial, IDM, Da
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158267.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:723CF06B83BF202BD9ED7DA9289ED6BD6EE59B4A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158281.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Satellite Reign (2015) [Ru/Multi] (1.06) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158295.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:53CA248BA7298385460200A3E60510C7359A9B97
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158301.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:EBEB11A7C938F666DBF09EF1E989565F4179ADBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158302.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Ninja Slayer from Animation / Охотник на ниндзя [2015, ONA, 14 и
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158304.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ The Bat! Professional Edition 7.1.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158317.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Bandicam 3.0.1.1003 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158318.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:A67E179F8F83815B9C8E15B09787B6020B11C846
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158321.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ Acronis BootDVD 2015 Grub4Dos Edition v.35 (12/21/2015) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158323.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:2C9836B3ABD370BBB9EA179B064E621D96279A87
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158325.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ StartIsBack++ 1.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158326.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ PaperScan Scanner Professional Edition 3.0.11 [En/Fr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158327.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:DAE51EF0C2423BE9E940FA4A6659A906864405EE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158331.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:A49F4DC48AD65FFCC4B0AE13818F358A73FFEDE1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158333.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ CCleaner 5.13.5460 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158338.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:5799D477922FC703780D7BC6BE39CE427BC470AE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158342.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ Windows 8.1 x64 Single Language NVDA для незрячих. 2015.12.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158345.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Revo Uninstaller Pro 3.1.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158346.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ PanoramaStudio Pro 3.0.0 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158350.jpg" />
 </div>
 
 
@@ -556,81 +628,6 @@ PanoramaStudio Pro 3.0.0 [En/De]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597342EE335E047A6BC69DC5037F7BBFF3EBF71F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958217   (158353) от 21.12.2015
-
-Ad-Aware Free Antivirus+ 11.8.856.8535 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ad-Aware Free Antivirus+ - бесплатный антивирус, использующий технологии Bitdefender, легендарный антишпион Ad-Aware и веб-защиту для обнаружения и блокировки всех видов вредоносных программ и онлайн-угроз.
-В дополнении к собственной антишпионской технологии Ad-Aware 11 использует один из лучших на сегодняшний день антивирусный движок Bitdefender, что позволяет обеспечивать (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C398BEF185BCCE977EE5821527116F781E1A2E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645653   (158357) от 21.12.2015
-
-Семеро и стерва / Sept hommes et une garce (1967) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Северная Италия, революционная французская армия ведет боевые действия против австрийцев.
- Дочь итальянского графа Карлотта, отказывается бежать от наступающих войск Наполеона Бонапарта, предпочитая завоевывать своим очарованием французских офицеров.
- Доржеваль и Дюпра - капитаны наполеоновской армии, в компании пяти солдат и сумасбродной девицы оказываются в расположении (   Читать дальше...   )Жанр: ПриключенияРежиссер: Бернар БордериАктеры: Жан Маре, Марилу Толо, Сидни Чаплин, Филипп Лемэр, Ги Бедос, Флорин Пьерсик, Этторе Манни, Жоэлль Бернар, Эме Якобеску, Серж АйалаПеревод: Любительский (одноголосый)Продолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBFEBD7F6FF5FC7CF597A1EF28CCC5356333382
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967811   (158360) от 21.12.2015
-
-CCleaner 5.13.5460 Professional | Business | Technician Edition [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158360.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25172F68C2AFFF1A7B54D63B2D2B4347CD1E03D
 ```
 
 

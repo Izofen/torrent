@@ -1,3 +1,75 @@
+###  Публикация: 1694294   (115648) от 26.02.2024
+
+Час истины / Hour of Lead / The Vanished (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115648.jpg" />
+</div>
+
+
+###  Подробнее
+
+У супружеской пары, остановившейся в кемпинге на берегу реки, бесследно пропадает дочь. Полиция не в силах отыскать девочку, но муж с женой не остановятся ни перед чем, чтобы найти своего ребенка. Однако никто не догадывается, что за этим исчезновением скрывается страшная правда.Производство: США / Adonais Productions, Benay's Birds & Animals, Brickell & Broadbridge InternationalЖанр: ужасы, боевик, триллер, криминалРежиссер: Питер ФачинеллиАктеры: Энн Хеч, Томас Джейн, Джейсон Патрик, Алекс Хейдон, Питер Фачинелли, Алексей Арчер, Кристофер Венте, Джон Д. Хикман, Митчелл Л. Джонсон, Кейкей ХеймПеревод: Дублированный (Нарышкин)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английскиеПродолжительность: 01:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30DB285107D1AC5115DC14DC364687B104AC41B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694275   (115649) от 26.02.2024
+
+Тысяча и один / A Thousand and One (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115649.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как непримиримая и отчаянно преданная Инес похищает своего сына Терри из приемной семьи, мать и сын отправляются на поиски своего дома, идентичности и стабильности в быстро меняющемся Нью-Йорке.Производство: США / Focus Features, Hillman Grad, Makeready, Sight Unseen PicturesЖанр: драма, криминалРежиссер: А.В. РокуэллАктеры: Тейяна Тейлор, Аарон Кингсли Адетола, Авен Кортни, Джозиа Кросс, Уильям Кэтлетт, Терри Эбни, Делисса Рейнольдс, Амелия Уоркмэн, Адриан Ленокс, Гэвин ШлоссерПеревод: Дублированный (License)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full, Forced), Английские (Full, SDH)Продолжительность: 01:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE0D20232235859CF26C176CFD9DE89186FEF94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702746   (115650) от 26.02.2024
+
+Adobe Acrobat Pro 2023.008.20555 RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54EF8B91A1EB1CCE7CE610244073976F6D6E6F29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694281   (115651) от 26.02.2024
 
 Укус / Bite (2022) WEB-DL [H.264/720p] [MVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115651.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:04CFD16E0936FF6D650C9E087B06A95986900D3E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115652.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:0348988B3CC550D72005CE762A69CE060E1C386C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115653.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ AI War 2 v.5.586 (2019) [En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115654.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:D928C7EE0523020AC81AE593344CBF0BA149CFF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115655.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:30516F3DBBDBB3CD0F11C5BA0DDB723FF0940E3F
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115656.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115657.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ VA - Понемногу отовсюду by Yuridar #C (1958-2021) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115658.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Neverwinter Nights: Enhanced Edition v.88.8193.36.11 (2018) [Multi] [macOS Nativ
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115659.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:ECF5762D88567243D2CDD9E5A5381432DCD5F244
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115660.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:C2DA6A562FA64013B0DDECE1F7B379770C39E210
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115661.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:C2DA6A562FA64013B0DDECE1F7B379770C39E210
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115662.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Kjell Karlsen Big Band - Edvard Grieg In Jazz Mood (2008) Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115663.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ Gen and the Degenerates - Anti-Fun Propaganda (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115664.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ Anubis - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115665.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Blutgott - Drachenkult (Balgeroth Version) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115666.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ Without Me - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115667.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ He Was A God - Muckraker (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115668.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ Avacost - A Peace of the Sky (1993) Reissue 2010, Nudibranch Records [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115669.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ Mezzrow - Then Came The Demos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115670.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Saffire - For The Greater Good (2015) Redux, 2024, Rock Of Angels Records [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115671.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ Cycleam - Dream Cycle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115672.jpg" />
 </div>
 
 
@@ -572,7 +644,7 @@ Sullivan Fortner - Moments Preserved (2018) Impulse! [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115673.jpg" />
 </div>
 
 
@@ -586,87 +658,6 @@ Sullivan Fortner - Moments Preserved (2018) Impulse! [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7296638043FA07B6FFC5BB338DC6B13149B9074
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702480   (115674) от 25.02.2024
-
-Rodney Whitaker - All Too Soon: The Music Of Duke Ellington (2017) 2019, Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cotton Tail [4:17]
-02. All Too Soon [3:42]
-03. Take the 'A' Train [5:28]
-04. Just Squeeze Me [7:01](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Vocal JazzПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15760027EE0766319EB194AC89F31C15A413D12F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702503   (115675) от 25.02.2024
-
-Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Millie [6:16]
-02. O Mama Enit [5:34]
-03. I Should Care [7:31]
-04. Rigor Mortez [6:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D1B9310219B36B2E9881EEC3053774728D0293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702484   (115676) от 25.02.2024
-
-Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeepers Creepers (with Tommy Flanagan) [5:01]
-02. I've Got a Crush on You (with Tommy Flanagan) [6:06]
-03. Some Time Ago (with Renee Rosnes) [5:29]
-04. It's You or No One (with Renee Rosnes) [5:18](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFA722447CE40BE206E431A75AE02B3585A9A29
 ```
 
 

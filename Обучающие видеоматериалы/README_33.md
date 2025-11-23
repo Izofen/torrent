@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Austin School of Furniture & Design, Austin Waldo | Книжный шкаф из
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107268.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:ADC6DE96740BDAA530062AB32E94F2AE252A6A69
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109066.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ puzzlebrain, Ильгизар Зинатов | Как подготовить р�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109078.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Kaminskaya_sew | Мастер-класс по пошиву постельног�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111841.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1FC389A21D9B2A3BE4BADE206B238918AD106A7A
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112325.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Karpov.courses, Нерсес Багиян, Алексей Кожарин, Ник
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112355.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2BAB2EA79A752FE3473EA18E685C2FDCC3F8A9E1
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114067.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:7118D1EE63A2A084ECE641274030305C2BB3E3C6
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114597.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:CC65EEF2DB9FAF7EFEBF139B582DB8BB7DAA5C67
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114740.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ CG Cookie, Kent Trammell | Creating a Stylized 3D Forest Environment with Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114782.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Udemy, Brad Traversy | Next.js From Scratch 2024 (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114945.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Udemy, Ерлан Тургумбаев | Финансовое моделиров
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115113.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Compositing Academy, Alex Hanneman | NK707: Deep Compositing in Nuke (2024) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115129.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Skillbox, Андрей Миронов, Екатерина Воронина | И�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115146.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Podlodka | Podlodka PHP Crew #3 (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115243.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ AlgoExpert | Become an Algorithms Expert (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115246.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:853A3F5B97E75EB383631FC6073821EA9D5FDA42
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115257.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Udemy, Ilyas Shakenov | Финансовая математика (2024) WEB-DL 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115261.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115292.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Alex Klimov | Основы Python для алготрейдинга (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115293.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:F45348A922D8D003DDC189A5B7120C50C020CAD6
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115294.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Infostart, Римма Фролова | Сложный учет НДС в 1С - E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115381.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:5D15F7D2EF0A74EF55CD5788F13DA7E5C9C05B6A
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115396.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Udemy, Alexey Belov | Как пройти Junior Python собеседовани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115416.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Product University, Сергей Туманов, Алексей Шаграев, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115419.jpg" />
 </div>
 
 

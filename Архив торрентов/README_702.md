@@ -1,3 +1,79 @@
+###  Публикация: 1271689   (147444) от 25.12.2018
+
+Pixelmator 3.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2018Разработчик: Pixelmator Team LtdПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A53313F16B27CAF15916B49FE8F49B0698B772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271866   (147451) от 25.12.2018
+
+Brave Browser 0.58.17 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCD645A12636334D40B976C387CE075E66A9181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589505   (147452) от 15.12.2012
+
+Lush Tower Defense [Игра] (Android 2.1+)
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lush Tower Defense - игра в стиле обороны башнями. Защити город Lushington Springs от вторжения неприятеля.
+
+Эта игра является хитом на Windows Phone 7, теперь в нее можно играть и на Android!
+
+Вам предстоит защищать Лишингтон Спрингс в который очень быстро решили проникнуть враги, пробираясь через леса, снежные переходы, пустыни, фермы и т.д. Ваша задача, как и во всех играх подобного типа, на имеющиеся средства грамотно расставить оборону и во время ее апгрейдить, чтобы у противника не было шанса. За уничтоженные юниты вы также зарабатываете деньги, без которых играть будет не возможно.Жанр: Стратегия, Аркада и экшн
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086617   (147453) от 26.12.2016
 
 Отсев / The Thinning (2016) WEB-DLRip [VO]
@@ -6,7 +82,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147453.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Hetman FAT Recovery 2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147458.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ Modern Combat 4: Zero Hour [4.3+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147459.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ High-Logic FontCreator Professional 15.0.0.2950 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147460.jpg" />
 </div>
 
 
@@ -102,7 +178,7 @@ magnet:?xt=urn:btih:47506EC65B217F9A9EE15FF78A6A20582699755D
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147469.jpg" />
 </div>
 
 
@@ -126,7 +202,7 @@ VA - Dream Trance (Best Melodic Dance Cuts Vol 1) (2015) [MP3|320 кб/с] <Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147480.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ MacFamilyTree 8 v8.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147481.jpg" />
 </div>
 
 
@@ -179,7 +255,7 @@ magnet:?xt=urn:btih:F1480AA8C4BF4C60B51BDF19E00256AD388C602B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147508.jpg" />
 </div>
 
 
@@ -203,7 +279,7 @@ magnet:?xt=urn:btih:7A80E7B9669D7CA34EDEC597BA8703192FC82175
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147509.jpg" />
 </div>
 
 
@@ -227,7 +303,7 @@ magnet:?xt=urn:btih:246819D8F1554DA78BE70395A011CDFA2576D7FF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147511.jpg" />
 </div>
 
 
@@ -251,7 +327,7 @@ GoodSync Enterprise 10.10.17.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147522.jpg" />
 </div>
 
 
@@ -275,7 +351,7 @@ SYNTHEVER - 3 Releases (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147532.jpg" />
 </div>
 
 
@@ -300,7 +376,7 @@ Boilsoft Video Joiner / Video Splitter 7.01.4 [Eng+Rus] + Portable [Rus] by Soft
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147533.jpg" />
 </div>
 
 
@@ -324,7 +400,7 @@ Focus Matrix Pro 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147534.jpg" />
 </div>
 
 
@@ -348,7 +424,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.04/2dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147537.jpg" />
 </div>
 
 
@@ -372,7 +448,7 @@ ON1 Photo RAW 2024 v.18.0.4.14758  [Multi/Ru] [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147543.jpg" />
 </div>
 
 
@@ -396,7 +472,7 @@ Allavsoft Video Downloader Converter 3.22.0.7298 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147548.jpg" />
 </div>
 
 
@@ -420,7 +496,7 @@ DJ Kevlar - Mics Out: The Best Raps of 2019 [FLAC|Lossless|Web-DL|tracks] <Hip-H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147557.jpg" />
 </div>
 
 
@@ -447,7 +523,7 @@ magnet:?xt=urn:btih:02B00BB8070677DD85B9E1B9FAB4E057E2504032
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147560.jpg" />
 </div>
 
 
@@ -471,7 +547,7 @@ magnet:?xt=urn:btih:55671A919E69FDE132F48DE85D160E99EC713083
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147565.jpg" />
 </div>
 
 
@@ -495,7 +571,7 @@ Marlowe (L'Orange & Solemn Brigham) - Marlowe (2018) [FLAC|Lossless|Web-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147566.jpg" />
 </div>
 
 
@@ -522,7 +598,7 @@ PeakHour 4 v4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147567.jpg" />
 </div>
 
 
@@ -548,7 +624,7 @@ iZotope - RX 9 Audio Editor Advanced 9.2.0 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147573.jpg" />
 </div>
 
 
@@ -560,79 +636,6 @@ RX уже давно является популярным пакетом для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59B60BF4414A04BF6BB3ADC1D2666998B73B4F35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271996   (147575) от 25.12.2018
-
-Дарья Домрачева. Женщины и спорт (2018) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многократная олимпийская чемпионка, двукратная чемпионка мира, обладательница Кубка мира 2014/15, обладательница 5 малых Хрустальных глобусов Кубка мира по биатлону, заслуженный мастер спорта Республики Беларусь Дарья Домрачева.Телекомпания: Беларусь 1Жанр: Документальный, спортСубтитры: ОтсутствуютПродолжительность: 00:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB6068D52893C7AD60FF54D5A7665F71B15A130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347870   (147579) от 25.12.2019
-
-AweEraser 4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147579.jpg" />
-</div>
-
-
-###  Подробнее
-
-AweEraser - это безопасный «ластик» данных Mac. Он может безопасно и навсегда удалить данные с жесткого диска / носителя, окончательно удалить файлы Mac, стереть жесткий диск и стереть уже удаленные данные в Mac OS. Он также предлагает инструменты для пакетного удаления приложений на вашем Mac и очистки истории браузеров, кэшей, конфиденциальности и т. д.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8DE25DD3795DAC3768374CF5C033339146920E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678048   (147580) от 20.11.2023
-
-Sublime Text 4.0 Build 4166 Dev for Mac [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2023Разработчик: © 2006-2021 Sublime HQ Pty LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A7B16F5F4B7A57FDF5E989C7CEA55200431711
 ```
 
 

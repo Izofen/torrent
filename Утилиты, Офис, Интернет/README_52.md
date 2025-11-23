@@ -1,3 +1,75 @@
+###  Публикация: 1658648   (191060) от 08.09.2023
+
+Movavi Gecata 6.1.2 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы — геймер, то наверняка задумывались о том, как проще всего сохранить прохождение любимой игры на видео и поделиться им с товарищами и соперниками. Используйте Movavi Gecata – приложение для съемки игрового процесса без лагов и почти без потери fps. Сохраните эпичные битвы в World of Warcraft или захватывающие матчи в Counter Strike!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5493DA365188A1F39AFF932C24036FE38FBD49CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587111   (191190) от 05.11.2022
+
+Discord Web-Portable by DVLZ 1.2
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_191190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Discord - мессенджер для текстовой, голосовой и видеосвязи, в основном ориентированный на геймеров.Язык интерфейса: Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA85E98812C7CB715B65B887179ADF6C190E382B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588546   (191192) от 05.11.2022
+
+uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_191192.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDF2E446B8F6FDC4537281C4B10B8A2E0ECEB7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588538   (191198) от 05.11.2022
 
 Start Menu X 7.33 SpaceX [Multi/Ru]
@@ -6,7 +78,7 @@ Start Menu X 7.33 SpaceX [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191198.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191198.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ uTorrent Pro 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191211.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191211.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Geek Uninstaller 1.5.2 Build 165 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191404.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191404.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Iridium Browser 116.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191461.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191461.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ V-Ray benchmark 5.02.01 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191475.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191475.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ AOMEI NTFS to FAT32 Converter 2.0 Free [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191505.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191505.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Auslogics BoostSpeed Pro 13.0.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191728.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191728.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Corona Benchmark 10.0.0.20034 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191759.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191759.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ WinUtilities Professional Edition 15.89 RePack (& Portable) by Dodakaedr [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191794.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191794.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Geekbench Free 6.1.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191838.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191838.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ FreeTube 0.18.0 Beta + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191926.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191926.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ Calcpad 6.1.3 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192194.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192194.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ Tribler 7.13.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192544.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192544.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ Stardock Groupy 2.1 RePack (& Portable) by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192545.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192545.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ OpenedFilesView 1.91 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192612.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192612.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ SlimBrowser 18.0.0.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192620.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192620.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ Twinkstar 8.4.2000.2209 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192830.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192830.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ Telegram Desktop 6.2.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193309.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193309.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ UltraSearch Professional 4.8.4.1184 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193321.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193321.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ LibreWolf 144.0-1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193341.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193341.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ MediaHuman YouTube Downloader 3.9.17 (2110) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193349.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193349.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ IObit Smart Defrag Pro 11.1.0.466 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193350.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193350.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ Ant Download Manager Pro 2.16.1  Build 91717 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193351.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193351.jpg" />
 </div>
 
 
@@ -559,78 +631,6 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E0A5AE67BB43B602F6D70E417FC677D6D75E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827721   (193352) от 23.10.2025
-
-IObit Uninstaller Pro 15.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193352.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D9BD6CD72425C5EE54934E0B7EF4C1CDFBA85B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827711   (193371) от 23.10.2025
-
-YT Downloader 9.17.11 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193371.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E9A171BEE07EDEB9BB4BEC6B22AB49D0F08298
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827710   (193372) от 23.10.2025
-
-MediaHuman YouTube Downloader 3.9.17 (2210) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193372.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBB078828E8E8D094874B7730D3E01BB46E86AF
 ```
 
 

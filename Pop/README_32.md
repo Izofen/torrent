@@ -6,7 +6,7 @@ VA - Русская Дискотека 80-90х (2012) [MP3|320 кб/с]<Pop, Dan
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82752.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Revolver - Let Go (2012) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82798.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Вокально-Инструментальные Ансамбли СССР
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82899.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск р
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82905.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bananarama - 15 альбомов + 8 синглов (1983 - 2010) [MP3|320 kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83163.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ottawan - Greates Hits (2007) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83313.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - Звёзды царской эстрады (приложение к кни�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83458.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Michael Bolton - Gems: The Very Best Of (2012) [MP3|320 кб/с]<Pop-Rock | Ball
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83459.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Stefanie Heinzmann - Stefanie Heinzmann (2012) [MP3|320 кб/с]<Soul, Indie Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83651.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Родные хиты семидесятых (2012) [MP3|320 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83905.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск 50
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83920.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Назад в 80-e Collection (2012) [MP3|320 kbps]<Disco | Pop | Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83948.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83950.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Madonna - MDNA (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84120.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Madonna - MDNA (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84183.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Katy Perry - Teenage Dream-The Complete Confection (2012) [MP3|320 кб/с]<Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84339.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:12689EDA2C9EF2338F929E9B04C6F09E5BC8CA85
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84627.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Beverley Craven - Promise Me - The Best Of Beverley Craven (2011) [MP3|320 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84921.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - XXXL Золотые 80-е Русский (2012) [MP3|224-256 kbps]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84951.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Romantic Collection Disco 80 vol. 1 (2012) [MP3|256 kbps]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84993.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - Romantic Collection Disco 80 vol. 2 (2012) [MP3|256 kbps]<Disco>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85175.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ magnet:?xt=urn:btih:55B55D80EB0411645704F33CD041BAE5E59A1F8E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85340.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Samantha Fox - Greatest Hits (2009) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85505.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85879.jpg" />
 </div>
 
 
@@ -793,7 +793,7 @@ VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86326.jpg" />
 </div>
 
 
@@ -826,7 +826,7 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86568.jpg" />
 </div>
 
 

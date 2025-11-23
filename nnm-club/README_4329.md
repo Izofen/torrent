@@ -1,3 +1,77 @@
+###  Публикация: 1680907   (133303) от 01.12.2023
+
+Compressor 4.7 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Compressor – простой и мощный инструмент для сжатия видео. Compressor может сжимать ваше видео с поддержкой большинства популярных форматов, включая HEVC, MPEG-4, H.264, MXF и др. Кроме этого, в приложении имеется замечательная возможность прямого экспорта последовательности сегментов видео с применением различных эффектов и фильтров на прямую из Final Cut, для последующей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: Apple Inc.Поддерживаемая ОС: macOS 13.5 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA13825A2443DFE2BD8777D04056DB539DFB3502
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681082   (133305) от 01.12.2023
+
+Я богиня (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наивная школьная учительница Лена в одночасье лишается и работы, и мужа. «Проблема точно во мне», – решает она и по совету подруги записывается перекраивать себя на тренинг «Стать богиней». Результат налицо: новый имидж и влюбленный поклонник Андрей. Вот только не понятно, получилось ли у Лены найти себя, и не потерялось ли в процессе что-то очень важное...Производство: Россия, ЛУКФИЛЬМ / LOOKFILM, STARTЖанр: комедия, мелодрамаРежиссер: Ольга ДибцеваАктеры: Александра Бортич, Антон Васильев, Антон Филипенко, Евгения Калинец, Евгений Муравич, Степан Девонин, Александр Мосин, Сергей Ильин, Никита Брусов, Мария КлешнинаПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE2A4B695D0CFDE1F244D00FB2B0B3A5A83C651
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593874   (133306) от 26.12.2012
+
+Windows 7 Ultimate SP1 x86 Beslam Edition (v.8 Updated) 20.12.2012 [Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе MICROSOFT:
+ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.
+Автоматическая, Полуавтоматическая, Ручная установка. Интегрированы последние обновления по дату: 6.12.2012. Дистрибутив пропатчен для применения сторонних тем. Максимальный упор на производительность.Название программы: Windows 7 Ultimate SP1 x86 Beslam™ Edition (v.8 Updated)Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594572   (133307) от 26.12.2012
 
 Южный парк / South Park (15 сезон, серии 1-14 из 14) (2011) [H.264/720p-LQ] WEB-DL
@@ -6,7 +80,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133307.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:4C90074C3B744405C2F0F03AF981EE970655E0B9
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133308.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:9757D9314E5D5966FBE989E3F6303F60CD973308
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133310.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ Plants vs. Zombies [Ru/En] (RePack/3.1) 2009 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133311.jpg" />
 </div>
 
 
@@ -110,7 +184,7 @@ magnet:?xt=urn:btih:D77D100B9C34627D4ACC9A5D1EE0259C288D0EC3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133312.jpg" />
 </div>
 
 
@@ -134,7 +208,7 @@ AIMP 5.30 Build 2530 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133313.jpg" />
 </div>
 
 
@@ -159,7 +233,7 @@ magnet:?xt=urn:btih:5E8DF0E238FEBA11E81AF481E261873D813C9BC6
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133314.jpg" />
 </div>
 
 
@@ -183,7 +257,7 @@ Linux Mint 14.1 - MATE, Cinnamon [x32, x64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133315.jpg" />
 </div>
 
 
@@ -209,7 +283,7 @@ Linux Mint 14.1 - MATE, Cinnamon [x32, x64] (4xDVD)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133316.jpg" />
 </div>
 
 
@@ -233,7 +307,7 @@ magnet:?xt=urn:btih:81D4334CFBBF8641492A1C9F763D2289295A2FD4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133317.jpg" />
 </div>
 
 
@@ -257,7 +331,7 @@ magnet:?xt=urn:btih:98F56AE102299CA7C80050E6800D8DF3C821D040
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133318.jpg" />
 </div>
 
 
@@ -281,7 +355,7 @@ IObit Malware Fighter Pro 1.7.0.0 Final [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133319.jpg" />
 </div>
 
 
@@ -307,7 +381,7 @@ LDPlayer 9.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133320.jpg" />
 </div>
 
 
@@ -332,7 +406,7 @@ Toon Boom Animate Pro 2 + Videotutorial [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133321.jpg" />
 </div>
 
 
@@ -356,7 +430,7 @@ Toon Boom Animate Pro 2 + Videotutorial [En]
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133322.jpg" />
 </div>
 
 
@@ -380,7 +454,7 @@ magnet:?xt=urn:btih:9F1E06F5B94635D2F90833944AAB727A62404467
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133323.jpg" />
 </div>
 
 
@@ -406,7 +480,7 @@ magnet:?xt=urn:btih:7EB9B97F2FE94715A2A9D5BEE873E2F329F557DE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133324.jpg" />
 </div>
 
 
@@ -430,7 +504,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133325.jpg" />
 </div>
 
 
@@ -454,7 +528,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133327.jpg" />
 </div>
 
 
@@ -478,7 +552,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133328.jpg" />
 </div>
 
 
@@ -502,7 +576,7 @@ Dead Island. Game of The Year Edition [Ru/En/Multi8] (Steam-Rip/1.3.0) 2012 | R.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133330.jpg" />
 </div>
 
 
@@ -532,7 +606,7 @@ magnet:?xt=urn:btih:13BAA53F9C177ABFC177DAB2ABF7C2129426B1AF
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133331.jpg" />
 </div>
 
 
@@ -556,7 +630,7 @@ Motion 5.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133332.jpg" />
 </div>
 
 
@@ -567,80 +641,6 @@ Apple Motion — приложение для создания анимирова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49139F520A8FF8E20D9DBD238093A70663ADF9E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594556   (133334) от 26.12.2012
-
-Майский дождь (2012) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133334.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни Ольги происходит то самое событие, которого все девушки ждут годами: Марк делает ей предложение! Все происходит, как положено: розы, шампанское, назначение точной даты свадьбы, планы о путешествии, будущих детях… Но вдруг романтику момента нарушают удары в стену: недавно переехавший сосед устроил очередную вечеринку. «Сколько это может продолжаться?» — сетуют друг другу Ольга и Марк. Ольге приходит идея.
-
-К соседу Денису приходит Марк с деловым предложением: продать им с Ольгой квартиру, а они ему подыщут новую — никаких хлопот и даже финансовая выгода. Но Денис не намерен соглашаться… Пара даже после отказа не хочет отступать: Ольга уже нафантазировала прекрасную большую квартиру и милых детишек! Удастся ли Ольге воплотить свою мечту в реальность или ей с Марком так и придется страдать из-за столь проблемного соседа?..Жанр: Мелодрама, КомедияРежиссер: Евгений ЛаврентьевПродюсер: Анастасия Шипулина, Родион Павлючик, Игорь МаринАктеры: Артем Ткаченко, Данила Дунаев, Ирина Таранник, Равшана КурковаПеревод: Не требуется (Русский)Продолжительность: 01:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30363514A2D1067E6920FBD7875F011D7BDF0418
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680902   (133335) от 01.12.2023
-
-Riki-Ou: Toukatsu Jigoku | Riki-Oh: The Walls of Hell | Рики-О: За стеной ада [1989, OVA] WEBRip 480p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парень Рики-О, наделённый сверхсилой, отомстив боссу якудза за смерть девушки, попадает в тюрьму строгого режима, принадлежащую частной организации.Производство: Япония / Magic BusЖанр: боевые искусства, приключенияРежиссер: Сатоси ДэдзакиПеревод: Кинозал МаанишаЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый) + Японский (оригинал)Субтитры: Русские (на надписи + полные отключаемые), Английские (полные отключаемые), Испанские (полные отключаемые)Продолжительность: 48 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1158ED923486A0803D869E3A862236C19DE742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593353   (133336) от 26.12.2012
-
-Жизнь на Вершине / Life on Top  [2 сезон,серий 13 из 13] (2011) SiteRip [EN]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь на Вершине - ненавязчивый телесериал приблизительно четыре молодых женщины, живущие в Манхэттене.Жанр: Драма, ЭротикаВ ролях: Хизер Вандевен, Брэндон Рэкли,  Райли Стил , Дэниэл Мессье, Мэри ЛеГолт, Джейден Коул, Криста Эйн, Миа Прэсли, Danny Crawford, Клэйтон Кэннон, Jason SarcinelliПеревод: Без переводаФормат: MatroskaПродолжительность: 00:30:00 x 13
-
-## Скачать торент
-```bash
-нет
 ```
 
 

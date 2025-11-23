@@ -1,3 +1,76 @@
+###  Публикация: 1456369   (247706) от 08.06.2023
+
+Русский самогон 2 v5.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расширенная версия приложения "Русский самогон".
+Основные выполняемые функции:Тип издания: Купленная версия с Маркета (Paid) и FreeРелиз состоялся: 13.02.2023Разработчик: Roma ShilovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D85A2E3922D76A4E0AE816BC600256954AE987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440191   (247754) от 06.06.2023
+
+Colorize it v2.1.1 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оживите свои старые черно-белые фотографии, раскрасив их с помощью искусственного интеллекта! "Colorize it" - это приложение, которое использует нейронные сети и методы искусственного интеллекта для автоматической раскраски изображений в оттенках серого. Он отлично работает со всеми типами фотографий: полностью полутоновыми, тонированными сепией, частично (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 16.05.2023Разработчик: reAImagineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833985   (247813) от 02.11.2025
+
+AI Photo Editor Pro - Polish v1.685.235 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоторедактор - коллаж фото предлагает все, что вы хотите редактировать арт фото. Множество стильных эффектов, фильтров, монтаж, сеток и удаление объектов помогут вам создать привлекательный рисования, даже если вы никогда не редактировали фотографию раньше. превратить ваши фотографии в настоящие произведения искусства в стиле аниме с Аниме фото функция. Мультяшные (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.11.2025Разработчик: InShot Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319B31A1053866BAA5CB02E8F67FBF53D055C07D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833969   (247814) от 02.11.2025
 
 Мои Дела: Деловой Органайзер v7.8.5 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +79,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247814.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247814.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ WeNote: заметки блокнот планер v6.50 Mod by PieMods [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247820.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247820.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ VRadio - Online Radio App v2.8.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247821.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247821.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:C4A725D0CD08C370BD57E0A122B42FEF58B2CFC3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247822.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247822.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:1261C8C6F04177D020516C0974B5969592486B77
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247828.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247828.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ Cleaner for WhatsApp / Очиститель для WhatsApp v3.0.0 Mod by TryRoo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247829.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247829.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ Sipnetic v1.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247837.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247837.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ Food.ru: пошаговые рецепты v02.14.00 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247853.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247853.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ Talksy: Навык общения v0.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247855.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247855.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ magnet:?xt=urn:btih:6E4A2F506378A128578845762A69792A18EEADF7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248597.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248597.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248599.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248599.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Ventusky: Прогноз погоды v48.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248601.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248601.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ magnet:?xt=urn:btih:A0A5B4F7E5A4EF46FDE10920EBB05D3BC8966A2E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249046.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249046.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249049.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249049.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ BikeComputer Pro v9.2.4 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249332.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249332.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ AirBrush: ИИ Фоторедактор v7.19.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249333.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249333.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ Gallery - Photo Gallery, Album (XGallery) v2.0.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249335.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249335.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ Seven / 7 Минут Упражнение v9.24.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249336.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249336.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ magnet:?xt=urn:btih:CAD198085A242A33871AAEB5E13E3D808DA54ECF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249338.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249338.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ magnet:?xt=urn:btih:820BE63608756C01DAB62B69A1D5365EC4211897
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249393.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249393.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ OD VPN - Fast & Stable Server Premium v3.5.1 b3501 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249697.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249697.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) 3.8.0.101 Mod by Valik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249769.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249769.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ magnet:?xt=urn:btih:2F661BEF91DADB4820F6D89032DFB6F7A2DEF71D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250070.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250070.jpg" />
 </div>
 
 
@@ -552,78 +625,6 @@ Opera Touch - новый быстрый браузер с функцией Flow,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E5DF6D02C0444D8916E9E55E333E15AA47CB4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429996   (250190) от 12.07.2022
-
-PhotoLayers v4.0.0 [En/Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миниатюрное приложение для создание фотоколлажей и всяческих "фотожаб". Поддерживает автоматическое удаление у накладываемого изображения. Безусловно позволяет убирать фон и вручную с помощью инструмента "Умное удаление". Великолепно работает со слоями. Присутствует возможность поделиться полученным коллажем через социальные сети.Тип издания: Пиратка (Mod)Релиз состоялся: 02.07.2022Разработчик: handyCloset Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Английский + русификация
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F720A8449020112105783D7F5642826FE44836DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563174   (250204) от 12.07.2022
-
-Screen Stream Mirroring Pro 2.7.0c Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screen Stream Mirroring - многофункциональное приложение для трансляции экрана устройств на базе Android и звука в реальном времени! Приложение позволяет «в прямом эфире» транслировать (дублировать) изображение с экрана на любое устройство или ПК в той же сети - на мультимедиаплееры, веб-браузеры, Chromecast и устройства UPnP и DLNA (Smart TV и другие совместимые (   Читать дальше...   )Тип издания: Patched (Pro)Релиз состоялся: 02.04.2020Разработчик: MOBZAPPЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9346074683C77B498D73C12D4D6FDA89AAF3E6E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563113   (250209) от 12.07.2022
-
-Meditopia: Сон и Медитация 3.24.0 Mod by ApkDone Team [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Meditopia – это приложение для медитации, которое поможет вам расслабиться и отдохнуть. Meditopia поможет вам наладить ваш сон и расслабиться после тяжелого рабочего дня. В приложение огромный ассортимент расслабляющей музыки – она поможет вам уснуть и полностью расслабиться. Благодаря приложения, вы можете научиться медитировать. В приложении более 100 звуков для (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 08.06.2022Разработчик: MeditopiaЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F86AE10B97612D8E0DF4D6727F1E5E972C91F1
 ```
 
 

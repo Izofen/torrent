@@ -1,3 +1,84 @@
+###  Публикация: 1700652   (117000) от 17.02.2024
+
+Throne Of Thorns - Converging Parallel Worlds (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rise
+2. Storm Maker
+3. Atomic Retribution
+4. Black Diamond(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78BA2E42E0CA5322DD05377723044D7ADF42DE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700546   (117001) от 17.02.2024
+
+Гнилой Район - Сюжет одной жизни (Памяти Юрия Клинских Хоя Посвящается) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117001.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 СЮЖЕТ ОДНОЙ ЖИЗНИ - Памяти Юрия Хоя Посвящается 3:16
+2 ТЕЛЕМАГАЗИН FIREFAX 5:37
+3 ГОРИТ ПЕРДАК 6:22
+4 ТАЛИСМАН 4:28Жанр: Punk, New WaveПродолжительность: 00:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E077E37FBFE8FF0D411E4554D852939477F614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700603   (117002) от 17.02.2024
+
+i-Ten - Taking a Cold Look (1983) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taking a Cold Look (03:55)
+02. Quicksand (03:58)
+03. Alone (03:58)
+04. Workin' for a Lovin' (03:19)(   Читать дальше...   )Жанр: AORПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633F7EA9F6C15C25EEC468DBCCD0B04E0291D7B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700495   (117003) от 17.02.2024
 
 Пятеро на одного (17.02.2024) WEBRip [H.264/720p-LQ]
@@ -6,7 +87,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117003.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Svend Asmussen - Evergreens (1998) EMI Svenska AB [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117004.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ Omni - Collection (2019-2024) Sub Pop Records [FLAC 24/44.1, 24/88.2|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117005.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ A Somerset Parade - Carcosa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117006.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ VA - Holiday Sweet Relaxing Jazz Chilly Tunes (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117007.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117008.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ Stygian Crown - Funeral For A King (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117009.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ magnet:?xt=urn:btih:CCF69DFA5B02134C2A76682F1ADDD45B0AA81901
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117010.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117011.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ Keven Jordan - No Sign of Rain (1991) [FLAC|Lossless|WEB-DL|tracks] <AOR, Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117012.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ magnet:?xt=urn:btih:919417321E71E5532E2C2BB27256C263737B9878
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117013.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ Atrophy - Socialized Hate (1988) Remastered, 2007, Displeased Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117014.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Andrew Hill Trio - Invitation (1974) 1992, SteepleChase [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117015.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ Oscar Dennard - The Legendary Oscar Dennard (1958) 1989, Somethin' Else [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117016.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ magnet:?xt=urn:btih:F4CAE4BE6031F30CA8C945744E6FA16115F41DD6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117017.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ VA - Ultimate House Winter 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117018.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ magnet:?xt=urn:btih:483C437B9FDDA52F6F05F85E2AA225ED2647C2CD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117019.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117020.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 01 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117021.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ magnet:?xt=urn:btih:C5780455A3DFA476EAA0133020AB89B0F003A705
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117022.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ Jazz Instrumental Music Academy, Calming Jazz Relax Academy - Vintage Elegance: 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117023.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ magnet:?xt=urn:btih:982ACCE1C2F6572EC447056822349F84FB812F5B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117024.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ Loop Mash Up Pro 1.2.13 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117025.jpg" />
 </div>
 
 
@@ -598,87 +679,6 @@ Loop Mash Up Pro 1.2.13 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13F7AC04B10CD1ED602E4FF38A102D67D25DEA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700461   (117026) от 17.02.2024
-
-Serena Forni - Rhythmic Nocturne (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Chronicles (2:33)
-02. Vintage Vinyl Jazz Lounge Suite (2:47)
-03. Harmonic Horizon (2:46)
-04. Risonanza D'infinito (2:02)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEDE4648D1C8B818DAC814231B1CB4F169F2E28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700472   (117027) от 17.02.2024
-
-VA - Redux Selection Vol. 3 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Binner - Blessing In Disguise (Extended Mix) [7:34]
-02. Air Project & Ruslan Aschaulov - Lost In The World (Extended Mix) [5:49]
-03. Masaru Hinaiji - I Need. I Feel (Extended Mix) [6:38]
-04. Alima x Nold - Somewhere In The Sky (Extended Mix) [5:57](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF317E9BFCED73928D9421D174FF4B6A51AC749
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700658   (117028) от 17.02.2024
-
-Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
-2003 - Regressus
-2004 - Never Ending
-2006 - Savage SoulsЖанр: Power/Speed/Thrash MetalПродолжительность: 09:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84634.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Know Extension Pro 2008-09 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84635.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Know Extension Pro 2008-09 [Русский]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84638.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:B0B29F12531F2B054DEEF09CE95CF57BEC06C393
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84644.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:034376BF5A3263D5FC6D18D45F0447B17DEE8724
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84652.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:29DBC07D2DBD15E4F3BF9AD43A57342EA5814A2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84653.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:29DBC07D2DBD15E4F3BF9AD43A57342EA5814A2D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84656.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:1AE466546D1528D8A83B2B14D5C199D02A60AC88
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84658.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:C577B8A69004A142D47A84FB3C8F90C7691EBBDA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84660.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:C577B8A69004A142D47A84FB3C8F90C7691EBBDA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84672.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:C577B8A69004A142D47A84FB3C8F90C7691EBBDA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84673.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:F041B4B3377A578C2203EB437812CA8A18C70BDA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84678.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:8F8020492FE1BEFEAF22F6BCD8F70E693BF5BDCB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84679.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Autodesk AutoCAD Mechanical 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84683.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AutoCAD® Mechanical – это AutoCAD® для машиностроитель�
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84703.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ AutoCAD® Mechanical – это AutoCAD® для машиностроитель�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84705.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ AutoCAD® Mechanical – это AutoCAD® для машиностроитель�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84708.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Autodesk AutoCAD Mechanical 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84709.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Axel Rudi Pell - Circle of the Oath (2012) (Limited Edition) [FLAC|Lossless]<Hea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84710.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Axel Rudi Pell - Circle of the Oath (2012) (Limited Edition) [FLAC|Lossless]<Hea
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84713.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:10BCEB433AF1101A5AF8F02F58CA79811C8316A9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84717.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:10BCEB433AF1101A5AF8F02F58CA79811C8316A9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84718.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:10BCEB433AF1101A5AF8F02F58CA79811C8316A9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84719.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Zero no Tsukaima: Princess no Rondo / Подручный Луизы-Нулизы
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84721.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:5E561470BB30299CE6C8A318F77A9B89BBF61D44
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84725.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:5E561470BB30299CE6C8A318F77A9B89BBF61D44
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84730.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1750590   (104155) от 21.09.2024
+
+Jumaane Smith - Come On Home (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know (3:03)
+02. Come On Home (5:17)
+03. Chief (5:35)
+04. I'm Gone (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39D6247A697EC519058C614C291F20DE9435BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750583   (104156) от 21.09.2024
+
+JD Simo & Luther Dickinson - Do The Rump! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street People (3:11)
+02. Right Down There (4:03)
+03. Lonesome Road (4:46)
+04. Come and Go With Me (4:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907E67FD2F44C0564304E660AA0778BBF2E2BD80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750797   (104157) от 21.09.2024
+
+Alyssa Galvan - Darling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guilty By Design (4:12)
+02. Turning Blue (3:34)
+03. Good Feeling (3:58)
+04. Want It Bad (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66540C4859B757CE276FE09F511F4E344ED41E3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750668   (104158) от 21.09.2024
 
 Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Динамо (Москва) (20.09.2024) WEBRip [H.264/720p]
@@ -6,7 +87,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104158.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ magnet:?xt=urn:btih:949E68C7851C2E0F4F6805E42841D919C9C228A6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104159.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ magnet:?xt=urn:btih:2209F2A56E7BB47501A13AF9F40C0E90A654DAB5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104160.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ magnet:?xt=urn:btih:944BB1B42B760A0573C509BDAE49F7A11CD30609
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104161.jpg" />
 </div>
 
 
@@ -106,7 +187,7 @@ magnet:?xt=urn:btih:6BA14A91B25C38E917FBFF9FE5BFCF1755772903
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104162.jpg" />
 </div>
 
 
@@ -130,7 +211,7 @@ VA - Dance the Night Away, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104163.jpg" />
 </div>
 
 
@@ -157,7 +238,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Avalon, Los Angeles (2024-09-12)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104164.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ magnet:?xt=urn:btih:D392C8421AD13F61CE95931FAC5ED7EF6CAF8E35
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104165.jpg" />
 </div>
 
 
@@ -211,7 +292,7 @@ Lofi Waves Japan - Whispers of Kyoto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104166.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ Tony Levin - Bringing It Down to the Bass (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104167.jpg" />
 </div>
 
 
@@ -265,7 +346,7 @@ VA - DJ Hits 1997 November (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104168.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ VA - Trance Clubbers, Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104169.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ magnet:?xt=urn:btih:37E38C70A8C75F721C7B5FECD321818A49ED717A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104170.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ magnet:?xt=urn:btih:4C147CA44A96B31C4BBFF02A15FB602A4963DB31
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104171.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ magnet:?xt=urn:btih:18229C274F4A5DFAC018869883F0B70AA4D150DA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104172.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ magnet:?xt=urn:btih:35E03F5FA71CFBBC7015DEA1F8FFB2F9E128FD41
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104173.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ VA - EDM Anthems 2024: Top 40 Club Beats For DJs (2024) [MP3|320 Kbps] <Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104174.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ VA - Trance Clubbers, Vol. 2 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104175.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ VA - Progressive House Waves, Vol.01 (2024) [MP3|320 Kbps] <House, Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104176.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ VA - DJ Hits Of June'97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104177.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ magnet:?xt=urn:btih:3D35C73D2F781CB6D1A2F6C025E45A41E0F91B92
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104178.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ Kenny Wayne Shepherd - Dirt On My Diamonds Vol 2 (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104179.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ Nelly Furtado - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104180.jpg" />
 </div>
 
 
@@ -594,82 +675,6 @@ Nelly Furtado - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31A9E5F5B74FD35FF887F45E3A9DEE06F56C8BAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750630   (104181) от 21.09.2024
-
-PDF24 Creator 11.20.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104181.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
-Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9BD5FAFFEB2BABF85393D5315FD68E4B8DA8E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750752   (104182) от 21.09.2024
-
-HOFA - Colour Delay 1.0.0 VST 3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104182.jpg" />
-</div>
-
-
-###  Подробнее
-
-HOFA Color Delay предоставляет вам все знаковые звуки дилея для вашего продакшн. Благодаря четырем уникальным стилям задержки, которые можно свободно комбинировать, нет никаких ограничений для ощущения ретро и вашей творческой свободы.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CBADF80FA91F3A474BBDA3A67D956311F93FEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750718   (104183) от 21.09.2024
-
-Seether - The Surface Seems So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-grunge, hard-rock, alternative-metal, nu-metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas Mind (4:34)
-02. Illusion (4:02)
-03. Beneath The Veil (3:44)
-04. Semblance Of Me (4:16)(   Читать дальше...   )Жанр: Post-grunge, hard-rock, alternative-metal, nu-metalПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE08D2241B2EA9A54D69BD6D559611E702DCECB2
 ```
 
 

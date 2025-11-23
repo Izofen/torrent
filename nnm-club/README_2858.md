@@ -1,3 +1,75 @@
+###  Публикация: 470297   (83346) от 20.03.2012
+
+Ключи для Kaspersky IS & AV 19 марта 2012
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файлы активации различных программ Лаборатории КасперскогоНазвание программы: Ключи для Kaspersky IS & AV 19 марта 2012
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470566   (83348) от 20.03.2012
+
+Я бы не хотел умереть в воскресенье / Jaimerais pas crever un dimanche (1998) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен работает в морге. Его жена бросила его,близкий друг серьёзно болен, а он сам ищет утешения в экстермальных, альтернативных сексуальных играх...Жанр: Драма, ЭротикаРежиссер: Дидье Ле ПешоАктеры: Элоди Буше, Жан-Марк Барр, Патрик Каталифо, Жан-Мищель Фет, Флоранс Дарель, Жан-Жак ВайнерПеревод: Одноголосый закадровыйПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE22368365D5400438A1F48309BC3C8FD97CC935
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469873   (83349) от 20.03.2012
+
+Полночь в Париже / Midnight in Paris (2011) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель и безнадежный романтик, уверенный в том, что должен был жить в 1920-е годы, приезжает в Париж со своей возлюбленной на каникулы и попадает в прошлое. Встречаясь там с Хемингуэем, Пикассо, супругами Фицжеральдами, Гертрудой Стайн он понимает, что принадлежит этому времени и хочет остаться там навсегда.Производство: США, Испания / Gravier Productions, Mediapro, Televisiо de Catalunya (TV3)Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Вуди АлленАктеры: Оуэн Уилсон, Рэйчел МакАдамс, Курт Фуллер, Мими Кеннеди, Майкл Шин, Карла Бруни, Морис Зонненберг, Тьерри Ханчиссе, Эдриан Броуди, Марион Котийяр, Кэти Бейтс, Том ХиддлстонСубтитры: (PGS) РусскиеПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470238   (83352) от 20.03.2012
 
 Инк / Ink (2009) DVD5
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83352.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83353.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:AC8E6EC052A8E64A0007472A1C99ADE7E777DE12
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83354.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:4A4A12F7B02C1A857B193FDD57DCCFAABCA4347B
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83355.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Gunrox (L) [Ru, Ua, En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83356.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83357.jpg" />
 </div>
 
 
@@ -160,7 +232,7 @@ magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83358.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83359.jpg" />
 </div>
 
 
@@ -209,7 +281,7 @@ VA - Русская плясовая (2012) [MP3|320 кб/с]<folk/dance/instrum
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83360.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ magnet:?xt=urn:btih:AC57F6485DD00661DB4E54EB43629161E41EB41B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83361.jpg" />
 </div>
 
 
@@ -259,7 +331,7 @@ magnet:?xt=urn:btih:FDCB6BBA7105F157AE4C4ED2D22F0E78EC149E7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83363.jpg" />
 </div>
 
 
@@ -283,7 +355,7 @@ Dustforce [En] (RePack) 2012 | Anonymous
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83364.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ Counter-Strike 1.6 [Ru] (RePack/20.03.2012) 2000 | NetTomsk
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83365.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ magnet:?xt=urn:btih:CB9EEA37D23B1FFD599701E60E30A48F98B38EE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83366.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ Microsoft Windows 7 AIO SP1 x64 Integrated March 2012 Russian - CtrlSoft (Rus) (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83368.jpg" />
 </div>
 
 
@@ -382,7 +454,7 @@ Microsoft Windows 7 AIO SP1 x64 Integrated March 2012 Russian - CtrlSoft (Rus) (
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83369.jpg" />
 </div>
 
 
@@ -406,7 +478,7 @@ magnet:?xt=urn:btih:AFC372892E78F3FAE43BFD414DA4B7EDE60521B6
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83370.jpg" />
 </div>
 
 
@@ -430,7 +502,7 @@ magnet:?xt=urn:btih:A57F910E1F65663F7DD7213C205EE3701E3BD59B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83371.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ magnet:?xt=urn:btih:A57F910E1F65663F7DD7213C205EE3701E3BD59B
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83372.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ magnet:?xt=urn:btih:6FA22C981AE324C02A6CCED1423F84650122E200
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83373.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ Microsoft.Windows.7.AIO.SP1.x86.Integrated.March.2012.Russian - CtrlSoft (Rus) (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83374.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ Microsoft.Windows.7.AIO.SP1.x86.Integrated.March.2012.Russian - CtrlSoft (Rus) (
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83376.jpg" />
 </div>
 
 
@@ -556,7 +628,7 @@ Mabinogi Fantasy Life (L) [En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83378.jpg" />
 </div>
 
 
@@ -567,78 +639,6 @@ Mabinogi Fantasy Life (L) [En] 2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FA19CDA7C6A21B4A6BC46457AA802691D7D180C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470851   (83379) от 20.03.2012
-
-Андрей Тониевич | Компьютерные сети [2012] [Pdf, fb2]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Тониевич «Компьютерные сети» в своей книге объясняет работу сети на уровне, который необходим для построения и настройки домашней сети. Естественно, что очень многие моменты будут просто упущены или сильно упрощены. Более-детально работа сети описана в книгах Олифера, а также в первом и втором семестрах CCNA.2012Жанр: компьютерная литератураФормат: Pdf, fb2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D929A6D04EAF669F6289AFDCF589E8166E7A225A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470880   (83381) от 20.03.2012
-
-[Xbox360] Ninja Gaiden 3  (LT+2.0) (XGD3) (PAL) [ENG] (2012)
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ninja Gaiden 3 впервые даст возможность игрокам взглянуть на мир глазами Рю Хаябусы и понять, что заставляет его сражаться и убивать. В центре сюжета игры находится человек в маске, чьи мотивы и цели не ясны. С помощью таинственной силы он изменяет Рю, в результате чего границы между героем и злодеем, добром и злом становится размытыми.Разработчики покажут Рю, как истинного убийцу, и кроме того, откроют его секреты, которые поразят игроков.Разработчик: Team NinjaЖанр: Action (Slasher) / 3D / 3rd PersonЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC64F5E325C20B070A6EFF0A9FFA2C20475C8069
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470951   (83382) от 20.03.2012
-
-Игра на выживание / Gone (2012) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джилл Пэрриш однажды приходит домой и не находит сестру. Джилл уверена, что серийный убийца, который похищал ее пару лет назад, вернулся, чтобы довести начатое до логического завершения. А начнет он с ее сестры. Полиция не воспринимает ее всерьез, говоря, что девушка объявится, когда нагуляется. Единственный выход — вступить в схватку с маньяком и разобраться с этим раз и навсегда.Жанр: Триллер, драмаРежиссер: Эйтор ДалияАктеры: Аманда Сайфред, Дэниел Сунджата, Дженнифер Карпентер, Себастиан Стэн, Уэс Бентли, Ник Сирси, Сократис Отто, Эмили Уикершем, Джоэль Мур, Кэтрин МеннигПеревод: ДублированныйПродолжительность: 01:30:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 

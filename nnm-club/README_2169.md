@@ -6,7 +6,7 @@ FreeFileSync 13.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56759.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Danny & Armi - Toinen (1979) LP [MP3|320 Kbps] <Pop Rock, Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56760.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A0858CB4C0D8E78B58C7E460D8CC0D2CB3240B85
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56761.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Late Night Relax: Urban Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56762.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Danny & Armi - Danny & Armi (1978) LP [MP3|320 Kbps] <Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56763.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ PeaZip 9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56764.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Vivaldi 6.7.3329.27 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56765.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Privacy Eraser Free 6.7.0 Build 4921 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56766.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Jeff Michaels - 3 Albums (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56767.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:76821348E50281B41765096F505BD89D4A66C494
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56768.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Jerome Isma-Ae - Encounter (2024) [MP3|320 Kbps] <Downtempo, Balearic, Electroni
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56769.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:8F1094B7DE3F01DF5EC599042326D57E372D422A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56770.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:98D4B745B554D989E136C4D2EBD873AC4CF76CBB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56771.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:CD7A3FDF7ECA7A39223241992DDFF231C5B9F846
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56772.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:02FC49B2F88641BDFF37F20BEAD8F0E0B10F03CF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56773.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - The Dreamers, Vol. 01 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56774.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:520058384410E4EDAD9455B1A2B91BC111979823
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56775.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7460C8728304BACCB4D1ADB93A23217878608257
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56776.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PrivaZer 4.0.85 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56777.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Ghostface Killah - Set The Tone (Guns & Roses) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56778.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:A778C4675A0B418353BC05961D5AB1661483430C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56779.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:2F08178692825EE5452410FF927B72D37A8FB802
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56780.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Hauser, London Symphony Orchestra - Classic II (2024) [FLAC|Lossless|image + .cu
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56781.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:1F75726D1B6E10C9170B2B3568F60EEADD27959D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56782.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ FileMenu Tools 8.4.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56783.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:2A0BF9BB261F3C477C33AF8E0E0F33874C673443
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56784.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69882.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69883.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CB7DDC253C3C5EA9BD1E51A5CB108AC23A800EED
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69884.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Photo Supreme 2025.0.2.7409 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69885.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:55AB409CDF9CE7455A9FB3603A75891887D0737B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69886.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ TuneIn Radio Pro v37.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69887.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - One Shot '80 Volume 5 (1999) 2 CD [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69888.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:18335EC9E6C07D21309E5365EA5B39681CE62217
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69889.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F6DF62E4EBBC806D24FE6D568212FC847D48F2E0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69890.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - One Shot '80 Volume 7 (1999) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69891.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - One Shot '80 Volume 6 (1999) [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69892.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Magic Eraser / Магический ластик v2.19.3 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69893.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:5453D47F8891BB3BB66A879A642D1B8B5B7C3F81
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69894.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ The Vapors - Wasp in a Jar (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, New 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69895.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:74A8E3964D7456565048920F88091F89515444D2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69896.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Red Eye - III (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69897.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Harlott - Studio Albums (5 releases) (2012-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69898.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Beckies - Demos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Pop, Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69899.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Mdou Moctar - Tears of Injustice (2025) Injustice Version, 2025, Matador [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69900.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:A059EC39B84BF13977CE24AA5E300896D32443C5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69901.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Les McCann & The Mitchell-Ruff Trio - 20 Special Fingers (1961, 1968) 2CD, 1999,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69902.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:B2B20C01EC098FC911C1940FDE7808932F64E23C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69903.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Progressive Trance Awakening, Vol. 03 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69904.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:94D310D80A1FEEBBF9AFB1F05685A3A3B0C9710F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69905.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Fun Mode - Падший ангел, vol.1 / Vol.2 (2023-2025) [MP3|320 Kbps] <Al
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69906.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:218BF8C7AAD70C99D3340545619B256230BF19DF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69907.jpg" />
 </div>
 
 

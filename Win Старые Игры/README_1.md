@@ -6,7 +6,7 @@ Prey (2006) [Ru] (1.4) Repack/Mod seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21902.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21902.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jagged Alliance 2/1 Metavira (2013) [Ru] (1.0.8) Repack/Mod dark_elf2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22098.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22098.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22219.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22219.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22768.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22768.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22832.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22832.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Men of Valor (2004) [Ru] (1.3) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22910.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22910.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22935.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22935.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23823.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23823.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23850.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23850.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23912.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24091.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24091.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24182.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24182.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hexen: Deathkings of the Dark Citadel (1996) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24191.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24191.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Heretic: Shadow of the Serpent Riders (1994) [En] (1.3/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24215.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24215.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24802.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24802.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25858.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25858.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25876.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25876.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26212.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26212.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26315.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Need for Speed: Carbon (2006) [Ru/Multi] (1.4) Repack Wanterlude [Collector's Ed
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26413.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Overlord 2 (2009) [Ru] (1.0) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26597.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26597.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dino Crisis (2000) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26819.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26819.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26842.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26842.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Overlord + Raising Hell (2007) [Ru] (1.4/dlc) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26941.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bully (2008) [Ru] (1.2) Repack EXROW [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27019.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27019.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27154.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27154.jpg" />
 </div>
 
 

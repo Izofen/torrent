@@ -6,7 +6,7 @@ VA - Thunder - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63285.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F8BAF2F48C64CF2B3AF5F596614B1E13179079D6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63286.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Clearview X 3.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63287.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3D4DFD1387C691102B599FA072305816B5F3FCC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63288.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0C51586B437BFFD7EBF70C4AF3768235A3EAB4A6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63289.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ MKVToolNix 83.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63290.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Desktop.Calendar.Tray.OK 4.06 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63291.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:EC21E866F61F4E2460D9DD0FAB46207224B7C0C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63292.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ KeePassXC 2.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63293.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:61DD92FED01C93FCDF4ECF4ACBDA60C808618885
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63294.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.38 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63295.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ PotPlayer 240307 (1.7.22125) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63296.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Windows Firewall Control 6.9.9.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63297.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:04152DA1C6884D7D02D7615EAD0E5286C7A84295
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63298.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B7D660171C104F4D3EC20D4584B409F4499709D1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63299.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ IceCream Ebook Reader Pro 6.48 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63300.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ShareX 16.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63301.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:06271A3D94CF608611AA2FB7B3F092EC9F62B3A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63302.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Frank Sinatra - Platinum (2023) 2xCD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63303.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ ProcessKO 6.33 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63304.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ OCCT 12.1.16 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63305.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:DE71A86E1BB9138C2647995D7E1BA830458D3669
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63306.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Topaz Photo AI 2.4.0 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63307.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Topaz Gigapixel AI 7.0.3 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63308.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:49DC63BBEE81FE4DE18E78A8AC84F95458C7BAA3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63309.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:30D41934537F15957A8512269D95F233F2682E6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63310.jpg" />
 </div>
 
 

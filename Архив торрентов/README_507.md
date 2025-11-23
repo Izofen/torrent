@@ -6,7 +6,7 @@ FanControl V186 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112309.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Photo Lab PRO v3.13.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112395.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ OneCommander Pro 3.73.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112416.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ PrivaZer Pro 4.0.84 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112429.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ OfficeSuite Pro + PDF 14.3.51316 Extra Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112431.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ CrystalMark Retro 1.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112443.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ D16 Group - SilverLine Collection 2024.03 VST, VST 3, AAX (X86/X64) RePack by TC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112449.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ MarsEdit 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112472.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Q-Dir 11.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112499.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Emurasoft EmEditor Professional 24.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112504.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sante DICOM Editor 10.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112517.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Skype 8.115.0.217 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112523.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ StaxRip 2.37.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112528.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Togu Audio Line - TAL-J-8 1.8.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112538.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sante DICOM Viewer Pro 14.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112539.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Kdenlive 24.02.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112540.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Chromium 123.0.6312.87 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112541.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ PhotoDirector v19.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112551.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Photo Studio PRO v2.7.3.2445 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112570.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Emurasoft EmEditor Professional 24.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112577.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Text Edit Plus 14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112579.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112584.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Skype 8.115.0.217 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112588.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Photo Studio Premium v2.7.3.2445 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112592.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ EF Commander 24.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112600.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Polarr v6.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112601.jpg" />
 </div>
 
 

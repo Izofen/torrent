@@ -1,3 +1,75 @@
+###  Публикация: 1343290   (219515) от 05.12.2019
+
+Fitness Point Pro v2.8.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fitness Point - это простое приложение, чтобы следить за своим прогрессом в тренажёрном зале. Нет запутанных меню или перегруженных информацией экранов. Только все, что вам нужно! Составьте индивидуальный тренировочный план внутри приложения или выберите из множества готовых!Тип издания: Pro с Маркета (Paid)Релиз состоялся: 27.10.2019Разработчик: Zero One GmbHПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF22620AE28951396ABDC796D62A6654F24E3719
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058581   (219832) от 18.12.2016
+
+Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для управления, отслеживания спортивной деятельности, сна, мониторинга и синхронизации данных Xiaomi браслета Mi Band, весов Mi Scale и Mi Band Pulse.Тип издания: FreeРелиз состоялся: 18.12.16Разработчик: Xiaomi TechnologyПоддерживаемая ОС: Android 4.3 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F945DBFA76BE050CED9BB624BC0A125BFC4DC14D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832782   (220696) от 30.10.2025
+
+Smart Tools 2 v1.2.3 Mod by TryRoon [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Tools® 2 - это расширенный набор инструментов. «Smart Tools 2» включает в себя все функции существующих «Smart Tools», поэтому мы рекомендуем новым пользователям приобрести это приложение. «Smart Tools 2» = «Smart Tools» + больше инструментов + больше возможностейТип издания: ModРелиз состоялся: 30.10.2025Разработчик: Smart Tools co.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D480289A267AF9E7DEDDD95322EF975793A8BD50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832785   (220883) от 30.10.2025
 
 Мультфильмы v302 Mod by clubtime2009 [Ru]
@@ -6,7 +78,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220883.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220883.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220900.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220900.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:D59003797683D6724312F2FA38FF73868E597965
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221119.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221119.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221224.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221224.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ ArtRage Vitae Mobile Painting v1.0.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221226.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221226.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221264.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221264.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ runtastic PRO 3.5.1 (12.2012) <Ru/Multi>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222258.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222258.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Medativo Meditation Timer v1.2.8 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223298.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223298.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ Lunafaqt v1.25 [Ru/Multi]- Лунный календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223726.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223726.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ VPN Proxy Master - Safer Vpn 2.3.1.1 (Pro) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223948.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223948.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Photo Tools Full v0.13 + Plugin [Ru] - Калькулятор для съёмо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224013.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224013.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ Malwarebytes Антивирус 3.11.1.113 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225056.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225056.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ ViewBox v1.7.12 Mod Alex.Strannik, vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225321.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225321.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Anatomy Learning 3D Full v2.1 Unlocked [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228483.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:D790F21E292D81C6A0C2A420B70F8F93845FBDD7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228763.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228763.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:9A20354067921F943C3618D7543ACCE0DD0F9680
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228795.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228795.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ AmiHear - Hearing Aid App 2.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230010.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230010.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ EasyWay - общественный транспорт 6.0.2.44 Lite-Mod by andy_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230376.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230376.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Always on Edge 8.0.1 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230524.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230524.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ DiskDigger Pro 1.0-pro-2023-04-11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230544.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230544.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ Moviebase Premium 4.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230673.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230673.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230675.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230675.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230824.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230824.jpg" />
 </div>
 
 
@@ -554,78 +626,6 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C8BC5633B903381E0D81EC4BA1503487FF75A64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648497   (230826) от 23.07.2023
-
-Dynamic Island 1.3.0 Mod by youarefinished [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Island - ещё один проект предлагающий пользователям мобильных гаджетов на Android-е, обзавестись "динамическим островом" на рабочем столе. Приложение понравится не только качественно переданной структурой оригинала, но и возможностью детальной настройки различных аспектов работы. Благодаря чему пользователи смогут отлично провести время реализуя (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.06.2023Разработчик: GriceMobileПоддерживаемая ОС: Android 9.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD50B965B83E7467FF86CEAD667D0EB996DEAA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637238   (230862) от 03.06.2023
-
-TrackView - HomeSafe v3.8.12  [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение для просмотра TrackView. Он может отслеживать приложения TrackView на других платформах, например. iOS и ПК. TrackView разработан для обеспечения безопасности семьи. Он превращает ваши смартфоны, планшеты и ПК в подключенную IP-камеру с GPS-локатором, обнаружением событий, оповещениями и возможностями записи в облаке/маршруте. Версии для Windows и (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.04.2023Разработчик: TrackViewПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29140D9E790C43FD41ABCFBB5B1BD63A0553260E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648500   (230864) от 23.07.2023
-
-X Icon Changer - Change Icons 4.2.9 Mod by Citrus [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230864.jpg" />
-</div>
-
-
-###  Подробнее
-
-X Icon Changer - отличный проект по персонализации, что порадует всех кто хочет не просто изменить наборы иконок на рабочем столе, а точечно заменить определённые имеющиеся на другие. Которых в данной программе представлено более чем достаточно, чтобы подобрать оптимальные варианты. Так же можно сменить название выбранного приложения. Или же убрать его полностью, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 10.07.2023Разработчик: ASTER PLAYПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD62D1E0E4CB4A8B5777A177FD8777C5D0F0C2B
 ```
 
 

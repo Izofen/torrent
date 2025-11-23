@@ -6,7 +6,7 @@ VA - Musical kaleidoscope part 37 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21761.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21761.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eric Clapton, John Mayall & The Bluesbreakers - Blues Anthology, Vol. 3 (REMASTE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21762.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21762.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - 12.04, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21763.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21763.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:482D36FD434E53C3E3237A3055728E446D6EF776
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21764.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21764.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Birthday Massacre - Pathways (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21765.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21765.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:D406D6A2B0DF3912D35D5CF9E3F4203CAFD1E79A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21766.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21766.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:3247A5CDC6294168A0126FC51AFB1DBE25551651
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21767.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21767.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:05954226D343AF2002D8677A3C4A5C7188F975FE
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21768.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21768.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ IObit Uninstaller Pro 14.3.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21769.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21769.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:68B04211E134B532F2E9BADE63372CD6219BDF3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21770.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21770.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:4C510FA348A84CF123D87D91AA00A59A3126D81E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21771.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21771.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21772.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:DAD8102BD0274A74EA758A67BD6DB384CC1D36CC
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21773.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21773.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:E01ED934A94098A7CC378717CD396FB66855AA38
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21774.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21774.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Microsoft PowerToys 0.90.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21775.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Rainmeter 4.5.22.3835 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21776.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:C044CFB0B5B961D573BC8D924ED0C73E82D5D8AE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21777.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.3.1.10846) Repack seleZen [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21778.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ HomeBank 5.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21779.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ GPU-Z 2.65.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21780.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:5A61BA59069D76C9C61BEBB492932ADAFE4CD9C6
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21781.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Multi Commander Full Edition 15.3 Build 3084 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21782.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Glukoza - HARMONY (2025) [MP3|320 Kbps] <Pop, Electronic>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21783.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21783.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Password Safe and Manager v8.2.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21784.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:36E1E8A6DD69FB62656676477F76572B8928F1A8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21785.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:CDCF67D3259A867AA0A5F8C4EE8DB3443344B78E
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21786.jpg" />
 </div>
 
 

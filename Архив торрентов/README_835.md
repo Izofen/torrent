@@ -1,3 +1,76 @@
+###  Публикация: 1597105   (167513) от 13.12.2022
+
+True Burner 8.8 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167513.jpg" />
+</div>
+
+
+###  Подробнее
+
+True Burner - удобное в использовании программное обеспечение для прожига дисков. Этот инструмент позволит создать и записать обычные, мультисессионные, загрузочные CD, DVD, Blu-Ray диски с различными файловыми системами, в том числе ISO 9660 и UDF.
+Приложение позволяет также создавать диски с данными, MP3-диски, DVD-Video и другие. Программа отличается простотой (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65683991A740E852C85B47A90E7F3762780B962
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516113   (167517) от 09.12.2021
+
+WinUtilities Pro 15.78 (акция Сomss) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167517.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinUtilities - системный набор для настройки Вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности Вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F5DCEDAE482465B930A5B3C041FE8CD2724532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431350   (167518) от 13.12.2020
+
+Роберт Гэлбрейт | Дурная кровь. Книга 1 (2020) [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корморан Страйк навещает родных в Корнуолле. Там к частному детективу, вновь попавшему на первые полосы газет после того, как он поймал Шеклуэллского Потрошителя и раскрыл убийство министра культуры Джаспера Чизуэлла, обращается незнакомая женщина и просит найти ее мать, пропавшую при загадочных обстоятельствах в 1974 году.Жанр: Зарубежные детективы, Современные детективыПродолжительность: 20:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E190355D60A4A407A5924C2D852FE89BB2BD4E1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515908   (167522) от 09.12.2021
 
 Interbase 2020 14.0.0.469 [En]
@@ -6,7 +79,7 @@ Interbase 2020 14.0.0.469 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167522.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ GoodSync Enterprise 10.10.15.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167536.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Chromium 96.0.4664.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167540.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ RAW Converter 2 v2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167551.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Secret Folder Pro 10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167565.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ OmniPlayer Pro - Media Player 2.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167567.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 27) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167569.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Downie 3 v3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167576.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ Export for iTunes 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167580.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167586.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ M3U Edit 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167591.jpg" />
 </div>
 
 
@@ -279,7 +352,7 @@ Skynet 2019.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167593.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ Rinly v1.6.0.12 [Ru] - Обрезать аудио, ТикТок рингтон�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167598.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167599.jpg" />
 </div>
 
 
@@ -355,7 +428,7 @@ OCCT 10.0.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167608.jpg" />
 </div>
 
 
@@ -379,7 +452,7 @@ ESET NOD32 Antivirus 11.1.54.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167611.jpg" />
 </div>
 
 
@@ -403,7 +476,7 @@ BELOFF [dp] 2021.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167612.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ Off The Road - OTR Open World Driving v1.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167614.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ Downie 4 v.4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167618.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ Mastering The Mix Collection 2021.12 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167628.jpg" />
 </div>
 
 
@@ -505,7 +578,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7237.5000 (2019.12) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167640.jpg" />
 </div>
 
 
@@ -529,7 +602,7 @@ CyberLink AudioDirector Ultra 12.1.2326.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167645.jpg" />
 </div>
 
 
@@ -553,7 +626,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167648.jpg" />
 </div>
 
 
@@ -564,78 +637,6 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB945C542350E3CE48977A037052AB721D2FFAA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597088   (167666) от 13.12.2022
-
-uDock 3.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167666.jpg" />
-</div>
-
-
-###  Подробнее
-
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFD7A61BF809EC8F32DF700C5D9A3A38DFEBC2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597073   (167683) от 13.12.2022
-
-Finder Windows 1.5.4 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Finder Windows — это плавающая панель, которая дает вам мгновенный доступ к списку открытых окон Finder в любое время. Это решает ежедневную «борьбу» с попытками добраться до нужных папок среди постоянно меняющегося беспорядка открытых окон. Теперь вы можете просто мельком взглянуть на список и выбрать нужное окно. Или мгновенно закройте те, которые вам больше не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 Finder Windows.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7365081DFEC809A0C01DA68E326A3C07431754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672810   (167685) от 29.10.2023
-
-YouTube ReVanced Extended 18.40.34 (RVP v2.195.1) Mod by Number one' + Micro G [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167685.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube ReVanced - это реинкарнация проекта YouTube Vanced. В YouTube ReVanced все функции такие же, как и в предшественнике. Все премиум-функции также доступны и усовершенствованы. В настоящее время вы смотрите видео без рекламы. Поддержка поиска, фонового воспроизведения, плавающего окна, детальная настройка интерфейса, возвращение дизлайков и многое другой. Для (   Читать дальше...   )Тип издания: ModРелиз состоялся: 23.10.2023Разработчик: ReVanced TeamПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Украинский и Белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346BBB91CB7A8CFD1272BEF5E2C4D99A2228CAEE
 ```
 
 

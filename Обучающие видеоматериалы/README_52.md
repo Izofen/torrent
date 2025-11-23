@@ -6,7 +6,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140038.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Geekbrains | Frontend-разработчик. Часть 3 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140078.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Udemy, Brad Traversy и др. | 50 проектов за 50 дней - HTML, CSS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140261.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ JayLay | Мастер-класс по обработке JayLay (2014) PCRec [H.
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140279.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:847EB2681A5FBDB1BA91BD543BAB62A98ADC71F9
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140387.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Udemy | Настройка и управление Windows Server 2016 S2D (2018
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140428.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ CGMA, Clinton Crumpler | 3D UE4 Modular Environments - Модульные окр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140544.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Liveclasses, Дмитрий Шатров | Affinity Photo: быстрый ста
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140553.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Grant Warwick | Mastering Lighting Lessons 1-4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140602.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Udemy | Администрирование Azure Active Directory (2019) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140608.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ MZed, Ollie Kenchington | Углубленное изучение и овлад�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140622.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Udemy, Dmitry Soshnikov | Алгоритмы Синтаксического Ан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140803.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Udemy | Поиск и устранение неисправностей Exchange
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140858.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Udemy, Dmytro Mezhenskyi | Производительный бэкэнд GraphQL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140951.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Udemy | Высокая доступность Exchange Server (2017) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140999.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Photocasa, Андрей Васильев | Чистый цвет = Чистый 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141222.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ JUG Ru Group | PiterPy 2023. Конференция для тех, кто пиш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141237.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:03790CA8ADB7C5CB9ECAD41AF6958DA12F0FB261
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141244.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ George Moller | 100+ React Infographics (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141375.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Amigoscode, Nelson | Microservices and Distributed Systems Updated 3 (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141398.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:6B76C8D7ABF59C7995A877A80112DBD40DA6B85C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141434.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ World of Psychology, Наталья Приймаченко | Тайм-менед
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141455.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Scott Robert Lim | Scott Robert Lim Complete Pack (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141488.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Legal Academy, Юрий Брисов, Глеб Крохмалюк, Марина 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141495.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ cmiVFX.com | Arnold for Houdini (2015) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141569.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Lynda.com | CSS: Gradients (2013) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141633.jpg" />
 </div>
 
 

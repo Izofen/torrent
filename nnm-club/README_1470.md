@@ -6,7 +6,7 @@ Chess King - Обучение шахматам v1.5.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38573.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:514AE892EC74375C6A113178A55449E97B0E05E0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38574.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ iZotope Audiolens 1.4.0 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38575.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:33940101CD58F03753D7BF694C2C5BCA591F7F9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38576.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C03D8EBD219AC26940F782D65F8CA63724B065ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38577.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3F6379B79C2926F7081FD9BA15AB3F5C0016CB2C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38578.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E043558678CD05C05500007EFF5B6A88575292F1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38579.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Compilation part 128 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38580.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FD80768E944EF20ADDAEEDF4F02E1241293F2854
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38581.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 2 - Extended Versions (2024) [MP3|320
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38582.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C41B319F2B36231F693560C765ED46007248435D
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38583.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:A02091C564C46C54E2CF2CA4C14917CB620B02F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38584.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6FD300A4E1ABAFFAA3CC548E15E231A7A682A9C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38585.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Telegram Desktop 5.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38586.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Shin Megami Tensei: Tokyo Mokushiroku | Tokyo Revelation | Новое вопло
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38587.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ The Alan Parsons Project - Ammonia Avenue (Sessions) (1984) Remaster, 2024, Aris
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38588.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Next Track: Volume button skip v2.09 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38589.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:F5B33E44455ABCCB51468AD117ED28CFDB51BAFF
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38590.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Armada Chill - Winter 2024 [MP3|320 Kbps] <Melodic House & Techno, Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38591.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:068E2FEBF17F12BA0CD373500F0E1BAE03142406
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38592.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:925F26E35AB1C6F736A43F56D86BCB831375F553
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38593.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:31FA700A98F066B14A65E2EB2B25FFA1AAA51DE1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38594.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:259B8AB21883638AAFA13559236E21102590D234
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38595.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:FD788E2F15F3BDA74D3F8BCCE66F87FFE8BEFE92
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38596.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Motörhead - Remorse? No! (2024) 2 x CD, Compilation [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38597.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:689408BC6618C4FC0A979E867A399DAC573D527C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38598.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16615.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16616.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Avidemux 2.8.2 Nightly (250526) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16617.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6B519B4BD08AC94B974E4AFA65D63D4A2C1FDC2E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16618.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3D5D727F9A8F09E4B95112C88C5F4444B313BBFA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16619.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16619.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Skip House - Outlaw Redux (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16620.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16620.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:43EC5C38AC09FCF995F5E01166D79E92522E12C4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16621.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D9F1A5E10722FDCB4136F10A3371778DD9C640CF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16622.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (0.199.7) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16623.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B5F5CA75BD2BB2ECF1F8F9E73A76ED4B6BB9CB39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16624.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8369E7C205F82758B5ADE297194F2F1F0D5093B5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16625.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:8369E7C205F82758B5ADE297194F2F1F0D5093B5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16626.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8369E7C205F82758B5ADE297194F2F1F0D5093B5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16627.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:18A9F9B791B0247FA8A8A0B353C3F30BAD23464B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16628.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16629.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:1833B24C48F90541F893BB67E2A8DB6060AC9C7A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16630.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:1833B24C48F90541F893BB67E2A8DB6060AC9C7A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16631.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D23069FDC4E92761DF7A905AC345C4D0C72D61D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16632.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:59B48D7705E9FCCBAF8776E29BBED988DE4C5205
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16633.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2B2E672929B95F799A464EE685829A5FAAF89E2D
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16634.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.28.4665/dlc) Repack Let'sРlay [Definitive Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16635.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16636.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0 Build 49 RePack by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16637.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:EA99E9BDCBFD34173214D98E469843CEB9674973
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16638.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:51E6E4C88A999ECD444AD0684E8A4DBFFF91E36B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16639.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:DAE56D218B37A8EBC9B2627BFC5D85AF82FC2F42
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16640.jpg" />
 </div>
 
 

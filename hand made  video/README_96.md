@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177846.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177846.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A2C9837ED9B7232D483189DF4CD35FE30F5C476F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177861.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177861.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:31874B4A12329D2636B38A4F3D33EEE2BCE504CE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177979.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177979.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AC8AA7A73012BC740D2E7EF1F55DD26F571C8095
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178095.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178095.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B6F25E979EE098F7EB147C5008032D230BC338E4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178102.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178102.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FEBD5682C55771E98BF4C5CBA4079B517B23B957
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178569.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178569.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:1806F080B5DCF9FE5B23C5BF6A965665C1F6263F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178600.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178600.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A8CD12B13B87C049CFE8952AB64BB39730214ABE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178610.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178610.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:6054A4C07CE681F1845DDC9DA3DA40379194284A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178649.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178649.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:5D8427F28FBB22BA72A213D85DC3F7A35C1B95AD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178661.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178661.jpg" />
 </div>
 
 
@@ -239,6 +239,30 @@ magnet:?xt=urn:btih:EEBFA7DDA8A96C93259533091B176551D778B705
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572372   (178670) от 05.10.2023
+
+Дом из песка и тумана / House of Sand and Fog (2003) WEB-DLRip [H.264/1080p] [handmade AI remastered]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для Кэти Николо последняя надежда на возвращение к жизни – это небольшое бунгало в Северной Калифорнии. В результате бюрократической ошибки её выселяют, и Кэти оказывается на улице. Ей остаётся лишь беспомощно наблюдать, как дом продают на аукционе за мизерную цену. Но она готова на всё, лишь бы доказать свое право на владение им.Производство: США / Bisgrove Entertainmen, Cobalt Media Group, DreamWorks SKGЖанр: драма, криминалРежиссер: Вадим ПерельманАктеры: Дженнифер Коннелли, Бен Кингсли, Рон Элдард, Шоре Агдашлу, Джонатан Адут, Фрэнсис Фишер, Ким Диккенс, Нави Рават, Карлос Гомес, Киа ДжемПеревод: ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 02:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38859EA31F6DDFB36892C1D87C9EC7A0E53D216C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666601   (178751) от 05.10.2023
 
 Укрощение огня (1972) WEBRip [H.264/1080p] (серии 1-2 из 2) [hand made]
@@ -247,7 +271,7 @@ magnet:?xt=urn:btih:EEBFA7DDA8A96C93259533091B176551D778B705
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178751.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178751.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ magnet:?xt=urn:btih:153EF4844FAADEB76091BC63EA492D449859D223
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179249.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179249.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ magnet:?xt=urn:btih:65D9685E48A6AEB6E7A1BF8F4B0F14BD920EE07C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179706.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179706.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ magnet:?xt=urn:btih:B604ED12EACCB8EE894FA6D0ADD84F23022CC3FF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179715.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179715.jpg" />
 </div>
 
 
@@ -336,6 +360,32 @@ magnet:?xt=urn:btih:70F6B1D4450BFAC85D632150AC94495C1448087C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185887   (179748) от 03.10.2023
+
+Время первых (2017) BDRip3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179748.jpg" />
+</div>
+
+
+###  Подробнее
+
+60-е. Разгар холодной войны. Две супердержавы, СССР и США бьются за первенство в космической гонке. Пока СССР впереди, на очереди — выход человека в открытый космос.
+За две недели до старта взрывается тестовый корабль. Времени на выявление причин нет. И пусть риски огромны, мы не можем уступить лидерство.
+Опытный военный летчик Павел Беляев и его напарник Алексей (   Читать дальше...   )Производство: Россия / Базелевс Продакшн, CGF, Третий РимЖанр: приключения, триллерРежиссер: Дмитрий КиселёвАктеры: Евгений Миронов, Константин Хабенский, Владимир Ильин, Анатолий Котенёв, Александра Урсуляк, Елена Панова, Александр Новин, Марта Тимофеева, Геннадий Смирнов, Юрий НифонтовСубтитры: ОтсутствуютПродолжительность: 02:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CC987278CF052FB390A2A87020DD41A1179AE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666194   (179944) от 03.10.2023
 
 Выстрел (1966) DVDRip [H.264/1080p] [handmade upscale AI]
@@ -344,7 +394,7 @@ magnet:?xt=urn:btih:70F6B1D4450BFAC85D632150AC94495C1448087C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179944.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179944.jpg" />
 </div>
 
 
@@ -368,7 +418,7 @@ magnet:?xt=urn:btih:199E99FC822A4805B30253C5DCEF62892ADEDED5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180185.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180185.jpg" />
 </div>
 
 
@@ -387,6 +437,31 @@ magnet:?xt=urn:btih:DA40866BB0F51AA6FCF6E5A49A4C2A01289BED35
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456695   (180413) от 02.10.2023
+
+Воздушные приключения / Those Magnificent Men in Their Flying Machines or How I Flew from London to Paris in 25 hours 11 minutes (1965) BDRip [H.264/1080p] [AI Remastered]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший фильм Кена Эннакина ("Самый долгий день", "Зов предков"), одна из самых знаменитых комедий в истории кино с участием главных комических актеров Европы шестидесятых, блестяще обыгравших национальные особенности своих персонажей.
+Англия, 1910 год, начало эры авиации. Лорд Ронсли объявляет о проведении первых международных авиагонок по маршруту (   Читать дальше...   )Производство: Великобритания / 20th Century FoxЖанр: комедия, приключенияРежиссер: Кен ЭннакинАктеры: Стюарт Уитмэн, Сара Майлз, Джеймс Фокс, Альберто Сорди, Роберт Морли, Герт Фребе, Жан-Пьер Кассель, Ирина Демик, Эрик Сайкс, Терри ТомасПеревод: дублированный, профессиональный многоголосый, авторскийСубтитры: русские, английскиеПродолжительность: 02:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8CD9E43F62D0880E5A072A49585C43EC0C1496
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664920   (180470) от 02.10.2023
 
 Аватар: Путь воды / Avatar: The Way of Water (2022) BDRip 3D [1080p] [вертикальная стереопара] [hand made 72fps]
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:DA40866BB0F51AA6FCF6E5A49A4C2A01289BED35
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180470.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180470.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:4B84350D043C941DE0124EA8E4E1D590B9A8DB36
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180473.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180473.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:7F90F2182AF82C9EC80A4C4A685AE6F1EEEC6F9D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180531.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180531.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ magnet:?xt=urn:btih:4C33F47C36F0626DA0FFF4330E846152028E88C7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180543.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180543.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ magnet:?xt=urn:btih:E25F1812942B0C922D6426F6EFCC61317629F3EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180793.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180793.jpg" />
 </div>
 
 
@@ -515,7 +590,7 @@ magnet:?xt=urn:btih:9796F919B4C64088A74ECFB71FB820549F527ADB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180858.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180858.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ magnet:?xt=urn:btih:3AE476A6A2733DC227A2735CB9C86FBA8B4E7DA3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181081.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181081.jpg" />
 </div>
 
 
@@ -550,81 +625,6 @@ magnet:?xt=urn:btih:3AE476A6A2733DC227A2735CB9C86FBA8B4E7DA3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:657327EAB829CD406B93D0E5900ED35D0EAD0F41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665757   (181132) от 01.10.2023
-
-Гравитация / Gravity (2013) BDRip [H.265/2160p] [10-bit] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Райан Стоун, блестящий специалист в области медицинского инжиниринга, отправляется в свою первую космическую миссию под командованием ветерана астронавтики Мэтта Ковальски, для которого этот полет - последний перед отставкой. Но во время, казалось бы, рутинной работы за бортом случается катастрофа.
-Шаттл уничтожен, а Стоун и Ковальски остаются совершенно одни; (   Читать дальше...   )Производство: США, Мексика, Великобритания / Esperanto Filmoj, Heyday Films, Warner Bros. PicturesЖанр: фантастика, триллер, драмаРежиссер: Альфонсо КуаронАктеры: Сандра Буллок, Джордж Клуни, Эд Харрис, Орто Игнатиуссен, Фалдут Шарма, Эми Уоррен, Башер Сэвэдж, Адам КозенсПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 01:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95703983635A552575B719D81734A3C1FFFED615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663242   (181167) от 01.10.2023
-
-Иду на грозу (1965) DVBRip [H.264/1080p] (серии 1-2 из 2) [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181167.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному роману Даниила Гранина.
-Это фильм о жизни молодых физиков, о любви, дружбе и предательстве... Два подающих надежду молодых физика - Сергей Крылов и Олег Тулин - со студенческой скамьи серьезно изучают такое явление природы, как гроза. Друзья мечтают научиться управлять погодой. Но постепенно их пути в науке расходятся. Олег готов поступиться принципами (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: драмаРежиссер: Сергей МикаэлянАктеры: Александр Белявский, Василий Лановой, Ростислав Плятт, Михаил Астангов, Жанна Прохоренко, Виктория Лепко, Анатолий Папанов, Евгений Лебедев, Лев Прыгунов, Павел ЛуспекаевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB97E0B6BAA8F0517BE61D31904447789CE5E1C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665628   (181181) от 01.10.2023
-
-Кикбоксер / Kickboxer (1989) BDRip [H.264/1080p-LQ] [handmade]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Курт и Эрик Слоан отправляются в Таиланд, на родину кикбоксинга, чтобы доказать местным бойцам превосходство американской школы над тайской. Эрик, чемпион Америки по кикбоксингу, встречается в бою с Тонг По, чемпионом Таиланда.
-Тонг По оказывается сущим зверем. Он намеренно калечит уже обессилевшего Эрика Слоана, обрекая его на инвалидность. Курт поступает (   Читать дальше...   )Производство: США / Kings Road EntertainmenЖанр: боевик, триллер, спортРежиссер: Марк ДиСалле, Дэвид УортАктеры: Жан-Клод Ван Дамм, Деннис Алексио, Деннис Чан, Мишель Кисси, Хэскелл В. Андерсон III, Рошель Ашана, Ли Ка-Тин, Ричард Фу, Рикки Лю, Томас СиньПеревод: Многоголосый профессиональный (CTC)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DCF61E54B22F05A71287D0A44D6221880F0978
 ```
 
 

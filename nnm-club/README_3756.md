@@ -1,3 +1,76 @@
+###  Публикация: 1700342   (117338) от 16.02.2024
+
+Присцилла: Элвис и я / Priscilla (2023) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какая девушка не мечтает о романе со знаменитостью? У молодой Присциллы такое желание сбылось, и судьба уготовила ей встречу с самим Элвисом Пресли. Теперь они официально — главная пара Америки, но что скрывается за фасадом счастливой жизни с кумиром всей страны?Производство: Италия, США / American Zoetrope, The Apartment, FremantleЖанр: биография, драмаРежиссер: София КопполаАктеры: Кейли Спейни, Джейкоб Элорди, Эри Коэн, Дагмара Доминчик, Тим Пост, Линн Гриффин, Дэн Бирн, Родриго Фернандес-Столл, Дэн Абрамовичи, Мэттью ШоуПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6662424EE69E7204B1AB8E530DAC9A96F9C60586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698744   (117339) от 16.02.2024
+
+Microsoft разрешит удалять из Windows программу, которая расходует память, следит за пользователем и крадет персональные данные.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117339.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Windows 11 появится опция удаления браузера Edge, который поставляется с системой и намертво в нее вшит. Выкорчевать его можно только при помощи стороннего ПО, но Microsoft это не одобряет, уверяя, что удаление Edge может навредить ОС. На деле это совсем не так, даже на оборот – новые версии Edge приносят больше вреда, чем пользы. Например, браузер может в фоновом (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700168   (117340) от 16.02.2024
+
+Контроль / Control (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственный незнакомец давно следит за Стеллой. Она блестящий политик и всегда в центре внимания. Не составляет труда затеряться в толпе журналистов, освещающих каждый ее шаг, но лишь он знает о темных сторонах ее жизни и запретном романе с премьер-министром.​
+Незнакомец давно вынашивал свой план и когда Стелла решила отвезти домой дочь своего любовника, он (   Читать дальше...   )Производство: Великобритания / Cupsogue Pictures, CineNorth StudiosЖанр: боевик, триллерРежиссер: Джин ФолэйзАктеры: Кевин Спейси, Лорен Меткалф, Марк Хэмптон, Natasha Kemball, Эр Фаррелл, Аарон Либёрд, Джошуа Фрэйтер-Лафлин, Адам Сауфвик, Питер Гриффитс, Адам ТемпларПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C32B596153ED29AE9562CF7197CD8A5B5DC8D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699340   (117341) от 16.02.2024
 
 OpenVPN 2.6.9 Final [Multi/Ru]
@@ -6,7 +79,7 @@ OpenVPN 2.6.9 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117341.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:1FC3FEB8B04A90B3739B6B580993C4370FD53445
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117342.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:73E9A28E99E0489BA237148C5BCB054A72C71B63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117343.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:84E2C4AB9A21FB75003CFAE6EF82858F7D6F9B80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117344.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:8470A8B9D01785122BFC29ADA6EE93BE78C6F6FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117345.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:465BCD00D0E1DBF57B8D98E67CD487DADF45B502
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117346.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:2DDF9964984625E2CAA7D3A5D9026BB9C4544795
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117347.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:584CEFF23EA4CA8E3C96C9C6A48771F9E29EBE01
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117348.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ magnet:?xt=urn:btih:F83BEB7F506C88B3CD385CFF6240F71D1C189FA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117349.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ magnet:?xt=urn:btih:9E7EB33B693AF97482693D2DF8A82803BBC12E1B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117350.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:38F68279440F5CF667D5236534BAB26902C4E638
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117351.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:3091592932F4C72462A468E5ACF7BAEF2D69D2EE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117352.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ Christine Ebersole - Strings Attached (2013) Motema [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117353.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ Rod Tate - Smooth and Peaceful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117354.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ AutoKrypt 13 for Mac 13.09 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117355.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ Folder-Factory 7.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117356.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117357.jpg" />
 </div>
 
 
@@ -426,7 +499,7 @@ Automize13 Enterprise for Mac 13.09 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117358.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ EazyDraw 11.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117359.jpg" />
 </div>
 
 
@@ -474,7 +547,7 @@ EdgeView 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117360.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ Barry Harris Trio - Breakin' It Up (1958) 2007, Jazz Beat [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117361.jpg" />
 </div>
 
 
@@ -525,7 +598,7 @@ magnet:?xt=urn:btih:8A19CDEF1D52ABC0F2011465F52715C4C2C12E5B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117362.jpg" />
 </div>
 
 
@@ -549,7 +622,7 @@ Illumishade - Another Side of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117363.jpg" />
 </div>
 
 
@@ -563,87 +636,6 @@ Illumishade - Another Side of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:243EA286ADD4308260C88CB388E40E18EB15780C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699898   (117364) от 15.02.2024
-
-King Me Blues - Your Move (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Face Down (2:23)
-02. Crack The Mantle (4:59)
-03. Ze Chicken Feet (2:58)
-04. If God Is A Woman (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5A137A7FC7420297B9F120080B0E9E5D79A026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699906   (117365) от 15.02.2024
-
-The Devils - Let The World Burn Dow (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Is The Illusion (4:20)
-02. Killer's Kiss (3:17)
-03. Mr Hot Stuff (3:31)
-04. Big City Lights (2:45)(   Читать дальше...   )Жанр: Rock, Post-PunkПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9DA4DA6F7CA5738343895C3FC1C2DD3776298E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699892   (117366) от 15.02.2024
-
-Zataban - Naturally Seasoned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Brown (4:40)
-02. Late at Night (3:39)
-03. Better Off (4:53)
-04. Straight Up (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EBFA64136ED900B358B058C3C0ADFF1F3DB38F
 ```
 
 

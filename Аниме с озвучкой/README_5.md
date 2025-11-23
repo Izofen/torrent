@@ -6,7 +6,7 @@ Beyblade Burst | Бейблэйд Бёрст [2016, TV, 51 эп.] WEB-DL 1080p r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33252.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Beyblade Burst God | Beyblade Burst Evolution | Бейблэйд Бёрст Эв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33258.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Zhandou Wang: Jufeng Zhan Hun 5 | Infinity Nado 5 | Инфинити Надо 5 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33260.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33261.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Tokidoki Bosotto Rossiya-go de Dereru Tonari no Alya-san | Alya Sometimes Hides 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33280.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33297.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CEEDDE5FF23856F190387A2B18D71B2C70623C07
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33397.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Sayounara Ryuusei, Konnichiwa Jinsei | Goodbye, Dragon Life | Прoщaй, жиз
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33510.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:4C3EE82F01C9D200ED84F2979405F727A3B9AE5F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33643.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Inazuma Eleven: Chou Jigen Dream Match | Одиннадцать молний: М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33854.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Gekijouban Inazuma Eleven Go: Kyuukyoku no Kizuna Gryphon | Inazuma Eleven GO th
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33883.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Gekijouban Inazuma Eleven Go vs Danbooru Senki W | Inazuma Eleven GO vs Danball 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33884.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Князь Тьмы: Retry! R [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33919.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Gekijouban Inazuma Eleven: Saikyou Gundan Ogre Shuurai | Inazuma Eleven the Movi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34014.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34051.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ginga e Kickoff! | Victory Kickoff! | Вперед, ко вселенной! [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34119.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Mirai Shounen Conan | Future Boy Conan | Conan, The Boy in Future | Конан -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34523.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:77B305D0EEB7D00BFF8AB7A4139BA5AF49AA5A98
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34660.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Shinigami Bocchan to Kuro Maid 2 | The Duke of Death and His Maid 2 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35536.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35542.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35621.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35635.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Grand Blue | Необъятный океан [ТВ-1] [2018, TV, 12 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35658.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:3693C9A0BC2EEE5506E8D02E373973731DBFAEA6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35964.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35973.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36074.jpg" />
 </div>
 
 

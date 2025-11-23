@@ -6,7 +6,7 @@ Saviour Machine - Legend Part II (1998) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171092.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Theatres Des Vamires - Anima Noir (2009) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171094.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Saviour Machine - Saviour Machine I (1993) [FLAC|Lossless|image + .cue] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171095.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E40299A58B5B3F971A1BF33D85C132D9BBF113CF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171152.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Queen - News Of The World (1977) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171160.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Greatest Rock Of All Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171167.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Queen - Sheer Heart Attack (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171181.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Queen - Queen (1973) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171182.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Queen - A Day At The Races (1976) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171186.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Florence + The Machine - Under Heaven Over Hell (2023) Compilation [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171221.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Vitalines - Wheels Within Wheels (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171223.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lord Vampyr - Gothika Vampyrika Heretika (2013) [FLAC|Lossless|image + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171232.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gabriel Agudo - Tales & Thunders (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171233.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sinful Way - Revolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171247.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Giant Flying Turtles - Let the Love In (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171249.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Headshot - Eyes Of The Guardians (2022) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171259.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Thomas Dolby - Halloween: A Thomas Dolby Creation (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171261.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tombstone - Shadows of Fear (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171268.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Viikate - Rillumarei! (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171269.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Rolling Stones - Hackney Diamonds (2023) Japan [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171345.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Queen - A Night At The Opera (1975) Remaster, 2 CD Deluxe Edition, 2011, Univers
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171353.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ ZZ Top - Goin' 50 (2019) Compilation [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171355.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Queen - Queen II (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171360.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Alex Destruction - A Tribute To Guns N' Roses Greatest (2023) [FLAC|Lossless|WEB
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171393.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sellout - Любовь и панк-рок, а не… (2023) [MP3|320 Kbps] <Pun
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171398.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sixty Nine Crash - Songs Of Love & Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171399.jpg" />
 </div>
 
 

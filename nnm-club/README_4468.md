@@ -1,3 +1,79 @@
+###  Публикация: 1349151   (138180) от 31.12.2019
+
+Олег Рой, Татьяна Маликова | Хрустальное сердце. Волшебная новогодняя сказка (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка Олега Роя и Татьяны Маликовой «Хрустальное сердце» – это история для всех, у кого есть мечта! Для всех, в чьём сердце живёт любовь! Кто верит в то, что герои могут оживать, а слова и предметы обладать волшебной силой!
+Она произошла в самый чудесный день – в канун Рождества, когда весёлые жители маленького уютного городка были охвачены приятными хлопотами и (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4363ECB79913BD1CD9C76FEABA5AC16E84AAAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195916   (138182) от 31.12.2017
+
+Битва экстрасенсов (2017.12.30) WEB-DLRip (сезон 18, выпуск 15: Дайджест)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138182.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80E191AF0322EBCB789780B6E35F23A90C20EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520994   (138183) от 31.12.2021
+
+VA - New Day: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Kisses in the Rain (4:00)
+02. Chris le Blanc, Alison Degbe - Moon over Paradise (3:22)
+03. Digby Jones, Lushlo - Shimmer (Original Mix) (3:31)
+04. Schwarz & Funk - Only Tears (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD0BCAFCA98FAC54FB4B775C01E5BE2E1A9F676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191012   (138184) от 30.12.2018
 
 Дружные мопсы / Puppy Dog Pals (2017) SATRip  (Сезон 1, серий 26 из 26)
@@ -6,7 +82,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138184.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:91BB52760798C9ED5F2F9F16A840808A158D587A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138185.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:A7AC56759FC60DDAABAB5E13EFA881E5C84FA5D0
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138186.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ VA - The Soundgarden: Winter Collection (2020) Compilation [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138187.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ magnet:?xt=urn:btih:17D511DC2D84AEE0D3C64A496CB27AB7B4462665
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138188.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ magnet:?xt=urn:btih:3FEA6E4512B412605ACEE92569083EBF315F304C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138189.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ Call of Duty Black Ops 2/II (2012) [Ru] (1.0.0.1 upd3) Rip Fenixx
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138190.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ VSO ConvertXtoDVD 5.3.0.43 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138192.jpg" />
 </div>
 
 
@@ -201,7 +277,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138193.jpg" />
 </div>
 
 
@@ -225,7 +301,7 @@ VA - Blufin Loves Amsterdam 11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138194.jpg" />
 </div>
 
 
@@ -252,7 +328,7 @@ magnet:?xt=urn:btih:AA79C557672A072D289AD8B5C0C9842D471B27B7
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138199.jpg" />
 </div>
 
 
@@ -276,7 +352,7 @@ magnet:?xt=urn:btih:76ADBFDD6B00FA428ED6AD2F69EDBA00E24E6B90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138200.jpg" />
 </div>
 
 
@@ -300,7 +376,7 @@ magnet:?xt=urn:btih:4985532AD2790DD93B637406DA570C07ED0CEAFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138201.jpg" />
 </div>
 
 
@@ -324,7 +400,7 @@ Ummet Ozcan - The Final Bang Year Mix 2019 (2019-12-27) [MP3|320 Kbps] <Electro 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138202.jpg" />
 </div>
 
 
@@ -351,7 +427,7 @@ Comedy Woman. Новогодний (2017.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138203.jpg" />
 </div>
 
 
@@ -375,7 +451,7 @@ magnet:?xt=urn:btih:EAC3CFD5A18962BD268D6BDA28101AD940324B3F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138206.jpg" />
 </div>
 
 
@@ -399,7 +475,7 @@ Rectangle Pro 3.0.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138207.jpg" />
 </div>
 
 
@@ -423,7 +499,7 @@ magnet:?xt=urn:btih:FFD021A64AC9C8DDE8F4E0D942AEDFF7E1CD187F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138210.jpg" />
 </div>
 
 
@@ -447,7 +523,7 @@ magnet:?xt=urn:btih:A109CD586716FC61465601D49FC99B9615306945
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138211.jpg" />
 </div>
 
 
@@ -471,7 +547,7 @@ magnet:?xt=urn:btih:30E7FAF6C353DEA5BDCC34A8DA1CDA68C6FF4AB9
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138213.jpg" />
 </div>
 
 
@@ -495,7 +571,7 @@ magnet:?xt=urn:btih:5906F67BA24EF4A23F2BE7E94BA39BF1BBB0B83F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138216.jpg" />
 </div>
 
 
@@ -519,7 +595,7 @@ magnet:?xt=urn:btih:1C233738CDE4CC0541DD7A0F00199F38627C39B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138217.jpg" />
 </div>
 
 
@@ -544,7 +620,7 @@ magnet:?xt=urn:btih:1C233738CDE4CC0541DD7A0F00199F38627C39B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138218.jpg" />
 </div>
 
 
@@ -555,81 +631,6 @@ magnet:?xt=urn:btih:1C233738CDE4CC0541DD7A0F00199F38627C39B3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BDCEF27364B811B08A2FE47E377D6FB1AAC9B1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679540   (138219) от 25.11.2023
-
-MotoGP. Этап 20. Гран-при Валенсии. Спринт (25.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138219.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 ноября 2023, суббота 17:00 МСК. Этап 20, Валенсия. Гран-при Валенсии. Спринт (13 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEFC09107E9D84AD1E3B7EF08BD5B5A3C39AD41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349259   (138220) от 31.12.2019
-
-VA - XMas EDM Superparty (2019) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138220.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jr - Instinct (Original Mix)
-002. Lemonova - Ready For Loco
-003. Raw Funk Maharishi - Fabric
-004. Paradise Nation - You Just Keep Movin(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 11:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEE9EEE3E7F3FA01B43690C64A35F41920D28B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195936   (138221) от 31.12.2017
-
-Интернет-журнал | Домашняя лаборатория №12 (декабрь 2017) [DJVU]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138221.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C49DEEFE0525656D9FD3BB0B628D52B970F57C
 ```
 
 

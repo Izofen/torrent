@@ -6,7 +6,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack Decepticon
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39236.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39241.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39244.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.60.0.67142/dlc) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39248.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39263.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39310.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39318.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39334.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39338.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.2.3161) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39340.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39342.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39419.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.37.5.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39436.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Slave Zero X (2024) [Ru/Multi] (1.05/dlc) License GOG [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39444.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Strategic Command: American Civil War (2022) [Multi] (1.10.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39445.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39450.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39471.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Northend Tower Defense (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39514.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39521.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39606.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (1.2.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39626.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.2.12) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39724.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39729.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Talos Principle II (2) (2023) [Ru/Multi] (2.2.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39732.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Townscaper (2021) [Ru/Multi] (1.2.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39783.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rugrats: Adventures in Gameland (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39786.jpg" />
 </div>
 
 

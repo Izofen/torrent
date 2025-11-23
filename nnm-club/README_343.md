@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9027.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:43298F862AF5B1A483F136BC63FB8E7456AE7F84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9028.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0E27DF9F697275A38D09835C14C3321742BD34BF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9029.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7905A7F4DB72D72D495EA56008283F95FB486A1E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9030.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:E0DFFF72DAA3DBD432EEA6AA49F4E65A8665A713
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9031.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:5BC391B1AA47DD3694D782120453A0749DE62E44
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9032.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:F1AFD9752469F425717AFFEA064010C97DDD036C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9035.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:F1AFD9752469F425717AFFEA064010C97DDD036C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9037.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:4CC90C4904F724FDD43CBD1AC96DE29387999E9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9040.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:BCD4AEEF9D913F9CE33FE31DE7A2374BC6DAA238
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9041.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BCD4AEEF9D913F9CE33FE31DE7A2374BC6DAA238
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9042.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Top 100 Legend Rock Hits vol.3 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9046.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0E03F0020A1DFC08B72FA99B359EF9FCF110144E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9047.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Luto (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9048.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:415509969717423EB684F6BEC55524FC9C833B67
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9050.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7C6E9656B93A8FC6354909F5E445D61890BFF395
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9051.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9052.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:5F4214C0895396C6926D28440C27E47C5CF65B93
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9053.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:BAE61B385A31BCBF9B1994788431802FA2CA26B4
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9055.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:D9390FD2B85529B3E009DDDBC38B9228F9EFCE0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9056.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D9390FD2B85529B3E009DDDBC38B9228F9EFCE0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9058.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9059.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:EB2BEC3D81B6AAEC65DF0F7E38CA9AD84ABB7A0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9060.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Mul
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9061.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:388E6CB9CEFF31557DF4BB74B70D4C9A8194DD76
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9062.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:3D43D7C80AB1798E390C639BFF27436E553C95B7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9063.jpg" />
 </div>
 
 

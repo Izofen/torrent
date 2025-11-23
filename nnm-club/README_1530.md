@@ -6,7 +6,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40134.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Navicat Premium 17.1.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40135.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CE07509C2FAC47AC7F78687041EC151F0F632219
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40136.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0FC0C9EA25C793AC2BAD089AC2892B233157B5BA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40137.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F33639F38828155D4F67CF147C6EF5D201142753
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40138.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F594A49B5EC0F1E502614D3D6684F1DBCDD2E666
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40139.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Adobe Premiere Pro 2025 25.0.0.61 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40140.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Adobe Photoshop Lightroom Classic 2024 14.0.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40141.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Microsoft Windows 11 [10.0.22631.4317], Version 23H2 (Updated October 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40142.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:34C62833DAB8209AFFED0B5A77E22858ED72EB63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40143.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:316524182285E2B30C9EC579CB69C52FF91E078E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40144.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40145.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:DD13CCA995801610BFDB48B69D773E2DE4CC76B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40146.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:7D8DD2AC0E20B08632A41CBDF87AD8D3759D1FA8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40147.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Audition 2025 25.0.0.47 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40148.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:BC6CF48AE45A75054048BD0C03A84035EEC7F22E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40149.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Other s [Alex Murphy 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40150.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Google предупредила о скором отключении uBlock Orig
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40151.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Google предупредила о скором отключении uBlock Orig
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40152.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:15062DFED202948F9315ABEDF9CD53EFB7AC162C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40153.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:15062DFED202948F9315ABEDF9CD53EFB7AC162C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40154.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:B6B11B837E95FC4C3FAFB2B02E0253A52ADCDFF0
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40155.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Charming Classy Luxury Lounge Chilly Relaxing Tunes (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40156.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3BAE0CB519520A235F44995D059B6625842078CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40157.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Classy Charming Luxury Light Jazz Chilly Instrumentals (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40158.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Anastasia Calmus - Revelations (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40159.jpg" />
 </div>
 
 

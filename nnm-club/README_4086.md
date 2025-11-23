@@ -1,3 +1,77 @@
+###  Публикация: 1823340   (125918) от 12.10.2025
+
+Mirror Lab v2.6.9.4 Mod by Alex.Strannik [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный фоторедактор. Умеет превращать ваши картинки практически во что угодно. Лично у меня получилось сделать психоделику с помощью многократных зеркальных эффектов.
+Mirror Lab стремится быть самым веселым, простым в использовании и мощное приложение для редактирования фотографий творчески улучшить фотографии, сделать зеркальные фотографии, калейдоскопа изображения (   Читать дальше...   )Тип издания: ProРелиз состоялся: 11.10.2025Разработчик: IlixaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479DFAC65158D2302C9BC93F808E2E161569F5C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823682   (125919) от 12.10.2025
+
+Глушь / The Sticks (2025) WEB-DL [H.264/1080p] [VO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125919.jpg" />
+</div>
+
+
+###  Подробнее
+
+После жестокой автокатастрофы с участием ее мужа-любителя активного отдыха, ограниченные навыки выживания Бет доведены до предела, когда она оказывается одна в лесу, полном смертельных сверхъестественных угроз.Производство: Канада / Kominek Motion PicturesЖанр: ужасыРежиссер: Питер КоминекАктеры: Шелби Кокс-Дерш, Джоди Кокс, Джин Федотов, Митчел РолфсемаПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386477783ED393B48BCB7AE89A369AB13B19ADB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823625   (125920) от 12.10.2025
+
+Тайна Имени v2.0.5.9 Mod by vadj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125920.jpg" />
+</div>
+
+
+###  Подробнее
+
+★ Значение имени ★ - несколько сотен мужских и женских имён.
+В описаниях имён рассказывается о характере человека и его совместимости с другими именами. Если не знаете, как назвать ребёнка или хотите узнать больше о себе и своих близких изучайте! :)Тип издания: AdfreeРелиз состоялся: 11.10.2025Разработчик: TTdictionary OfflineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4C1D8094B43381CD396966E53275290A36CFE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823665   (125921) от 12.10.2025
 
 Lian Ross - Say You’ll Never (Anniversary Special Edition) (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -6,7 +80,7 @@ Lian Ross - Say You’ll Never (Anniversary Special Edition) (2025) Single [FLAC
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125921.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:6C25CAE081AEB17B61B927392B6D0EA3F2A2CCB8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125922.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:14AB5EDF0BE6117FBF3615F66AB650F844029399
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125923.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ magnet:?xt=urn:btih:C00FAFB9EBB18FAD084F0056407E85EBD7D1D168
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125924.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ magnet:?xt=urn:btih:B5F448E0BEF5F7EFFD23FAE4F0BBC0222A57E0FA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125925.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ magnet:?xt=urn:btih:D172ED455E33CE064A9AF4EC55216B07C41C1A8B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125926.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ Hyperviolent (2023) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125927.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ magnet:?xt=urn:btih:E6C6F395ED0CBFDD464F90929773746D28C21326
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125928.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ magnet:?xt=urn:btih:21B917559E8E10760C65B0F3E1F0174D563DB5E0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125929.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ magnet:?xt=urn:btih:CF0008A7CE25D37FBD02215A7CDC6EFBA61D9470
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125930.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ magnet:?xt=urn:btih:0FD660F66CF63A204B68BA0EAB9DD5EF3D539791
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125931.jpg" />
 </div>
 
 
@@ -276,7 +350,7 @@ magnet:?xt=urn:btih:E3072C2215B85C4C450C053E67C3AF5DA7119CBA
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125932.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.4.0.r49909/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125933.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ magnet:?xt=urn:btih:95123A04FA4A7EE2C636D82AF8D4650DD654DDDC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125934.jpg" />
 </div>
 
 
@@ -350,7 +424,7 @@ magnet:?xt=urn:btih:9B2C71C08831910FC4074BE5475DF28130A23B8A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125935.jpg" />
 </div>
 
 
@@ -374,7 +448,7 @@ magnet:?xt=urn:btih:468F0A6541B08B7B8A491AAEEFC31CDFBA45C5C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125936.jpg" />
 </div>
 
 
@@ -400,7 +474,7 @@ Dead Silence - Echoes of the Damned (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125937.jpg" />
 </div>
 
 
@@ -424,7 +498,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.2 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125938.jpg" />
 </div>
 
 
@@ -448,7 +522,7 @@ magnet:?xt=urn:btih:99A44900322DAF24E12C57150A823F8CE81E429A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125939.jpg" />
 </div>
 
 
@@ -473,7 +547,7 @@ magnet:?xt=urn:btih:DB8C5216C751837B4A86F6D2C842948B10AC27DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125940.jpg" />
 </div>
 
 
@@ -497,7 +571,7 @@ magnet:?xt=urn:btih:35C8B0F1B95E9E82BA21512D8DE4416EA59E6C5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125941.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ OneCommander Pro 3.102.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125942.jpg" />
 </div>
 
 
@@ -547,7 +621,7 @@ magnet:?xt=urn:btih:91A42C3F0389DEFA33BFA706A03C318D8E226276
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125943.jpg" />
 </div>
 
 
@@ -558,78 +632,6 @@ MONIQA - это шрифт с вариабельным отображением.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFB99EBC6DB3ED4CBE2F46E479DF8752D229CD84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823632   (125944) от 12.10.2025
-
-Добыча / Prey (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Север Великих равнин, 1719 год. Девушка Нару из племени команчей больше всего на свете хочет стать достойной охотницей, но близкие не воспринимают её увлечение всерьёз. Когда отряд бывалых охотников идёт в лес на поиски атакованного пумой соплеменника, Нару как опытный следопыт отправляется с ними и вскоре замечает странные следы. Спасение товарища проходит успешно, (   Читать дальше...   )Производство: США / 20th Century Studios, Davis EntertainmentЖанр: ужасы, фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эмбер Мидфандер, Дэйн Дильегро, Харлан Блейн Китвейхат, Дакота Биверс, Джеронимо Вела, Стефани Матиас, Сторми Кипп, Майк Патерсон, Джулиан Шэмп, Нельсон Картер ЛейсПеревод: Дублированный (RHS), многоголосый (Jaskier), авторский (Яроцкий)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF36A3048E5B6126DDED8558BEB7BAA250F393DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823635   (125945) от 12.10.2025
-
-Непослушные / Wayward (2025) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-8 из 8) HDrezka, Red Head Sound, TVShows, LE-Production
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алекс Демпси, полицейский из небольшого городка Толл-Пайнс, знакомится с двумя ученицами местной школы для трудных подростков, которые хотят из неё сбежать. Расследуя серию необычных происшествий, Алекс начинает подозревать, что за всеми инцидентами стоит Эвелин, загадочная руководительница школы.Производство: США, Великобритания, Канада / Netflix, Objective Fiction, Sphère MédiaЖанр: триллер, драма, детективРежиссер: Эрос Лин, Джон Фоусет, Ренука ДжейпаланАктеры: Мэй Мартин, Тони Коллетт, Патрик Джей Адамс, Сара Гадон, Брэндон Джей МакЛарен, Аливия Элин Линд, Патрик Галлахер, Джошуа Клоуз, Сидни Топлифф, Джон ДэниэлПеревод: Многоголосый (HDrezka, Red Head Sound, TVShows, LE-Production)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, Английские (Full, SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDB598F9CC8A890F0BA6040548A6B4C826E8988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 101736   (125946) от 12.10.2025
-
-Олег Газманов - Дискография (36 Релизов) 1989 - 2013 [MP3|160-320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop , Pop Rock , Folk Pop Rock , Авторская песняПродолжительность: 39:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10025AF4566BBE8BFF6A551B980796FFD0484F7E
 ```
 
 

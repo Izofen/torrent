@@ -1,3 +1,81 @@
+###  Публикация: 1693297   (121914) от 20.01.2024
+
+VA - 80s and 90s Remixed, Vol. 2 - The Dance Hit Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Disco Boys - Polizisten (2:28)
+02. Jason Parker Marzel - You Spin Me Round (Like a Record) (Housejunkee Remix Edit) (3:14)
+03. Micast - To France (2:29)
+04. Alex M. - Whoomp (There It Is) (2:38)(   Читать дальше...   )Жанр: Funky House, DanceПродолжительность: 01:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34076A917D9A5C22A277DF5FECD3E1CD09EF0879
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693283   (121915) от 20.01.2024
+
+Русский Толковый Словарь v3.0.5.9 Mod by vadj, misuri78 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский –  офлайн Толковый словарь с легким и функциональным интерфейсом, охватывающим более 151.000 слов.Тип издания: FullРелиз состоялся: 17.05.2023Разработчик: TTdictionary OfflineПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCA5E25BFCCD955BB7C0D7F1803FAA14B77F5BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693434   (121916) от 20.01.2024
+
+Пётр Чайковский; Большой симфонический оркестр Всесоюзного радио и Центрального телевидения - Лебединое озеро (2023) 2 x CD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121916.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 Интродукция 02:51
+Действие I
+02 1. Сцена 02:50(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FEBF5499EEFEB0D591BFB76BBC8B7E5767906B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693346   (121917) от 20.01.2024
 
 Алекс Рудин | Дорога на Родас (Книга 1). Космическое лето (2023) [MP3, Вадим Балашов]
@@ -6,7 +84,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121917.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:82FAC9747F908B3E9DB2F4E1F4771A23C3F6F423
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121918.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:1E54F772668948599651EE40076C0300AC8B915F
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121919.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ magnet:?xt=urn:btih:77E50D3E4CD7D5A68E9874BCE51A5439CF4AAF63
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121920.jpg" />
 </div>
 
 
@@ -102,7 +180,7 @@ magnet:?xt=urn:btih:E0F0B39C8BA583E5D1E38A995AEB257DA2A9482C
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121921.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ magnet:?xt=urn:btih:03AD0F8BF042E3E1750807E0349356167D539CDC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121922.jpg" />
 </div>
 
 
@@ -154,7 +232,7 @@ magnet:?xt=urn:btih:F34EC9E75967764A83798716256AA6526616D42F
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121923.jpg" />
 </div>
 
 
@@ -178,7 +256,7 @@ magnet:?xt=urn:btih:10FDE36E37445C59B49930A436F2BB097114F790
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121924.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ magnet:?xt=urn:btih:147DA0B853D10CF013EBB54C6E6DB5273DBF4298
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121925.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ magnet:?xt=urn:btih:AFA67747CFDCCCE81445F4F7EA8F5D452A63581B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121926.jpg" />
 </div>
 
 
@@ -251,7 +329,7 @@ Fakin The Funk 5.4.0.158 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121927.jpg" />
 </div>
 
 
@@ -278,7 +356,7 @@ magnet:?xt=urn:btih:3D763A0B22A8201F7EB47E96FBC750D8D335C6E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121928.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ magnet:?xt=urn:btih:3D763A0B22A8201F7EB47E96FBC750D8D335C6E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121929.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ AnyDVD HD 8.1.3.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121930.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ magnet:?xt=urn:btih:81A0A6D8E64C5DA85D3F800759C0CA214FBCA61C
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121931.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ magnet:?xt=urn:btih:B54DC0E19AAE041159E0DE44E66A3328BBEDFD4F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121932.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ magnet:?xt=urn:btih:1884E23F447A84CCD957319D82F901E9C5B1EBA7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121933.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121934.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ magnet:?xt=urn:btih:EAF39EC3037FA7D450221414CF1ED25AF1CCE2CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121935.jpg" />
 </div>
 
 
@@ -472,7 +550,7 @@ magnet:?xt=urn:btih:AA484C337A65A3124CEC6AB92AA3A5AAC0BCEE7A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121936.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ Display Driver Uninstaller 18.0.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121937.jpg" />
 </div>
 
 
@@ -520,7 +598,7 @@ A-HA - Hunting High And Low (1985) 1st German Press Gold disc [APE|Lossless|imag
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121938.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.01.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121939.jpg" />
 </div>
 
 
@@ -561,84 +639,6 @@ VA - ЕвроХит Топ 40 Europa Plus 19.01.2024 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D55892F4BFB6D4D2D89B769168D33B95F9663B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693179   (121940) от 20.01.2024
-
-VA - 90'S EuroDance Hitmix 2 (2024) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double AA - Dancers in the Night (Extended Version) (05:33)
-02. Ritmo Ritmo - Caramba Caracho (03:32)
-03. Heath Hunter & The Pleasure Company - Master & Servant (03:39)
-04. Heath Hunter & The Pleasure Company - Love Is All Around (03:40)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8BCC5683996959A58A39B45BDA77BD582B174F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693442   (121941) от 20.01.2024
-
-Воины волки / Wolf Warriors (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) OKKO
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121941.jpg" />
-</div>
-
-
-###  Подробнее
-
-До времен Чингисхана 33 племени Степи объединились и восстали против тех, кто осквернял и эксплуатировал их, чтобы обеспечить своим потомкам Величие и Мир.Производство: Монголия, США / Belgute Pictures, Mount Guard, Three Flames PicturesЖанр: боевикРежиссер: Ганболдын ЭрдэнэбилэгАктеры: Ганболдын Эрдэнэбилэг, Намсрайн Ялалт, Баасанбуугийн Шинэбаяр, Tenuun-Erdene Garamkhand, Sukhee Ariunbyamba, Dorjsuren Shadav, Дашнямын Цэрэндарьзав, Aminsanaa Zagdbazar, Пурэвдоржийн Цэрэндагва, Purvedorj JamsrajavПеревод: Дублированный (OKKO)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867DE249AA48144A55B6CBFA434BFDFCC0AB201A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693312   (121942) от 20.01.2024
-
-Яндекс.Практикум | SMM-продвижение в Телеграме (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие задачи вы сможете решать после курса
-Cоздавать и оформлять каналы
-Писать посты для соцсетей и разрабатывать контент-план
-Обрабатывать текст, фото и видео для создания контента(   Читать дальше...   )Производство: Яндекс.ПрактикумЖанр: ВоркшопЯзык озвучки: РусскийПродолжительность: 03:56:28Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E15F7D3CCED4A380E6D47C5D01F836F0E78B6B8
 ```
 
 

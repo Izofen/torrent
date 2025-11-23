@@ -1,3 +1,75 @@
+###  Публикация: 1701852   (116246) от 22.02.2024
+
+Навстречу приключениям / The Adventures (2023) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джой обожает книги о приключениях и шоу о путешествиях, но вынуждена сидеть на нелюбимой работе в скучном офисе. Однажды ей выпадает случай отправиться в настоящее приключение на поиски сокровищ в компании очаровательного авантюриста. Девушка бросает привычную жизнь и отдаётся на волю судьбы.Производство: Таиланд / Transformation FilmsЖанр: Боевик, приключенияРежиссер: Иттисак ЭусунторнваттанаАктеры: Jarnnawut Jarnyaharn, Санни Суванметанон, Матча Мосиманн, Сомчай Кемглад, Понгсаторн Джонгвилас, Peerada Kointarangkul, Yunhe Li, Zhenyu LiПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:20:58Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D042ABC5AFF1FE3E13BCCA3AA4B43FCA94E9C99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701746   (116247) от 22.02.2024
+
+Командный пункт / Northspur (2022) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116247.jpg" />
+</div>
+
+
+###  Подробнее
+
+После электромагнитного импульса, обрушившегося на Землю, люди остались без электричества. Через какое-то время человечество стало мишенью для неизвестного ранее патогена, выкосившего большую часть населения планеты. Те, кто уцелел, живут примитивной жизнью без электричества и технологий, но у всех есть оружие, потому что люди стали друг для друга врагами. Хуже всего (   Читать дальше...   )Производство: Новая Зеландия, Northspur FilmsЖанр: боевик, триллер, драмаРежиссер: Аарон ФалвиАктеры: Нелл Фишер, Майкл Херст, Джошуа МакКензи, Маршалл Напье, Делани Таброн, Кали Копае, Ник Кемплен, Джеймс Черчуорд, Питер Коутс, Рама МэрроуПеревод: Дублированный (KION)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91E749883F8BEA334C56EA611C881095379505A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701689   (116248) от 22.02.2024
+
+Команданте / Comandante (2023) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октябрь 1940-го, начало Второй мировой войны. Ночью итальянская подлодка во время плавания в Атлантике натыкается на вооруженное торговое судно, плывущее с выключенным светом. Подлодка топит судно, но спасает 26 бельгийцев, находившихся на борту, и высаживает их в ближайшей безопасной гавани.Производство: Италия, Бельгия / Indigo Film, O' Groove, Tramp Ltd., VGroove, Wise PicturesЖанр: Драма, военный, биография, историяРежиссер: Эдоардо Де АнджелисАктеры: Пьерфранческо Фавино, Йохан Хелденберг, Массимилиано Росси, Лука Чиковани, Сильвия д'Амико, Йоханнес Вирикс, Джузеппе Брунетти, Тим Дайш, Артуро Музелли, Giulio GrecoПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:35Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701715   (116249) от 22.02.2024
 
 Воры в ночи / Thieves in the Night (2023) WEBRip [H.264/1080p] [MVO] [AD]
@@ -6,7 +78,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116249.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:F73AD5F80B5EA7B89CD4165A29F5C9ADD97590DB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116250.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ NetTraffic 1.71.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116251.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:AEFED2E6EEB277B3357D215DC0FAEAA67C0FABDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116252.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:B6D62E76724445E035885642EEF2CDE195FAABB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116253.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:D37DEF7DCAB5D8E088805DE2B183F647302BF413
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116254.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:A6CF35DE616C8952780439E8820A3B267E353764
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116255.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:68440BBA8FEF8BC574FE1205A11BCBDE13D45315
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116256.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:9D455FF6DA522B6E7055A5D4AA8721A32835F72E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116257.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:9D455FF6DA522B6E7055A5D4AA8721A32835F72E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116258.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:0250AC5FB2EF15121169A1D4EF5475109C26EEA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116259.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:FE24A7790CFACDCAC04A21FDFB9102115CFDB107
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116260.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.5 Build 7 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116261.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ Windows 11 Debloater 2.0.6 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116262.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:AC919236770CA6FEC5EE97D56297B7BD1E2FD8DA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116263.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ Gustavo Pezzi | 3D Computer Graphics Programming (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116264.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:23D01DC52E54DF419B621F3F4990487F697FF2EF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116265.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ magnet:?xt=urn:btih:D043D0369A8305E9C535C6038ED0533C81684C27
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116266.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ Don't Starve (2013) [Ru/Multi] (12527201/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116267.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ Adobe Photoshop 2024 25.5.0.375 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116268.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:5237DA00B5874C8603C97D691C522FD25AA85256
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116269.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ magnet:?xt=urn:btih:E6873081A4DA8FBC17F2AD9D5789A00F4423E7E9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116270.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:382131FC334F124E37D093A0D42C51ADD9228B49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116271.jpg" />
 </div>
 
 
@@ -552,79 +624,6 @@ magnet:?xt=urn:btih:382131FC334F124E37D093A0D42C51ADD9228B49
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB6B51FE3AC365FDC559FDAA642BF4B19FEDEEFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701716   (116272) от 22.02.2024
-
-Воры в ночи / Thieves in the Night (2023) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116272.jpg" />
-</div>
-
-
-###  Подробнее
-
-После неудачного ограбления трое воров, чтобы укрыться от полиции, вламываются в дом, в котором оказывается семья. Решив не убивать невинных людей, они остаются в доме до утра, однако продержаться целую ночь им будет совсем не просто.Производство: Великобритания / The Red Carnage CompanyЖанр: ТриллерРежиссер: Ted Dontchev, Maximilian FeursteinАктеры: Майкл МакКелл, Olly Bassi, Тим Каллингворт-Хадсон, Tyler Winchcombe, Wayne Reid, Натаниель Френсис, Sabrina Bale, Liv Paige, Claudia Barba, Sandy ButtonПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:38Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5941C08DE716767E4DA2761DE305574A9CFA9B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701780   (116273) от 22.02.2024
-
-Журнал | FHM №2 (февраль 2024) [PDF][En]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116273.jpg" />
-</div>
-
-
-###  Подробнее
-
-FHM (For Him Magazine) - ведущий мировой журнал для мужчин. Он охватывает темы общего интереса: моду, культуру, спорт, кино, музыку, юмор.Жанр: Мужской журналЯзык: АнглийскийИздательство: Untapped World Publishing (Pty) Ltd.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0597F3DB5C8C1C3F12ADE7DE9DE1932807F739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380259   (116274) от 22.02.2024
-
-Виктор Мари Гюго | Девяносто третий год (2010) [MP3, Анатолий Фролов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика.
-Последний роман Виктора Гюго построен на контрастах. Монархия – и республика. Республика террора – и республика милосердия. В категориях добра и зла, прекрасного и безобразного оцениваются не только характеры и поступки людей, но и исторические события, политические институты. Роман пронизывает вера писателя в поступательное движение человечества (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: 1С - МедиаКнигаПродолжительность: 19:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A659587629DBCBE6B5A3B114DB94BC7BCBE5716
 ```
 
 

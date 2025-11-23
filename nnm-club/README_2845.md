@@ -1,3 +1,76 @@
+###  Публикация: 469559   (82743) от 17.03.2012
+
+Руководство пользователя Corel VideoStudio Pro X5 (2012) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство пользователя Corel VideoStudio Pro X5, приложения для видеомонтажа, которое позволяет даже начинающим пользователям создавать видео профессионального качества. Corel VideoStudio Pro предлагает полный спектр средств для захвата, импорта и редактирования видео и другого мультимедиа, а также записи результата на DVD-диски или BD-диски (Blu-ray), мобильные устройства или размещения в Интернете..Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB2193499209A3DABE32DD7BBB4C95ADF38CC1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468883   (82744) от 17.03.2012
+
+Утешение чужаков (Комфорт незнакомцев) / The Comfort of Strangers (1990) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара из Англии приезжает в Венецию. Они - не муж и жена. Они просто возлюбленные. Мать двоих маленьких детей Мэри и ее более молодой избранник Колин. Наверное они бы поженились, вернувшись домой и жили бы долго и счастливо. Однако в Венеции им повстречалась еще одна пара. Супружеская пара. Роберт и Кэролайн. Очень странная пара с такими же странными намерениями…
+Режиссер Шредер искусно нагнетает красиво извращенную атмосферу картины, снятой по остроумному сценарию Хэролда Пинтера, написанному по роману Иана МакЮэна. Это лента декаденса, упадка, сексуальной одержимости, убийства и насилия.Жанр: Эротическая драма, ТриллерРежиссер: Пол Шредер / Paul SchraderАктеры: Кристофер Уокен, Наташа Ричардсон, Руперт Эверетт, Хелен Миррен, Манфреди Аликво, Джанкарло Превиати, Фабрицио Кастеллани, Россана Кагхиари, Даниэл Франко, Дэвид ФордПеревод: Многоголосый закадровыйПродолжительность: 01:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA9E5D36C1D8C857A617D834825CCE7074C4CC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469437   (82745) от 17.03.2012
+
+Мы купили зоопарк / We Bought a Zoo (2011) DVDRip [звук с TS ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента рассказывает о том, как британское семейство Ми потратило все сбережения, чтобы спасти заброшенный сельский зверинец с двумя сотнями экзотических животных, которым грозила гибель.Жанр: Драма, Комедия, СемейныйРежиссер: Кэмерон КроуАктеры: Мэтт Дэймон, Скарлетт Йоханссон, Томас Хейден Чёрч, Колин Форд, Мэгги Джонс, Энгус МакФадьен, Эль Фаннинг, Патрик Фьюджит, Джон Майкл Хиггинс, Карла ГаллоПеревод: ДублированныйПродолжительность: 02:03:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468735   (82746) от 17.03.2012
 
 Жена путешественника во времени / The Time Traveler's Wife (2008) [1080p] BDRip
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82746.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82747.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ magnet:?xt=urn:btih:FBD5032EDA043C78324EF318292EDF4479FD4350
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82748.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82749.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82750.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82751.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ VA - Русская Дискотека 80-90х (2012) [MP3|320 кб/с]<Pop, Dan
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82752.jpg" />
 </div>
 
 
@@ -187,7 +260,7 @@ CD 1Жанр: Pop, DanceПродолжительность: 04:17:38
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82753.jpg" />
 </div>
 
 
@@ -211,7 +284,7 @@ Windows 7 Ultimate SP1 х64 by Loginvovchyk с программами (Март 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82755.jpg" />
 </div>
 
 
@@ -235,7 +308,7 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82758.jpg" />
 </div>
 
 
@@ -259,7 +332,7 @@ magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82760.jpg" />
 </div>
 
 
@@ -283,7 +356,7 @@ magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82761.jpg" />
 </div>
 
 
@@ -307,7 +380,7 @@ magnet:?xt=urn:btih:9D91FE7546FFCEE91FFEBBFE58A2176C37475823
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82763.jpg" />
 </div>
 
 
@@ -332,7 +405,7 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82764.jpg" />
 </div>
 
 
@@ -356,7 +429,7 @@ magnet:?xt=urn:btih:1F3B44A3988E60E36D6FA35F3697EC85BDDE4C3A
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82766.jpg" />
 </div>
 
 
@@ -380,7 +453,7 @@ magnet:?xt=urn:btih:C88F6E60F18FF84B40151CA36AA2D001EF1C6A6D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82767.jpg" />
 </div>
 
 
@@ -409,7 +482,7 @@ magnet:?xt=urn:btih:46E1FE41412049EB9647347286628E73849EAC6D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82768.jpg" />
 </div>
 
 
@@ -433,7 +506,7 @@ magnet:?xt=urn:btih:C4DC8E3F782DD481610094D7847C2DD6ED5D5B4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82771.jpg" />
 </div>
 
 
@@ -457,7 +530,7 @@ magnet:?xt=urn:btih:C4DC8E3F782DD481610094D7847C2DD6ED5D5B4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82773.jpg" />
 </div>
 
 
@@ -481,7 +554,7 @@ magnet:?xt=urn:btih:C4DC8E3F782DD481610094D7847C2DD6ED5D5B4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82775.jpg" />
 </div>
 
 
@@ -507,7 +580,7 @@ magnet:?xt=urn:btih:DB4D39D20AAEABAAA16D9E70AF67CBD9FB18DA09
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82777.jpg" />
 </div>
 
 
@@ -533,7 +606,7 @@ magnet:?xt=urn:btih:205B3D8AF963D6A4B763C42B758035E32A61D560
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82778.jpg" />
 </div>
 
 
@@ -557,7 +630,7 @@ magnet:?xt=urn:btih:B1222CED7840BFF250CDF78D82DCA474CDC26215
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82779.jpg" />
 </div>
 
 
@@ -576,79 +649,6 @@ magnet:?xt=urn:btih:B1222CED7840BFF250CDF78D82DCA474CDC26215
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D64F30391071B0199AF7BD7FC1E5D6FF82DBDDBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468928   (82780) от 17.03.2012
-
-Август. Восьмого (2012) DVD5
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда события нанизываются одно на другое, когда каждая минута ставит тебя перед выбором, когда жизнь и смерть становятся частью страшной компьютерной игры, пульт от которой — в чужих руках, тогда ты начинаешь действовать так, будто каждая минута — последняя. Казалось бы, жизнь хорошенькой разведенной москвички Ксении оставляет не много места для драматических ситуаций: да, сын Тема тяжело переживает развод родителей, да, поклонник поглощен карьерой, да, мама вмешивается в личную жизнь, — но трудно назвать эти обстоятельства критическими.
-Все меняется, когда бывший муж, офицер миротворческих сил, просит Ксению прислать Тему к нему, подышать горным воздухом в прекрасной деревушке в доме его родителей! Он уверяет, что это совершенно безопасно — да маленький Тема и не чувствует никакого страха, ведь рядом папа, добрый и непобедимый герой. Но наступает день, когда вражеские танки входят в город — и мир самых страшных игровых иллюзий мальчика становится реальностью. На экране оживают компьютерные драконы и злые космические (   Читать дальше...   )Жанр: Драма, Военный, БоевикРежиссер: Джаник ФайзиевПродюсер: Джаник Файзиев, Илья Бачурин, Фёдор БондарчукАктеры: Светлана Иванова, Максим Матвеев, Егор Бероев, Артем Фадеев, Владимир Вдовиченков, Сергей Газаров, Гоша Куценко, Анатолий Белый, Кирилл Плетнёв, Алексей ГуськовПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468593   (82782) от 17.03.2012
-
-Твин Пикс / Twin Peaks (1990-1991) DVDRip [H.264] (Сезон 1-2, серии 0-30 из 30 + Log Lady Intro) [ОРТ + Ю. Живов + Ю. Сербин]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мистический сериал-загадка. Кто убил Лору Палмер? В 1990 году этим вопросом было взбудоражено все население Соединенных Штатов, доселе не подозревавшее о существовании городка Твин Пикс.Производство: СШАЖанр: Драма, Мистика, ДетективРежиссер: Дэвид ЛинчАктеры: Кайл МакЛоклен, Майкл Онткин, Дэна Эшбрук, Ричард Беймер, Лара Флинн Бойл, Шерилин Фенн, Медкен Эмик, Уоррен Фрост, Пегги Липтон, Эверет МакГиллПеревод: Многоголосый профессиональный закадровый (ОРТ), Авторский  (Живов Юрий - только первый сезон кроме пилота),  Авторский (Сербин Юрий)Язык субтитров: РусскийПродолжительность: ~ 27:20:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469443   (82783) от 17.03.2012
-
-Resident Evil 4 HD: The Darkness World (RePack) [Ru] 2007 (2011) | Mr. Vansik
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ракунский ад остался позади. Шесть лет прошло после уничтожения города и всех его обитателей, давно переставших быть людьми. Леон Кеннеди, некогда служивший в полиции Ракун-Сити и прошедший от начала до конца кошмар второй части "Resident Evil", нашел себе спокойную работу. По крайней мере, служба в секретном отделении при президенте страны не доставляла особых хлопот, пока у главы государства не похитили дочь. Расследование привело Леона в богом забытую европейскую деревушку. Ну что в ней может быть страшнее бородатых типов с автоматами, укравших президентское чадо? Кажется, ничего, однако деревня оказалась не только забыта, но и проклята… К "Resident Evil 4" сериал не зря шел долгие годы. Четвертая часть - апогей творчества Capcom. Медлительные, недалекие зомби остались в прошлом, новый противник силен, агрессивен, коварен, но… кто он? Обветшалое село бдительно охраняет ответы. Сможете проникнуть в его тайны? В версии для PC эта лихо закрученная детективная история будет украшена новыми подробностями. Игроков ждут 5 дополнительных глав с неожиданным сюжетным поворотом, ведь главной героиней станет Ада Вонг, таинственно исчезнувшая шесть лет назад. Также среди многочисленных бонусов – новое оружие и уникальные костюмы для персонажей игры.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский (только видео)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7084AD2C13FF8D1D6F08E5E0A360E52CB0C60FE
 ```
 
 

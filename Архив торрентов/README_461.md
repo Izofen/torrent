@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100457.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DJ Kocmoc - Electro Sensation vol.25 (17.04.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100458.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100459.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fear Factory - Recharger [Single] (2012) [MP3|256 кб/с]<Death Industrial / Gr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100461.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DJ Kocmoc - Electro Sensation vol.26 (23.04.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100466.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:5043E2DDD9E9F38254174D8AA5432BA623FDB7C9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100468.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Disfunktion - Snooki (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100471.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wise Registry Cleaner 7.16 Build 454 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100478.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100478.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Alpha Kawu - Cryogenic time (2011) [MP3|320 кб/с]<Ambient / Easy listening / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100485.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Before The Dawn - Rise Of The Phoenix (2012) [MP3|256 кб/с]<Melodic Death Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100490.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:582F7C1D171283879AB3554AE71F1E7E54A3D674
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100491.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:D124AA99347E7C399293416FD06C53A2F324B831
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100492.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Brendan Benson - What Kind Of World (2012) [MP3|320 кб/с]<Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100493.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:009EA992CAA0B83C201FDFB0C46820C77CA0D982
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100494.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100495.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:8E3C0BA23716F1C9289E3D211959E83F15A0B9B1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100497.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100499.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100500.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100501.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100502.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100503.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:090574B70836FA8DAD83CE19F80AEF001BDE246D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100505.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:E578BA47F972E874CFE40CF72B85FDDA8DB84345
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100507.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100510.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100511.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100513.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1827489   (188091) от 21.10.2025
+
+Smart AudioBook Player Pro v11.5.5 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 21.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0210EC9E4A4E37C3ADD6C2ACC59986366DC0C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827487   (188093) от 21.10.2025
+
+Vanced Tube v5.5.80.115 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 21.10.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF8320EE4513413EA4951D5EEA90587C5752FD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661958   (188186) от 16.09.2023
+
+CarBit ELM327 OBD2 v3.5.2 Mod by vedserega [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для диагностики автомобиля, позволяет отображать данные различных электронных блоков (ЭБУ/ECU), используя OBD II ELM327 (ЕЛМ327) адаптер , выводить графики в реальном времени, а так-же сохранять их и просматривать позже, читать и стирать ошибки OBD 2 (DTC).
+Есть возможность настроить минимальное/максимальное значение для каждого датчика/PID, при выходе (   Читать дальше...   )Тип издания: ProРелиз состоялся: 21.07.2023Разработчик: MDA VRPПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCB626523EEA28458BE5CC8E5EABD3F6385B20A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661917   (188200) от 16.09.2023
 
 Грибы v1.4.0 Mod by vadj [Ru]
@@ -6,7 +79,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188200.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188200.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:7E61AE11035D6600C864DB0B41193AA198A94701
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188214.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188214.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ AccuBattery Pro 2.1.2 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188768.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188768.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:F2D24438CA2C8D2024FFFAD44E439682F57D8F04
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189045.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189045.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:D5C0EFE802C6B0C5CFE02358B5BC98BE4E091324
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189054.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189054.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:CB5E8D951483315CF54430B47F12450535661320
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189233.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_189233.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ Turbo VPN - Secure VPN Proxy / безопасный ВПН 3.9.7.5 Mod by Brown 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189552.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189552.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ VPN Monster - Secure VPN Proxy 2.0.1.5 Mod by RBMods [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189592.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189592.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Moon+ Reader Pro 8.4 (804001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189752.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189752.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189862.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189862.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ Picture Mushroom - Mushroom ID v2.9.20 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189970.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189970.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ Picture Bird - Bird Identifier v2.9.25 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190008.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190008.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190413.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190413.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ magnet:?xt=urn:btih:1CF7ED8E20A9FB0040BF223DC5225B58E2617535
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190452.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190452.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190490.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190490.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ Melon VPN - Secure Proxy VPN 7.9.215 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190492.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190492.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ Relax Night ~ Nature Sounds v5.13.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190516.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190516.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ Picture Mushroom - Mushroom ID v2.9.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_190742.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_190742.jpg" />
 </div>
 
 
@@ -451,7 +524,7 @@ magnet:?xt=urn:btih:F37EC6A613A660C3D2790FB4B18455EFC5BFB97A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190850.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190850.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ ElectroCalc - DIY Electronics v3.9  Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190890.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190890.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ magnet:?xt=urn:btih:9E281DCC701623818ABA1A7008434966547AC1A1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190891.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ Plus Messenger (Telegram+) v10.0.5.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190921.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190921.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ PREQUEL: Редактор фото и видео v1.51.0 Mod by Dymonyxx [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190966.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_190966.jpg" />
 </div>
 
 
@@ -558,78 +631,6 @@ PREQUEL — это фоторедактор с огромным количест
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C81FF156349E4EE71C6BC85AEB5267544523D6A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658529   (191236) от 08.09.2023
-
-Frolomuse: Музыкальный Плеер 7.3.1-R Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frolomuse - бесплатный музыкальный плеер, с мощным эквалайзером, стильным дизайном и другими функциями, которые сделают прослушивание музыки удобным и приятным. Огромное количество опций для просмотра и прослушивания музыки заставит вас полюбить это приложение. Наслаждайтесь музыкой с музыкальным плеером Frolomuse!Тип издания: PremiumРазработчик: FroloAppsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFCA6952521C9707121183B4953F52FECD835146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588569   (191266) от 05.11.2022
-
-Jellify - Живые фотографии v1.4.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jellify – приложение которое может накладывать забавные фотоэффекты. Но помимо этого, вы сможете создавать забавное изображение, так еще и сможете анимировать готовую фотографию. После ваших внесенных исправлений она оживет, и те части, которые вы исправили, будут двигаться. Вы можете сделать это как с фотографией из вашей галереи, так и с только что сделанной фотографией. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 21.10.2022Разработчик: Vacuapps s. r. o.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1743FF752E449E1BB62F71E5D23F0FB67E2FFE21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658531   (191275) от 08.09.2023
-
-Frolomuse: Музыкальный Плеер 7.3.1-R Mod by LITEAPKS [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frolomuse - бесплатный музыкальный плеер, с мощным эквалайзером, стильным дизайном и другими функциями, которые сделают прослушивание музыки удобным и приятным. Огромное количество опций для просмотра и прослушивания музыки заставит вас полюбить это приложение. Наслаждайтесь музыкой с музыкальным плеером Frolomuse!Тип издания: PremiumРазработчик: FroloAppsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
 ```
 
 

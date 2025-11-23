@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17817.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A6431D8CC74A3078467E40ADA9BDFAD79E00B488
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17818.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C24E053CA1AECD1C2518E406587D1EA022D22F28
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17819.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Internet Download Manager 6.42 Build 37 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17820.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:3197AF1206BF9EAD518876BB83FB4020AEA57672
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17821.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Internet Download Manager 6.42 Build 37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17822.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка (2014
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17823.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Suzuka | Suzuka | Судзука (2004-2007) [18 томов, 166 глав + Эк
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17824.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Fuuka | Fuuka | Фуука (2014-2018) [20 томов, 195 глав + Экстр
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17825.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:CA6FC59B829542FB08B4B4AD667DC60BE2892139
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17826.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:CA6FC59B829542FB08B4B4AD667DC60BE2892139
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17827.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:CA6FC59B829542FB08B4B4AD667DC60BE2892139
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17828.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:CA6FC59B829542FB08B4B4AD667DC60BE2892139
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17829.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C59D12132C92F2FE1D07E3883E61501F70B22EDA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17830.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:B726125DE653A797203A9C59BB6D04828BFE78E4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17831.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:ACD6CFA14B86EE5E158AD33A8B88D6A5357D3D30
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17832.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B1662271FE7AC028F6ECBE0976E72B545DB4B27D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17833.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Kimi no Iru Machi | A Town Where You Live | Город, в котором ты �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17834.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9C7A5A1CE72BDC1407CFDE47E6A358932E6D40CF
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17835.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:4BFB531FBD686DAB9E832C659AA17B6331B20AC0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17836.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:49CDFC97FE48DE853FF4BCF81414421185A4B5F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17837.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:6494D2DB2E3B8678139797B710D9D98C107FE552
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17838.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:D35DEBCB0A7D8FBE05C5AEE8BD888F772F3A2732
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17839.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:48556B824F4396CC05EA6CBC414B828C5051BED7
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17840.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:0FD6DCB41D73B7FCCD09371278BBBF018CB28CC1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17841.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:ED10431E575C947D8D799FA7916B6043698A0E98
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17842.jpg" />
 </div>
 
 

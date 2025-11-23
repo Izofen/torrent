@@ -1,3 +1,81 @@
+###  Публикация: 1770181   (100561) от 30.12.2024
+
+Queen - Innuendo (1991) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 2024, EMI [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innuendo
+02. I’m Going Slightly Mad
+03. Headlong
+04. I Can’t Live With You(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877F142B8F6EBAD58F09EFE233DD4B1915B4E342
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770026   (100562) от 30.12.2024
+
+Steel Rain (2015) [Multi] (1.9.0b) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steel Rain - уникальная инди-игра, которая в равной степени совмещает в себе три жанра - горизонтальный шутер, стратегию и RPG. В промежутках между сражениями, Вы сможете строить и развивать свою собственную колонию, изучая новые технологии. Добавьте к этому десяток разноплановых уровней, эпичные сражения с боссами и множество технологий и улучшений, которые предстоит (   Читать дальше...   )Тип издания: LicenseРазработчик: PolarityFlow, Adrian ZinggЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Португальский, Бразильский ПортугальскийЯзык интерфейса: Английский, Немецкий, Португальский, Бразильский Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735C87CC5ABDB9B970B2D365118B8BBA48F0CDE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769793   (100563) от 30.12.2024
+
+Queen - The Works (1984) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 2024, EMI [FLAC|Lossless|image + .cue] <Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Ga Ga
+02. Tear It Up
+03. It’s a Hard Life
+04. Man on the Prowl(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29DCEC253F2A1D730F97740045A92C97B49D57A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769827   (100564) от 30.12.2024
 
 Н.Г. Георгиева, В.А. Георгиев, А.С. Орлов | Иллюстрированный исторический словарь (2016) [PDF]
@@ -6,7 +84,7 @@
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100564.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ magnet:?xt=urn:btih:F801C157BB76CCE385D0CEC3D40CA42A4F4DF037
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100565.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ magnet:?xt=urn:btih:AC90642C70B1AA1B98776583C63BD61A8A73A31E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100566.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:05A212B692269E935FEE6C18A312AEDBEA0587E8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100567.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ Filmora - Редактор видео с AI v14.3.61 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100568.jpg" />
 </div>
 
 
@@ -130,7 +208,7 @@ magnet:?xt=urn:btih:6782AE5C528A57C9DE69B11A2002ABE7B821CFAF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100569.jpg" />
 </div>
 
 
@@ -154,7 +232,7 @@ magnet:?xt=urn:btih:42CD321AF1F8634EE946A19E975E63B1794C7748
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100570.jpg" />
 </div>
 
 
@@ -178,7 +256,7 @@ magnet:?xt=urn:btih:17EC9246B93EDDDABB02B583B076A035909F77C6
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100571.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ magnet:?xt=urn:btih:AD1F475FFD8CA315642D508A414FF7284793D4C6
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100572.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ magnet:?xt=urn:btih:3F1505D3D7324F37A3FD58CA0DCD90DD968C14D0
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100573.jpg" />
 </div>
 
 
@@ -253,7 +331,7 @@ magnet:?xt=urn:btih:4521F08F11B77809B783F11A2523B3DDE41B9C86
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100574.jpg" />
 </div>
 
 
@@ -277,7 +355,7 @@ magnet:?xt=urn:btih:F1E034F1E049A07B556AADD30D7E6C073E6D07C1
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100575.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ magnet:?xt=urn:btih:9844D0D5506B00375345337C7D0FDE834BE9A370
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100576.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ Hauma: A Detective Noir Story (2023) [Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100577.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ magnet:?xt=urn:btih:EACADD59162534E0BD6507FC38A7C446CDF6CB97
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100578.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ magnet:?xt=urn:btih:16F524D2C1F60FF2BD0BD55C1BFD6310706198A0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100579.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100580.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100581.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ magnet:?xt=urn:btih:D57626AF087AC972E1CDFCA5226AF1D8D839F39D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100582.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ magnet:?xt=urn:btih:9CA76FCFDCBBFD46F2D9620E7E0160127EBC1834
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100583.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ magnet:?xt=urn:btih:813703CD085EBB915BCA9EA5C2CDCB9C30B85384
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100584.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ VA - The Magic of Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100585.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ magnet:?xt=urn:btih:B04DFD97CFC05C19B871DC47F2B622324FB6349D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100586.jpg" />
 </div>
 
 
@@ -563,85 +641,6 @@ magnet:?xt=urn:btih:B04DFD97CFC05C19B871DC47F2B622324FB6349D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E409670994F58B7F979F78584A4C328E92C0AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769812   (100587) от 30.12.2024
-
-Ф. Гутман, Л. Лайонс | Органические полупроводники (1970) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателей книга известных австралийских ученых Ф. Гутмана и Л. Лайонса является первым зарубежным изданием, в котором собраны и обработаны результаты исследований органических полупроводников, выполненных в нескольких тысячах оригинальных работ.
-В книге большое внимание уделено различным теоретическим подходам к изучению физики органических (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1007E8166FEE9B5820041A3A978C4FEFC98974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769773   (100588) от 30.12.2024
-
-VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumanov - Mirage
-02. Akmalov - Living is Beautiful
-03. Azimov - Leave Me
-04. Jumanov - Fight for Life(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195EA66C63D3617E1F62C1A18D3136D9487BC7C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769724   (100589) от 30.12.2024
-
-VA - Рождественский романс (2015) [MP3|320 Kbps] <Романсы>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Юрий Визбор - Милая моя [00:02:03]
-02 - Елена Фролова - Сегодня таяло, сегодня… [00:03:14]
-03 - Тамара Гвердцители - Элегия [00:04:24]
-04 - Марина Капуро, группа Яблоко - Однозвучно гремит колокольчик [00:03:58](   Читать дальше...   )Жанр: РомансыПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 ```
 
 

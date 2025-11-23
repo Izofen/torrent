@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16929.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16930.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E5B8E795C0999A6F6B0DE478DDE89F31A2C87D72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16931.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16932.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) License G
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16933.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1CAAA7C7728D142429A876923A8FE4F1FF86458B
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16934.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:52ABE06AAC2A928C528F036BC1E78B51B87E9335
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16935.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E012DAC38D763D9E44514C51933BA5C44D619DE2
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16936.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:93F43E5E50FFE3E0E79D7D9B5E3EF50A26BA54D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16937.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ByeByeDPI 1.4.10 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16938.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:A23B6C8B739A1D288E8E02C2FD2D697F2E5FBB1A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16939.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:55684C7426B78D4E8CA5242F07C757FBD1F0406B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16940.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - SHAZAM TOP HITS 2025 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16941.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:21C43D7AE28B8CCE9C398ADAB9FBE03981D16B2C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16942.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Death - Leprosy (1988) 2XCD, Reissue, Remastered, 2014, Relapse Records [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16943.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:6CEC17168878F475A4985406039D53D33562C620
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16944.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16944.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Tush - Thunder Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16945.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:3B0C1B53EEBF10A9BD211C355A82F7FF8070A1F9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16946.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16946.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WinCatalog 2024.11.0.520 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16947.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ FBReader Premium v3.8.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16948.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:471FB62100842DC07CB506A24A4C33BC442CA738
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16949.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1314C680DDA921E433B2E73B57A5ACA6EDCD93F0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16950.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:60448DD04B54D499385DFAE1A526A9FB958BE363
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16951.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:DB4ED964372D36BFC6BBE81EE578133B9A0A9652
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16952.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VRadio - Online Radio App v2.8.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16953.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:9F7247A2339ACB5ACA599B00612EAF7D7E2DA08B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16954.jpg" />
 </div>
 
 

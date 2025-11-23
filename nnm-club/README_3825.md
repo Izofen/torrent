@@ -1,3 +1,83 @@
+###  Публикация: 1697052   (119132) от 05.02.2024
+
+Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One Last Ride (00:04:08)
+02 - King Of Kings (00:04:13)
+03 - The Dark Portals Of Agony (00:04:03)
+04 - Dwarven Storm (00:05:58)(   Читать дальше...   )Жанр: Power, Symphonic MetalПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55F1EA7BBA24FD6CCB86237CC23BFC9485C6B94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697091   (119133) от 05.02.2024
+
+Н. Г. Бутейкис | Организация производства предприятий общест­венного питания (1990) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены вопросы организации производства предприятий общест­венного питания, прогрессивные формы обслуживания потребителей.
+Особое внимание уделено организации работы столовых на промышленных предприятиях. В 3-м издании (2-е - 1985 г.) рассмотрены новые виды оборудования, используемого на предприятиях общественного питания.
+Для  учащихся  ПТУ и лиц, обучаемых на производстве.Жанр: Учебная литератураИздательство: Высшая школаФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAADC48066B8AE82477503FFF2367B7F67B66D54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696669   (119134) от 05.02.2024
+
+DJ PafTron - Freestyle Arena (2023) [MP3|320 Kbps] <Freestyle, Electronic, Breakbeat>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Freestyle Arena (Сontents Skit)
+02. Freestyle Electric
+03. Freestyle Electric 2
+04. Freestyle Jamix(   Читать дальше...   )Жанр: Freestyle, Electronic, BreakbeatПродолжительность: 03:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A67EF2DC289FA775DF7F71D7B40A53F57C9A433
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697221   (119135) от 05.02.2024
 
 Lacey Free Music & Video Downloader 2.93 Portable [Multi/Ru]
@@ -6,7 +86,7 @@ Lacey Free Music & Video Downloader 2.93 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119135.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:EEC3546CB997AB54B32DB9756856A4A20D987C04
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119136.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ K-Lite Codec Pack Update 18.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119137.jpg" />
 </div>
 
 
@@ -78,7 +158,7 @@ magnet:?xt=urn:btih:20B31E62FD74689D4A970EE592430B9BB6FB59E8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119138.jpg" />
 </div>
 
 
@@ -102,7 +182,7 @@ Metallica - Metallica (1991) 1st German Press [APE|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119139.jpg" />
 </div>
 
 
@@ -129,7 +209,7 @@ magnet:?xt=urn:btih:340E6BE24434DCB09BAE48133BCC3E2FB87230E6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119140.jpg" />
 </div>
 
 
@@ -153,7 +233,7 @@ Chromium-Gost 121.0.6167.139 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119141.jpg" />
 </div>
 
 
@@ -178,7 +258,7 @@ magnet:?xt=urn:btih:EB3A87E569A02FE22956CC258987134944B2D58A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119142.jpg" />
 </div>
 
 
@@ -205,7 +285,7 @@ magnet:?xt=urn:btih:A550CF477DA2F1CAD288CD83DD3F45F6AD9FFCBB
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119143.jpg" />
 </div>
 
 
@@ -230,7 +310,7 @@ magnet:?xt=urn:btih:6F0ACDABF0404369561AC8B46051596A705B9911
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119144.jpg" />
 </div>
 
 
@@ -254,7 +334,7 @@ Attribute Changer 11.30a + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119145.jpg" />
 </div>
 
 
@@ -279,7 +359,7 @@ OneCommander Pro 3.68.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119146.jpg" />
 </div>
 
 
@@ -304,7 +384,7 @@ magnet:?xt=urn:btih:8B554BDA99AFBAEEB8865680E8B00AF7E38B2F71
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119147.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ The Outside Agency - Machine Visions (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119148.jpg" />
 </div>
 
 
@@ -360,7 +440,7 @@ Kim Wilde - Love Moves (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119149.jpg" />
 </div>
 
 
@@ -387,7 +467,7 @@ Zoner Photo Studio X 19.2309.2.517 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119150.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ magnet:?xt=urn:btih:78A6AEA945D875AF31B8B13991CF9C8D8BCCFC85
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119151.jpg" />
 </div>
 
 
@@ -435,7 +515,7 @@ VA - Моя Любимая... (1995) German Press [APE|Lossless|image + .cue] <R
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119152.jpg" />
 </div>
 
 
@@ -462,7 +542,7 @@ magnet:?xt=urn:btih:16D46FA013C8AA91CEB92DB6DB6F4F55363EFB4F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119153.jpg" />
 </div>
 
 
@@ -486,7 +566,7 @@ XMind Pro 2024 24.03 beta [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119154.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ Garmin: City Navigator Thailand NT 2023.40 Globetech [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119155.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ magnet:?xt=urn:btih:79542DE67127BAB01DC163B3F16BD6B1942382E6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119156.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ magnet:?xt=urn:btih:53C680A92CE81102AAC9F70A69318DDF21C9DCE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119157.jpg" />
 </div>
 
 
@@ -571,79 +651,6 @@ magnet:?xt=urn:btih:53C680A92CE81102AAC9F70A69318DDF21C9DCE7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4C3E05ECD0CC590B74C02D4B2B7C2F86BE8A31C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697096   (119158) от 05.02.2024
-
-Никто не расскажет о нас, когда мы умрем / Nadie hablara de nosotras cuando hayamos muerto (1995) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119158.jpg" />
-</div>
-
-
-###  Подробнее
-
-История несчастной алкоголички Глории Дукью, бедной проститутки в Мехико. Первые кадры с ней – оральный секс с несколькими барыгами, когда они толкают наркотики. Что-то идет не так и два коррумпированных правительственных агента и местный бандит погибают. Она улетает в Мадрид, в родной город…Производство: Испания / Canal+ España, Sogepaq, Xaloc, CARTEL (Creativos Asociados de Radio y Televisión) S.A.Жанр: Триллер, драма, криминалРежиссер: Агустин Диас ЯнесАктеры: Виктория Абриль, Пилар Бардем, Федерико Луппи, Анхель Алькасар, Мария Аскерино, Фернандо Дельгадо, Даниэль Хименес Качо, Ана Офелиа Мургия, Гильермо Хиль, Бруно БичирПеревод: Авторский (Антон Алексеев)Язык озвучки: Русский, ИспанскийСубтитры: АнглийскиеПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF6250582F7566989C5BB2FF9C857EDAA6AC475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697241   (119159) от 05.02.2024
-
-Glarysoft Malware Hunter PRO 1.179.0.799 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
-Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC8E92B71720A8CCEEF97332D66845A0F40BA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697076   (119160) от 05.02.2024
-
-Д.А. Жолобов | Введение в математическое программирование (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены методы решения задач линейного и дискретного программирования. Теория линейного программирования содержит обоснование симплекс-метода, теорию двойственности. Рассмотрены методы увеличения вычислительной эффективности решения задач большой размерности. Раздел, посвященный дискретному программированию, включает в себя транспортную задачу, методы решения (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МИФИФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39454A27CD1B4D63DD7F42F16E1F020CDB57EDB1
 ```
 
 

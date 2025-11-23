@@ -1,3 +1,176 @@
+###  Публикация: 1597670   (159208) от 25.12.2022
+
+Вадим Булаев | Про Иванова, Швеца и прикладную бесологию [6 книг] (2019-2021) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная серия их 6-ти книг
+У них нет ни Chevrolet Impala, ни фотогеничной внешности, ни героических взглядов. Они даже не смотрели сериал «Сверхъестественное». Потому двое сотрудников Департамента Управления Душами вступят в бой с проявлениями адских и не очень созданий исключительно по собственному разумению.Жанр: Городское фэнтези, Фантастический детективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA85C813ABB2D6325D0B5093DAECCA58EBC7B4DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599868   (159209) от 25.12.2022
+
+СантаМэн / Santaman (2022) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Санта Клаус устаёт быть терпеливым дедушкой и превращается в супергероя СантаМэна, обзаведясь набором гаджетов и боевым костюмом. Вместе с двумя детьми он пытается помешать самому вредному хулигану, который хочет уничтожить Рождество.Производство: США / Sono Studios AnimationЖанр: мультфильм, приключения, семейныйРежиссер: Брэт ШтернПеревод: дублированныйСубтитры: отсутствуютПродолжительность: 01:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CB7B9961EF373FAF1E7D08847EE64F426E2E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599848   (159210) от 25.12.2022
+
+М. Пелехатый, Е. Спирица | Цель на 360. Управляй судьбой (2022) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159210.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого человека есть свои цели и мечты, свои намерения, ценности и потребности, при этом стремление получить желаемое у всех одно: кто-то хочет бросить курить, рано вставать, заняться спортом; кто-то желает похудеть, начать правильно питаться, стать красивым; кто-то – выучить новый язык, переехать в другую страну, путешествовать; кто-то мечтает увеличить доход, (   Читать дальше...   )Жанр: Популярная психологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CD461E857BFFEB37182CA73D7BD5AFB10C2B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599886   (159211) от 25.12.2022
+
+Дмитрий Мазуров | Громовая поступь (Книга 5). Гроза восстания (2022) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покорение Гробницы Бессмертного мага было завершено. Что же теперь? О нет, вновь учёба! И не сказать чтобы Кассиус Блайт был уже так против неё, но… хотелось хоть иногда отдыхать. Если уж учебный год начался так напряжно, то что будет дальше?
+
+Тут ещё и пришло странное письмо от старой знакомой, а в городе вспыхивают какие-то странные волнения. Спокойная учёба? Без (   Читать дальше...   )Жанр: Боевое фэнтези, РеалРПГПродолжительность: 08:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E8B5656F98657C1ADE886701B0CFC9D82B487E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599973   (159212) от 25.12.2022
+
+О. Абакумов | Мне только спросить. Как болеть и лечиться правильно (2023) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги Олег Абакумов, известный врач-терапевт, топовый блогер. Вы узнаете всё о симптомах и причинах самых распространенных заболеваний - от ОРВИ до гипотиреоза, болезней сердца, почек, и др., а также о подходе к лечению болезней с точки зрения доказательной медицины. В книге даны подробные списки анализов и обследований для всех возрастов. Перечислены бесполезные (   Читать дальше...   )Жанр: Популярная анатомия и физиологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A754C02B0D685F4673E38A8891FFEDBCAC0BE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676116   (159213) от 11.11.2023
+
+Преступление в фокусе (2014) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модный столичный фотограф Алекс снимал все сливки столичной жизни. Слава, деньги, обожание женщин. Его жизнь пошла под откос после случайного кадра в парке. За Алексом началась настоящая охота. Чудом Алексу удалось бежать от бандитов. Его спасла простая девушка Катя. Благодаря ей, Алекс по-новому взглянул на жизнь. У него появились силы посмотреть опасности в лицо (   Читать дальше...   )Производство: Украина, Star MediaЖанр: детективРежиссер: Анатолий ГригорьевАктеры: Александр Давыдов, Ольга Олексий, Анатолий Ященко, Николай Боклан, Наталия Васько, Андрей Саминин, Виталий Линецкий, Алина Гросу, Майя Кузьмишина, Леся Самаева и др.Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DA9E94CCB182D378CB7CDAC957E164D9A7F6BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600026   (159214) от 25.12.2022
+
+Клер Шикуан | DIY. От макраме и вышивки до каллиграфии и флористики (2019) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159214.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге, созданной сотрудницами парижской творческой студии Seize, вы найдете более 60 мастер-классов по разным видам рукоделия — от шитья и вязания до плетения из проволоки и бисера — с подробными инструкциями и красочными иллюстрациями. Работы сгруппированы по сезонам, что делает книгу актуальной в любое время года.
+
+Адресована всем любителям создавать украшения, (   Читать дальше...   )Жанр: рукоделие и ремеслаПеревод: Елена КуприяноваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93C1C3D1A92758BDE494BF369901A9064FDA925
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675669   (159215) от 11.11.2023
 
 VA - Immense slow blues (2023) [MP3|320 Kbps] <Blues>
@@ -6,7 +179,7 @@ VA - Immense slow blues (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159215.jpg" />
 </div>
 
 
@@ -33,7 +206,7 @@ WPS Office + PDF 18.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159216.jpg" />
 </div>
 
 
@@ -57,7 +230,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by maxi123444 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159217.jpg" />
 </div>
 
 
@@ -81,7 +254,7 @@ magnet:?xt=urn:btih:54CEE7A823476478953F0D226FA23BA4BE200224
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159218.jpg" />
 </div>
 
 
@@ -106,7 +279,7 @@ magnet:?xt=urn:btih:668027A2AEF9FF88C453B6EA56BE115F1CF725C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159219.jpg" />
 </div>
 
 
@@ -130,7 +303,7 @@ DVDFab StreamFab 6.1.4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159220.jpg" />
 </div>
 
 
@@ -154,7 +327,7 @@ Kalachevaschool, Анна Чайникова | Рассвет акрила. Та
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159221.jpg" />
 </div>
 
 
@@ -181,7 +354,7 @@ Notepad++ 8.4.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159222.jpg" />
 </div>
 
 
@@ -205,7 +378,7 @@ magnet:?xt=urn:btih:091EEED535CBAED596731904C13E3303E131A05D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159223.jpg" />
 </div>
 
 
@@ -230,7 +403,7 @@ magnet:?xt=urn:btih:6AB52138E526500CECC1343CAAF17F13A27FD067
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159224.jpg" />
 </div>
 
 
@@ -257,7 +430,7 @@ magnet:?xt=urn:btih:8DC9E42DB57E44851F412EC0BADACB928051BC83
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159225.jpg" />
 </div>
 
 
@@ -282,7 +455,7 @@ magnet:?xt=urn:btih:359A7AAE86305D4BBACBE766478B912FD6F03586
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159226.jpg" />
 </div>
 
 
@@ -306,7 +479,7 @@ VA - Easy Listening Chill Affairs, Vol. 3 (2023) [MP3|320 Kbps] <Electronic, Eas
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159227.jpg" />
 </div>
 
 
@@ -333,7 +506,7 @@ magnet:?xt=urn:btih:12BBF60B714ECAACD392A81F2E8919A510E85FEC
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159228.jpg" />
 </div>
 
 
@@ -360,7 +533,7 @@ MailWasher Pro 7.12.184 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159229.jpg" />
 </div>
 
 
@@ -385,7 +558,7 @@ magnet:?xt=urn:btih:FC94B54F205E40EA9C115D7BFE7D4D68B0957967
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159230.jpg" />
 </div>
 
 
@@ -411,7 +584,7 @@ magnet:?xt=urn:btih:0A01E7A4F812A5FDD0383F7D5BC572F0AF60FF94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159231.jpg" />
 </div>
 
 
@@ -435,7 +608,7 @@ Image Uploader 1.3.3 Build 4957 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159232.jpg" />
 </div>
 
 
@@ -459,7 +632,7 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159233.jpg" />
 </div>
 
 
@@ -470,186 +643,6 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F376AE575070459604E8C5475B39163D950363AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600066   (159234) от 25.12.2022
-
-Гера Треер | Напитки с градусом и без. Круглый год (2022) [EPUB]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вино, старинные наливки, оригинальные настойки, восхитительные ликеры, нежнейшее пиво, утоляющие жажду крюшоны и согревающие в непогоду глинтвейны. Наши рецепты для любого времени года и для самых разных поводов к торжеству – от скромного в узком семейном кругу до многодневного свадебного или значительного юбилейного.Жанр: Безалкогольные напиткиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C0A239432777760FD5ECB720C62CB22849C3D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676057   (159235) от 11.11.2023
-
-VA - Easy Listening Chill Affairs, Vol. 1 (2022) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun – Desire (05:57)
-02. Judith Ahrends – Wanderer (04:48)
-03. Sunset Boulevard Project – At the Beach (06:15)
-04. Giorgio Moroder – Our Love (J.C Fous de la Mer Forever Instrumental Mix) (06:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, DowntempoПродолжительность: 02:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA52E945368D7BB07A256609E32173C216A6777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599966   (159236) от 25.12.2022
-
-Cockos REAPER 6.73 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0B0FF392117CB71C3FA752B0220C636A34A98E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676011   (159237) от 11.11.2023
-
-Frank Sinatra - Platinum (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159237.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lean, Baby
-02. I’ve Got The World On A String
-03. I Get A Kick Out Of You(   Читать дальше...   )Жанр: Jazz |Продолжительность: 02:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96205723E545A5ECBA0F0719B08977EF31D9A7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406617   (159238) от 25.12.2022
-
-The Rolling Stones - Goats Head Soup (1973) 3CD, Deluxe Edition, 2020, Polydor Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brown Sugar (Live / Forest National Arena, Brussels / 17/10/73) [00:03:55]
-02. Gimme Shelter (Live / Forest National Arena, Brussels / 17/10/73) [00:05:33]
-03. Happy (Live / Forest National Arena, Brussels / 17/10/73) [00:03:14]
-04. Tumbling Dice (Live / Forest National Arena, Brussels / 17/10/73) [00:05:04](   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 3 CD, 02:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BCA16DFD78E6356C5AA5779EF4BBA1FFA739E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676070   (159239) от 11.11.2023
-
-VA - Female pop assorted compilation part  40 (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessica Jay - Chichiquitta
-02. Jessica Jay - Chilly Cha Cha
-03. Valerie Dore - Get Closer
-04. Valerie Dore - Lancelot(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6168E70C83390BC3FAB5D3A569160B63C114F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599816   (159240) от 25.12.2022
-
-Форсаж 9 / F9 (2021) WEBRip [H.264/720p] [Режиссерская версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доминик Торетто ведет спокойную жизнь в глуши вместе с Летти и сыном Брайаном, но опасность всегда где-то рядом. Команде приходится снова собраться, чтобы спасти Мистера Никто после крушения самолёта, на котором перевозили пойманную хакершу Сайфер. На месте аварии команда обнаруживает загадочное устройство и вскоре сталкивается с опасным преступником и самым безбашенным (   Читать дальше...   )Производство: США, Таиланд, Канада / One Race Films, Roth/Kirschenbaum Films, Perfect Storm EntertainmentЖанр: боевик, криминал, приключенияРежиссер: Джастин ЛинАктеры: Вин Дизель, Джон Сина,Тайриз Гибсон, Лудакрис, Джордана Брюстер, Натали Эммануэль, Мишель Родригес, Сон Ган, Шарлиз Терон, Анна СаваиПеревод: Дублированный (со вставками Д. Есарева), АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), украинские (Forced), английские (Full, SDH)Продолжительность: 02:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F83A0A7E1135E44758E2C37607E2AD924708CD
 ```
 
 

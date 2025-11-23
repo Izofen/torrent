@@ -1,3 +1,80 @@
+###  Публикация: 1346215   (164562) от 18.12.2019
+
+A.S.M. (A State of Mind) - Color Wheel (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Alternative Rap, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sesame (1:36)
+02. Grape (4:36)
+03. Burgundy (3:09)
+04. Champagne (3:11)(   Читать дальше...   )Производство: Chinese Man Records - CMR048DIGЖанр: Hip-Hop, Alternative Rap, Electronic, R'n'BПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9296F1A4BF6050B1EA3D79C3A5CBECFB74BAEAE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673756   (164563) от 02.11.2023
+
+iPulse 3.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи клиентов использовали iPulse, чтобы следить за производительностью своего Mac с момента его представления еще в 2002 году.
+Используя лаконичный и привлекательный пользовательский интерфейс, iPulse графически отображает внутреннюю работу macOS на рабочем столе, в строке меню или в Dock. Презентация полностью настраивается, поэтому вы можете установить именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.04.2023Разработчик: © 2021 The Iconfactory, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D596F0C290C73FFAFC7B6DCDAC999ED9A367862F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517021   (164564) от 13.12.2021
+
+BusyCal 2021.4.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164564.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
+BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2021Разработчик: © 2021 BusyCal, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4F84FFC6F48B5351A72415EA83BB7FE6939E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597740   (164565) от 16.12.2022
 
 WinRAR 6.20 Beta 3 [Ru/En]
@@ -6,7 +83,7 @@ WinRAR 6.20 Beta 3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164565.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Mia for Gmail 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164566.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ Stats 2.6.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164569.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ PaintCode 3 v3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164571.jpg" />
 </div>
 
 
@@ -102,7 +179,7 @@ Lanark Artefax - Live - No Bounds Festival 2019 (2019) [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164572.jpg" />
 </div>
 
 
@@ -126,7 +203,7 @@ Noir – Dark Mode for Safari 2023.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164573.jpg" />
 </div>
 
 
@@ -152,7 +229,7 @@ magnet:?xt=urn:btih:51AB48D05403F51E90869044E900D7816B2D68E9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164576.jpg" />
 </div>
 
 
@@ -176,7 +253,7 @@ Office 2013-2021 C2R Install + Lite 7.5.0.1 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164577.jpg" />
 </div>
 
 
@@ -203,7 +280,7 @@ GoodNotes 5 v5.7.54 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164578.jpg" />
 </div>
 
 
@@ -228,7 +305,7 @@ Magic Disk Cleaner 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164579.jpg" />
 </div>
 
 
@@ -252,7 +329,7 @@ FastScripts 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164586.jpg" />
 </div>
 
 
@@ -277,7 +354,7 @@ Klokki 1.1.2 (build 28) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164591.jpg" />
 </div>
 
 
@@ -301,7 +378,7 @@ Cocktail Big Sur Edition 14.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164594.jpg" />
 </div>
 
 
@@ -325,7 +402,7 @@ AIDA64 Extreme | Engineer | Business 6.85.6300 RePack (&Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164598.jpg" />
 </div>
 
 
@@ -349,7 +426,7 @@ Aiseesoft Mac Blu-ray Player 6.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164599.jpg" />
 </div>
 
 
@@ -373,7 +450,7 @@ ColorWell 7.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164603.jpg" />
 </div>
 
 
@@ -397,7 +474,7 @@ DirEqual 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164607.jpg" />
 </div>
 
 
@@ -422,7 +499,7 @@ OmniReader Pro for Mac 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164609.jpg" />
 </div>
 
 
@@ -446,7 +523,7 @@ Network Kit 9.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164611.jpg" />
 </div>
 
 
@@ -470,7 +547,7 @@ Codepoint for Mac 1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164615.jpg" />
 </div>
 
 
@@ -495,7 +572,7 @@ CheckBook Pro 2.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164618.jpg" />
 </div>
 
 
@@ -519,7 +596,7 @@ Jettison 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164619.jpg" />
 </div>
 
 
@@ -544,7 +621,7 @@ EdgeView 4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164620.jpg" />
 </div>
 
 
@@ -555,81 +632,6 @@ EdgeView 3 - это новейший просмотрщик изображени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:179D90C810039F9C921CBF753092BDFDA3EF0408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346081   (164621) от 18.12.2019
-
-DiskCatalogMaker 7.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164621.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskCatalogMaker  - Простая утилита для управления и катологизации дисков.
-Программа умеет сканировать содержимое восьми типов архивов и создавать предпросмотр для графических, видео и текстовых файлов.  Поиск по каталогам можно проводить по различным параметрам, но высокой скоростью он не отличается. Присутствует интеграция с Roxio Toast (новый диск после записи может (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 15.12.2019Разработчик: Fujiwara SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434E5F4A1F2EAB26EACC8E85DBDB06E75188DD40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516978   (164625) от 13.12.2021
-
-Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2021Разработчик: © 2021 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B270D54DBA971D723B5ADE1FE199078EEFF568
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516938   (164628) от 13.12.2021
-
-AnyMP4 DVD Creator for Mac 6.2.22 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164628.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 DVD Creator – профессиональная утилита, которая позволяет создавать и записывать DVD из файлов популярных видео форматов, таких как 3GP, AVI, MP4, TS, FLV, MKV, а также создавать DVD-папки и ISO-файлы. Созданный DVD-диск без проблем можно будет воспроизвести на большинстве портативных и домашних DVD-плеерах.
-Кроме того, AnyMP4 DVD Creator позволяет редактировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: © 2021 AnyMP4 StudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B32F3619145F18AE53293CD28AC18D66FE2D470
 ```
 
 

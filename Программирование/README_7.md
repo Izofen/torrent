@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143252.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:84B2F3FF65596599565C3563E4E73CEA9F98085A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143307.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143598.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143837.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Marin Todorov | Modern Concurrency in Swift, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145496.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6670D26AC74D52A3D2EB97401A2D860834F24077
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146484.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F4DBC5E4973C88C9C3E3F15E9589E503DD2A398A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146509.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A46D3A6AA67EBAB8BF5C6F9A1C20C027083D5BF5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146641.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Brett McLaughlin | Programming Kotlin Applications / Программирова�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147389.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:2521118D939AEDC64BF59DF4C6BF57AA40C95413
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147462.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148045.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:B9D9A3C050FB1F27386B250A5EB3F92BA142369E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149944.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Bartlomiej Plotka | Efficient Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150235.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Julien Pivotto, Brian Brazil | Prometheus: Up and Running (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150306.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:6ADA67C3DA624757C78E518FCE7BA9D94EEAB6CF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151057.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:FE288BF8964F5AB35B7F4EF3CBC3D56E11251278
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151124.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:06DECCB2ABA7E2BA2D68FA161FF94788B5C15D98
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151739.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:364ED7AE36AFAE52717D9134FB50C987006D4700
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153567.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:92F8157093146CB6513956BD5D78DBEFE8926DA6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154932.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156411.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Steven F. Lott | Python Real-World Projects (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156715.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156741.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (10.2021) [PDF, 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156820.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157161.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158736.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:917D2AA1B8385CD3CFAEC585941D40871C1C0A83
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158811.jpg" />
 </div>
 
 

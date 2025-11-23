@@ -1,3 +1,75 @@
+###  Публикация: 1684542   (127717) от 16.12.2023
+
+Нефариус / Nefarious (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127717.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день запланированной казни осужденного серийного убийцы к нему в тюрьму приезжает врач, чтобы провести психиатрическую экспертизу. Тот с порога заявляет, что умереть всё равно не сможет, так как является демоном, а психиатр перед уходом совершит три убийства.Производство: США / Believe Entertainment (II)Жанр: ТриллерРежиссер: Чак Конзелман, Кэри СоломонАктеры: Джордан Бэлфи, Шон Патрик Флэнери, Том Омер, Гленн Бек, Дэниэл Мартин Берки, Марк Де Алессандро, Камерон Арнетт, Джеймс Хили мл., Сара Эрнандес, Джаррет ЛеМастерПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (SDH), Английские (Full, SDH)Продолжительность: 01:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808D76007AF6E86603107C6440CE360FF9A058E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684634   (127718) от 16.12.2023
+
+Topaz Photo AI 2.2.1 (x64) Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA3489E033BD929430097B2B0E6DA8EDEDC13BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655452   (127719) от 16.12.2023
+
+BikeComputer Pro v8.10.2 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127719.jpg" />
+</div>
+
+
+###  Подробнее
+
+BikeComputer Pro - возможно, одно из лучших приложений для велоспорта. Версия Pro содержит все необходимые функции:Тип издания: ModРелиз состоялся: 11.12.2023Разработчик: Robert OehlerПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947D17D7B0A786C3556898B7BB8EF925E601256B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684702   (127720) от 16.12.2023
 
 Udemy, Auripher Aetas Aurea | Journey to After Effects Mastery: Unleash Your Creativity (2023) WEB-DL [EN, RU]
@@ -6,7 +78,7 @@ Udemy, Auripher Aetas Aurea | Journey to After Effects Mastery: Unleash Your Cre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127720.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:4F2DF4C472D9A3F7D5D2A069F3F048739D07907C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127721.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:FA068AA8AD8BD19184C7EDA605E6DF08C07E6629
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127722.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:DA8BF4164E7C1705F9D8928F02C8D65913151746
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127723.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:3153BA6BC5C1FF70416BEAB757B8556DA7F5FA9B
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127724.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:64D124D314C157ADB652D9A1A43BEAB70D9C37A2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127725.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:91E025D7A27347222DBEB5EC12E85D80F2905BFE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127726.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:F2D2C7F2B3B38856DA53D928B519C328B4309096
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127727.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:BE3582A64AC97586632FF6061D6011FBC260E15A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127728.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ River Tails: Stronger Together (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127729.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127730.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:59033D3B40561934DA9D8FADDFE6D045AE9E0667
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127731.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:83A98542C84960A84F8A9D4DCEAF65D2321E8969
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127732.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ Viking Brothers 5 / Братья викинги 5 (2023) [Ru] (1.0) Unofficial [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127733.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ Doctronics - electronics DIY v2.5 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127734.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ magnet:?xt=urn:btih:52AB124BA64D0033FA6D3EDDDB008F64E3CC1575
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127735.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ Midori Browser 11.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127736.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:740A19E6B48AE84534E01E88091F5CBACA0BE270
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127737.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:482DBF25A6D626C503B8300059CE2EFF11EB87EC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127738.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:CDD6815DB0FFE7F7AED0D833BFBB7659691B3099
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127739.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:31EF7F495ED8ADC2940E68B878439B92FBE941E9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127740.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.49.2.15s/dlc) Repack Other s
 >>37
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127741.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:F6CECB42A697448AF6924C0FDEC22E8BEB8B9841
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127742.jpg" />
 </div>
 
 
@@ -552,79 +624,6 @@ magnet:?xt=urn:btih:F6CECB42A697448AF6924C0FDEC22E8BEB8B9841
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BCC868F91B9ABDC941A4C065C5FF7B0AFA0EEBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684418   (127743) от 16.12.2023
-
-Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 12.2023
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127743.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов новой версии операционной системы Windows 10 Pro VL x86-x64 (22H2) от Microsoft с дополнительным материалом разных разрядностей (архитектуры) в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2DB8B91C95BC0D65E5307E2949C6843B04B27E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663427   (127744) от 16.12.2023
-
-Хищник / Predator (1987-2022) BDRip [H.265/1080p] [10-bit] [Коллекция]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-фантастический боевик, посвящённый инопланетной расе воинов с технологически продвинутым оружием, которые путешествуют на Землю, чтобы охотиться и собирать трофеи.Производство: США, Мексика, Чехия, Великобритания, Германия, Канада / 20th Century Fox Film Corporation, Amercent Films, American Entertainment Partners L.P., Davis Entertainment, Lawrence Gordon Productions, Silver Pictures, Brandywine Productions Ltd., Charenton Productions Limited, Impact Pictures, Inside Track Films, Zweite Babelsberg Film GmbH, Dune Entertainment, Troublemaker (   Читать дальше...   )Жанр: ужасы, боевик, фантастика, триллер, приключенияРежиссер: Джон Мактирнан, Стивен Хопкинс, Пол У. С. Андерсон, Колин Штраус, Грег Штраус, Нимрод Антал, Шейн Блэк, Дэн ТрахтенбергАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррильо, Билл Дьюк, Дэнни Гловер, Гэри Бьюзи, Рубен Бладес, Мария Кончита Алонсо, Билл Пэкстон, Санаа Лэтэн, Рауль Бова, Лэнс Хенриксен, Стивен Паскуале, Рейко Эйлсворт, Джон Ортис, Эдриан Броуди, Тофер Грейс, Бойд Холбрук, Треванте Роудс, Джейкоб Тремблей, Эмбер Мидфандер, Дакота Биверс, Дэйн ДиЛьегро, Сторми КиппПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:46:35 / 01:48:00 / 01:48:40 / 01:41:07 / 01:46:53 / 01:46:56 / 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2AA1A4B5ADFDD0212F411713C7194D3A4ED9C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348338   (127745) от 16.12.2023
-
-Елена Михалкова | Собрание сочинений [53 книги] (2007-2023) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Елена Ивановна Михалкова — российский автор детективных романов. Родилась в городе Горьком (Нижний Новгород). Получив юридическое образование, работала по специальности, в том числе в милиции. Одно время Михалкова писала сценарии для детских телевизионных передач. Замужем, имеет дочь. В настоящее время проживает с семьей в Москве.
-Свой первый детективный роман Елена (   Читать дальше...   )Жанр: Современные детективыИздательство: Эксмо, Сетевое изданиеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A623132E3E0A4D4A4B212CC04E0594CF7FB4CEAB
 ```
 
 

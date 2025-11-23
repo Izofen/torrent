@@ -6,7 +6,7 @@ Glary Utilities Pro 6.29.0.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6161.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DNS Changer Pro v1.4.1 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6162.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A8A028D3B213AB4944526F829A70656CFE98091C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6163.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Wanterlude [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6164.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ GPS АнтиРадар v50.3 Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6165.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ HiBit Uninstaller 3.2.70 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6166.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6167.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:938C4DEDF74A68CAAF1DA39D4AEC1EAC2D14D81D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6168.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6169.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.7) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6170.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:5C689068BAEC697A1E19D09F38A9A6C54FA0EEDC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6171.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ iTubeGo YouTube Downloader 10.7.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6172.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:CAE5DB7E9547B670651FE86C814391FD5839F675
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6173.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:75525CE19EC72AD20CFC78502A2C534FA646D7CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6174.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:DCB9544C2C3C006C039E0E560F3085C20F715C2B
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6175.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ UltraSearch Professional 4.8.2.1182 RePack (& Portable) by elchupacabra [Multi/R
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6176.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ To the Eden (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6177.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:EA583DB2DA49C810967D2CAA148E143D37F0CB72
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6178.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:1FBCE049DCD2C81798293303C9CEFC64487DFF76
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6179.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:1FBCE049DCD2C81798293303C9CEFC64487DFF76
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6180.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:64E78A09FD018EA4231763290BEDB8B633CB4F85
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6181.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Iron Savior (Helloween, Gamma Ray, Unisonic) - Studio Albums (16 releases) (1997
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6182.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Lost Twins II (2) (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6183.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6184.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Rush Academy, Евгений Милованцев, Игорь Бурдуков |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6185.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:463F79608C85C9829A5DA7AEA32ADDD2F7C619CC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6186.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Spotify 1.2.34.783 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60383.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A4F4B7E15C13A31DA700A647508A3D6D5B776768
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60402.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ FurMark 2.2.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60435.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Visual Studio Code 1.88.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60446.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Topaz Video AI 4.2.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60468.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ OBS Studio 30.1.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60483.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Kodi 21.0 (Omega) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60484.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ JetBrains DataGrip 2024.1.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60485.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Kodi 21.0 (Omega) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60488.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:69378A3CEEAD00137054F373E5D6EB33AED43BF3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60541.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Emurasoft EmEditor Professional 24.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60551.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ ElevenClock 4.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60588.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:FA843EF7A0F28CF40FB4D6D1D312DC72D9D1BB89
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60630.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:AD1193CBFBD8CF99015EF8CE6ADF04E6A18D0B89
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60636.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ The KMPlayer 4.2.3.10 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60642.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Sweet Home 3D 7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60646.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ GoodbyeDPI 0.2.2 Launcher 7.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60648.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ JetBrains GoLand 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60650.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:F0E6DC3BE5F507253AF5E0BBB41D47DCC2DED86B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60657.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ PC Cleaner Pro 9.6.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60660.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Jetbrains WebStorm 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60664.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ IrfanView 4.67 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60668.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ WinToHDD 6.5 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60669.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Sante DICOM Viewer Pro 14.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60672.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ EMCO UnLock IT 7.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60673.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ IrfanView 4.67 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60680.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1702771   (115596) от 26.02.2024
+
+В.П. Дьяконов | MATLAB и SIMULINK для радиоинженеров (2019) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена применению матричной системы MATLAB в радиотехнических расчетах и в моделировании радиоэлектронных устройств и систем. Впервые описаны новейшие версии MATLAB с пакетами расширения Simulink, Signal Processing Toolbox, Filter Design Toolbox, RF Toolbox и Blockset, Wavelet Toolbox, Control Systems, SimPowerSystems и др. Описаны новейшие пакеты Simscape (   Читать дальше...   )Жанр: Компьютерная литература, электроникаИздательство: ПрофобразованиеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30A6336A33E29F534950FE3007C843F368CA7C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702717   (115597) от 26.02.2024
+
+Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58007D7877F6728DAE35C548E7F655F7DCA44B11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696903   (115598) от 26.02.2024
+
+Помпоко: Война тануки в период Хэйсэй / Heisei Tanuki Gassen Ponpoko / Pom Poko (1994) BDRip  [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная Япония, западные окраины Токио. Люди застраивают леса и холмы, которые раньше принадлежали тануки - енотовидным собакам. Тануки начинают героическую, но обреченную войну за выживание. Для этого они возрождают древнее искусство превращения - с его помощью они могут превращаться даже в людей.Производство: Япония / Studio Ghibli, Tokuma ShotenЖанр: аниме, мультфильм, фэнтези, драма, комедияРежиссер: Исао ТакахатаПеревод: Многоголосый профессиональный (Киномания)Субтитры: русскиеПродолжительность: 01:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78329AB07993ED47ED377EAB7BA303A333ACE6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702775   (115599) от 26.02.2024
 
 Hard Disk Sentinel Pro 6.20 Build 13190 Portable by FC Portables [Multi/Ru]
@@ -6,7 +78,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115599.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:B273D5EB5BB8C50D7D78EA5D1CD59B69D10ECA5A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115600.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:E96C7D44483AF6DCCD713F9B9E5A49224D18260C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115601.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ My Lovely Daughter (2024) [Multi] (1.27f6/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115602.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:7E4691FB6A3AC7367E83D704043A9DC3BF38AE6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115603.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:6D6B26088B4C41DB129EDA6EC0C5BC8EB40F5B69
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115604.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:C520BFBE0B199B95A35347D9345BB0871761D76B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115605.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ Hard Disk Sentinel PRO 6.20 Build 13190 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115606.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:10925882293BFADC6F413AF1D14DF07758474B11
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115607.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:639418FAB7581BD847CE3408FDA898618EA94FB9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115608.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:832DD5C138D82C3AEA86F7E22EB939090E1265CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115609.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:832DD5C138D82C3AEA86F7E22EB939090E1265CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115610.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ CrystalDiskInfo 9.2.3 (24.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115611.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:9F6CBEE1A54F5F47136F409E9A52D30CECE81E42
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115612.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ magnet:?xt=urn:btih:F281E7CEC4107289B04B920FE563A4CA3E0F25EC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115613.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:C2941B2D58652F54A800A40D45C0E30906818D67
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115614.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ magnet:?xt=urn:btih:F5685DC49E6FA55FCCA04F972B7165BC424B6727
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115615.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ magnet:?xt=urn:btih:B8DBA1311351176C9D3514E7B55FC69363C10626
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115616.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:29FBA534EAAA8F200451082630110762491E88C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115617.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ magnet:?xt=urn:btih:8FED870166430F677F14CF97C4DD1E57644A9AE2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115618.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ Adobe Illustrator 2024 28.3.0.94 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115619.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ Office Tool Plus 10.8.5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115620.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ magnet:?xt=urn:btih:EFCF481EA83D079131A2D6D34190268B61BD9E7C
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115621.jpg" />
 </div>
 
 
@@ -557,78 +629,6 @@ magnet:?xt=urn:btih:EFCF481EA83D079131A2D6D34190268B61BD9E7C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:302D19A97D431C0BBF3484BFAFADF48AE36A284D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702786   (115622) от 26.02.2024
-
-Хоббит: Битва пяти воинств / The Hobbit: The Battle of the Five Armies (2014) UHD BDRemux [H.265/2160p] [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда отряд из тринадцати гномов нанимал хоббита Бильбо Бэгинса в качестве взломщика и четырнадцатого, «счастливого», участника похода к Одинокой горе, Бильбо полагал, что его приключения закончатся, когда он выполнит свою задачу - найдет сокровище, которое так необходимо предводителю гномов Торину. Путешествие в Эребор, захваченное драконом Смаугом королевство гномов, (   Читать дальше...   )Производство: Новая Зеландия, США /  New Line Cinema, Metro-Goldwyn-Mayer (MGM), WingNut FilmsЖанр: фэнтези, приключения, боевикРежиссер: Питер ДжексонАктеры: Мартин Фриман, Иэн Маккеллен, Ричард Армитедж, Люк Эванс, Эванджелин Лилли, Ли Пейс, Орландо Блум, Бенедикт Камбербэтч, Кен Стотт, Эйдан ТернерПеревод: ДублированныйЯзык озвучки: русскийСубтитры: русские (forced)Продолжительность: 02:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681805E8FB195C5E499667F12F55AE7F2BBD6FEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702010   (115623) от 26.02.2024
-
-Mercedes-Benz разочаровалась в электромобилях и расширяет линейку ДВС
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mercedes-Benz сдвинула свои цели по электрификации автомобилей на пять лет и заверила инвесторов, что продолжит совершенствовать модели двигателей внутреннего сгорания (ДВС), отметив более слабый, чем ожидалось, интерес к электромобилям. Компания сместила свой прогноз по срокам достижения электромобилями 50-процентной доли в глобальных продажах, включая гибриды, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702643   (115624) от 26.02.2024
-
-Пила. Джокер / Темная игра / DarkGame (2024) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маньяк в прямом эфире запускает реалити-шоу, в котором собраны все самые жестокие игры на выживание. Похищенные им жертвы выполняют сложные задания, а цена проигрыша — жизнь. Пока миллионы людей по всему миру наблюдают за этой смертельной игрой, упрямый и не терпящий поражений детектив разгадывает головоломку, чтобы выйти на след преступника.Производство: Великобритания / Happy Hour Films, Happy Hour Productions, JCG BitsЖанр: ужасы, триллерРежиссер: Ховард Дж. ФордАктеры: Эд Вествик, Эндрю П. Стивен, Наталья Цветкова, Лола Огуньеми, Рори Александр, Эндрю, Мицли Роуз, Энтони Офоэгбу, Наташа Скутка, Джо УрхартПеревод: Двуголосый профессиональный (ViruseProject | 18+)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5F08C60CB170403C9070EC9E9824BF4264A61C
 ```
 
 

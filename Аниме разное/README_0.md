@@ -6,7 +6,7 @@ Berserk: Ougon Jidai Hen | Берсерк | Berserk Golden Age Arc | Берсе�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4217.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4527.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4838.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8603.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9935.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12540.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Honkai: Star Rail (Animated Short) | Хонкай: Звёздный рельс
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12792.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13608.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14199.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14208.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14436.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14541.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Promare | Промар [2019, Movie] Blu-ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14922.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15544.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Berserk: Ougon Jidai Hen | Berserk: The Golden Age Arc | Берсерк: Зол�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15935.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Берсерк: Бехерит В�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16676.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16742.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16964.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16992.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина Cлужба До
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17280.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Yofukashi no Uta | Call of the Night | Песнь Ночных Сов [2022, TV,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17575.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17618.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17619.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация Безр�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17772.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация Безр�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17802.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] BDRemu
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18133.jpg" />
 </div>
 
 

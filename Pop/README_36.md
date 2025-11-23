@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 1300 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104357.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Terry Stafford - Suspicion (1994) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104508.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ London Grammar - The Greatest Love (2024) [MP3|320 Kbps] <Pop, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104522.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104526.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - DJ Hits Vol. 401 (1997) [OGG Vorbis|480 Kbps] <Electronic,  Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104542.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sylvester - Live At The Opera House (1979) 2024, Craft Recordings [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104544.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104547.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104548.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - The Sound Of Summer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104596.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - DJ Vol 351 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104612.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - DJ Hits 350 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104638.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - DJ Hits Vol. 345 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104641.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - DJ Hits 333 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104642.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Camila Cabello - C,XOXO (2024) Magic City Edition [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104646.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Niall Horan - The Show: Live On Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104660.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Cardigans - The Rest Of The Best (2024) Vol. 2 [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104703.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Autumn Chill 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104708.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ David Hasselhoff - 2 Albums (1989-1990) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104714.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Cardigans - The Rest Of The Best (2024) Vol. 1 [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104735.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Michael Bolton - 'Til the End of Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104736.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - DJ Hits Vol. 174 (1996) [OGG Vorbis|480 Kbps] <Electronic, Europop, Euro Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104807.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - DJ 301 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104810.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - DJ Hits Vol. 275 (1997) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Euro Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104811.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ David Kushner - The Dichotomy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104813.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:2E6D3BE54D858CAAE5E36B71D48E56AB63AF162C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104870.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:6BCB4333E04B5973F37ED7C7280219DCE722DFB8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104893.jpg" />
 </div>
 
 

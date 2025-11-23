@@ -6,7 +6,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33945.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9A587A4AE2C5B3BBBF060AA77F46294F6C6E5D47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33946.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6789432105A51B0395D1A95A58BA552BB4933CD5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33947.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6789432105A51B0395D1A95A58BA552BB4933CD5
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33948.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8F4B15B33FAF53BFCBBAF8DD85E86B48B8E04A58
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33949.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:32A13E379FE49E113C3CD0258FC8E10F44107456
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33950.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:6777D1A42EF293A18C83E81AD54AF19BBCD984F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33951.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Google Earth Pro 7.3.6.10155 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33952.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:561EDCBA699143A2431C27AA0AA79F6F474066D1
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33953.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:61E1273E737959631CDC95CF11305D021705A2D6
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33954.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:A8721F9B4A288E09922E8AF71EEF3D8F3311CB1F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33955.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33956.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:AF9D7739FC7163B1298D2A6BD52382B645B321F2
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33957.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33958.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Любимые песни года (2024-2025) (2024) [FLAC|Lossless|WEB-DL
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33959.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Шансон премьера 2024 декабрь (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33960.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:3E724E6E9E0E1432F7E035FA2753D2F958395C46
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33961.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Lump Records Greatest Hits (2024) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33962.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Splav - Сверхновая (2011) [FLAC|Lossless|tracks] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33963.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:D2101FD5B8B201B92B10475AC2C697C8CF3827A3
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33964.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:0EA9C356701000D3D29953B7A1E81F5DC6C0CE4C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33965.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:58545B65C4A4B90D86770FFB7A231FEA237360EB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33966.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Whigfield - Whigfield Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33967.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:DEF955A754A9761B98A375D753479544064B1F24
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33968.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Smoothies - Let's Make Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33969.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:43066ED62A76950E2AB2A6DEEBD614F6A5856F22
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33970.jpg" />
 </div>
 
 

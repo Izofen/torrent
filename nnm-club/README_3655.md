@@ -1,3 +1,78 @@
+###  Публикация: 1704040   (114712) от 02.03.2024
+
+Tixati 3.22 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tixati — это полноценный и бесплатный клиент сети BitTorrent, простой и легкий в использовании. Предоставляет пользователю расширенные возможности по управлению раздачами, как в отношении локальных файлов, так и сетевых соединений. Программа не требовательна к системным ресурсам, потребляет меньше оперативной памяти по сравнению с последними версиями µTorrent. Приятным (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0943BEB7DA0FBD58BB8311BEFD5D772395B5FF3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703941   (114713) от 02.03.2024
+
+DJ Aurm - Compilation (2024) [MP3|320 Kbps] <Instrumental, Piano, Electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love Planet
+ 02.  What is Love
+ 03.  Raindrops
+ 04.  You're Not Mine(   Читать дальше...   )Жанр: Instrumental, Piano, ElectronicПродолжительность: 02:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B0A98030D2C70A90B1EB4B6E6E30D6DDFD4AE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684443   (114714) от 02.03.2024
+
+Akiba Meido Sensou | Akiba Maid War | Война горничных Акибы [2022, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете лучших горничных, какие только есть на Акихабаре, то обязательно загляните в кафе Тонтокотон. На дворе 1999 год, и нет лучшего времени для посещения заведения, где симпатичные сотрудницы-поросята сделают всё возможное, чтобы дорогие гости остались довольны. Не сомневаемся, что вы захотите вернуться.Производство: P.A. WorksЖанр: приключения, комедияРежиссер: Масуй СойтиЯзык озвучки: Японский, русский (Studio Band)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5CEACE0CF047666C7FA11FA489610849ADFC1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703942   (114715) от 02.03.2024
 
 Космонавт / Spaceman (2024) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
@@ -6,7 +81,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114715.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:1B7762783E64B425A74786BF931E9C1532436C98
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114716.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:60C247C9B38C5E6B78AC17F3D38070150E2CD016
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114717.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ Sense Flip Clock & Weather v6.54.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114718.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:7109F9C6A5237FE64E8096B18FD8D648798900A1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114719.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:EB271C72F90A29201ECBE61C59F3F2E3A48D0581
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114720.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:FEB583802F30F635A08877BCF3574A815998D953
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114721.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ magnet:?xt=urn:btih:731196BBD29AE3F5B946E6FF4D2942B15CC82DB9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114722.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ magnet:?xt=urn:btih:E29BB64AAD1C60AF11485F959C3D70F8031FBB4D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114723.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ magnet:?xt=urn:btih:60A47255E05EEA6AC350B75F2EE3BE2394C93815
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114724.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:BB91F0AA645302EF39086DA8FF7E94E1FADD3D2B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114725.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ Adobe Lightroom - Фоторедактор 9.2.0 Mod by frost_ua [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114726.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ magnet:?xt=urn:btih:55EB9BE809DE46854C791623FD1385E87DB9BFE0
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114727.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ magnet:?xt=urn:btih:538B3CAFC5ED8806E561BF5BA843EB2E054CC108
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114728.jpg" />
 </div>
 
 
@@ -349,7 +424,7 @@ magnet:?xt=urn:btih:49CCDC1C7781409F416D728C7DD6A5C0F813BDE2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114729.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ magnet:?xt=urn:btih:A6B2114639D0BF08722B0E69E49B0F1BA6AE8FDA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114730.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ magnet:?xt=urn:btih:2C202D63FE0D4B15BA4396A94A2CBE1D37EAF7F4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114731.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ magnet:?xt=urn:btih:3AA8FDD4AF8862AAE08D2A0C053933C77D9E4469
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114732.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ The Hero We Need (2024) [En] (0.8.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114733.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ qomp2 (2024) [Ru/Multi] (1.1.2257) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114734.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ VA - Temporal Tunes (2024) [MP3|320 Kbps] <Trance, Electro, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114735.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ magnet:?xt=urn:btih:A71F1C2BD6E093FA8074762DA54A80AFFD905A33
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114736.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ magnet:?xt=urn:btih:CA1ECF200FC596ADC19515F569D28EE11AC7C528
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114737.jpg" />
 </div>
 
 
@@ -561,82 +636,6 @@ magnet:?xt=urn:btih:CA1ECF200FC596ADC19515F569D28EE11AC7C528
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:900B9ABC63C403E2B3553B0F335CD6FD7F86C533
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704082   (114738) от 02.03.2024
-
-Пираты Карибского моря: На странных берегах / Pirates of the Caribbean: On Stranger Tides (2011) HybridRip [H.264/1080p-LQ] [Open Matte] [Локализованная версия]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114738.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой истории о поисках истины, предательстве, вечной молодости и смертельной опасности капитану Джеку Воробью предстоит столкнуться с женщиной из своего прошлого Анжеликой. До самого конца не будет понятно, связывает ли их настоящая любовь, или же Анжелика искусно притворяется, чтобы вместе с Джеком добраться до таинственного источника вечной молодости.
-Она силой (   Читать дальше...   )Производство: США, Великобритания / Jerry Bruckheimer Films, Walt Disney PicturesЖанр: фэнтези, боевик, приключения, комедияРежиссер: Роб МаршаллАктеры: Джонни Депп, Пенелопа Крус, Джеффри Раш, Иэн МакШейн, Кевин МакНэлли, Стивен Грэм, Сэм Клафлин, Астрид Берже-Фрисби, Кит Ричардс, Ричард ГриффитсПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B444CB5FBCCC51A3939E8DE0AB8D14BEB47E5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703853   (114739) от 02.03.2024
-
-Первый снег лета / Sterne unter der Stadt / First Snow of Summer (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр, молодой человек, твердо решивший никогда не влюбляться, встречает очаровательную Каро в маленьком магазине шляпников в метро.Производство: Австрия / Interspot FilmЖанр: мелодрамаРежиссер: Крис РайберАктеры: Томас Пренн, Верена Альтенбергер, Маргарете Тизель, Харольд Виндиш, Маттео Ди Сапиа, Симон Хатцль, Селина Граф, Хольгер Шобер, Михаэль Мендль, Филипп АуэрПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, немецкийСубтитры: английские, сербскиеПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFB20C123A72AA4690B00314096859F124311E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703872   (114740) от 02.03.2024
-
-Кирилл Бадаев | Полный курс по продвижению в ГЕО сервисах (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получи полные знания о продвижении бизнеса через ГЕО РЕКЛАМУ (Яндекс карты, 2Gis, Zoon)
-Что получите по итогу курса?
-- Сможете привлекать новых клиентов в свой бизнес бесплатно используя лишь ГЕО сервисы.
-- Сможете создать стабильный приток новых клиентов даже в не сезон.(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:25:55Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7B5361B2487B1A9DCA89C4238728585A3BBFE8
 ```
 
 

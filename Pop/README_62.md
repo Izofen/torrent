@@ -6,7 +6,7 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149107.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149228.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149357.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149367.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:45B415B0B25931B4657FBB42DAC6D63D43988640
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149394.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149402.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Yvon Rioland & Jean-Marie Hauser - Discoritmo (1979) LP [MP3|320 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149803.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Velvet - 2 Альбома (2006, 2009) [FLAC|Lossless|tracks + .cue] <Pop, Eurod
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149841.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149916.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Christmas - The Ultimate Collection (2018) [MP3|320 Kbps] <Ballad, Country,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149989.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Jessie J - This Christmas Day (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150276.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - NOW That's What I Call 40 Years (2023) Vol. 1-4, 12 CD [MP3|320 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150284.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Don Amore - Memories Of Dreams (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150289.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:F7B59028EF8806DC9C48B30E3C6A5BA6D32AC332
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150519.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Hit News Vol. 8 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150549.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Hit News Vol. 7 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150551.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150552.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Vaya Con Dios - Shades of Joy (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Ja
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150649.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150670.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors - Thomas' Version (20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150717.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Sam Ryder - Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150794.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Best Songs of 2021 [MP3|320 Kbps] <Pop, Rock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150853.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Lara Fabian - Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150971.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Happy New Year 2022! (2021) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151118.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Hit News Vol. 5/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151173.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Hit News Vol. 6 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151265.jpg" />
 </div>
 
 

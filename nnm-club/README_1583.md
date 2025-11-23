@@ -6,7 +6,7 @@ Krita 5.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41513.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:D540D21D29AAE7A33DD1B5939889580DC1A2A735
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41514.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ TreeSize Professional 9.2.0.1905 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41515.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bandizip 7.36 Build 68355 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41516.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:51976D782A70CD3D6AF45E8467710CD381D30726
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41517.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:51976D782A70CD3D6AF45E8467710CD381D30726
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41518.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:74863A2D2880658A9D9EF7ED3BCAD2671F5BD087
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41519.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:46FF0B8A4CA225679706E11AA12C782D8A4128E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41520.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:70E763A9AE1E78A6B606287BF04968C70D4C28FE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41521.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ AOMEI Backupper Technician Plus 7.4.1 WinPE by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41522.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:41DE49FED264539DDC1D2D857768FC6428F90C11
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41523.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:CB5DBF076000473BC785E0379AAC3E9FEBCFEF9B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41524.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AMD Radeon Software Adrenalin Edition 24.9.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41525.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:D59445042A7A4DDDE4635D7D155E85F64F26A61C
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41526.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:4FFDDE4A28C2D5152CBAABF5232FED489B999FA4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41527.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C451644890E23DE5F2F75E21858DD9C602518906
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41528.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5186CB9A0B171B37F1D66CD5DE96813B786A8245
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41529.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ AOMEI Backupper Technician Plus 7.4.1 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41530.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6C975C28C8F334DBCEA3F11A16C5C41E7FEA9624
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41531.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:3CB3B066AAE39AB493B089E77494DE59A3738AB9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41532.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:48789425349E6204C8980CA7B9AF733C2C8A9241
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41533.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:48789425349E6204C8980CA7B9AF733C2C8A9241
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41534.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Eassos DiskGenius Professional 5.6.1.1580 RePack (& Portable) by elchupacabra [M
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41535.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:F2CA2EA77F9AE6A79F2DD37617D13416B06D7C7A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41536.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:215F2A4F737476E860C940203D0EB64FC9907920
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41537.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (1.0.3.7) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41538.jpg" />
 </div>
 
 

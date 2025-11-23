@@ -1,3 +1,78 @@
+###  Публикация: 478077   (86394) от 04.04.2012
+
+EASY Deutsch Worterbuch Словарь немецко-русский [2004] [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецко-русский словарь известного издательства, достаточно подробный и простой в обращении.2004Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B626666734214A7328837E77ECA67E41CD128506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477325   (86395) от 04.04.2012
+
+Короткие истории (1963) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киноминиатюры по сюжетам писателей России и зарубежных стран: "Улыбнись, товарищ", "Интересно", "Вопрос о лопнувшей трубе", "Я стучу на машинке", "И так бывает", "Осторожный человек", "Времена года", "Семейный вечер", "Шутки-малютки", "Условия развода", "Калиновский", (   Читать дальше...   )Жанр: КомедияРежиссер: Михаил ГригорьевАктеры: Ростислав Плятт, Георгий Менглет, Борис Чирков, Евгений Леонов, Вера М.Орлова, Мария Миронова, Александр Менакер, Анатолий Папанов, Ольга Аросева, Георгий Вицин, Михаил ПуговкинПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A4BA2D1B00FE4C4AE4FEC0A0B8A79AA1BAD12F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476859   (86396) от 04.04.2012
+
+Goshuushou-sama Ninomiya-kun / My Heartfelt Sympathy, Ninomiya-kun / Примите наши соболезнования, Ниномия-кун [2007, TV, 12] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синго Ниномия живет вместе с сестрой Рёко, непревзойденным мастером боевых искусств и, по совместительству, спецназовцем (Ниномия-старшие сейчас «где-то за границей», и сын уверен, что у родителей всё в порядке, хотя знать о себе они не дают). Не удивительно, что Синго растет, непрерывно совершенствуя свое тело и волю. И вот теперь, наконец, ему потребуются результаты тренировок: бравая Рёко договорилась с семьей суккубов о том, что ее брат возьмет на свое попечение юную Маю Цукимура – суккуба с могучей аурой притяжения и сильнейшей андрофобией (боязнью мужчин).
+
+Так Ниномия-кун оказался телохранителем, гувернером и секс-терапевтом для застенчивой и неодолимо привлекательной Маю. И это ужасно не понравилось президенту школьного совета Рэйке Ходзю, деспотичной маленькой богачке...
+© Анастасия Розанова, World ArtЖанр: комедия, романтика, этти, школаРежиссер: Ёсикава КодзиПродолжительность: ТВ, 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E90F4BD194D7E9BA15CF9F6B556CFA0C9A23286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477604   (86397) от 04.04.2012
 
 Летнее безумие / Midsummer madness (2007) DVDRip
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86397.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Darkened Skye [Ru] (RePack) 2002 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86398.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:2039B7AE69F5BE193B3EBD73E256C6A3EF4F295E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86403.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:5EFC3262C4E3198A232A0617408E360A72BAB5F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86404.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:5EFC3262C4E3198A232A0617408E360A72BAB5F7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86405.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:90B6B1F41F0FD89C6BB6CD0468B27A10DE2FC206
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86406.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:590BBDC9E71E7D3DFFBCCB92F040E11248B87011
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86408.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:69D511FACA52601F4A545BECF1F1117333A5EEA0
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86410.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ EASY Deutsch Словарь русско-немецкий [2004] [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86414.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:D157F327A1ACCB915B2BA2A4ABEF853DB391A15F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86417.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:D157F327A1ACCB915B2BA2A4ABEF853DB391A15F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86420.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:D4D0A8991AC83D9A273120266DC88F4DA215338E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86421.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ magnet:?xt=urn:btih:8D1B0577856B5A4E5D70E243345F806D62B2DF67
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86422.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:DABAC4993A3D08DCB29B2EEB663656FC13B3511F
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86424.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ magnet:?xt=urn:btih:0D482AE081E8FECDBB1DD4442233A3E7652CB0C6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86425.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ Free for commercial use WPI by q1q1 1.0 (февраль 2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86426.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ Free for commercial use WPI by q1q1 1.0 (февраль 2012) [Русский]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86427.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ VA - Французская музыка в подарок (2012) [MP3|256 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86428.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ magnet:?xt=urn:btih:B405D027C4596C6C8D4A3761170AB6CEF7AA79F2
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86430.jpg" />
 </div>
 
 
@@ -479,7 +554,7 @@ magnet:?xt=urn:btih:B405D027C4596C6C8D4A3761170AB6CEF7AA79F2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86431.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ magnet:?xt=urn:btih:B8FE6712D8BC842B59A09BF3C41EB5071C2CE959
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86432.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ magnet:?xt=urn:btih:B8FE6712D8BC842B59A09BF3C41EB5071C2CE959
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86433.jpg" />
 </div>
 
 
@@ -552,88 +627,13 @@ magnet:?xt=urn:btih:B8FE6712D8BC842B59A09BF3C41EB5071C2CE959
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86435.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: боевик, триллер, приключенияРежиссер: Брэд БёрдАктеры: Том Круз, Пола Пэттон, Саймон Пегг, Джереми Реннер, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: Профессиональный (полное дублирование)Продолжительность: 02:12:59
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477826   (86437) от 04.04.2012
-
-Интерны (Серия 108) (2012) WEBRip
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь обычной многопрофильной больницы - сплошная рутина. Ненормированный рабочий день, тяжелая, неблагодарная работа, а также инопланетяне, электрики, спивающийся венеролог, озабоченная медсестра, больной-эксгибиционист, ручная крыса, четыре интерна, которые все время расстраивают своего руководителя... Как Иван Охлобыстин в лице доктора Быкова справится со всей этой суетой?Жанр: КомедияРежиссер: Максим Пежемский, Заур Болотаев, Милан КилибардаАктеры: Иван Охлобыстин, Кристина Асмус, Илья Глинников, Александр Ильин мл., Вадим Демчог, Светлана Камынина, Светлана Пермякова, Один Ланд БайронФормат: AViПродолжительность: серия ~ 00:22:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477912   (86438) от 04.04.2012
-
-Дэвид Крюгер, Джон Манн | Тайный язык денег. Как принимать разумные финансовые решения [2010] [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название: The Secret Language of Money: How to Make Smarter Finansical Decisions and Live a Richer Life
-Деньги важны, спору нет. Ради них мы порой жертвуем многим. Но, став наконец чуть богаче, мы зачастую приобретаем не счастье, а дополнительные проблемы. Мы теряем накопления, залезаем в долги, становимся жертвами мошенников, страдаем от приступов скупости или мотовства. А все потому, что мы придаем деньгам смысл, который им в действительности не присущ, и пытаемся решать с их помощью свои нефинансовые проблемы. Доктор Дэвид Крюгер, психолог, психиатр и консультант, расшифровывает тайный язык денег и формулирует принципы разумного финансового поведения.
-
-Книга окажет помощь всем, кто хочет наладить отношения с собственными финансами, а также будет полезна работникам страховой, банковской и других финансовых отраслей.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C85EBBDC43EA29768C55D82F47E601D53688FB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478278   (86439) от 04.04.2012
-
-Бомж с дробовиком / Hobo with a Shotgun (2011) DVD9
-
->>След.
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86439.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре событий бомж, которому надоело наблюдать беспредел творящийся на улицах. В один прекрасный момент чаша его терпения переполняется, он хватает с витрины магазина дробовик и идет наводить справедливость, отстреливая бандитов, коррумпированных копов, педофилов и прочих уродов.Жанр: Боевик, Триллер, КриминалРежиссер: Джейсон АйзенерАктеры: Рутгер Хауэр, Грегори Смит, Робб Уэллс, Молли Дансуорт, Ник Бейтман, Брайан Дауни, Джереми Акерман, Дэвид Брант, Майкл Фокс, Паша ЭбрахимиПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:22:29
 
 ## Скачать торент
 ```bash

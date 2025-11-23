@@ -1,3 +1,77 @@
+###  Публикация: 1597914   (165347) от 16.12.2022
+
+Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A0D15809670B8E6D1B8CB5D6FBF28776197BE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432197   (165348) от 16.12.2020
+
+Tweak and Tuneup 4.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tweak and Tuneup представляет собой набор мощных инструментов для повышения производительности вашего Mac. Эти инструменты включены в одно приложение и являются исключительными для обслуживания и повышения производительности.
+Вы не должны чистить вручную, чтобы сэкономить место на диске. Чтобы увидеть магию Tweak and Tuneup сделайте один клик кнопкой мыши на любом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB5C11310F29FC1224D371A71266D6B31C634B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432124   (165352) от 16.12.2020
+
+Disk Clean Pro 5.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Clean Pro - это приложение с высоким рейтингом, которое удаляет ненужные файлы и данные с вашего Mac. Он надежно очищает избыточные файлы и гарантирует, что ваши важные данные никогда не окажутся под угрозой.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Systweak SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1AE86E0C92012D51895274C691D70ED42EE1B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432250   (165356) от 16.12.2020
 
 NCH ClickCharts Diagram Pro 5.61 [En]
@@ -6,7 +80,7 @@ NCH ClickCharts Diagram Pro 5.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165356.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ A Better Finder Rename 11 v11.55 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165369.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ Cleaner-App Pro 8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165370.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ Integrity Pro 12.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165374.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Integrity Plus 12.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165377.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ Speedtest от Ookla 5.2.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165387.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ O&O DiskImage Professional 18.5 Build 340 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165392.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ KCNcrew Pack 12-15-20 + Bonus [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165397.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165398.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ Display Maestro 4 v4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165413.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ File List Export 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165416.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ Alarm Clock Pro 13 v13.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165419.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ Maxon Cinema 4D Studio R21.115 (RB297076) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165420.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165423.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ Duplicate File Finder Pro 6.11.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165427.jpg" />
 </div>
 
 
@@ -374,7 +448,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [15.12.2022]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165428.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ Librarian Pro 6 v6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165431.jpg" />
 </div>
 
 
@@ -425,7 +499,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.2364]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165433.jpg" />
 </div>
 
 
@@ -452,7 +526,7 @@ RSS Button for Safari 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165435.jpg" />
 </div>
 
 
@@ -477,7 +551,7 @@ HistoryHound 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165437.jpg" />
 </div>
 
 
@@ -501,7 +575,7 @@ Tempomate 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165441.jpg" />
 </div>
 
 
@@ -525,7 +599,7 @@ MacPilot 12 v12.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165446.jpg" />
 </div>
 
 
@@ -550,7 +624,7 @@ Data Guardian 6 v.6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165449.jpg" />
 </div>
 
 
@@ -561,80 +635,6 @@ Data Guardian 6 v.6.0.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06E80E7D72D03AC763F8F1CD7EB015059D0CD237
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673471   (165450) от 01.11.2023
-
-Mimestream 1.1.5 Intel/ARM [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mimestream сочетает в себе мощь macOS с расширенными функциями Gmail для нового типа почтового клиента, который позволяет вам легко перемещаться по электронной почте.
-Как собственное приложение, написанное на Swift, Mimestream использует всю силу macOS, чтобы обеспечить быстрый и мгновенно знакомый опыт. Вместо использования протокола IMAP Mimestream использует API (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 Mimestream, LLC.Поддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD865F22B9F78DB8CD80335DFB5BE54463FDCE58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345807   (165453) от 16.12.2019
-
-Nero Burning ROM 2020 22.0.1008 Final [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nero Burning ROM 2020 - позволяет записывать диски CD, DVD и Blu-Ray. Программа отличается надежностью и помогает копировать и записывать диски CD, DVD и Blu-Ray с сохранением высокого качества. В приложении Nero Burning ROM содержатся дополнительные возможности: с помощью технологии SecurDisc можно обеспечить надежную защиту и читаемость данных.
-Решение осуществляет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4FD5719FB55B7E1D9DD628A5801C6710033919
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673396   (165454) от 01.11.2023
-
-Icecream Screen Recorder Pro 7.31 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22ADE2D8F35B76A760CDF4234BBBD7C015334D46
 ```
 
 

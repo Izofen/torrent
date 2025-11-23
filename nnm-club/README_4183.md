@@ -1,3 +1,77 @@
+###  Публикация: 1683566   (128445) от 11.12.2023
+
+Рафаэль Дамиров | Кречет (Книга 1) (2023) [MP3, Иван Златоустов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вирус, созданный в военных лабораториях США, вырвался наружу. Он быстро мутировал и убил почти все население Земли. У нового штамма обнаружился побочный эффект – через несколько часов после смерти инфицированные воскресают.
+Я примкнул к общине выживших – вместе отбиваться от полчищ зомби гораздо проще. Но оказалось, что мертвецы – не самое страшное, с чем нам придется (   Читать дальше...   )Жанр: Боевая фантастика, постапокалипсисИздательство: ЛитРес: чтецПродолжительность: 08:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31066F1DECE089D05F2B36CB68E5CC044F14F8A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683586   (128446) от 11.12.2023
+
+Остров Брава / Isla Brava (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_128446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Люсия собирается признаться своему мужу, что у нее роман с его братом. В ту же ночь муж Люсии бесследно пропадает, а детектив, которая будет вести дело об его исчезновении, узнает много интересного о тайнах семейства.Производство: Испания / Canary Pictures Vehicles, Canary Pictures Vehicles, Canary Pictures VehiclesЖанр: детективРежиссер: Педро Пабло ИбарраАктеры: Фернанда Кастильо, Эрик Айсер, Флавио Медина, Барбара Лопес, Karena Flores, Juan Pablo Fuentes Acevedo, Pablo Astiazarán, Renata Ybarra, Romina Poza, Getsemani Vela и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683623   (128447) от 11.12.2023
+
+Книжная серия | Детектив с трогательным финалом [6 книг] (2023) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив с трогательным финалом - издательская серия детективов, только что запущенная ЭКСМО. Серия стартует сразу двумя увлекательными романами в стиле старого доброго детектива от восходящей звезды остросюжетной литературы Тони Бранто.
+Глубокий психологизм, неожиданное сочетание трагедии и юмора, непредсказуемая развязка.Жанр: Триллер, ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C49126C0BD7B8E5367F40C292533677A65421C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683446   (128448) от 11.12.2023
 
 Иван Щукин | Боярская честь (Книга 2). Путь Чести (2023) [MP3, Вадим Пугачев]
@@ -6,7 +80,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128448.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:04152DAC7FEB455BB5978347C758CF0F0E08E7A9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128449.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:0500154977EA926F37A5CF5AB0EBDDC29C3E7571
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128450.jpg" />
 </div>
 
 
@@ -82,7 +156,7 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128451.jpg" />
 </div>
 
 
@@ -106,7 +180,7 @@ magnet:?xt=urn:btih:20F92C25B03F5DE6E73C429C95A59C82442C416A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128452.jpg" />
 </div>
 
 
@@ -130,7 +204,7 @@ magnet:?xt=urn:btih:1A54B760C0070EF008E3A4B1BDAE569392C6396D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128453.jpg" />
 </div>
 
 
@@ -154,7 +228,7 @@ magnet:?xt=urn:btih:D71A4DFAA12AC869EA1F4E7121FB25D749A220B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128454.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ magnet:?xt=urn:btih:2453ABF45FD02F8970C3CF505667360901304870
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128455.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ Master PDF Editor 5.9.81 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128456.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ Domestika, Luke Adam Hawker | Artistic Architectural Drawing with Ink (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128457.jpg" />
 </div>
 
 
@@ -255,7 +329,7 @@ ToonMe 0.6.99 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128458.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ magnet:?xt=urn:btih:53146B5F83886505D770C40EF8EA4A170C410185
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128459.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ NirLauncher Package 1.30.8 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128460.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ Ashampoo WinOptimizer 26.0.0.22 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128461.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ magnet:?xt=urn:btih:6FCAEE5EC5ABACEF845FCDC15906C2704E2D6EB8
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128462.jpg" />
 </div>
 
 
@@ -378,7 +452,7 @@ magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128463.jpg" />
 </div>
 
 
@@ -402,7 +476,7 @@ magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128464.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ magnet:?xt=urn:btih:09E9ADA016290C6BBB4F8B34BD684E21F52D2E78
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128465.jpg" />
 </div>
 
 
@@ -450,7 +524,7 @@ magnet:?xt=urn:btih:ACE1C06B7290CDDC24E02443092DE6A0EF0BBD8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128466.jpg" />
 </div>
 
 
@@ -474,7 +548,7 @@ magnet:?xt=urn:btih:D6F19226A0C2412F1ABF164F037C6809804CAA4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128467.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ magnet:?xt=urn:btih:B7FFE2B3003E90C1A58FC249B83422E784C5E9BA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128468.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ magnet:?xt=urn:btih:7C43364FB2537FC5865F34AE0447C2DEC602E793
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128469.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ magnet:?xt=urn:btih:7C43364FB2537FC5865F34AE0447C2DEC602E793
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128470.jpg" />
 </div>
 
 
@@ -557,78 +631,6 @@ magnet:?xt=urn:btih:7C43364FB2537FC5865F34AE0447C2DEC602E793
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90348260F26D8DD37A9ED3153AE5D3E49E6D81A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683639   (128471) от 11.12.2023
-
-Алексей Ковтунов, Антон Панарин | Поглощение (Книга 1). Поглощение. Том 1 (2023) [MP3, Дмитрий Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может ли офисный планктон питаться акулами? Или скорпионоподобными тварями размером с грузовик?Легко! Дайте только немного времени привести себя в форму, отрастить новую руку, и нажраться сфер развития. А потом держите меня семеро!Жанр: Боевая фантастика, ПопаданцыИздательство: ЛитРес: чтец, АвторПродолжительность: 08:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773270BF115AFB5F7468CEEF8FC7C3167FC400B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683434   (128472) от 11.12.2023
-
-Семейный обмен / Family Switch (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незадолго до Рождества жизнь одной семьи превращается в хаос, когда редкое космическое явление заставляет родителей и их детей-подростков поменяться телами.Производство: США / Grey Matter Productions, Imagine Entertainment, Talent One, Linden EntertainmentЖанр: комедия, фэнтезиРежиссер: МакДжиАктеры: Дженнифер Гарнер, Эмма Майерс, Рита Морено, Пит Холмс, Илайя Изорелис Паулино, Эд Хелмс, Маттиас Швайгхёфер, Пол Шир, Брэйди Нун, Форчун ФеймстерПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH), французские, украинские, немецкиеПродолжительность: 01:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31276473B35D7C2608A1DAE1C879883EC1287499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680489   (128473) от 11.12.2023
-
-Судьба человека (1959) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по раасказу М. Шолохова... С началом Великой Отечественной войны шофёру Андрею Соколову приходится расстаться с семьёй. В мае 1942 года он контуженным попадает в немецкий плен. Соколов переносит ад нацистского концлагеря, благодаря своему мужеству избегает расстрела и, наконец, бежит из плена за линию фронта к своим. В коротком фронтовом отпуске на малую родину (   Читать дальше...   )Производство: СССР, МосфильмЖанр: драма, военныйРежиссер: Сергей Бондарчук ст.Актеры: Сергей Бондарчук ст., Паша Борискин, Зинаида Кириенко, Павел Волков, Юрий Аверин, Кирилл Алексеев, Павел Винников, Евгений Тетерин, Анатолий Чемодуров, Лев БорисовПеревод: не требуетсяЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF97A8CF2F148D69414CFEB6C0A7E3D49A74980
 ```
 
 

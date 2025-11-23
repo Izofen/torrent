@@ -6,7 +6,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0.1 Build 6 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12386.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:51D5669F517482F040AE0F0F31D6EB296642408F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12417.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AirBrush: ИИ Фоторедактор v7.10.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12420.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CB2A2516AA4B1A26D80A285F9C0D681973A18CEC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12427.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MassTube Ultra 20.1.6.135 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12441.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.27 [Nightly] Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12442.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ DjVu Reader & Viewer (читалка) v1.0.132 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12443.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ ByeByeDPI v1.5.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12459.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ MyLanViewer 6.5.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12465.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:2DAFFC9D879F9C5CCCA16C7A3A8FCD38F961399D
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12468.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v25 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12470.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Double Commander 1.1.26 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12475.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ ByeByeDPI v1.5.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12483.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v25 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12489.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Notepad++ 8.8.2 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12495.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:A4BE986A29AC5D2BF3A1219CAF7C3F49277A5E7A
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12511.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0.1 Build 6 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12516.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Native Instruments - Kontakt 8.5.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12521.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Polyverse Music - Filterverse 1.2.0 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12539.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Telegram Desktop 5.16.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12559.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Any Video Downloader Pro 9.2.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12570.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Glary Utilities Pro 6.28.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12571.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Xfer Records - Serum 2 2.0.20 VSTi 3, AAX (x64) Revised [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12575.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Notification Widget v1.5.182 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12629.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Smart AudioBook Player Pro v11.4.9 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12631.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Notification Dots v1.2.68 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12639.jpg" />
 </div>
 
 

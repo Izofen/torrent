@@ -6,7 +6,7 @@ Gurf Morlix - In Love at Zero Degrees (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37583.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Asamu Johnson & The Associates of the Blues - True Freedom (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37584.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gerry Mulligan with Jane Duboc - Paraiso: Jazz Brazil (2013) First Impression Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37879.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Beth Hart - You Still Got Me (2024) [FLAC|Lossless|image + .cue] <Blues, Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38087.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lester Young - The Complete Aladdin Recordings (1942 - 1947) 2CD, 1995, Blue Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38174.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Funk Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38190.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eric Dolphy - Out To Lunch! (1964) 1985, Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38280.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ray Anthony - Capitol Collectors Series (1949 - 1962) 1991, Capitol Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38283.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Charles Tolliver - The Ringer (1969) 1992, Black Lion Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38701.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mark "Nessie" Nesmith - A Sinner's Prayer (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38796.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bob Joyce - Safely Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38802.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kyshona - Legacy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38803.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Charles Tolliver Big Band - Emperor March: Live At The Blue Note (2009) Half Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38804.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Rock Blues Mania (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38891.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Rhythm & Blues in the Moonlight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38899.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Too Cool to Handle_ Rock, Blues, & Country Edition (Vol. 2) (2024) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38900.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Too Cool to Handle: Rock, Blues, & Country Edition (Vol. 1) (2024) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38901.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Get Jazzy on Me: Jazz Dance Party, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38902.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Only Grooves In The Bulding (Chillout Jazz & Soul Vibes) (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38903.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Unlucky for Some (13 Songs for Halloween, Volume 1) (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38906.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Not Spooky Jazz (Enchanting Music for a Cozy Halloween Dinner) (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38908.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sonny Red - Sonny Red (1971) 2017, Mainstream Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38973.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Joy Frost - The Roaring 2020's (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38989.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Frank Sinatra With Quincy Jones And Orchestra - L.A. Is My Lady (1984) Deluxe Ed
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39071.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Melody Gardot - The Essential Melody Gardot (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39179.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Lee Konitz - In Paris And London (1995) Hobby & Work [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39285.jpg" />
 </div>
 
 

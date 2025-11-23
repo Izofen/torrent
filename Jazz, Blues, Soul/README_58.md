@@ -6,7 +6,7 @@ Mezzanottemmezza - Out of This Place (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102893.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hubert Laws - The Rite Of Spring (1971) 1991, CBS [WavPack|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102895.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Independent Blues Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102900.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Fusion Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102901.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102918.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102934.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102935.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Walter Trout - Broken (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103010.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103067.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Marian McPartland Trio - Live At Shanghai Jazz (2002) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103068.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Don Ellis - Three Classic Albums Plus (1959 - 1962) 2CD, 2018, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103105.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tubesnakes - Navasota TX (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103122.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Feelgooders - Soul & Imagination (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103124.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Solon Fishbone - Better Late (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103126.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.1 (1952, 1953) Blue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103129.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blues Rock Generations - Blues Rock Generations No.5 (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103133.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103140.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kenny 'Blues Boss' Wayne - Ooh Yeah! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103142.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hard Shine - Cold Shot (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103146.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hilde Fjortoft (Fjørtoft) - Trolls in my head (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103148.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Rochelle & the Sidewinders - Soul Kiss (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103152.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Michel Sardaby - Blue Sunset (1967) 1990, Mantra [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103172.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Larry Willis Trio - Just In Time (1989) SteepleChase [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103173.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Captain Morgan Express - The Pussycat Tapes (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103175.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ North By Northwest - No Time Like the Present (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103176.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Lucas Oakley - Right Here, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103177.jpg" />
 </div>
 
 

@@ -1,3 +1,79 @@
+###  Публикация: 1704082   (114738) от 02.03.2024
+
+Пираты Карибского моря: На странных берегах / Pirates of the Caribbean: On Stranger Tides (2011) HybridRip [H.264/1080p-LQ] [Open Matte] [Локализованная версия]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114738.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой истории о поисках истины, предательстве, вечной молодости и смертельной опасности капитану Джеку Воробью предстоит столкнуться с женщиной из своего прошлого Анжеликой. До самого конца не будет понятно, связывает ли их настоящая любовь, или же Анжелика искусно притворяется, чтобы вместе с Джеком добраться до таинственного источника вечной молодости.
+Она силой (   Читать дальше...   )Производство: США, Великобритания / Jerry Bruckheimer Films, Walt Disney PicturesЖанр: фэнтези, боевик, приключения, комедияРежиссер: Роб МаршаллАктеры: Джонни Депп, Пенелопа Крус, Джеффри Раш, Иэн МакШейн, Кевин МакНэлли, Стивен Грэм, Сэм Клафлин, Астрид Берже-Фрисби, Кит Ричардс, Ричард ГриффитсПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B444CB5FBCCC51A3939E8DE0AB8D14BEB47E5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703853   (114739) от 02.03.2024
+
+Первый снег лета / Sterne unter der Stadt / First Snow of Summer (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр, молодой человек, твердо решивший никогда не влюбляться, встречает очаровательную Каро в маленьком магазине шляпников в метро.Производство: Австрия / Interspot FilmЖанр: мелодрамаРежиссер: Крис РайберАктеры: Томас Пренн, Верена Альтенбергер, Маргарете Тизель, Харольд Виндиш, Маттео Ди Сапиа, Симон Хатцль, Селина Граф, Хольгер Шобер, Михаэль Мендль, Филипп АуэрПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, немецкийСубтитры: английские, сербскиеПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFB20C123A72AA4690B00314096859F124311E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703872   (114740) от 02.03.2024
+
+Кирилл Бадаев | Полный курс по продвижению в ГЕО сервисах (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получи полные знания о продвижении бизнеса через ГЕО РЕКЛАМУ (Яндекс карты, 2Gis, Zoon)
+Что получите по итогу курса?
+- Сможете привлекать новых клиентов в свой бизнес бесплатно используя лишь ГЕО сервисы.
+- Сможете создать стабильный приток новых клиентов даже в не сезон.(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:25:55Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7B5361B2487B1A9DCA89C4238728585A3BBFE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703904   (114741) от 02.03.2024
 
 Пираты Карибского моря: Сундук мертвеца / Pirates of the Caribbean: Dead Man's Chest (2006) HybridRip [H.264/1080p-LQ] [Локализованная версия] [handmade AI]
@@ -6,7 +82,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114741.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:BD5326FDCD5FFF3AD55C787189CE6B63B9DA1B29
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114742.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:291DF451D2547FBD6FBA3A9D6B62A7CD05CC21DA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114743.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:F9082A27493E4C2FFA46700B6A9465359A030B6B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114744.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ magnet:?xt=urn:btih:753869F30D0EBFAEFA4E8A6076A76DB1DECAF0CB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114745.jpg" />
 </div>
 
 
@@ -130,7 +206,7 @@ magnet:?xt=urn:btih:143AD1E7BECFE8123D1D412F2FA2E7CB4C529B77
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114746.jpg" />
 </div>
 
 
@@ -155,7 +231,7 @@ magnet:?xt=urn:btih:4DE479444471BCDB4B17D6B2495AAEA32A650D7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114747.jpg" />
 </div>
 
 
@@ -179,7 +255,7 @@ magnet:?xt=urn:btih:794A5C6CD49BC29BFFA3FE595389D6F8EBEF0261
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114748.jpg" />
 </div>
 
 
@@ -203,7 +279,7 @@ Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114749.jpg" />
 </div>
 
 
@@ -227,7 +303,7 @@ magnet:?xt=urn:btih:BBD9235A1D03B30FB36DA2A12E87105EBD8B69D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114750.jpg" />
 </div>
 
 
@@ -252,7 +328,7 @@ magnet:?xt=urn:btih:E4415C47D8CC4EDA819143B0D3FF4EC92B7244BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114751.jpg" />
 </div>
 
 
@@ -276,7 +352,7 @@ Password Generator 2024.03.01.710 [Ru] (авторский релиз)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114752.jpg" />
 </div>
 
 
@@ -303,7 +379,7 @@ magnet:?xt=urn:btih:D44227A778967FCF348F5E9ACF9BC2A47CB2E053
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114753.jpg" />
 </div>
 
 
@@ -327,7 +403,7 @@ magnet:?xt=urn:btih:E74BDCDD825D65BE3281B9E1E387BBBCFC0A632A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114754.jpg" />
 </div>
 
 
@@ -352,7 +428,7 @@ VSDC Video Editor Pro 9.1.5.532 [Multi/Ru] (акция Winning PC)
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114755.jpg" />
 </div>
 
 
@@ -376,7 +452,7 @@ magnet:?xt=urn:btih:57C93CF002FC856BA4105E94AB1D166D6687807C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114756.jpg" />
 </div>
 
 
@@ -400,7 +476,7 @@ History Channel. Как создавались империи / Engineering an E
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114757.jpg" />
 </div>
 
 
@@ -424,7 +500,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled (2004) [Ru/Multi] (2.2.b) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114758.jpg" />
 </div>
 
 
@@ -448,7 +524,7 @@ magnet:?xt=urn:btih:4001A0B457780D5FACC62B659E374FCE5A4EB8AC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114759.jpg" />
 </div>
 
 
@@ -473,7 +549,7 @@ magnet:?xt=urn:btih:D38D2361C725411E3BF07B1F1B74A81FD2C29329
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114760.jpg" />
 </div>
 
 
@@ -497,7 +573,7 @@ magnet:?xt=urn:btih:B90F35F40C49E00FB4C75FAB4E65EDA5C797D340
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114761.jpg" />
 </div>
 
 
@@ -521,7 +597,7 @@ VA - Best Rock Ballads 60-90s (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114762.jpg" />
 </div>
 
 
@@ -548,7 +624,7 @@ magnet:?xt=urn:btih:F9B180F3E1487D6C33DDE3D9AEA15C39E90090EF
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114763.jpg" />
 </div>
 
 
@@ -560,81 +636,6 @@ magnet:?xt=urn:btih:F9B180F3E1487D6C33DDE3D9AEA15C39E90090EF
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703968   (114764) от 02.03.2024
-
-Blizzard Entertainment | Артбук по игре Diablo 4 / The Art of Diablo IV Collector's Edition (2023) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Diablo IV".
-Коллекционное издание, входит в набор "Diablo IV Limited Collector's Box".
-
-Серия артбуков по играм Diablo: Артбук DiabloЖанр: АртбукЯзык: АнглийскийИздательство: Blizzard EntertainmentФормат: CBZКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587DDEE932BF8FE002E18FDDBD0659CA718DB37F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703910   (114765) от 02.03.2024
-
-Мегамозг против Синдиката Судьбы / Megamind vs. The Doom Syndicate (2024) WEB-DL [H.264/1080p] [EN / EN, ESP Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшая команда злодеев Мегамозга, Синдикат Судьбы, вернулась. Наш недавно коронованный синий герой теперь должен продолжать выглядеть злым, пока не соберет своих друзей, чтобы помешать своим бывшим злым товарищам по команде запустить Метро-Сити на Луну.Производство: США / DreamWorks Animation Television, DreamWorks AnimationЖанр: мультфильм, фантастика, боевик, комедия, криминал, приключения, семейныйРежиссер: Эрик ФогельПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, испанскиеПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA2D7E43AAAB668D915F585319772E1BBD47154
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703869   (114766) от 02.03.2024
-
-Потерянный в ночи / Perdidos en la Noche / Lost in the Night (2023) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Житель шахтерского городка Эмилиано ищет виновных в исчезновении его матери-активистки, которая отстаивала местные рабочие места у международной горнодобывающей компании. Однажды он находит улику, которая приводит его к богатой семье Алдама. Эмилиано устраивается на работу в дом Алдама, чтобы раскрыть их секреты.Производство: Мексика, Германия, Нидерланды / Cárcava Cine, Match Factory Productions, Pimienta Film, Snowglobe Films, Tres TunasЖанр: триллер, драмаРежиссер: Амат ЭскалантеАктеры: Juan Daniel García Treviño, Эстер Экспозито, Барбара Мори, Джеронимо Медина, Вики Араико, José Antonio Becerril, Soraya Carrillo, Bianca Gonzalez, Майра Эрмосильо, Mariana Díaz LeonПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, испанскийСубтитры: испанскиеПродолжительность: 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FF714086A1A923EE0F6C1931856E969AFDE516
 ```
 
 

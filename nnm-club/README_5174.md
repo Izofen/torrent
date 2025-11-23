@@ -1,3 +1,177 @@
+###  Публикация: 1599217   (159944) от 22.12.2022
+
+Грязная правда / Die wahre Schonheit / The Ugly Truth (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мона, ее муж Тео и дочь Ханна живут в просторной вилле на окраине города. Но их идеальная, казалось бы, жизнь переворачивается с ног на голову, когда молодая и красивая дочка подруги Моны решает их навестить.Производство: Германия / FantomfilmЖанр: драмаРежиссер: Кришна БхатиАктеры: Эва Хаберманн, Эмма Швайгер, Симон Боер, Лилли Лиферс, Каролина Хартиг, Маркус Грюссер, Николай Тегелер, Арвед Фризе, Хусейн Элираки, Маша ПолПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DE88DA7A568056114C23CE2F357796F1A7594D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675692   (159945) от 10.11.2023
+
+QLab 5.3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159945.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Figure 53, LLC.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8382ED85841C43C19EE8E05D4AAD0B6F21BDE80A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675764   (159946) от 10.11.2023
+
+Фридкин: Невошедшее / Friedkin Uncut (2018) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159946.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом документальном фильме у выдающегося режиссера "Изгоняющий дьявола" (1973) и "Французский связной" (1971), которому сейчас 83 года, берут интервью о его карьере, а ряд его коллег и поклонников делятся воспоминаниями и отдают ему дань уважения.Производство: Италия, Quoiat Films, Doc & Film InternationalЖанр: документальный, история, кинематограф, биографияРежиссер: Франческо ЗиппельУчастники: Уильям Фридкин, Уэс Андерсон, Дарио АрджентоПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced + full, Pazl Voice), английскиеПродолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCBDE0DB3C3D50EA860506A9D9DCAED3AC0DB46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599109   (159947) от 22.12.2022
+
+Мажор в Сочи (2022) WEBRip [H.265/2160p] [4K, SDR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Московские массивные здания и оживлённые дороги Мажор сменит на живописные курортные виды, домик в горах и извилистые серпантины. Туда он перебирается вместе с дочерью Соней, где у них появился свой семейный бизнес — эко-отель. Но ещё до открытия всё идёт наперекосяк. Вначале в гостинице устраивают погром, затем Соколовский наткнётся на местного мажора и перейдёт (   Читать дальше...   )Производство: Россия, Плюс Студия, Продюсерская компания «Среда»Жанр: Приключения, комедияРежиссер: Никита ВласовАктеры: Павел Прилучный, Павел Чинарёв, Виталия Корниенко, Роман Евдокимов, Павел Майков, Елена Полякова, Елизавета Шакира, Владимир Афанасьев, Магомед Муртазаалиев, Борис ДергачевПеревод: Не требуется (Русский)Субтитры: Русские (full, SDH)Продолжительность: 01:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1920128F66363FECE89155F2C97D1D50C9A8A6BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675682   (159948) от 10.11.2023
+
+Moonlight Agony - Silent Waters (2007) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving Solitude
+02. You Betrayed Me
+03. Soulless
+04. Through The Desert Storm(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A960739BD3E262A881D50D2BF035667432202457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599058   (159949) от 22.12.2022
+
+Жестокая ночь / Violent Night (2022) WEB-DLRip [H.264/1080p-LQ] [MVO, AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества преступники берут в заложники состоятельную семью, чтобы получить их деньги. Незадолго до этого захваченные родители подарили дочери рацию, по которой можно связаться с Сантой. Девочка вызывает подкрепление в его лице, чтобы проучить захватчиков.Производство: США, Канада / 87NorthЖанр: фэнтези, боевик, триллер, комедия, криминалРежиссер: Томми ВирколаАктеры: Дэвид Харбор, Джон Легуизамо, Беверли Д’Анджело, Алекс Хэсселл, Кэм Жиганде, Алексис Лодер, Эди Паттерсон, Леа Брэйди, Брендан Флетчер, Майк ДопудПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:50:50Реклама: Присутствует баннер!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDCEB7506B41EEA66C65BF32CE59DCF6D8E8D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675685   (159950) от 10.11.2023
+
+Seven Witches - Year Of The Witch (2004) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Asylum
+02. Year Of The Witch
+03. Fires Below
+04. Cries Of The Living(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838A2FBA8300828BAC1A0CBD6F983B9458260A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599124   (159951) от 22.12.2022
 
 42 секунды / 42 segundos / The Final Game (2022) WEB-DLRip [MVO]
@@ -6,7 +180,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159951.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ Moonlight Agony - Echoes Of A Nightmare (2004) [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159952.jpg" />
 </div>
 
 
@@ -57,7 +231,7 @@ Google представила переводчик плохого почерка
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_159953.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_159953.jpg" />
 </div>
 
 
@@ -81,7 +255,7 @@ Seven Witches - Passage To The Other Side (2003) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159954.jpg" />
 </div>
 
 
@@ -108,7 +282,7 @@ Merion Academy, Олег Филиппов | Курс по NoSQL (2022) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159956.jpg" />
 </div>
 
 
@@ -134,7 +308,7 @@ Dropshare 5 v.5.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159957.jpg" />
 </div>
 
 
@@ -159,7 +333,7 @@ Seven Witches - Amped (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159958.jpg" />
 </div>
 
 
@@ -186,7 +360,7 @@ magnet:?xt=urn:btih:6127513F193497896666E4CBAB4476852B801105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159959.jpg" />
 </div>
 
 
@@ -210,7 +384,7 @@ Yate 6.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159960.jpg" />
 </div>
 
 
@@ -236,7 +410,7 @@ magnet:?xt=urn:btih:9FAA566B5B7D2C07BBF70A549E611D47A89C3050
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159961.jpg" />
 </div>
 
 
@@ -260,7 +434,7 @@ Seven Witches - Xiled To Infinity And One (2002) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159962.jpg" />
 </div>
 
 
@@ -287,7 +461,7 @@ magnet:?xt=urn:btih:CB973FC330BB80EC35CA6BDCE3F46BAD392245EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159963.jpg" />
 </div>
 
 
@@ -311,7 +485,7 @@ PicoTorrent 0.25.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159964.jpg" />
 </div>
 
 
@@ -338,7 +512,7 @@ Artery Eruption - Artery Eruption & Mangled Atrocity (2004) Split [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159965.jpg" />
 </div>
 
 
@@ -365,7 +539,7 @@ magnet:?xt=urn:btih:1E15A58D8098967744917650D9F3B8473A5A1003
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159966.jpg" />
 </div>
 
 
@@ -389,7 +563,7 @@ Jeremy Pelt - Live In Paris: Noir en Rouge (2018) HighNote Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159967.jpg" />
 </div>
 
 
@@ -416,7 +590,7 @@ Belial - Wisdom of Darkness (1992) Reissue 2010, Galgenstrang Productions [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159968.jpg" />
 </div>
 
 
@@ -443,7 +617,7 @@ AIDA64 Extreme Edition  6.85.6305 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159969.jpg" />
 </div>
 
 
@@ -467,7 +641,7 @@ magnet:?xt=urn:btih:64F49B933986CE5AD6A345D110468E16F266B5CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159970.jpg" />
 </div>
 
 
@@ -478,181 +652,6 @@ magnet:?xt=urn:btih:64F49B933986CE5AD6A345D110468E16F266B5CC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAF2BBA2D16C49E8E353487400B2FC3003D2D327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675601   (159971) от 10.11.2023
-
-Belial - Wisdom of Darkness (1992) EP [APE|Lossless|image + .cue] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. The Invocation
-03. Of Servant Of Belial
-04. Lost Souls(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518E3F12E5E2AB29FDD541F04EC2DFB54F9CE4B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675553   (159972) от 10.11.2023
-
-Artery Eruption - Gouging Out Eyes of Mutilated Infants (2005) [FLAC|Lossless|image + .cue] <Slam, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scalped
-02. Stimulation In A Rigormortified Whore
-03. Jackhammer Headcrush
-04. Asexual Virgin Killer(   Читать дальше...   )Жанр: Slam, Brutal Death MetalПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D54F72B19B485EA5798DF6B1AA28FE2BDB26189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599091   (159973) от 22.12.2022
-
-Ученица / Le pupille / The Pupils (2022) WEB-DL  [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о невинности, жадности и фантазии. Этот короткометражный фильм рассказывает о желаниях, чистых и эгоистичных, о свободе и преданности, а также об анархии, которая способна расцвести в умах девочек в рамках строгой религиозной школы-интерната на Рождество.Производство: Италия, США / Esperanto Filmoj, TempestaЖанр: короткометражкаРежиссер: Аличе РорвахерАктеры: Альба Рорвахер, Melissa Falasconi, Грета Дзукки Монтанари, Кармен Поммелла, Lady Maru, Luciano Vergaro, Карло Тармати, Валерия Бруни-ТедескиПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, итальянский, английскийСубтитры: английские (forced, full, SDH), итальянские (ful, SDH)Продолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAFB4DD06A4832FDAC948517F252C082C8CD85C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599160   (159974) от 22.12.2022
-
-AOMEI Backupper Technician Plus 7.1.2 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159974.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97318626C016150608A9BBBE285564993E98D3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599216   (159975) от 22.12.2022
-
-Райский город  / Paradise City (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наемный убийца Райан Свон проникнет в криминальный мир Гавайских островов, чтобы отомстить главарю банды, который убил его отца.Производство: США / 308 Ent, Arcana Studio, BondIt, Buffalo 8 Productions, Exchange, Grandave CapitalЖанр: боевик, триллерРежиссер: Чак РасселАктеры: Брюс Уиллис, Джон Траволта, Стивен Дорфф, Блейк Дженнер, Брэнском Ричмонд, Эмбер Абара, Лоренцо Антонуччи, Кейт Кацман, Кори Лардж, Кэрри БернансПеревод: Дублированный (Pride Production), Многоголосый профессиональный (TVShows)Субтитры: Английский (Full, SDH)Продолжительность: 01:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2B13C822F39722D8C1987DD0D5127924B10688
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576062   (159976) от 22.12.2022
-
-Шоу Аватар (2022) WEBRip [H.264/720p] (сезон 1, выпуск 1-9 из 9)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159976.jpg" />
-</div>
-
-
-###  Подробнее
-
-На НТВ — новый оригинальный развлекательный формат «Шоу Аватар». Благодаря технологиям захвата движения и виртуальной реальности, на сцену выйдут не существующие в реальности, но любимые с детства персонажи — от героев сказок до фантастических пришельцев из других галактик. От реальных участников им достанутся голос, движения и эмоции, по которым жюри предстоит угадывать (   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Музыкальный, ТВ-ШоуПродолжительность: ~02:00:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96607AF6510B70E27E164FC274C8BC0FE57F2AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599279   (159977) от 22.12.2022
-
-ZTM Academy, Andrei Dumitrescu | Bash Scripting: Learn Shell Scripting (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn Bash Scripting from scratch, from an industry expert. You'll learn Shell Scripting fundamentals, master the command line, and get the practice and experience you need to go from beginner to being able to get hired as a DevOps Engineer, SysAdmin, or Network Engineer!
-We guarantee you that this is the most comprehensive and up-to-date online resource to learn (   Читать дальше...   )Производство: ZTM AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 09:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1223569686FA7E826D2C1F7212B685AAB31F238E
 ```
 
 

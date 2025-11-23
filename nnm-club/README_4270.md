@@ -1,3 +1,77 @@
+###  Публикация: 1682433   (131291) от 07.12.2023
+
+RizomUV Virtual Spaces / Real Space 2023.0.71 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131291.jpg" />
+</div>
+
+
+###  Подробнее
+
+RizomUV VS - это полнофункциональное приложение UV развертки, с функциями, превосходящими большинство предложений, представленных в настоящее время на рынке. В то время как его брат, RizomUV RS ((Real Spaces), предназначен для пространства САПР, RizomUV VS (Virtual Spaces) - это приложение UV развертки для индустрии компьютерной графики, от инди-кадров до игр, в (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D436E84C71E9127DC3EC2E8693E6AE33E1EAFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596189   (131292) от 30.12.2012
+
+Karateka [Ru/En] (RePack/1.0) 2012 | Audioslave
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремейк первой игры Джордана Мехнера, создателя серии Prince of Persia.
+В Karateka игрокам предстоит спасти похищенную принцессу. «Лупим» всех без разбору, доходим до босса, сражаемся с ним, побеждаем, переходим на новый уровень, снова лупим, снова сражаемся с боссом – и так до победного конца. В идейном плане ремейк будет полностью соответствовать первоисточнику, но с точки зрения визуального исполнения между ними нет ничего общего.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade (Fighting) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC44B7E86B74F7342D129A1817459F7A46DE76E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682493   (131293) от 07.12.2023
+
+Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Тампа-Бэй Лайтнинг (06.12.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131293.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 декабря 2023, четверг. 03:00 МСК. Стадион: Амали-Арена (Тампа, США), 19 092 зрителя (100% при вместимости 19 092)
+Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Линейный: Жюльен Фурнье (Гатино, Канада); Линейный: Дэвин Берг (Китченер, Канада)Телекомпания: BSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B159BECAB0EC4820AEBF343E4743B179885F03D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596227   (131294) от 30.12.2012
 
 Календарь | Playboy [Украина] на 2013 [2012] [PDF]
@@ -6,7 +80,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131294.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:562CDD5EEB68FB613817DCA599CC9A1F7C71F989
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131295.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:1E59FA19B106DF3265A73C96810EB97E8DD02CB3
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131296.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ magnet:?xt=urn:btih:E8D7920F3010CE568BECFB1837C2A9D5E7C61ADF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131297.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ magnet:?xt=urn:btih:DC9D65ABCEDDA6ABC465107ACBAD84517E8772C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131298.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:29FF9DF881B4CD1E7C00E7EB5932FDA935CC3952
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131299.jpg" />
 </div>
 
 
@@ -154,7 +228,7 @@ SGS Taipings (2023) [Ru/Multi] (23.07.21) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131301.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ Vladimir Horowitz - Horowitz Plays Clementi, Piano Sonatas (1989) [FLAC|Lossless
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131303.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ magnet:?xt=urn:btih:6E2C11C34014257C7AAAE72334F980B2F04FA63D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131304.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ magnet:?xt=urn:btih:7FD80564254E926A627ACCA657D3BEC4D5E18E8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131306.jpg" />
 </div>
 
 
@@ -250,7 +324,7 @@ magnet:?xt=urn:btih:7FD80564254E926A627ACCA657D3BEC4D5E18E8D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131307.jpg" />
 </div>
 
 
@@ -274,7 +348,7 @@ magnet:?xt=urn:btih:2B4C08192C22BD903D38F45ED0476727703B39A4
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131308.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ magnet:?xt=urn:btih:E3B0973E03BD8A3133BEEEA9B506134D9F892C04
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131309.jpg" />
 </div>
 
 
@@ -325,7 +399,7 @@ magnet:?xt=urn:btih:94B18652490175A42DEE6818C5A2814BBE57478B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131310.jpg" />
 </div>
 
 
@@ -349,7 +423,7 @@ Aiseesoft FoneLab for Android 5.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131311.jpg" />
 </div>
 
 
@@ -373,7 +447,7 @@ Abelssoft SSD Fresh Plus 2024 13.0.51115 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131312.jpg" />
 </div>
 
 
@@ -397,7 +471,7 @@ Windows 10 Manager 3.8.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131313.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ John Woo Presents Stranglehold [Ru/En] (Lossless Repack/1.1) 2007 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131314.jpg" />
 </div>
 
 
@@ -449,7 +523,7 @@ XY VPN - Security Proxy VPN 4.7.329 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131315.jpg" />
 </div>
 
 
@@ -473,7 +547,7 @@ Tor Browser Bundle 13.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131316.jpg" />
 </div>
 
 
@@ -497,7 +571,7 @@ magnet:?xt=urn:btih:7314EC971AD87FCF77DBFEC005E5D4BAC415D0BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131317.jpg" />
 </div>
 
 
@@ -523,7 +597,7 @@ magnet:?xt=urn:btih:0F2A80D5E9C05DBDA6187C1E52BA95F9F78F911C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131319.jpg" />
 </div>
 
 
@@ -547,7 +621,7 @@ magnet:?xt=urn:btih:5101C6317EEBE8DA31CB39E6CB2F33079802E641
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131320.jpg" />
 </div>
 
 
@@ -558,81 +632,6 @@ magnet:?xt=urn:btih:5101C6317EEBE8DA31CB39E6CB2F33079802E641
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59003B565FA5ED028489AD89F70C822B23136914
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596200   (131321) от 30.12.2012
-
-Harry Hamernik | Face Off. How to Draw Amazing Caricatures & Comic Portraits / Как научиться рисовать карикатуры и шаржи [2006] [PDF] [En]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой пошаговое руководство для желающих научиться рисовать карикатуры и шаржи. Представлены различные виды техник, приемы создания черно-белых и цветных рисунков. Отдельно, поэтапно представлен процесс рисования отдельных частей лица (глаза, брови, нос, губы и т.д.), а также различных типов лиц.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DD9592092312C2AD7309EE61A9B5A513114EB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596394   (131322) от 30.12.2012
-
-GParted LiveCD 0.14.1-6 [i486, i686pae, amd64] (3 x miniCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел новый релиз GParted GNOME Partition Editor - Linux/Debian ОС, для редактирования дисковых разделов, который используется для различных операций с разделами (и файловыми системами, находящимися на них), таких как: создание, уничтожение, изменение размера, перемещение, проверка и копирование. Это необходимо при создании пространства для новых операционных систем, реорганизации использования диска, копировании данных находящихся на жёстких дисках и зеркалировании одного раздела на другой (создании образа диска).
-
-В этом релизе ядро 3.2.35-2; Debian репозиторий 'sid' на дату 2012-12-23.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682550   (131323) от 07.12.2023
-
-Midori Browser 11.1.3 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Midori – легкий и быстрый веб-браузер для Windows с открытым исходным кодом. Уважает конфиденциальность пользователей, не собирает информацию и не продаёт инвазивную рекламу. Вы всегда будете контролировать свои данные, анонимно, конфиденциально и безопасно.
-Браузер изначально разрабатывался как часть среды рабочего стола Xfce. Он был создан для обеспечения высокой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949243444EC49328D4D2080C43173D3D5224BAEB
 ```
 
 

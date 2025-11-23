@@ -1,3 +1,81 @@
+###  Публикация: 1730103   (107952) от 14.06.2024
+
+PhotoRoom 5.0.1 (b1446) Mod by Maximoff [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107952.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 13.06.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D263CE8F69AF4C5B1D533F1B8727C8B2BF37923F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730246   (107953) от 14.06.2024
+
+Azrael - Dimensión V (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed, Power, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ad Aeternum 02:00
+2. Vivir - morir 03:11
+3. Sueños rotos 04:23
+4. Trece rosas 04:42(   Читать дальше...   )Жанр: Speed, Power, Heavy MetalПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5133B7E303F3E10598AF99C288864EA308770C36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729970   (107954) от 14.06.2024
+
+Veil of Tears - Emo Diaries (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Aftermath (2:23)
+02. Whispers in the Dark (2:35)
+03. Lost in the Shadows (3:33)
+04. Down the Rabbit Hole (3:34)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A027516A770AF74038773A733FFCB4C959BDA449
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730136   (107955) от 14.06.2024
 
 Marcela de Campos - Dimmed Lights (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +84,7 @@ Marcela de Campos - Dimmed Lights (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107955.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ The Andy MacFarlane Two Man Orchestr - My Old Suitcase (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107956.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Xeneris - Eternal Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107957.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Jesse Dayton - The Hard Way Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107958.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ VA - Константин Ступин. Трибьют, Часть 1 (2024) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107959.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ magnet:?xt=urn:btih:5D9752149737D91B8D5374A5F2843C324A13B110
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107960.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Paul McCartney & Wings - One Hand Clapping Sessions [Live Studio Sessions 1974 /
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107961.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Neon Swingers - Electro Swing Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107962.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ magnet:?xt=urn:btih:8F7E88316858D12A2EEBCDB927BB683F2A2BA764
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107963.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ magnet:?xt=urn:btih:ACA8A3472E718F4F5641EB5CAD4DE185BBF910EA
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107964.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ VA - Black Hole Trance Music 06-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107965.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Opera GX 109.0.5097.130 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107966.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ magnet:?xt=urn:btih:DE4EE20546A428738F5322960CE38E29B0A14B6B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107967.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Axel Rudi Pell - Risen Symbol (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107968.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ magnet:?xt=urn:btih:3156FF963C6958FC5CED112F0A61448B9E7E7E72
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107969.jpg" />
 </div>
 
 
@@ -395,7 +473,7 @@ PhotoRoom 5.0.2 (b1448) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107970.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ magnet:?xt=urn:btih:AAE61A1F793B472533CA5BC9522B22DC89E47163
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107971.jpg" />
 </div>
 
 
@@ -445,7 +523,7 @@ magnet:?xt=urn:btih:248ECFF1840113EC39D4074FA6E408AF216296D1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107972.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ magnet:?xt=urn:btih:6487A9FDC0E9460C51611CC89DDB6EB77B91A929
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107973.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ Fuzziliers - Sail the Seven Seas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <psy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107974.jpg" />
 </div>
 
 
@@ -521,7 +599,7 @@ Hour of Penance - Regicide (2014) [FLAC|Lossless|image + .cue] <Technical, Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107975.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ Vince Guaraldi - A Flower Is A Lovesome Thing (1957) Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107976.jpg" />
 </div>
 
 
@@ -575,7 +653,7 @@ Tom Harrell, Kenny Werner, Andre Ceccarelli, Paul Imm - Sail Away (1991) Musidis
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107977.jpg" />
 </div>
 
 
@@ -589,87 +667,6 @@ Tom Harrell, Kenny Werner, Andre Ceccarelli, Paul Imm - Sail Away (1991) Musidis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B16445478CD1AB970126E39E40311616DF72FDFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729872   (107978) от 13.06.2024
-
-Ensiferum - Ensiferum (2001) Remastered, 2014, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107978.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Intro
-A2 Hero In A Dream
-A3 Token Of Time
-A4 Guardians Of Fate(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5761AB89AA1D4CC1021616C5413B4464536BEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729868   (107979) от 13.06.2024
-
-Bab L' Bluz - Swaken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedelic rock, folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imazighen [00:04:12]
-02. Wahia Wahia [00:04:07]
-03. Zaino [00:03:53]
-04. AmmA [00:04:20](   Читать дальше...   )Жанр: psychedelic rock, folkПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6ACA2DF28432AF8744429FECF2B8EDE6F7DA5B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729927   (107980) от 13.06.2024
-
-Jimmie Lunceford - Margie (1946, 1947) 1989, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cement Mixer [2:47]
-02. Just Once Too Often [3:08]
-03. Jay Gee [2:47]
-04. Sit Back and Ree-lax [2:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441771B80E539A5ED91AB1E8CB4FBAF211796074
 ```
 
 

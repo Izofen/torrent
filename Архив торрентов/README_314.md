@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76672.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76686.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:AB3DF7667E23B6472C93D7062E3990C9EFF9FB91
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76712.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:48136865F39309076603733173382E8F616D3244
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76743.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Christian Radio Player 3.4.8 + Portable [Русский, Английский, �
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76749.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Christian Radio Player 3.4.8 + Portable [Русский, Английский, �
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76777.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Markus Schulz pres. - Los Angeles '12 (17.02.2012) [MP3|320 kbps]<Trance, Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76798.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:09BC6C84BF9B0B4AF15FA07F36482C956702DE1E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76804.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Zen Pinball  - это  симулятор пинболла, в  котором  
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76876.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:68ACF71AAC09614A2BA698B9526861DCBCBFD055
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76904.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:40CA16AD7663184C72D9D5910513BC545EE1614C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76916.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:3F019892BD8A0B04A2080F22538A8B7474ADF3D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76927.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:595E3ABBA04F166C16848352969DE74FACB37647
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76931.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:C7E8EC0AF8298B2F887BA1BA8572402B5E709975
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76933.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ The Rolling Stones - Sympathy for the Devil (Remixes) (1968) [DTS 5.1|Tracks (Up
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76936.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:ACEEBAF10E26BCB9DC81C8565E667AC6E87DE47F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76965.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:0947B9114244D45A69D0423EB563EBF5EC8B6537
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76996.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ NetBSD 5.1.2 [i386 + amd64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77003.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Scientific Linux 6.2 (LiveCD, LiveMiniCD, LiveDVD) [i386 + x86_64] (4xCD + 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77008.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:91D1C03E930A2AD7992ADF481F7FF8DCD551BB32
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77054.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Google Chrome 17.0.963.56 Stable 17.0.963.56 Stable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77091.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Google Chrome - новейший бесплатный браузер, позво
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77093.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Google Chrome - новейший бесплатный браузер, позво
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77101.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:5591A312E1DFA63F0E38AFEBD9ABA9A6E24DEFB6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77108.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:5DC17DC197E05B099790ACF45404E9D199B84F86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77134.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:5DC17DC197E05B099790ACF45404E9D199B84F86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77196.jpg" />
 </div>
 
 

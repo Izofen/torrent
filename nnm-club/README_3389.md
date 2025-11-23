@@ -1,3 +1,81 @@
+###  Публикация: 1730735   (107796) от 18.06.2024
+
+Brother Chunky - Dig Deeper (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Man (4:15)
+02. Get Thee Behind Me (4:42)
+03. Dig Deeper (3:44)
+04. How Many Times (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7498E7CA248CF58AA9599E1D893E428FADB8436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730736   (107797) от 18.06.2024
+
+Nico Fami - Nico Fami Live at the Ocean Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key to the Highway (4:17)
+02. Rock Me Baby (5:44)
+03. Nobody Shoot Me (5:51)
+04. You Don't Have to Go (5:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691406A57577F3943CE091C1D5139BC468459DA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730972   (107798) от 18.06.2024
+
+Темная сторона Копенгагена / Fra det morke Kobenhavn (1910) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известно, что скандинавские города, в том числе и Копенгаген, традиционно спокойные, тихие, с законопослушными жителями. И это правда. Но и правда то, что в любом большом городе есть темная сторона, опасные переулки и не очень-то миролюбивые граждане. И это надо помнить приезжим. А тем более простодушным фермерам. Но нет же - эти, простите за жаргон, лохи так и норовят (   Читать дальше...   )Производство: Дания / BioramaЖанр: короткометражный, драма, криминал, немое киноРежиссер: Карл АльструпАктеры: Карл Альструп, Кейт Фабиан, Sigrid Creutz Hindborg, Ёрген Лунд, Карл Петерсен, Arvid Ringheim, Emilie SannomПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F478D9AF89BD8129AAD7F72A9D38E3395BAF2312
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730944   (107799) от 18.06.2024
 
 Владислав Крапивин | Оруженосец Кашка (2016) [MP3, Ольга Голованова]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107799.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Exodus - British Disaster! The Battle Of '89 (2024) Live At The Astoria [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107800.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ RivetSkull - Absence of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107801.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ magnet:?xt=urn:btih:511D3B83CEFC8773FD52CC8F643A83C43E38C45C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107802.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Sam Morton - Daffodils & Dirt (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107803.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Jimmie Noone - Apex Blues (1928 - 1930) 1994, Decca Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107804.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Loch Vostok - Reveal No Secrets (2009) [FLAC|Lossless|image + .cue] <Extreme Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107805.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Loch Vostok - V: The Doctrine Decoded (2012) [FLAC|Lossless|image + .cue] <Extre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107806.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Loch Vostok - Dystopium (2011) [FLAC|Lossless|image + .cue] <Extreme Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107807.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ magnet:?xt=urn:btih:25742972EB4595CCC649E7603FB435DCF9456CF7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107808.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ magnet:?xt=urn:btih:5EE3537158E26D6E9C32D63FB9D2283F760D7DFA
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107809.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Redemm - Be My Lover (2024) [FLAC|Lossless|tracks] <Euro House, Deep House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107810.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Google Chrome 126.0.6478.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107811.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ PrivaZer 4.0.87 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107812.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107813.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ magnet:?xt=urn:btih:E85226131D511E0F8CF4DABFC439049E9546C892
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107814.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ Chillymouse - Only You (Bootmasters & Visioneight remix) (2021) [FLAC|Lossless|t
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107815.jpg" />
 </div>
 
 
@@ -445,7 +523,7 @@ BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107816.jpg" />
 </div>
 
 
@@ -473,7 +551,7 @@ Dutch Rhythm Combo Ft. Isa GT - Alerta (remixes) (2010) [FLAC|Lossless|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107817.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ Tarkan - Kuantum 51 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107818.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ VA - Валентинка для тебя (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107819.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ VA - Весеннеее настроение - 2024 (2024) [FLAC|Lossless|WEB-DL
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107820.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107821.jpg" />
 </div>
 
 
@@ -594,87 +672,6 @@ VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F6978BCF8EF190A9313EE07D992AC905EB8A3FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730986   (107822) от 18.06.2024
-
-VA - DJ Hits Vol. 65 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snap! & Einstein - The Power '96
-02. Mr. President - Coco Jamboo
-03. Los Del Rio - Maria, Maria (Pura Carroceria)
-04. Klubbheads - Klubbhopping(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841CD42D58AE8530813EA6107A107AC46845524F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730570   (107823) от 17.06.2024
-
-Loch Vostok - Dark Logic (2003) [FLAC|Lossless|image + .cue] <Extreme Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Admire And Resent
-02. Impressions
-03. Blunt Force Trauma
-04. Falling Star(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3252267E44200160FB9223C14C854AAC275FAFF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730792   (107824) от 17.06.2024
-
-VA - DJ Hits Vol. 57 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G-groove - Everybody
-02. Backstreet Boys - I Wanna Be With You
-03. Heath Hunter & The Pleasure Company - Revolution In Paradise
-04. Noble Savages - Digging in the noise(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F15407128B7E554DE7A9C2A9BB83E41FE1F9B55
 ```
 
 

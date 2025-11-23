@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131675.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ NVIDIA GeForce Desktop Game Ready 546.31 Hotfix + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131678.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Heaven Below - Falling From Zero (2012) [MP3|320 кб/с]<Hard Rock | Alternativ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131679.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Infinitas - Journey To Infinity (2012) [MP3|320 кб/с]<Shoegaze Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131685.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:0984CF545D9472AD60C32FAC0B85D186B1D0A676
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131687.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:7FD3F1FE2042940DC7FD2C6C01F2CA065EE39371
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131689.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C63598146CA76301431D1E4AC5C4703A6B3ED495
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131693.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AE591036A0D988C7F69B238D7BC357D1265F730E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131695.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Psiphon 3 build 180 (05.12.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131698.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:BCAC8DB4B62D0CD0427BB1AC211751C104CB8B5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131699.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ AIMP 5.30 Build 2531 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131702.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131704.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ AMD Radeon Software Adrenalin Edition 23.12.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131706.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Butterfly - Favorite Colors Episode 064: End of Year 2012 (Part. 2-4) (29.12.201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131707.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:0DC1928B833F2A886979CFD498DC1950F07E7223
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131709.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Jorn - Dukebox (2009) [MP3|320 кб/с]<Hard`n`Heavy>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131714.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Kanista - The Sunlight Channel (2012) [MP3|320 кб/с]<Breakcore, Noise>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131715.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:277A4772B49899B0194586B960FF32DA350DCCB5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131717.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Macrorit Disk Scanner 6.7.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131720.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Skogen - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Atm
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131721.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Skogen - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Atm
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131725.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Powerage - Branded Skin (1994) [MP3|320 кб/с]<Classic Rock & Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131731.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Windows 11 Manager 1.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131740.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131746.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:43CC62790E0844B14A4D1774A3C32A2C2379B779
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131762.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Fort Firewall 3.10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131766.jpg" />
 </div>
 
 

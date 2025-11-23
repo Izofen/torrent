@@ -1,3 +1,77 @@
+###  Публикация: 1750339   (104233) от 19.09.2024
+
+Хоккей. КХЛ 2024-2025. Северсталь (Череповец) - Торпедо (Нижний Новгород) (18.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Северсталь (Череповец) - Торпедо (Нижний Новгород) (18.09.2024)
+СУДЬИ Сергеев Александр (Жуковский, Россия) Юдаков Сергей (Россия)
+СТАДИОН «Ледовый дворец Череповец» (Череповец) Зрителей: 4690Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE53915E91D36F56A138ED9B938FE05BB0842694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750414   (104234) от 19.09.2024
+
+Ты должен верить / You Gotta Believe (2024) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда неудачников из Малой бейсбольной лиги посвящает свой сезон умирающему отцу игрока. При этом они совершают невозможное - выходят в финал Мировой серии в игре, которая мгновенно стала классикой ESPN.Производство: США / Media Finance Capital, Santa Rita Film Co., Well GoЖанр: семейный, спортРежиссер: Тай РобертсАктеры: Сара Гадон, Молли Паркер, Люк Уилсон, Грег Кинниэр, Патрик Ренна, Лью Темпл, Этьен Келлиси, Michael Cash, Джейкоб Соли, Николас ФрайПеревод: Профессиональный многоголосый (RGB)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8DB1C4D769A18569C73448F2ED7B0292249FD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750330   (104235) от 19.09.2024
+
+Vivaldi 6.9.3447.46 include standalone [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84391E044164035694D7B7D99A96DEACA151BFFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750240   (104236) от 19.09.2024
 
 Астрал. Ночь в могиле / Siksa Kubur / Grave Torture (2024) WEB-DLRip [H.264] [звук с TS]
@@ -6,7 +80,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104236.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Fleetwood Mac - Mirage Tour '82 (1982) Remaster, 2024,  Rhino - Warner Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104237.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:34EA7777E5D4D0DD024A2F9FA677BB5B38EBA83F
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104238.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ XYplorer 26.40.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104239.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ Skid Row - Live in London (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104240.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ VA - Arabic Deep House (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104241.jpg" />
 </div>
 
 
@@ -159,7 +233,7 @@ magnet:?xt=urn:btih:56CA0C9F7BC97F3C0D225188EFC0174A4E133114
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104242.jpg" />
 </div>
 
 
@@ -183,7 +257,7 @@ VA - Deep House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104243.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ Bones Uk - Soft (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Imdustrial Rock, G
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104244.jpg" />
 </div>
 
 
@@ -237,7 +311,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 6 (2024) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104245.jpg" />
 </div>
 
 
@@ -264,7 +338,7 @@ VA - DJ Hits Vol. 5100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104246.jpg" />
 </div>
 
 
@@ -291,7 +365,7 @@ Eclipse - Megalomanium II (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104247.jpg" />
 </div>
 
 
@@ -318,7 +392,7 @@ magnet:?xt=urn:btih:A2B58AF348B2D8E355AAD4EA803066E20BE3ED9C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104248.jpg" />
 </div>
 
 
@@ -343,7 +417,7 @@ magnet:?xt=urn:btih:26D1E4AF85A7E176C952F02FCC5D56075725CF9B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104249.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ magnet:?xt=urn:btih:FE68BAE3830A4FE230355E0E489046F724F5AB9A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104250.jpg" />
 </div>
 
 
@@ -395,7 +469,7 @@ Miseration - Studio Albums (4 releases) (2006-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104251.jpg" />
 </div>
 
 
@@ -422,7 +496,7 @@ magnet:?xt=urn:btih:45D98CA2F86CF4B4186141BB5BE9EA92C99D17C5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104252.jpg" />
 </div>
 
 
@@ -448,7 +522,7 @@ magnet:?xt=urn:btih:B33F18A56F88425883AFB0FB7F48D8B6E80D8B4F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104253.jpg" />
 </div>
 
 
@@ -474,7 +548,7 @@ magnet:?xt=urn:btih:B77C852E11AC04CC7D31792F473A5DDD02F782AA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104254.jpg" />
 </div>
 
 
@@ -499,7 +573,7 @@ Earth Lux - Earth Lux (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104255.jpg" />
 </div>
 
 
@@ -526,7 +600,7 @@ magnet:?xt=urn:btih:6ED0AB1FD3412E55410BB008581263A0F685DF45
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104256.jpg" />
 </div>
 
 
@@ -552,7 +626,7 @@ magnet:?xt=urn:btih:D63DBE1D8270A6C7B826E8B043CECE648D3DA4CC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104257.jpg" />
 </div>
 
 
@@ -578,7 +652,7 @@ magnet:?xt=urn:btih:27E66109D97D120A51A68AD2764D51CEC82C663A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104258.jpg" />
 </div>
 
 
@@ -591,87 +665,6 @@ magnet:?xt=urn:btih:27E66109D97D120A51A68AD2764D51CEC82C663A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB59392DB0477F22E3C29AEBC9D12D1EC01AED1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750012   (104259) от 17.09.2024
-
-Jim Hall - Jazzpar Quartet + 4 (1999) Storyville [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella by Starlight [9:34]
-02. Chelsea Bridge [11:09]
-03. Mr. Blues [9:26]
-04. Thesis [11:44](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471D735B8BD20D7F2CF67E9D74CD911BED4000B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750039   (104260) от 17.09.2024
-
-Francesco Bearzatti and Federico - And Then Winter Came Again (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Blossom (5:48)
-02. Nightwalker (6:45)
-03. Orchidée (3:30)
-04. And Then Winter Came Again (6:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C13651C2FCB701479841C08436681778F1E8F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750049   (104261) от 17.09.2024
-
-Science Of Disorder - Apoptose (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kotlas Connection
-02. Rabid Dog
-03. Hear Us
-04. Des Rêves Noirs(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859C267B9BDD9C38D5BE321F60D958767C382CF9
 ```
 
 

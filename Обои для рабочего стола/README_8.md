@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205957.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205957.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B7BB3D3FFC4142B4D4499A961AFF08AD79A6C1BA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209933.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209933.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6CF7B423F39C35CFBB2951987AA26277322EDF2A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217223.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217223.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C9821C54BFBCFEDE332D0E2CF21374CA152FC1CE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217549.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217549.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Creative Wallpapers (10.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218016.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218016.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AB37637BEC3BF21A4900D7686604D815F3EC3E76
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218436.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Abstract HD Wallpapers (10.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218437.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218437.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ New year wallpapers 2013 (10.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218459.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218459.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Wallpapers - Антология Нового года [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220701.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220701.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4F44ADD37BF24FC70E9A7A0D89BF3992ACE06FBD
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222243.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222243.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E9990AFB6BF095D2C73230BFF8301D1C901DCB84
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222348.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222348.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:1B5836C836DEE34F64B3DB724FF61D09AB88C62B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222568.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222568.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:CB892AB5601830F410E04901450AF85EABC561AC
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222575.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222575.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F944A98481D2CF6D5B76BEAF1584EE7112BAB3BC
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222738.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:EFDABF40A65FB90CB5722D6E8500DEE7C6B653EA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223651.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223651.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Fantastic Wallpapers (08.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224441.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224441.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A68657F909E3AB36B9913BC5F7094582FDB87D6E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226198.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226198.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:8411CAA06D5A6A448441FDAC64B1CBEB28AB06E7
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226279.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226279.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:AB85844C30FF07CF5CAC8B610C5561DCABB068CD
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226321.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226321.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:82188A3757AD2991D256104D88DC2E0839F70F78
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226330.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226330.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:62328042A30561D4E753DCC7E8DDB0677F6149CF
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226337.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226337.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:9C940C647A560A224CD0477926E886BA61CD6F5E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226360.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226360.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:23394369FBDBB783AE35BF1B994C87CE4A4A48C1
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226368.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226368.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:19DD8A8B5A6F3B3E8EE8A50CC38A97C060CE18BB
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226397.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226397.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:9FC5176D08CFC445F0C1FC09A9F8ACABC59CA4F7
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227746.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227746.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:365E77BB3C8A3DFD04D24CCF79A628CC01B166E2
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227807.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227807.jpg" />
 </div>
 
 

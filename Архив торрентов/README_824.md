@@ -1,3 +1,75 @@
+###  Публикация: 1673047   (166063) от 31.10.2023
+
+Microsoft PowerToys 0.75.0 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft PowerToys – это набор утилит, позволяющих опытным пользователям настраивать и оптимизировать работу оболочки Windows 10 для повышения производительности труда.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0686041FFAA45F079F2F6B6986DF50A708485482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673125   (166067) от 31.10.2023
+
+Pepakura Designer 5.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет программ, адресованных моделистам, которые изготавливают свои модели из бумаги. Программы предназначены для просмотра, создания и редактирования выкроек (разверток) бумажных моделей. Выкройки генерируются на основе готовых моделей, ранее созданных в программах трехмерного моделирования. Поддерживаются многие популярные форматы: 3DS, DXF, MQO, LWO, OBJ, STL, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1593055F293518DC0B0C2067E0AAB52E31972E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516503   (166072) от 11.12.2021
+
+Martinic - AX73 1.0.3 VSTi (x86/x64) RePack by R2R [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166072.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1986 году поле синтезаторов было усеяно цифровыми технологиями. Вот почему оригинальный AX73 с его полностью аналоговым сигнальным трактом остался в гордом одиночестве незамеченным. Martinic взяли все, что было ценно в оригинальном AX73, и превратили его в мощный, гибкий программный инструмент, который отлично вписывается в модельный ряд современных синтезаторов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE532A53234F72517692C5B09C215594763C4F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345471   (166076) от 15.12.2019
 
 Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
@@ -6,7 +78,7 @@ Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166076.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.0 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166082.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166091.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Skype 8.55.0.141 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166096.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ WindowManager 10.13.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166102.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Opera One 104.0.4944.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166106.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Any Video Converter Ultimate 6.3.7 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166110.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ ABBYY Lingvo European 1.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166123.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Path Finder 10 v10.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166124.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ XY VPN - Security Proxy VPN 4.7.303 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166127.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Display Driver Uninstaller 18.0.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166131.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Alien Skin Exposure X5 Bundle 5.2.0.166 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166135.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ PureSync 6.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166149.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ Resource Hacker 5.2.4.386 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166150.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ Sprint-Layout 6.0 DC 24.10.2019 RePack by NikZayatS2018 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166153.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ Comodo Dragon 117.0.5938.150 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166154.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:12390E041C9DD71A2FE1F7B2F0CC72A0E4D34D76
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166155.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ Adobe After Effects 2023 23.1.0.83 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166156.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ Adobe Photoshop Lightroom Classic 12.1.0.8  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166160.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ Wondershare PDFelement 10.1.4.2521 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166161.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ Opera One 104.0.4944.36 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166165.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Негодник, кот
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166169.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ Mirillis Action! 4.38.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166175.jpg" />
 </div>
 
 
@@ -548,83 +620,6 @@ Mirillis Action! 4.38.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E43F2B03351C7FC63449E163122169F78FF3DAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431802   (166181) от 15.12.2020
-
-Loopback 2.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудио между приложениями на вашем Mac.
-Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере!
-
-Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте приложений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Rogue Amoeba Software, Inc. AllПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C494DD1AF8C1093896DFFFA27288D46B864A566
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673175   (166190) от 31.10.2023
-
-Acoustica Premium Edition 7.5.1 (x64) Portable by 7997 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392AEB0C182924562A501ABC46DECF3B77002DC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431854   (166193) от 15.12.2020
-
-Alfred 4 Powerpack 4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1585E665A9E1EE2747EACD1C02336B5F03ED7785
 ```
 
 

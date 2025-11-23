@@ -6,7 +6,7 @@ Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remas
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46583.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46584.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:ED017139F6D184FEF5F64331F196F5E39397F7AA
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46585.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E485D2EB03F20C0E3327C898B7A177710CB978EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46586.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:664FAB7510791979EFD7888744E0CFBE0F531A1A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46587.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:ACA7D74D286C72C191EBA3FEC621FF3DFB5B4542
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46588.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D4E20E79029C90F694CFC3A1D808CF091883A503
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46589.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Okashi na Tensei | Sweet Reincarnation | Сладкая Реинкарнация
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46590.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ PageEdit 2.3.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46591.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Music News For Forum vol.012 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46592.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Sigil 2.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46593.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ StartAllBack 3.8.4 build 5136 (DC-15-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46594.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:8BE0201729035E7F91981280477F8B653744055F
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46595.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ FinePrint 12.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46596.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ L'Imperatrice - Pulsar (2024) [FLAC|Lossless|WEB-DL|tracks] <French-Disco, Indie
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46597.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:93E66AC27C2783A322845BBDD81917820464F7A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46598.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:04C34CD36BF14F71EA09B9567B88A648F3CFB42A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46599.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A4227891C737D39F064D09153C36140C15DA6DF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46600.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:A4227891C737D39F064D09153C36140C15DA6DF2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46601.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:918C56AFD2196413DAAB65247D52CA0458631B9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46602.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:918C56AFD2196413DAAB65247D52CA0458631B9A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46603.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:32BCBFC16367C62E0D0C96ECC6DD7476600E52F1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46604.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:75B8A1D23AF35E1A7D049223242864C8820DB410
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46605.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:ED85C8283DCAEC28DE12220DC1E546DA7707ACEB
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46606.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46607.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A7EAB8696A8F3FB26C0947F0E7FFE4F2BF6FC811
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46608.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bria Mobile: VoIP Softphone v6.20.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64578.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2E3ECC3D372B77104298792FBB0D814D30BC3576
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64579.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EDE08A69B5880DA26473B37545C96A92267B041E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64580.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E8314B161C86322A54B18314EA9C3B639BFCCEFC
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64581.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:97F7F9B78C64FE1E09065042DAC920806FFF8A76
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64582.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Dog Scanner: Породы собак v19.0.0-G Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64583.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:26D1751DCBEAC8077985AA93AEB36BE2262B2FC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64584.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:457BA10BC6419AF594CE0528C4ECC6F8D9BFB53B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64585.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:CE05B12256E3C158EB435911B7B00E3BC2F0F5D1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64586.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Summer Music House Furia 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64587.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ A-HA - Crying In The Rain (CDM) (1990) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64588.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:81AC1C039D0407157A522202846AC1C8C9CD4CA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64589.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:5D14825F306E809107215929BA71DF7050A98654
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64590.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:DC35C89399E1420A536E230121E24D3E6AB2F489
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64591.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:7AA5506890053FBDAE7B9C0CF53406BCB4270810
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64592.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:A2ED7328B24D8676EFF0206CF199F733597E0FC0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64593.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:111984639CF77C19E42F07C50DF4801CD30439FC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64594.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Photo Lab PRO v3.13.68 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64595.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:28F882A9B4DFEEB18C37563E8C51F7FE31A1C9DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64596.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:8BC0666A4A1EB2C7D44DF7D84293BB0E74F12352
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64597.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:CAD33AFA12CB54C903542C089EEDA49A04995E8C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64598.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:1EB3A8FED9EBEA5088B3CCCB82401B8C61589C17
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64599.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:2CC353AA864A05E0BD96EB7B4A8D48D6AB43F23A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64600.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:A491DAAF96DB5B93A192AD18B9F2D1C33E7DEA0F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64601.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:396BA06742E1586C660650F6B424F9D68FF13580
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64602.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Erasure - ABBA-Esque (CDM) (1992) 1st UK Press [APE|Lossless|image + .cue] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64603.jpg" />
 </div>
 
 

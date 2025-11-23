@@ -1,3 +1,83 @@
+###  Публикация: 1521048   (138105) от 31.12.2021
+
+VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ChubaChiki - Jazz Improvisation (Marcus Raute Mallets Mix) (6:29)
+02. kamosoul - Shine (BNinjas Basement Mix) (7:12)
+03. Toni Young - Impossible To Imagine (5:49)
+04. JOFF. - Sunday Picture (5:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C346221D00658F6C8378B8ABEB79765E59AFB61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414317   (138107) от 30.12.2020
+
+Noblesse | Дворянство [2020, TV, 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рейзел пробудился после 820 лет сна. Он — чистокровный дворянин, обладатель особого титула защитника.
+
+Верный слуга Франкенштейн в попытке защитить господина переводит его в корейскую старшую школу, где одноклассники помогают Рейзелу познать человеческий мир.
+(   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: приключения, фэнтезиРежиссер: Тада СюнсукэПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F39CD3715B7958A3821400AA0B844088944A3ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679419   (138108) от 25.11.2023
+
+Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Herald of Darkness [13:35]
+02 - Herald of Darkness (Video Edit) [8:38]
+03 - Herald of Darkness (Radio Edit) [3:40]Жанр: Metal, Heavy MetalПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D98D321DFE4B900D86604718F346467064EBAEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969789   (138109) от 31.12.2015
 
 Марсианин / The Martian (2015) WEBRip [H.264] iTunes [MP4|960х400]
@@ -6,7 +86,7 @@
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138109.jpg" />
 </div>
 
 
@@ -31,7 +111,7 @@ magnet:?xt=urn:btih:138141AF745EB0274BD17F9CEA8B08B72CA77A76
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138110.jpg" />
 </div>
 
 
@@ -55,7 +135,7 @@ magnet:?xt=urn:btih:5D22FB36CF19DADD3FA6A104B3722C16057A79A4
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138111.jpg" />
 </div>
 
 
@@ -79,7 +159,7 @@ Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138112.jpg" />
 </div>
 
 
@@ -106,7 +186,7 @@ magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138113.jpg" />
 </div>
 
 
@@ -132,7 +212,7 @@ VA - Steyoyoke Gems Solar 10 (2021) [AAC|~337 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138114.jpg" />
 </div>
 
 
@@ -159,7 +239,7 @@ Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138117.jpg" />
 </div>
 
 
@@ -183,7 +263,7 @@ magnet:?xt=urn:btih:71B70B3CCD40DE71FDDCE9D913E043CC9EE00F2C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138118.jpg" />
 </div>
 
 
@@ -207,7 +287,7 @@ magnet:?xt=urn:btih:C247C3C83A630D7A2F08D15B22B8DFEC17A890F3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138119.jpg" />
 </div>
 
 
@@ -231,7 +311,7 @@ Yes - Fragile (1971) Remaster, 2015, Atlantic Records [ALAC|2.0 24/88|tracks]<Sy
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138120.jpg" />
 </div>
 
 
@@ -258,7 +338,7 @@ magnet:?xt=urn:btih:600456F21BCD987F88FD85BE8BAA97C2C76C6900
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138121.jpg" />
 </div>
 
 
@@ -282,7 +362,7 @@ magnet:?xt=urn:btih:1D7E6ADD2CE570759ED411B434B6CA4AA50328F9
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138122.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ VA - Organica - Sound Tales 2 (2021) [AAC|~303 Kbps] <Deep House, Dub Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138123.jpg" />
 </div>
 
 
@@ -333,7 +413,7 @@ magnet:?xt=urn:btih:CCF355571D710DFE6DF8A8DAB370B87434464582
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138125.jpg" />
 </div>
 
 
@@ -357,7 +437,7 @@ MCShield 3.0.5.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138128.jpg" />
 </div>
 
 
@@ -381,7 +461,7 @@ magnet:?xt=urn:btih:04E4C591A600E1A9EB3F0604FBBCE9194E56CB86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138130.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ Artie Shaw - 1946-1950 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138131.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ VA - Hit News Vol. 5 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138132.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138133.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ magnet:?xt=urn:btih:CBC3225FE030F179890EECD778B68E90277CF618
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138135.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ Photo Supreme 5.3.0.2616 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138136.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ magnet:?xt=urn:btih:BDDF24852FD0B1FAB5470AB4B9CF6148333BC030
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138140.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ magnet:?xt=urn:btih:02A69AFC0876D4D7E46458C08C6603BE2BB2D132
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138141.jpg" />
 </div>
 
 
@@ -567,81 +647,6 @@ magnet:?xt=urn:btih:02A69AFC0876D4D7E46458C08C6603BE2BB2D132
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436146   (138142) от 30.12.2020
-
-Георгий Чернядьев | Урок ретуши 10 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Урок по обработке и ретуши в лайтрум и фотошоп от Георгия ЧернядьеваЖанр: Ретушь фотоПродолжительность: 00:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25D7E51012AA27EBD2867324DF0CA8D240F4751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349221   (138144) от 31.12.2019
-
-Евгения Михайлова | Имитация страсти (2019) [MP3, Ирина Воробьёва]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Василиса считала, что ее карьера удалась. Роскошная жизнь в Америке, богатый муж – о чем еще может мечтать бывшая модель? Но на самом деле их семейная жизнь под угрозой…
-Ксения наконец-то смогла устроиться в Штатах. Вначале ей понравилось работать няней в шикарном особняке, однако потом Ксения поняла, куда попала, но было уже поздно…
-Для бывшего криминального авторитета (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8190608B27C1C129E92C14ABC75D3D05FCEC34F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968487   (138145) от 31.12.2015
-
-Лихорадка / The Fever (2004) HDTV [H.264/1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она прожила настолько обычную жизнь, что "никогда не стала бы читать унылую брошюру о своей жизни".
-Но со временем, женщина стала осознавать свой потребительский образ жизни, экономическую эксплуатацию бедных слоев населения, неравенство. Толчком к этому становится книга, которую она однажды находит на пороге своего дома – «Капитал» Карла Маркса. Серия (   Читать дальше...   )Производство: США, Великобритания, HBO Films, Home Box Office (HBO)Жанр: ДрамаРежиссер: Карло Гэбриель НероАктеры: Ванесса Редгрейв, Анджелина Джоли, Майкл Мур, Джоэли Ричардсон, Джеральдин Джеймс, Мириам Тернер, Камерон Д’Анджело, Кира Д’Анджело, Раде ШербеджияПеревод: Многоголосый закадровый (AMedia)Продолжительность: 01:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1534F38706945A0CBF50A4B0801166A10ED797
 ```
 
 

@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173097.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alex Libby | Practical Next.js for E-Commerce (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173110.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Doug Farrell | The Well-Grounded Python Developer (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173111.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ David Matuszek | Quick Java (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173113.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Morten Barklund, Azat Mardan | React Quickly, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173116.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Irina Dominte | Web API Development for the Absolute Beginner (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173118.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Alfonso Antolinez Garcia | Hands-on Guide to Apache Spark 3 (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173121.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Dylan Hildenbrand | SvelteKit Up and Running (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173126.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Avi Tsadok | The Ultimate iOS Interview Playbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173127.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ David Canton Nadales | Build Your Own Metaverse with Unity (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173163.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:51B57A50912948FB28AAFC7875BF1AB26B4C6F02
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173278.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Joshua Picolet | Hash Crack Password Cracking Manual v3 - Russian (2023) [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173308.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:EA7548F29CD56B5FD41FB2F7F29F5B8B16AF688D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173326.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:C83997713BD2B79D80A331ED922744CF2B1F1B44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173787.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sebastian Raschka etc.| Machine Learning With PyTorch and Scikit-Learn [+code] [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174726.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174726.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Milo Yip | A Study Path for Game Programmer / Путь разработчика 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175495.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175495.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176151.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176151.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:4703512D051F2B640F81DF33FB154ADC8EDF7275
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176323.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176331.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Matthew Justice | How Computers Really Work / Как на самом деле р
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176374.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176374.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ John Thomas | Data Structure and Algorithms With Python: The Ultimate Guide Towa
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176461.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176461.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176465.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176465.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:51FAB423C48F0093D1F6821B9190BC50EBB6B537
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177148.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177148.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3D2A61EF72AA5C1F2B0C1A85E3094FD9C75C7E3E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177160.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177160.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:BD45C962F504D27223570CEC6F59806B53ECB695
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177247.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177247.jpg" />
 </div>
 
 
@@ -606,26 +606,25 @@ magnet:?xt=urn:btih:CA045C43C10AC1055FB6FEBF7D1DF8DA02D711DA
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666622   (178643) от 05.10.2023
+###  Публикация: 1429128   (177342) от 05.12.2020
 
-Николай Павлов | Microsoft Excel. Готовые решения - бери и пользуйся! (+ примеры) (2014) [PDF]
+Хуан Нуньес-Иглесиас и др. | Элегантный SciPy (2018) [PDF]
 
 >>Компьютерная литература
->>
+>>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178643.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_177342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга представляет собой полноценный сборник готовых решений самых распространенных проблем и задач, с которыми сталкиваются в повседневной работе пользователи Microsoft Excel.
-Материал книги охватывает все основные направления и темы: работу с текстом и датами, форматирование, вычисления с помощью формул и функций, обработку больших массивов данных и создание (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Книга по требованиюФормат: PDFКачество: Изначально электронное (ebook)
+Книга познакомит вас с основополагающими компонентами библиотеки SciPy языка Python. Вы научитесь писать элегантный, ясный, краткий и эффективный программный код благодаря примерам из обширной научной экосистемы Python. Кроме SciPy, вы узнаете много нового про сопутствующие библиотеки, такие как NumPy, Pandas, scikit-image. Издание будет полезно всем программистам (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E8D4243CE5E093166470466F7E4C253796FB52D
+magnet:?xt=urn:btih:0ABE2E49A9B2EC2AAFC57677FEDB28419EEDB1C2
 ```
 
 

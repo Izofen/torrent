@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69336.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E7BB377454D9F153AB9F6F0382B885500793E2C1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69337.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ The Hot Rod Gang - Can U Dig It? (40th Anniversary) (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69338.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.0 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69339.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:BD9A143ADDFBE5DBA2329904861D29D451E2FF14
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69340.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Manntra - Titans (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69341.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Karen Cheryl - Etonnamment Romantique  Best Of (2025) Remastered [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69342.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Exx Boundless Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69343.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Exx Underground Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69344.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:BB7D94DC4A98AF14BA74C82F5849253164E60A23
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69345.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:E1DCA4FF617CAEC8F48243FA569631FF862AFE67
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69346.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:D851241CADE5BC0796EA488D368308797C611FAF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69347.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69348.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Death Angel - The Enigma Years (1987 - 1990) (2020) Box Set, Compilation, Reissu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69349.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Sub Zero Project - Tomorrowland Friendship Mix (2025-03-13) [MP3|320 Kbps] <Hard
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69350.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1B592E1D0EAE6844597201E051F2DCF2E1A0E462
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69351.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Opeth - Pale Communion (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69352.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:73294D495F94F4F9FF190B6CFDBA342543D35C9C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69353.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69354.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:8AAAC46320638E53AF00E081617FB95B6CEE730E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69355.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - The World Series Of Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69356.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:89FD22999CCDAB528CF8240A6F170A594A8856B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69357.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:B850CCA5944ECF4A4ABB4BBC270B2804C859F406
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69358.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Picture Bird - Bird Identifier v2.9.32 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69359.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:8C636EBC5C9B29C7DA4027AC6F1C31C313FC0143
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69360.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Daff Moon Phase (Фазы Луны) v3.45 Mod by shv7net [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69361.jpg" />
 </div>
 
 

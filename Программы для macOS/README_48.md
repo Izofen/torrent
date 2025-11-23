@@ -6,7 +6,7 @@ Contacts Journal CRM 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173373.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ TextSniper - OCR simplified 1.10.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173375.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Cold Turkey Blocker Pro for Mac 4.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173386.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ SketchUp Pro 2023 v.23.1.341 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173528.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ LilyView 1.6 [Rus/En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173747.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Trminal 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173979.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173979.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Reeder 5 v.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174033.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ TechSmith Snagit for Mac 2024.0.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174060.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Hands Off! 4.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174165.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174165.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ App Cleaner & Uninstaller Pro 8.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174288.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174288.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Pico-8 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174336.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174336.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Guitar Pro for Mac 8.1.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174490.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Bongiovi Digital Power Station (DPS) 2.2.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174492.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174492.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rhinoceros 7 v.7.34 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174541.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ GIF'ted 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174561.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174561.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Macgo Mac Blu-ray Player Pro 3.3.22 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174640.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Bartender 4 v.4.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174643.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WiFi Signal: Status Monitor  4.4.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174649.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Pixea Plus for Mac 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174721.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Rhizomatic Plasmonic AU, VST3, Standalone for Mac 1.2.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174743.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ FTP Disk for Mac 1.5.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174746.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Image Resizer – Resize Photos 2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174757.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ iCalamus 2 v.2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174776.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ HoudahGeo 6 v.6.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174802.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Vellum 3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174810.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ A Better Finder Rename 12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174820.jpg" />
 </div>
 
 

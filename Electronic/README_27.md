@@ -6,7 +6,7 @@ VA - Markus Schulz - Sunrise Set 2024 (Emotional Dance Mix) (2024) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51625.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Robert Miles - Dreamland (1996) [FLAC|Lossless|tracks + .cue] <Trance, Electroni
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51836.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Lounge Heaven, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52021.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Whole - Hydra (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52023.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ LazyboyProactive - Runaway (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Chill 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52025.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Spa Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balear
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52134.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Redux Selection, Vol. 10 / 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52226.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Summer Car Music Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52600.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Costa - Vocal Trance Hits, Vol. 2 (2024) [MP3|320 Kbps] <Trance, Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52683.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Calm Horizons 1: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52991.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Terra Glitch - You Will Be Replaced (2024) [MP3|320 Kbps] <Dark Electro>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53314.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Summer Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53404.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Booka Shade - 13 Albums (2004-2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53438.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Euro 2024 Dance (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53441.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Top 7 May 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53613.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Chill With Style, Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53647.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Guitar Lounge & Chill Out (2024) [MP3|320 Kbps] <Lounge, Chill Out, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53718.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Summer Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53720.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aes Dana - Far & Off (2016) Remastered, 2024, Ultimae Records [FLAC|Lossless|WEB
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53721.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Armada Chill - Summer 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53930.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Eguana, Germind - Controlling The Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53942.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Ibiza Summer Mix (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54134.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Fly Summer Hits (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54136.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - The Deep Collective: Another Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <O
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54243.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Pet Shop Boys - A New Bohemia (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Synth Pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54293.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Schwarz & Funk - Terrace Sessions, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54522.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1726705   (108680) от 29.05.2024
+
+7he Myriads - Planetarium (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Indie, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altair [00:06:10]
+02. Omicron Persei [00:05:57]
+03. Sirius [00:06:13]
+04. Betelgeuse [00:07:28](   Читать дальше...   )Жанр: Progressive Rock, Indie, Space RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399876DEAC950555A6327DCA8A92E52E591518DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726349   (108681) от 29.05.2024
+
+After Dark - Memories Gone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forevermore [00:03:30]
+02. The Darkness Inside [00:04:34]
+03. Release My Mind [00:04:14]
+04. Illusive Sky [00:04:59](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95400738FC8E6AD1CFEF71086AB1AAD6E635CA8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726412   (108682) от 29.05.2024
+
+VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stato Brado - Black Hole (4:54)
+02. Ltj Xperience - Don't Let The System  Get You Down (Regrooved Mix) (7:33)
+03. Blade & Masquenada Family - Sex Cat (4:56)
+04. Lainz - P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07466E4139D17EFA613BEE50D607FE1C1D9C5A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726410   (108683) от 29.05.2024
 
 VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +87,7 @@ VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108683.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108684.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ VA - Jazz Tempoe Doeloe (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108685.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ VA - Alluring Sweet Relaxing Chill Lounge Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108686.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Kurt Flavin - Six String Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108687.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Jeff Shirley - Contigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108688.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108689.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ magnet:?xt=urn:btih:CAC9E45030351DED6912692A664F7D72E26405FF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108690.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ Dead Head - Kill Division (1999) [FLAC|Lossless|image + .cue] <Thrash, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108691.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108692.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ Celestial Season - Mysterium III (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108693.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ Eliza Neals - Colorcrimes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108694.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ VA - Footsteps On The Dancefloor, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108695.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108696.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ magnet:?xt=urn:btih:42726AB5494EA6A759B47F8EC01A2A93817B083E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108697.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ Cosmo's Midnight - Stop Thinking Start Feeling (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108698.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ VA - Modern Rock New Anthems (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108699.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ Radio Slave - Venti (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108700.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ Night Sins - A Silver Blade In The Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108701.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ Hell Riders - Rising Phoenix (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108702.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ Kalad - Arkamine (2024) [MP3|320 Kbps] <Modern Metal, Symphonic Metal, Female Vo
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108703.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ Karfagen - Land of Chameleons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108704.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ magnet:?xt=urn:btih:48D244006D90981048D9ACED718DF9A7E8D2D33C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108705.jpg" />
 </div>
 
 
@@ -606,87 +687,6 @@ magnet:?xt=urn:btih:48D244006D90981048D9ACED718DF9A7E8D2D33C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3BCEF38B33BE16CEACB3EEDB6245AFE0B0DA992
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726358   (108706) от 29.05.2024
-
-Fughu - Stolen Pictures (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me for Fun [00:06:30]
-02. Alive [00:06:02]
-03. Fade Away [00:05:35]
-04. Chemical Rainbows [00:05:18](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8543E5626C345E3D5F949D3EF62EF203F367481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726663   (108707) от 29.05.2024
-
-Freeways - Dark Sky Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Protected (2:26)
-02. Can't Deny Destiny (3:27)
-03. Give Em The Gears (3:45)
-04. Dark Sky Sanctuary (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507FA4869447A81281D2F7736710857891D19F5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726465   (108708) от 29.05.2024
-
-twikipedia - for the rest of your life (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. room for one [00:03:12]
-02. garden [00:03:43]
-03. cardboard boxes [00:03:22]
-04. learn yourself [00:02:49](   Читать дальше...   )Жанр: alternative rockПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC00DC499119CBFD6CE0CE61AF4F210AD72AD079
 ```
 
 

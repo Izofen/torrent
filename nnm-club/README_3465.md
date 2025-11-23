@@ -1,3 +1,81 @@
+###  Публикация: 1722185   (109772) от 10.05.2024
+
+Laibach - Opus Dei (1987) Remastered, 2024, Mute [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leben Heißt Leben (Opus Dei) (5:30)
+02. Geburt einer Nation (One Vision) (4:18)
+03. Leben-Tod (3:56)
+04. F.I.A.T. (Let It Be) (5:10)(   Читать дальше...   )Жанр: Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347D50CF5FBE726846D6A218CC69EF8F2FF65F78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722090   (109773) от 10.05.2024
+
+RJ TextEd 16.20 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109773.jpg" />
+</div>
+
+
+###  Подробнее
+
+RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087BEEAFEE95D8C87C3E21F24F2C9F5EBAA44933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722255   (109774) от 10.05.2024
+
+Hunter - Rock 'n' Roll V.I.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix Rising
+02. Rock 'n' Roll V.I.P.
+03. Hard To Survive
+04. Runaway Ramp(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BF7DCA2769B1799ED6D512AF03B65D4E1B180C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722233   (109775) от 10.05.2024
 
 ЗМЧ - В живой воде (2024) [MP3|320 Kbps] <Rock>
@@ -6,7 +84,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109775.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:FD1CEEA94A55CBFFE371ED9FECCEE41EA43B3D81
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109776.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ VA - Armin van Buuren - A State Of Trance 1172 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109777.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Nils - Feelin' Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109778.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ PhotoDirector - Редактор фото 19.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109779.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Praying Mantis - Defiance (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109780.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ AfterTime - Arcane Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109781.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Freedom Call - Silver Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109782.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Hexe - Дурак (2024) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109783.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ VA - Modern Rock Mavericks (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109784.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ Feuerschwanz - Warriors (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109785.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109786.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ Robotic attacks - Robot is here (2014) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109787.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ Scotty McCreery - Rise & Fall (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109788.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Intru.Der - The First Journey (2013) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109789.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [FLAC|Lossless|tracks] <Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109790.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ Foo Fighters - Studio Albums (12 releases) (1995-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109791.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ Imagination - The Golden Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109792.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ magnet:?xt=urn:btih:A6CF7320568269EAE4BE0D3CB64794C7A59F00FC
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109793.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ magnet:?xt=urn:btih:A0D9475AE843C88D9FC181B73C1504F81F2AE122
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109794.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ magnet:?xt=urn:btih:885210F840DDFBDE767DC36D2B19B0FAAA299D7C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109795.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ magnet:?xt=urn:btih:C89727B3DFC3D8AC36F14C77662792C83AC553D6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109796.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109797.jpg" />
 </div>
 
 
@@ -601,87 +679,6 @@ Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C61B4F7B790846A18C1DBE245093B3737E48D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722042   (109798) от 10.05.2024
-
-Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не хочу ничего уже больше писать,
-Ведь песни мои как пророчества.
-На прогулку ведёт пятилапого пса
-Наше - Ваше высочество.(   Читать дальше...   )Жанр: RapПродолжительность: 00:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721077   (109799) от 10.05.2024
-
-Бумбокс - III (2008) (Deluxe Issue) [WavPack|Lossless|image + .cue] <RnB, Swing, Pop Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Концерти
- 02. Стяги На Стяги
- 03. Поліна
- 04. Наодинці(   Читать дальше...   )Жанр: RnB, Swing, Pop RapПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0C555191C5A1F244E05542A3EC46C46091831E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722232   (109800) от 10.05.2024
-
-Измена - Чёрный похмелоид (2024) [MP3|320 Kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Алкотреш [00:03:20]
-02 - Зубник из ада [00:03:43]
-03 - Червоточина [00:03:21]
-04 - Кручина [00:03:55](   Читать дальше...   )Жанр: MetalПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE8A4DF561B51C7A9DBE20CA44C455D082FB08A
 ```
 
 

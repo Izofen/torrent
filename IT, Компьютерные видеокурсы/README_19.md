@@ -6,7 +6,7 @@ Geekbrains | Frontend-разработчик. Часть 4 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147003.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Сергей Семёнов | Selenium и Selenide для начинаю�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147054.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Udemy, Bogdan Stashchuk | Полное руководство по Git: пойм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147085.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Udemy, Alexander Batashov | Laravel - Создание Админ Панели. 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147117.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:54E0869FD2EB6C25D391017F585498C8B3B9BA66
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147125.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Udemy, Timur Mashnin | Введение в объектно-ориентиров
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147167.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Udemy, Илья Фофанов | Архитектура ПО: Meta и SOLID пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147281.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Greatercommons, Todd McLeod | Веб-разработка на языке про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147369.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Udemy, Imtiaz Ahmad | Головоломки Java для устранения с
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147404.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Udemy, Mehmet Nuri Yumuşak | Разработка Backend (API) с Python от 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147466.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Udemy, Clyde Matthew | Секреты веб-разработки 2020 - CRP, HT
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147746.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Udemy, Holczer Balazs | Рекурсия, Бэктрекинг и Динамич
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147771.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Udemy, James Doyle | Learn To Create a Match-3 Puzzle Game in Unity (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147960.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:12FB1AB53AE74D6ED692F3DCCA1370F4D0598BF8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148258.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Udemy, Norbert B. Menyhart | React for Beginners - From HTML CSS & JavaScript to
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148384.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ OTUS | Нагрузочное тестирование [Части 3 из 3] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148713.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Udemy, Андрей Сумин | Java с нуля до Junior + Подготов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148764.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс. С нуля
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148820.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Genius Courses, Александр Сокирка | Марафон по WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148976.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:1986446FC365AD08974CC596172D31F52F17A267
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149825.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:90636082743EED9F7D14549FFCE37FE0E8EDF1EA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150926.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Udemy, Stephen Ulibarri | Unreal Engine 5 C++ The Ultimate Game Developer Course
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151249.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Udemy, Илья Фофанов, Валерий Павлов | Бэкенд ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151264.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ kobezzza.channel, Андрей Кобец | Устройство компиля�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151391.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:333ABA7E4C7148110146DCECDEFF3A39F8FA0427
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151429.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:2BA94F48D35F678C0618EDB99DB04C416A9D267F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151436.jpg" />
 </div>
 
 

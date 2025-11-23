@@ -1,3 +1,78 @@
+###  Публикация: 1601312   (137661) от 31.12.2022
+
+Wise Disk Cleaner 10.9.7.813 RePack (& portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0E90305FD4D4492C1985FC0B7D7878AB1CA8CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605927   (137663) от 31.12.2016
+
+Верка Смердючка - 6 альбомов (2003-2006) [FLAC|Lossless|image + .cue] <Pop / Parody>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 | Мы весело гуляем | 02:57
+02 | Пылесос | 02:36
+03 | Цибуля | 02:35
+04 | Йоги рекетиров не бояться | 03:12(   Читать дальше...   )Жанр: Pop / ParodyПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE210CCF5BBCF83ECA9E12EED42CF48D053C909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679549   (137664) от 25.11.2023
+
+С Богами: Последние 49 дней / Singwa hamkke: ingwa yeon / Along with the Gods: The Last 49 Days (2018) BDRip [AV1/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший мстительный призрак Ким Су-хон предстаёт перед королём Подземного мира, и ангел смерти Кан-ним просит для него прохождение обычной процедуры — он уверен, что сможет убедить судей в невиновности своего подопечного. Король соглашается, но ставит условия: в течение 49 дней ангелы должны вознести душу старика Хо, чьё земное время давно истекло, и доказать невиновность (   Читать дальше...   )Производство: Юж. Корея / Dexter Studios, Lotte Entertainment, Realies PicturesЖанр: драма, фэнтези, приключенияРежиссер: Ким Ён-хваАктеры: Ха Джон-у, Чу Джи-хун, Ким Хян-ги, Ма Дон-сок, Ким Дон-ук, Ли Джон-джэ, Чо Хан-чхоль, Лим Вон-хи, Ким Мён-гон, Чон Ю-анПеревод: двухголосый любительский, многоголосый любительскийЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1973F5EE478B76B49C25972B039B4A4DDE03D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196030   (137665) от 31.12.2017
 
 Сергей Ткачев | Делирий. Печать крови (2017) [FB2]
@@ -6,7 +81,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137665.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ magnet:?xt=urn:btih:4B649C2C944D809CFDC13B27AFFE9C5272E0995F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137666.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:0622C16D85C02D1EAA395D2792F87EDB0EF18609
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137667.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ VA - Best of Clubsonica Records 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137668.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:961D6E9E5B4F99E78B0CE4A782C5BC5597505793
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137670.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Chromium 57.0.2968.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137671.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ Wondershare Recoverit 7.2.4.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137673.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ Chris Bell - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137674.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ magnet:?xt=urn:btih:C3098E6A9207A0D994061E82A0E5A602D7D86D92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137675.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ magnet:?xt=urn:btih:7FCEA9EECEAA8F50FBAD64D68A34D604E393A713
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137676.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ magnet:?xt=urn:btih:6FD9FAC4D36DBDF93005E4ECA0B67714BC053556
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137677.jpg" />
 </div>
 
 
@@ -279,7 +354,7 @@ magnet:?xt=urn:btih:C95F82EDD72ACBF6D5C70C51A04260986843218D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137678.jpg" />
 </div>
 
 
@@ -303,7 +378,7 @@ VA - Options Remake Of Tracks December -C- (2018) [MP3|320 Kbps] <Electronic, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137679.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ iToolab UnlockGo 5.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137680.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ Telegram Desktop 1.2.6 RePack & Portable by SPecialiST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137681.jpg" />
 </div>
 
 
@@ -381,7 +456,7 @@ Daum PotPlayer 1.6.57875 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137682.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ magnet:?xt=urn:btih:DA3D0D3142BDDE602E3497D0B81D0A79FC02DB6C
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137683.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ MultiTimer: МультиТаймер v1.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137684.jpg" />
 </div>
 
 
@@ -453,7 +528,7 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137685.jpg" />
 </div>
 
 
@@ -480,7 +555,7 @@ VA - Stranger Blues (2018) [MP3|320 Kbps] <Blues, Soul, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137686.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137687.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ magnet:?xt=urn:btih:5E77349931E1D7A344EFFFE48908A151AA367D52
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137688.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ magnet:?xt=urn:btih:AB61D31862D8C0618ED76AED334170519B37CEFA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137689.jpg" />
 </div>
 
 
@@ -567,84 +642,6 @@ magnet:?xt=urn:btih:AB61D31862D8C0618ED76AED334170519B37CEFA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C8F7192F38DF4A18FCF4B6457C89E6EA489ADBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088683   (137690) от 31.12.2016
-
-Камеди Клаб. Karaoke Star / Комеди Клаб / Comedy Club (2016.12.31-2017.01.01) SATRip (части 1-2 из 2)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137690.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ТНТ решили отказаться от банальных голубых огоньков и устроили новогодний музыкальный баттл. Включайте ТНТ ровно в 23.00, накладывайте салаты, и с набитым ртом подпевайте своим любимым звездам! В вокальном новогоднем баттле сойдутся звезды «Дома-2», шоу «ТАНЦЫ», актеры комедийных проектов «Импровизация», «Однажды в России», Comedy Woman, ситкомов «Ольга» и «Универ», (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAC81D5271F0B9255289146ACE0EA59D33E2514
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601178   (137691) от 31.12.2022
-
-Бондарь - Вторая попытка стать популярными (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:39]
-02. Skit Кирилл [00:01:17]
-03. Пока меня нет [00:03:37]
-04. Шрамы [00:02:46](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD11F93E9DDA5687A3DFBD4DDE92F342C991A3FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679457   (137692) от 25.11.2023
-
-Enterclass, Сергей Курбатов | Тихая река (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как передать воздушность снега и гладкость поверхности речной воды и не запутаться при этом в отражениях?
-Какими живописными средствами выразить на бумаге тишину природы?
-Всё это узнаем в прямом эфире с Сергеем Курбатовым 20 ноября в 18:00 часов!
-В первой, бесплатной, части урока Сергей разберет композиционные особенности зимнего пейзажа, расскажет, на что обратить (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:25:23Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B5D15CA87154BFF6BAB272371D2D082B5014B3
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1736459   (106678) от 13.07.2024
+
+Clairo - Charm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bedroom Pop, Dream Pop, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nomad (3:46)
+02. Sexy to Someone (3:28)
+03. Second Nature (3:47)
+04. Slow Dance (3:55)(   Читать дальше...   )Жанр: Bedroom Pop, Dream Pop, Indie PopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81B53F45B3380507683AD24A86E93712441C5C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736606   (106679) от 13.07.2024
+
+Проклятие. Дом с прислугой / The Maid (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная девушка по имени Джой устраивается горничной в дом богатой супружеской пары с маленькой дочкой, где подозрительно часто меняется прислуга. Главное правило для работников — не совать нос в чужие дела, но соблазн оказывается слишком велик, когда Джой начинает видеть призрака.Производство: Таиланд / Global Film Station, Hollywood, Thongkham FilmsЖанр: драма, мистика, триллерРежиссер: Ли ТхонгкхамАктеры: Плойнарин Сорнарин, Савика Чайядей, Тхирапхат Саякул, Ратчанок Суваннакет, Китапат Понгрыа, Каннапорн Пуангтонг, Сорабоди Чангсири, Венус Саксири, Алина Хомсангпрадит, Натани СиттхисаманПеревод: ДублированныйЯзык озвучки: русский, тайскийСубтитры: английскиеПродолжительность: 01:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9531D88AF475A1F04976E5605BBFB3A5D4F9FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736637   (106680) от 13.07.2024
+
+Будь красивой и молчи / Sois belle et tais-toi (1958) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая 18-летняя сирота сбегает из исправительной колонии, связывается с бандой контрабандистов драгоценностей и выбирает преступную жизнь. Однако она влюбляется в полицейского и выходит за него замуж, что кладет конец её криминальной карьере...Производство: Франция / Films EGEЖанр: комедияРежиссер: Марк АллегреАктеры: Ален Делон, Анри Видаль, Милен Демонжо, Беатрис Альтариба, Рене Лефевр, Жан-Поль Бельмондо, Энн Коллетт, Робер Дальбан, Франсуа Дарбон, Робер БазильПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: английские, французские SDHПродолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A99D76D9039B34B6749F66410A13956E87FF3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736635   (106681) от 13.07.2024
 
 Files Inspector Pro 4.10 [Multi/Ru]
@@ -6,7 +81,7 @@ Files Inspector Pro 4.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106681.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:986D2BD564856A0189149DEBFFFFF9DEA06AA6C7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106682.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ VA - Playlist for a Picturesque Retreat That Will Rejuvenate Your Mind, Body, An
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106683.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ VA - Black Hole House Music 07-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106684.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ VA - Lounge Playlist for a Picturesque Retreat to Rejuvenate Your Body and Soul 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106685.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:527B04A1E130EC080153242C114DC7EC3D25D41F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106686.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ Photo Supreme 2024.2.1.6568 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106687.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:471D8F0E0B5CF48D697E1A0A8677CA3762E43D5A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106688.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ Palace - Reckless Heart (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <AOR/Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106689.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ The Angels - Ninety Nine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106690.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Mr. Big - Ten (2024) with bonus track [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106691.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ Miles Davis - Miles In Tokyo (1964) 2005, Columbia [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106692.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ VA - Funky Summer (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz, Dance>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106693.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ VA - Jazz House Grooves Volume 2 (The Finest Jazzy Soulful Chill House Selection
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106694.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ Spektra - Hypnotized (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106695.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ Spektra - Hypnotized (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106696.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ Legions Of The Night - Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106697.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ magnet:?xt=urn:btih:35135612D29F8590CA474E3823BC1E992936FF57
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106698.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ Voice - Holy Or Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106699.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ magnet:?xt=urn:btih:C81660AA5B63EEFCAB85496A8CDE4400D54375FD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106700.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ John Hiatt - Stolen Moments (1990) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106701.jpg" />
 </div>
 
 
@@ -552,7 +627,7 @@ magnet:?xt=urn:btih:590B37716A3D6A4F0CAC70B6A1B75434EAD2979D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106702.jpg" />
 </div>
 
 
@@ -576,7 +651,7 @@ magnet:?xt=urn:btih:F443BFDAE61601789F65316336D41990656FDF85
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106703.jpg" />
 </div>
 
 
@@ -587,87 +662,6 @@ magnet:?xt=urn:btih:F443BFDAE61601789F65316336D41990656FDF85
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58AFE04D752E806E95541693B58A6FC9D8BD239E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736443   (106704) от 12.07.2024
-
-Vincent Ingala - Escape With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movin' and Shakin' (4:07)
-02. Fantasy or Reality (3:49)
-03. Let's Get To It (4:02)
-04. Escape With Me (4:45)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AC14AE3A8F7F77A3A7F1F68D7088C3E66F5D27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736424   (106705) от 12.07.2024
-
-Amorphis - Tales From The Thousand Lakes (Live At Tavastia) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thousand Lakes (Live at Tavastia) [1:55]
-02 - Into Hiding (Live at Tavastia) [4:12]
-03 - The Castaway (Live at Tavastia) [5:35]
-04 - First Doom (Live at Tavastia) [3:50](   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388D16C089406BB265C8939762BB84B2B9CCEE97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736390   (106706) от 12.07.2024
-
-Axxis - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackest Vision
-02. Coming Home
-03. Atlantica
-04. Moonlight Bay(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3A92D3ECD1BCA06E1E4DFF6FCE2C2A7405B79E
 ```
 
 

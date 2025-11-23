@@ -1,3 +1,178 @@
+###  Публикация: 1516318   (166676) от 10.12.2021
+
+Книжная серия | «Смертельная угроза» [10 книг] (2019-2021) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия остросюжетных и захватывающих книг в жанрах фантастики и психологических триллеров. Где проходят границы реальности, можно ли верить своим глазам, все ли правда, о чем говорит правительство? Может ли быть лишь совпадением серия невероятных событий, происходящих по всему миру? Одни ли мы во вселенной? Как раскрывать убийства, если на первый взгляд кажется, что (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1577C5FA05A023FFEB2CC10448D85C97EEFBB620
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345654   (166677) от 15.12.2019
+
+Grids for Instagram 5.9.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids переносит лучшее из Instagram на ваш Mac.
+
+– Простой настраиваемый интерфейс. Работает в полноэкранном режиме и в небольшом окне.
+– Идеальное попиксельное расположение элементов и рендеринг. Поддержка дисплеев Retina. Ваши фото в Instagram никогда не выглядели так потрясающе.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Русский, английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5655E40CECED76E9EE662EFDF0455075DAC4814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597181   (166678) от 14.12.2022
+
+П. В. Новицкий (ред.) | Электрические измерения неэлектрических величин (1975) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166678.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются физические основы и теория элементов и методов построения различных электрических приборов для измерения неэлектрических величин. Книга предназначается в качестве учебного пособия для студентов высших учебных заведений, готовящих специалистов в области промышленного и научного приборостроения и автоматизации процессов управления, а также для (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADA584611CABD1562A92C693BD0313F6F367D4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672858   (166679) от 30.10.2023
+
+Принцесса Лебедь: Дольше, чем вечность / The Swan Princess: Far Longer Than Forever (2023) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стремясь узнать правду о своем покойном отце, король Дерек и королева Одетта отправились в эпическое приключение. Будучи недавно назначенными членами Совета Корон, Дерек и Одетт начинают «выкуривать» правдивую историю. Но покушение на их жизнь заставляет их работать под прикрытием, выдавая себя за Бэрриморов, всемирно известных странствующих фокусников. С помощью (   Читать дальше...   )Производство: СШАЖанр: компьютерная анимация, сказка, приключения, музыкальныйРежиссер: Ричард РичАктеры: Юрий Ловенталь, Нина ХерцогПеревод: Многоголосый профессиональный | ОфициальныйЯзык озвучки: РусскийСубтитры: Русские (Forced, Full), украинские, английскиеПродолжительность: 01:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A4425EB8C6F63CB75EC5D0CD3B9B361E6A8C06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431740   (166680) от 14.12.2020
+
+Звуковые библиотеки - Echo Sound Works - Loft Piano RePack Андрей650071 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Характерное пианино, не похожее ни на что другое. Мы хотели создать пианино одновременно и с характером и чтобы оно было универсальным. Обычно библиотеки фортепиано - это либо одно, либо другое. Определённые пианино часто работают только в ограниченном диапазоне песен, в то время как более универсальные могут звучать устаревшими и скучными.Формат: Kontakt: NICNT, NKSN, NKC, NKI, NKX, NKR, NKW
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FB487535B85C7A0E78FD9159148B5197C0DCDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516356   (166681) от 10.12.2021
+
+Ирина Базаркина | Проклятие Старого города (2021) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злата Левандовская живет вполне обычной жизнью, если бы не одно «но»: время от времени ей снится один и тот же, очень странный, сон.
+От нечего делать Злата вместе с подругами – Кариной и Алиной – затевают спиритический сеанс, во время которого впервые узнают о существовании города Кресновец. А на следующий день преподаватель университета, генетик Фельдман, предлагает (   Читать дальше...   )Жанр: Детективная фантастика, Триллер, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B076EC3E3DA5F41931C5117FB44C1D5F2726022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343594   (166682) от 15.12.2019
+
+Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daahoud [8:46]
+02. Somewhere in the Night [10:09]
+03. Delilah [13:05]
+04. Brook's Idea [6:35](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE4F710884917CCED7ADA2B76EE7B59CDF89BD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597402   (166683) от 14.12.2022
 
 VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -6,7 +181,7 @@ VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166683.jpg" />
 </div>
 
 
@@ -33,7 +208,7 @@ SIV (System Information Viewer) 5.54 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166684.jpg" />
 </div>
 
 
@@ -57,7 +232,7 @@ magnet:?xt=urn:btih:EC123BDC1F7D525053E0F95E921216214A7265E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166685.jpg" />
 </div>
 
 
@@ -82,7 +257,7 @@ Skynet 2019.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166686.jpg" />
 </div>
 
 
@@ -106,7 +281,7 @@ magnet:?xt=urn:btih:B66B7A4BD7A95D4CCE1487FB3A2B948DE32EBB60
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166687.jpg" />
 </div>
 
 
@@ -131,7 +306,7 @@ EIZO Japan - EIZO Japan 3 (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166688.jpg" />
 </div>
 
 
@@ -158,7 +333,7 @@ Starlite Campbell Band - The Language of Curiosity (2021) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166689.jpg" />
 </div>
 
 
@@ -185,7 +360,7 @@ WhatsApp 2.2049.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166690.jpg" />
 </div>
 
 
@@ -209,7 +384,7 @@ VA - Grum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166691.jpg" />
 </div>
 
 
@@ -236,7 +411,7 @@ Movavi PDF Editor 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166692.jpg" />
 </div>
 
 
@@ -262,7 +437,7 @@ magnet:?xt=urn:btih:2EED4CAB8A2963055F4A28D691A4A35295238D29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166693.jpg" />
 </div>
 
 
@@ -286,7 +461,7 @@ magnet:?xt=urn:btih:5F3DEB0CF4785D7E104E219B4E9165C1C686EDF1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166694.jpg" />
 </div>
 
 
@@ -313,7 +488,7 @@ magnet:?xt=urn:btih:BFA073C9F3AA6BB325F0488ED19011423F05A4EB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166695.jpg" />
 </div>
 
 
@@ -340,7 +515,7 @@ Glorious Bankrobbers - Glorious Bankrobbers (2017) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166696.jpg" />
 </div>
 
 
@@ -367,7 +542,7 @@ magnet:?xt=urn:btih:C85DDD8FFF60AB196FBC796B2ED687AA5564EA1F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166697.jpg" />
 </div>
 
 
@@ -391,7 +566,7 @@ magnet:?xt=urn:btih:8259948BDF6EF9F4DEF791F0EA24A889C95CEE21
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166698.jpg" />
 </div>
 
 
@@ -418,7 +593,7 @@ magnet:?xt=urn:btih:3CB46765BAA600873980038B6F662C09E05DA30E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166699.jpg" />
 </div>
 
 
@@ -442,7 +617,7 @@ magnet:?xt=urn:btih:DD61F37F108B22244F09027C0742E5951D4C92EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166700.jpg" />
 </div>
 
 
@@ -466,7 +641,7 @@ Guardner - Somedays In My Life (2002) Elektrolux [FLAC|Lossless|tracks+.cue] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166701.jpg" />
 </div>
 
 
@@ -480,177 +655,6 @@ Guardner - Somedays In My Life (2002) Elektrolux [FLAC|Lossless|tracks+.cue] <Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:145EC4BD92EE85F07C5C97B7B116CBE5A83641DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431566   (166702) от 14.12.2020
-
-Вихрь (Водоворот) / Ting er zou xian / Vortex (2019) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место действия – город Чунцин, в котором живёт простой автомеханик и один его знакомый, занимающийся продажей подержанных автомобилей. Их афера с угоном уже кому-то проданной машины для её следующей продажи неожиданно оборачивается ещё и похищением ребёнка. Поэтому, кроме машины теперь можно поживиться и немаленьким выкупом. Но потерявшие только что купленный автомобиль (   Читать дальше...   )Производство: Китай, Hei Ma Yi (Shanghai) Pictures, Hehe (Shanghai) Pictures, Shannan Enlight PicturesЖанр: Драма, криминал, триллерРежиссер: Джеки ГаньАктеры: Да Пэн, Охо Оу, Ли Мэн, Цао Бинкунь, Ша Баолян, Цао Вэйюй, Одри До, Чжан Нинцзян, Ся Энь, Ли ШэнъПеревод: Одноголосый любительский (Franek Monk)Субтитры: АнглийскиеПродолжительность: 01:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DE5E5C66E9B3499DCEF3FE80ABFA07C466A0C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672913   (166703) от 30.10.2023
-
-JS Mastery | Ultimate Next.js 13 Course + eBook (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для разработчиков, которые хотят выделиться и стать незаменимыми. Станьте топовым разработчиком Next.js 13 всего за один курс. Уйдите от поверхностного контента и погрузитесь в самые актуальные технологии 2023 года.  Вступите в новую эру React. Вот малоизвестный факт. 17% из топ-1 миллиона веб-сайтов используют Next.js. И использование Next 13 среди этих топ-1 миллиона (   Читать дальше...   )Производство: JS MasteryЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 51:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1914DA01406840F8BE37A253295CBD8E98AECDCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597419   (166704) от 14.12.2022
-
-Чарли Чейз. Как член семьи / One of the Family (1924) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джимми Джамп нанят шофером к женщине, которая хочет вызвать ревность у своего мужа. Дама покупает ему различные костюмы и водит его везде, где их может увидеть муж. Муж взбешен и Джимми спасает горничная Патрисия...Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Скотт ПемброукАктеры: Чарли Чейз, Бланш Михэффи, Билли Энгль, Патрик Келли, Фани КеллиПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788A121BCC581C1053E504E5B4A5B1CADC23B7A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516223   (166705) от 10.12.2021
-
-Джеймс Кори | Пространство (Книга 6). Пепел Вавилона (2021) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Межзвездные порталы, которые должны были стать вратами в новое будущее человечества, на деле оказываются для него смертельной ловушкой. Едва Земля, Марс и другие планеты справились с атакой инопланетной протомолекулы, как в мирах Пояса началась революция, которая назревала не один десяток лет. Радикальная группа астеров, составляющих основу Свободного флота – нанесла (   Читать дальше...   )Жанр: Фантастика, космоопераПеревод: Галина СоловьеваПродолжительность: 17:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8696423C85DB33BFAF00BD9E61EBDA34F13907F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597294   (166706) от 14.12.2022
-
-EIZO Japan - EIZO Japan 2 (2009) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths (Instrumental) 1:31
-02. 侍戦隊シンケンジャー (侍戦隊シンケンジャー) 3:48
-03. 機動刑事ジバン (機動刑事ジバン) 4:01
-04. ロ・ロ・ロ・ロシアンルーレット (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3A1EF9A3A7A0471E3E8AA1813BDA91BDEB6BFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345658   (166707) от 15.12.2019
-
-SnippetsLab 1.9.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166707.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnippetsLab - полнофункциональный менеджер фрагментов кода. Он помогает вам собирать и систематизировать ценные фрагменты кода и обеспечивает легкий доступ к ним в любое время.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Renfei SongПоддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6415D63008DA3AD55E9A67D62A6DE2BE3AD5C551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516343   (166708) от 10.12.2021
-
-Екатерина Герасимова | Тайна магов (2021) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где, казалось бы, больше не осталось магии, юная принцесса Вильена внезапно сталкивается с колдовством – на нее наложили любовное заклятие! Она решается покинуть свой дом, и отправляется в таинственное приключение по зову сердца. На пути ее ждут удивительные люди, верные друзья и новые загадочные места, но все окажется не таким, как было на первый взгляд. (   Читать дальше...   )Жанр: Героическая фантастика, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5111BB3395B6E2A137AE87C367EF30B9BDD1D1B
 ```
 
 

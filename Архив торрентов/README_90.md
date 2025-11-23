@@ -6,7 +6,7 @@ Luxion KeyShot Enteprise 2025.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24718.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24718.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CrossOver Linux 25.0.0 [x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24734.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24734.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ PotPlayer 250313 (1.7.22508) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24740.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24740.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ OCCT 13.1.16 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24761.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24761.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ XYplorer 26.90.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24779.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ QOwnNotes 25.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24782.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Paint.NET 5.1.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24792.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24792.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ FanControl V217 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24797.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ OneCommander Pro 3.95.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24805.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24805.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ iTubeGo YouTube Downloader 10.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24817.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24817.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AIMP 5.40 Build 2667 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24824.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24824.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Discovery. Голубые ангелы: Год в жизни / Blue Angels: A Ye
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24840.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Audacity 3.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24841.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24841.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NVIDIA GeForce Desktop Game Ready 572.70 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24847.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24847.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:C5EBE4C78D0D3AFDC5833539EA8AB30F0EC1B88C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24851.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ CorelDRAW Technical Suite 2025 26.0.0.101 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24859.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24859.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ PotPlayer 250312 (1.7.22506) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24864.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24864.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ R-Studio Network 9.4 Build 191460 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24865.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24865.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Windows 7 SP1 7601.27618 x64 3in1 by OneSmiLe [13.03.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24866.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24866.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.45 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24878.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24878.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sandboxie 5.70.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24881.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ FanControl V216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24886.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Google Chrome 134.0.6998.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24899.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:FE752B62EB5A3675AE8ABD63743052B087DCB78B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24901.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Opera One 117.0.5408.93 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24903.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PrivaZer Pro 4.0.103 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24905.jpg" />
 </div>
 
 

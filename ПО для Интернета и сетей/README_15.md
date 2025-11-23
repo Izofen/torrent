@@ -1,3 +1,27 @@
+###  Публикация: 1425446   (219480) от 21.11.2020
+
+KeepSolid VPN Unlimited 8.1 (акция Comss) [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219480.jpg" />
+</div>
+
+
+###  Подробнее
+
+KeepSolid VPN Unlimited – кроссплатформенный VPN сервис, защищающий вас от отслеживания, а также позволяющий анонимно и безопасно посещать интернет-сайты.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB7D3A680B1454934261887918D4040968D8916
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342919   (220686) от 04.12.2019
 
 10-Страйк Учет Трафика Корпоративная 3.81 [Ru/En]
@@ -6,7 +30,7 @@
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220686.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220686.jpg" />
 </div>
 
 
@@ -32,7 +56,7 @@ Audials Radiotracker 2018 Premium 2018.1.51200.0 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220690.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220690.jpg" />
 </div>
 
 
@@ -56,7 +80,7 @@ uTorrent 3.5.5 Build 46552 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221007.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221007.jpg" />
 </div>
 
 
@@ -80,7 +104,7 @@ magnet:?xt=urn:btih:7A63E025919CD8E04255A54A6B04D7CCAD770B3B
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221751.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221751.jpg" />
 </div>
 
 
@@ -107,7 +131,7 @@ Proxifier Standard Edition 3.42 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225309.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225309.jpg" />
 </div>
 
 
@@ -131,7 +155,7 @@ WebDrive NextGen (ex. Webdrive Enterprise) 1.1.14 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226047.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226047.jpg" />
 </div>
 
 
@@ -156,7 +180,7 @@ Free YouTube Download Premium 4.3.4.1127 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226389.jpg" />
 </div>
 
 
@@ -180,7 +204,7 @@ Network Scanner 4.4 build 221 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229801.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229801.jpg" />
 </div>
 
 
@@ -205,7 +229,7 @@ MediaHuman YouTube Downloader 3.9.17 (3010) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230036.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230036.jpg" />
 </div>
 
 
@@ -229,7 +253,7 @@ MAX Desktop 25.15.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230247.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230247.jpg" />
 </div>
 
 
@@ -253,7 +277,7 @@ SmartGit 25.1.093 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230267.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230267.jpg" />
 </div>
 
 
@@ -279,7 +303,7 @@ MediaHuman YouTube Downloader 3.9.17 (3010) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230406.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230406.jpg" />
 </div>
 
 
@@ -303,7 +327,7 @@ Ant Download Manager Pro 2.10.2 Build 86016 (акция Comss) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231234.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231234.jpg" />
 </div>
 
 
@@ -327,7 +351,7 @@ magnet:?xt=urn:btih:6DA2F0ED7D92638B2422C1D9613D613A72F2F780
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232546.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232546.jpg" />
 </div>
 
 
@@ -351,7 +375,7 @@ Universal Maps Downloader 10.103 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232738.jpg" />
 </div>
 
 
@@ -375,7 +399,7 @@ Bulk Image Downloader 6.27 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234734.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234734.jpg" />
 </div>
 
 
@@ -399,7 +423,7 @@ FTP Rush 3.5.5.0 + Portable [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234866.jpg" />
 </div>
 
 
@@ -423,7 +447,7 @@ Blumentals WeBuilder 2022 17.3.0.244 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239763.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239763.jpg" />
 </div>
 
 
@@ -447,7 +471,7 @@ save2pc Ultimate 5.6.5.1627 RePack (& Portable) by TryRooM [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241299.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241299.jpg" />
 </div>
 
 
@@ -471,7 +495,7 @@ MiPony Pro 3.2.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242254.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242254.jpg" />
 </div>
 
 
@@ -495,7 +519,7 @@ MDaemon mail server 21.5.2 x64 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245460.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245460.jpg" />
 </div>
 
 
@@ -519,7 +543,7 @@ BrowsingHistoryView 2.55 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245630.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245630.jpg" />
 </div>
 
 
@@ -545,7 +569,7 @@ magnet:?xt=urn:btih:AF63B8E4A463CD0CE9D81E59BBBBD11EDC581EB9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246123.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246123.jpg" />
 </div>
 
 
@@ -569,7 +593,7 @@ AnyDesk 9.6.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246135.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246135.jpg" />
 </div>
 
 
@@ -593,7 +617,7 @@ SupRemo 4.11.6.2928 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246167.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246167.jpg" />
 </div>
 
 
@@ -605,30 +629,6 @@ SupRemo 4.11.6.2928 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29CC8E02B84382659C4A0649CB8A227F4402DB75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833273   (246220) от 01.11.2025
-
-Яндекс Браузер  25.10.0.2474 (x64) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яндекс Браузер с новыми нейросетевыми возможностями и улучшениями существующих функций. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, перевод и озвучивание видео с нескольких языков, интегрированный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DB4CD554C2DECF7DD8E147E9BB7F61A6FFB9B0
 ```
 
 

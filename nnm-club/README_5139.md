@@ -1,3 +1,180 @@
+###  Публикация: 1676150   (159020) от 12.11.2023
+
+Сибирская Благозвонница | Молитвослов православного воина (2023) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159020.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мемуарах об обороне Севастополя в минувшую войну не раз встречается упоминание о том, как наши моряки перед рукопашной атакой (которую так боялись немцы), прежде чем подняться на бруствере во весь рост, осеняли себя крестным знамением. Недаром говорится: «В окопах неверующих не бывает».
+
+Этот «Молитвослов православного воина» призван помочь солдатам и офицерам (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840C5F7D794121135108D877303505049452AD0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600177   (159021) от 26.12.2022
+
+AnyMP4 iPhone Transfer Pro 9.0.58 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159021.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Mac iPhone Transfer Pro — лучшее программное обеспечение для передачи данных iOS для всех пользователей iPhone. Этот iPhone Transfer Pro для Mac может легко передавать все виды данных iOS с iPhone, iPod и iPad на Mac и iTunes.
+Как профессиональное программное обеспечение для передачи данных iPhone, оно может передавать файлы между вашим iPhone/iPad/iPod и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D251CB82D4E7C1798BE9203BC200B4FBD48E44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600272   (159022) от 26.12.2022
+
+NEONIC - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifetime Adventure [00:04:31]
+02. Mirage [00:04:13]
+03. Volador [00:03:26]
+04. Rage of Omen [00:03:58](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 2 CD, 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9192173779A91A8392D83F2AB3C5BE053154767A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676189   (159023) от 12.11.2023
+
+Trevor Rabin - Rio (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Mistakes (5:33)
+02. Push (6:49)
+03. Oklahoma (6:52)
+04. Paradise (7:03)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCF9F06FA449FB5FC38AC821A44D9A42C99B217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600211   (159024) от 26.12.2022
+
+Джон МакКрэй | Червь (Книга 29). Яд (2022) [MP3, Adrenalin28]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 07:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DAA22051DCB868AB2062239C5235B05F96622B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676154   (159025) от 12.11.2023
+
+Белый город | Жития святых, написанные святыми (2013) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание представляет собой сборник житий святых, составленных величайшими подвижниками Православной Церкви: свт. Игнатием (Брянчаниновым), свт. Афанасием Александрийским, прп. Ефремом Сириным, прп. Иоанном Дамаскиным и др. Таким образом, о святых пишут люди, которые сами прошли узким путем благочестия, путем исполнения заповедей Божиих и которые сейчас причислены (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE68C4778F318FE601E196FB84818E1E03AD6504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600253   (159026) от 26.12.2022
+
+Оскар Уайльд | Как важно быть серьезным (1997) [MP3, Юлия Борисова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия Оскара Уайльда была задумана как изящная безделица. Название основано на игре слов: английское прилагательное "серьезный", earnest, звучит почти так же, как мужское имя Эрнест. Почему-то именно Эрнестом мечтают видеть своего избранника обе главные героини пьесы – каждая из них вбила в голову не только себе, но и своему воздыхателю, что ее жениха (   Читать дальше...   )Жанр: Комедия, РадиоспектакльПродолжительность: 01:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D31314C6F442B04E4326B05BEC4318DBB6C3CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676148   (159027) от 12.11.2023
 
 Сибирская Благозвонница | Помоги, Господи, изжить мое сребролюбие (2011) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +183,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159027.jpg" />
 </div>
 
 
@@ -32,7 +209,7 @@ Neopera - Tuba Mirum (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159028.jpg" />
 </div>
 
 
@@ -59,7 +236,7 @@ Leroy Vinnegar, Doug Watkins, Paul Chambers, Ron Carter - Jazz Bassists: Four Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159029.jpg" />
 </div>
 
 
@@ -86,7 +263,7 @@ magnet:?xt=urn:btih:D8E48DDBD1CAE80F031017F8B7C30BD571D4A2E2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159030.jpg" />
 </div>
 
 
@@ -110,7 +287,7 @@ Vern Daysel - Call of the Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159031.jpg" />
 </div>
 
 
@@ -137,7 +314,7 @@ DMG Canvas 3.0.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159032.jpg" />
 </div>
 
 
@@ -161,7 +338,7 @@ Casus Belli - In the Name of Rose (2005) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159033.jpg" />
 </div>
 
 
@@ -188,7 +365,7 @@ magnet:?xt=urn:btih:7998C4B6231A1CDCF3A435A861CAEFCB8C8FCBE9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159034.jpg" />
 </div>
 
 
@@ -214,7 +391,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159035.jpg" />
 </div>
 
 
@@ -239,7 +416,7 @@ Michael Kistanov - All About You and Me (2022) [MP3|320 Kbps] <Pop-Rock, Folk>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159036.jpg" />
 </div>
 
 
@@ -266,7 +443,7 @@ Bethzaida - Nine Worlds (1996) [FLAC|Lossless|image + .cue] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159037.jpg" />
 </div>
 
 
@@ -293,7 +470,7 @@ magnet:?xt=urn:btih:79500B46D6A88709C458643CCBF488C728715630
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159038.jpg" />
 </div>
 
 
@@ -319,7 +496,7 @@ Man Machine Industry - Doomsday Clock (2020) [FLAC|Lossless|WEB-DL|tracks] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159039.jpg" />
 </div>
 
 
@@ -346,7 +523,7 @@ magnet:?xt=urn:btih:72FAD3C3A447E3CD934700177B192C72BA2FFA24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159040.jpg" />
 </div>
 
 
@@ -372,7 +549,7 @@ NEONIC - 2 Albums (2021-2022) [MP3|320 Kbps] <Synthwave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159041.jpg" />
 </div>
 
 
@@ -399,7 +576,7 @@ magnet:?xt=urn:btih:071DD5CB8FB5E376495D35EB32BA341834B4628E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159042.jpg" />
 </div>
 
 
@@ -424,7 +601,7 @@ Toots Thielemans - 100th Birthday Celebration (2022) 2CD, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159043.jpg" />
 </div>
 
 
@@ -451,7 +628,7 @@ uTorrent 2.2.1 Build 25302 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159044.jpg" />
 </div>
 
 
@@ -475,7 +652,7 @@ magnet:?xt=urn:btih:67B0E0E47B7AACCB6D39F40EEADE46DA991D6742
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159045.jpg" />
 </div>
 
 
@@ -486,176 +663,6 @@ magnet:?xt=urn:btih:67B0E0E47B7AACCB6D39F40EEADE46DA991D6742
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6897184FB20789E3ED84A7C08ACB90D865E3C39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444226   (159046) от 11.11.2023
-
-Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титанов [ТВ-2] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди и гиганты. Кто из них охотник, а кто жертва? Для того, чтобы понять это, был создан корпус разведки под командованием Эрвина Смита. Но последние загадочные события, во многих из которых были замешаны кадеты 104 корпуса, поставили командира разведки в трудное положение.
-
-Кто же такие эти гиганты? Откуда они явились? Есть ли еще люди, которые могут превращаться (   Читать дальше...   )Производство: Wit StudioЖанр: приключения, фэнтези, драмаРежиссер: Араки ТэцуроЯзык озвучки: Японский, русский (AniDub, AniLibria, KANSAI, NewComers, Wakanim)Субтитры: Русские (Crunchyroll, Nesitach & Stan WarHammer, Firegorn Team)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600208   (159047) от 26.12.2022
-
-Джон МакКрэй | Червь (Книга 28). Тараканы (2022) [MP3, Adrenalin28]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 05:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29345AAECA15546ABF8BC6DF882267396AFF4F5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674443   (159048) от 11.11.2023
-
-Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159048.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновленные оригинальные русские образы ОС “Windows® 11™” от Microsoft наиболее востребованных редакций, объединенных в 1 образ (x64) стандартными средствами от Microsoft ADK (DISM). Включает в себя обновлённые "чистые", почти не модифицированные образы редакций ОС Windows 11 Pro, Home и Enterprise x64. В системе присутствуют финальные, оригинальные обновления (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E41CD9A1BDC66A0691A7880B6F8829B4930E47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600262   (159049) от 26.12.2022
-
-Дарья Калинина | В семье не без убийцы (2021) [MP3, Лилия Якшибаева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман мечтал о свободе. Его жизнь была похожа на страшную сказку. Красавица невеста после свадьбы превратилась в ужасную ведьму. И теперь Наташа бесконечно пилила его, изводила упреками, контролировала каждый шаг, а ее многочисленная родня во главе с чокнутым братцем и помыслить Роману не давала, что можно развестись. Романа настолько измучила семейная жизнь, что (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE3972E0F020326761ABF88A9D50F51A1E02EFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663722   (159050) от 11.11.2023
-
-Кибердеревня (2023) WEBRip [H.265/2160p] [4K, SDR] (сезон 1, серии 1-10 из 10)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159050.jpg" />
-</div>
-
-
-###  Подробнее
-
-2100 год. Николай счастливо живет с семьей в кибердеревне на Марсе. Он спокойно ведет роботизированное хозяйство, пока на планету не прилетает руководитель огромной корпорации — Барагозин, который хочет построить на месте деревни новый завод. Николай отправляется в полное опасностей и приключений путешествие до Земли, чтобы спасти свой дом.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Григорий Скряпкин, Сергей Бурунов, Артем Семакин, Елена Махова, Влада Лукина, Маргарита Силаева, Сергей Фёдоров, Григорий Столбов, Зоя МансуроваСубтитры: Русские (Full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACF592DAA77D535BBBB106DF5A6EDD37AFA93A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600169   (159051) от 26.12.2022
-
-AnyMP4 iOS Cleaner 1.0.16 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159051.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 iOS Cleaner может помочь вам освободить больше места для ускорения работы iPhone. Это программное обеспечение для очистки iPhone может очищать различные данные, такие как кеш приложений, документы, приложения, ненужные файлы, память, электронную почту, системные файлы, вирусы, мультимедийные файлы и т. д. Чтобы освободить место для iPhone, iPad и iPod. Выборочно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAF50D9C05155E574F24FD2DBDD2C3EDF9D3737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675797   (159052) от 11.11.2023
-
-Капкан: Судная ночь / Night of the Hunted (2023) WEB-DL [H.264/1080р]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выжить в схватке с беспощадным стрелком, скрывающим свое лицо, очень непросто. У маньяка своя философия, правила жизни и мотивы, по которым он выбирает, кто в эту ночь станет следующей жертвой, а кого следует пощадить.Производство: США, Франция / Cinestesia, Getaway Films, Heavy RainfallЖанр: триллерРежиссер: Франк ХалфунАктеры: Монайя Абдельрахим, Эббе Андерсен, Дж. Джон Билер, Брайан Брейтер, Бренда Нуньес, Алекс Попович, Айзиа Рейс, Камилль Роу, Джереми Скиппио, Сташа СтаничПеревод: Дублированный (Vox Records)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B451EA710AE75297E84D5CAF66603E434DE92522
 ```
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68790.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ayreon - Into The Electric Castle (A Space Opera) (1998) Released, 2018, Music T
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68791.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:12D2467D9E45962D8740CB9B7320B70B98BD7516
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68792.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Pop International Hits Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68793.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - I Love ZYX Italo Disco Collection 4 (2006) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68794.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Marina Kapuro (Марина Капуро) - Happy New Year (2024) [MP3|320 Kbps]
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68795.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Ibiza Spring 2025 (Chill out Cookies from the Heart) (2025) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68796.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:0E21D1F004BF1598DF7E1A44D4B5EE5E2A84BA7D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68797.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:5A655EDAF26CD7C5B48B9362272A6DBB41015265
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68798.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:AA24AF1E4F6AF54F737F5F6940C01D0608321A50
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68799.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Aries Beats - Collection (2023) [MP3|320 Kbps] <Synthwave, Pop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68800.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ VA - Pop Mania 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68801.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ ARK - ARK (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Prog Rock, Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68802.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Fantasy Island (Rainbow Chill out Tunes), Vol. 2 (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68803.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:543FFEB6ED4008083AE1F9DBAD20539AD57A91E3
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68804.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68805.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Mechina - Bellum Interruptum (2025) [MP3|320 Kbps] <Symphonic Metal, Modern Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68806.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Ocean of Grief - Nightfall's Lament (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68807.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Black Devils, Ile Kallio & Janne Louhivuori - Hooked (2025) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68808.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sun Ra And His Arkestra - Jazz In Silhouette (1959) 2CD, 2023, Cosmic Myth Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68809.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:DC919E11A82ED40DDEA0A4F34BAA529B82945DDE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68810.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Stellar Dynamics - 2 Albums (2021, 2024) [MP3|320 Kbps] <Dark Electro, Harsh EBM
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68811.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:E9DFE879E991FA2B0242CA2D6712D3BE2E4D8C2C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68812.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:8D7513477B4AEAB082012BB8BCA3F324B6E7EA49
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68813.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:DD4F0CC9D98AE22CC489C6D677E5D67BE399211C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68814.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:33EE8BE7195A28D55BA5D9D66BC5569B08B7C142
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68815.jpg" />
 </div>
 
 

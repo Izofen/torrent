@@ -1,3 +1,79 @@
+###  Публикация: 1744830   (105248) от 23.08.2024
+
+Blender 3.6.15 LTS + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
+
+В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F119EDA084ED0F40A1303CCBFA044E3A93B8BE36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744856   (105249) от 23.08.2024
+
+RisohEditor 5.8.5 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105249.jpg" />
+</div>
+
+
+###  Подробнее
+
+RisohEditor это бесплатный редактор ресурсов для среды Win32, созданный Katayama Hirofumi MZ. RisohEditor задумывался как идеальный редактор ресурсов. В японском языке "Risoh" означает "идеал".
+RisohEditor позволяет добавлять, редактировать, извлекать, клонировать и удалять данные ресурсов в файлах EXE/DLL/RC/RES.
+С помощью RisohEditor можно редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226C8570F4C896C748BA612C81A4D0ABED11DCA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744872   (105250) от 23.08.2024
+
+Журнал | Вокруг света №7 (2997) (сентябрь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал публикует новые взгляды на известные исторические события, рассказы о знаменитых людях и их судьбах, информацию о новых научных открытиях и технических достижениях. Он был основан в Санкт-Петербурге в 1861 году и с того времени практически без перерывов издаётся на протяжении уже полутора веков. За это время журнал прошел несколько этапов от географического (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: ООО "Шкулёв Медиа Холдинг"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EB1CA16D1AC792B569BA545C94EFEBD815B94B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744848   (105251) от 23.08.2024
 
 Wise Disk Cleaner 11.1.5.831 + Portable [Multi/Ru]
@@ -6,7 +82,7 @@ Wise Disk Cleaner 11.1.5.831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105251.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:8F6EDADECDCE95C23DA27EF54B69148028564ACA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105252.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ magnet:?xt=urn:btih:01A3852F0A6EBE62B4AFDE6BCF53DA572B221966
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105253.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ Avidemux 2.8.2 Nightly (r240811) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105254.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ magnet:?xt=urn:btih:1F47505494B3B345F2EEA44A4555652CE4EFF6CB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105255.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ Bloodcrown - Sound of Flesh and Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105256.jpg" />
 </div>
 
 
@@ -155,7 +231,7 @@ Cognitive Dissonance - Return To The Flame (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105257.jpg" />
 </div>
 
 
@@ -182,7 +258,7 @@ magnet:?xt=urn:btih:F5153F163D38E683C19535BF1F5AE6B921AC87B8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105258.jpg" />
 </div>
 
 
@@ -206,7 +282,7 @@ magnet:?xt=urn:btih:4AE6336808DF50F3CEF5A3014C5DB200A7AF5FA9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105259.jpg" />
 </div>
 
 
@@ -230,7 +306,7 @@ magnet:?xt=urn:btih:748EED0506138EB6277061D9B66948BA2FC7B441
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105260.jpg" />
 </div>
 
 
@@ -255,7 +331,7 @@ magnet:?xt=urn:btih:64282E72B0995B55059CF8BF8A9A240E9086501E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105261.jpg" />
 </div>
 
 
@@ -282,7 +358,7 @@ VA - Trance Summer 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105262.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ Fontaines D.C. - Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105263.jpg" />
 </div>
 
 
@@ -336,7 +412,7 @@ Devon Allman - Miami Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105264.jpg" />
 </div>
 
 
@@ -363,7 +439,7 @@ magnet:?xt=urn:btih:E7C459F283E406B5ED80E5F6E00E0BEACADE24B3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105265.jpg" />
 </div>
 
 
@@ -387,7 +463,7 @@ magnet:?xt=urn:btih:6BC9D15592C5FA6CA8D299BEC8C720993E7110DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105266.jpg" />
 </div>
 
 
@@ -413,7 +489,7 @@ Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105267.jpg" />
 </div>
 
 
@@ -440,7 +516,7 @@ Nighthawk - Midnight Hunter (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105268.jpg" />
 </div>
 
 
@@ -467,7 +543,7 @@ Simone Simons - Vermillion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Modern Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105269.jpg" />
 </div>
 
 
@@ -494,7 +570,7 @@ magnet:?xt=urn:btih:E7F2137F579B1298A10682B9CED46A18727F7938
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105270.jpg" />
 </div>
 
 
@@ -520,7 +596,7 @@ Virgin Steele - Virgin Steele I (1982) Reissue, Remastered, 2024, Steamhammer, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105271.jpg" />
 </div>
 
 
@@ -547,7 +623,7 @@ magnet:?xt=urn:btih:46E00A0B1131FF7C9EA8170E9BEC2F694F5C1F4D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105272.jpg" />
 </div>
 
 
@@ -571,7 +647,7 @@ magnet:?xt=urn:btih:A2028D2FC53D777372DE9C1C1E3AC71913FCFFDE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105273.jpg" />
 </div>
 
 
@@ -582,84 +658,6 @@ magnet:?xt=urn:btih:A2028D2FC53D777372DE9C1C1E3AC71913FCFFDE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F04B1E4FA102FA94859B91A4D711427DFACEBCF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744575   (105274) от 22.08.2024
-
-VA - Top July 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Dani - Lay Down Near Me (Intro Mix) (04:53)
-02. Sam Fletcher - Winter Bloom (Original Mix) (06:50)
-03. SounEmot & Elgfrothi - Together in Time (Original Mix) (10:07)
-04. Juan Almiñana Obando - Ana (Original Mix) (06:47)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1784E41B9A4565D879A56080F9EA4C88596BBCDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744521   (105275) от 22.08.2024
-
-Сатисъ | «Золотая цепь святости». Старчество (2011) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105275.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник, рассказывающий о традиции православного старчества, его значении и самих старцах вошли книги прот. Петра Латушко «Значение старчества в деле духовного руководства по учению святых подвижников», И. Петрова «Золотая цепь святости» и Г.Т. Северцева (Полилова). «Богом отмеченный. Из жизни одного старца подвижника».Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BE811067A5400E2FCFE8FAA153FFC2A8C80048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744637   (105276) от 22.08.2024
-
-Fleshgod Apocalypse - Opera (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ode To Art (De' Sepolcri) (2:18)
-02. I Can Never Die (4:30)
-03. Pendulum (3:59)
-04. Bloodclock (5:14)(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78246D2C1A48114B74592E9C1F4D95C28BB2D35B
 ```
 
 

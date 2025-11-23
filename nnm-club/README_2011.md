@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52651.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:5200A7810FE476D8FAE59F7EB1AEBBB626C76D17
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52652.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ House Builder (2021) [Ru/Multi] (20240619/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52653.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:0B8BE7C5B915792990FBCCAF23C51FDCCA279C3C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52654.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:191C06866509A1A9F140B090D29F8EF3875D2322
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52655.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:77C1499B087EF8572BBA4F714CF0D1FE1074B8AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52656.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:5D28AA70E15228F15B994A468974FC8C7D6B4CC0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52657.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:5D28AA70E15228F15B994A468974FC8C7D6B4CC0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52658.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:F9C2573C5B5CC1F115C515555D0D790DF3C0A348
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52659.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:5C69F0FDAFD9CF7C489747080311B0B212A72A21
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52660.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0B7C77690A122411B035DD5FC6056B589A5720A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52661.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:0B7C77690A122411B035DD5FC6056B589A5720A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52662.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:8A23885825AE2560952DE5C88FF256B69145980E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52663.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Angela Wilke, Cheryl Hutty (еditors) | Japanese English visual dictionary (2011
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52664.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:F21A40C5E89C68E501C89457AE5D5CE78718EF53
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52665.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Сборник "Горячие новинки" (Лето 2024) (2024) [FLAC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52666.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B8F225FC4F48998862120A61BFF138D19978F087
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52667.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ USB Device Tree Viewer 4.3.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52668.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Firefox Browser 127.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52669.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:84F6178CCBE00ABED28F78DF6C81A8860C594C26
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52670.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:8CCA2E46D2ED66CA71CFF8BD112DE5FEDCDA0F68
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52671.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Vivaldi 6.8.3381.44 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52672.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Brave Browser 1.67.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52673.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Ventusky: Прогноз погоды v36.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52674.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:205CBA29B1F743085A3708A26A467334A5FF4E4C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52675.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Photo Lab PRO v3.13.14 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52676.jpg" />
 </div>
 
 

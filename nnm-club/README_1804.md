@@ -6,7 +6,7 @@ Bandicam 7.1.3.2456 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47259.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Scene Tenoke [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47260.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:713D87CEB94B5C53AD34CC47DC1BCA6F71DD2B92
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47261.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:894992ABFECC2961CECA96034FF5DA43B23B608B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47262.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:217E094B9F41F984E4B88FF3BF6B6071197F2F1D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47263.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:277059EDE01535B8BC2BA253FF45CC279EED269E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47264.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6C6CB0BA74158E1D366190971B5B0E3CE07D0F04
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47265.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1AB5A5BE51F9551E6A54925998CAD3F8398A4435
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47266.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Mock Locations (fake GPS path) v1.24.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47267.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Aerial_Knight's We Never Yield (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47268.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:45B3972175751B6F00DBD24CBF75060D12AF6DAF
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47269.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:2F2ACD1DEC2235D5995B574BEA28F104B2886126
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47270.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ nthLink 6.4.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47271.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Rainmeter 4.5.28 Build 3779 (RC) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47272.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47273.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:28C43F2F18FA8F493C508D2BF22B2EE6EE274241
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47274.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:4E54034B8C62FDC20DAC75C19B50B832037320DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47275.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:56C05A2E9BF28E8D59696714D3D169A8581B0357
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47276.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47277.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47278.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47279.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47280.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:A4CB6A2EE09EB0851923ADCCF04C6CD05F3E891D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47281.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:DB8718ACE03112739262CEB0AFFA29B16C020B53
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47282.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:DB8718ACE03112739262CEB0AFFA29B16C020B53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47283.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:901F52E3E9BF1CE2B3C5D7380CF4BC2D1004EA78
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47284.jpg" />
 </div>
 
 

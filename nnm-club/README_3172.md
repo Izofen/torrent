@@ -1,3 +1,78 @@
+###  Публикация: 1822780   (101580) от 08.10.2025
+
+Журнал | Тайны ХХ века №38 (1184) (сентябрь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101580.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40612FF8E3D30E0DAFA319A95DF064F6C683045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822782   (101581) от 08.10.2025
+
+Журнал | Тайны ХХ века №39 (1185) (сентябрь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101581.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE33D6C4295F56BF4D5E6B78BE3D69456A43CB93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822787   (101582) от 08.10.2025
+
+VA - Compilation Part 195 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Broken Promises
+02 - Riltim - Stay
+03 - Azimov - Cold Wind
+04 - Dova Music - Tears of Love(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C611CF79FC5FF8EACF176762B51D5B5A6D8AFCDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822798   (101583) от 08.10.2025
 
 РИКЗ | Централизованный экзамен. Централизованное тестирование. Английский язык. Сборник тестов (2025) [PDF]
@@ -6,7 +81,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101583.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:FC3EC11E35074F04C6B5C1B503906206583050BE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101584.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:00D6EA2A6B0489266DD9EA13AD69863FA0104C79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101585.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:60BD051927B30E90FDF98EFC3FCC70679B726DD0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101586.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ Metel - Horror Escape (2020) [Ru/En] (1.01) Repack Necros [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101587.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:C00CF5E879BAC5C4E066CAD2F98BC2DB4BF306E0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101588.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ magnet:?xt=urn:btih:DE755FF6E03BB1298A62E2E20B6FE8AC072608B2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101589.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:C76539E882FDB88FAB1C7856388E0BEAE8739FC8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101590.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ magnet:?xt=urn:btih:C457835E0F644A152EBD781513528104F665152D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101591.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:468AB2DDF2C68842ED8136AB462981A20A2A4239
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101592.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ magnet:?xt=urn:btih:CF3E402D57631EF9D85555D2F92DCD9EEC105F2E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101593.jpg" />
 </div>
 
 
@@ -278,7 +353,7 @@ SketchUp Pro 2026 26.0.429 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101594.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ magnet:?xt=urn:btih:2B6EFD216DC424A709794DE045F69079FDE4595E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101595.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ FastStone Capture 11.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101596.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ magnet:?xt=urn:btih:AFF71EB484C87B7367F4644A599ACDE7D7A3C47A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101597.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:8138486C21C74988499E0ED9520D52C3CDCC3090
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101598.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ FastCopy Pro 5.11.0 [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101599.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ magnet:?xt=urn:btih:8283AD1D729E095B211B50F150A85ACB598C4306
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101600.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ CyberLink PowerDirector 2026 Ultimate 24.0.1003.0 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101601.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ Colin McRae Rally + DiRT Antology (1998-2015) [Ru/En] (1.5/1.09/1.1/1.01/1.01/1.
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101602.jpg" />
 </div>
 
 
@@ -495,7 +570,7 @@ magnet:?xt=urn:btih:2F1B51ED0FA757ADC1F7904DDED356403131059A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101603.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ magnet:?xt=urn:btih:B175396F8773971B164D5690A3AD9B4A231349EF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101604.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ magnet:?xt=urn:btih:0E6B40E3951A7B80E9B843ADF01C5E683C4117F6
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101605.jpg" />
 </div>
 
 
@@ -554,80 +629,6 @@ magnet:?xt=urn:btih:0E6B40E3951A7B80E9B843ADF01C5E683C4117F6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A2FE13AC37766CCFAB06BFDEFB7EB78F43C9E74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822775   (101606) от 08.10.2025
-
-Проекты - VideoHive - Frame Slideshow - Clean and Elegant Gallery - 59681776 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frame Slideshow — это простой и современный шаблон After Effects, разработанный для фото и видео презентаций.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC72F688055422F17D2DB585A1A30CE2E24868A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822774   (101607) от 08.10.2025
-
-MAX Desktop 25.12.2 [Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667ADD899C20C1255C8A4C0BFE36D1E5A166D4CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822770   (101608) от 08.10.2025
-
-Шрифты - MyFonts - Ice Cream [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ice Cream – это продукт заброшенной концепции шрифта – несвязанного шрифта для упаковки продуктов питания. Первоначальные образцы были настолько культовыми, настолько вдохновляющими, что требовали доработки. Извилистый, с изрядной долей веселья, честно говоря, и я бы не хотел ничего другого. На него сильно повлияли Kari и Juicy (и даже бесстыжие копии моих оригиналов, (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5776FFBBEE9B8DE64D29ED4F1339225ECF5328DE
 ```
 
 

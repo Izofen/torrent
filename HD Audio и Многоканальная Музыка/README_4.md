@@ -6,7 +6,7 @@ Demon Hunter - There Was A Light Here (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2913.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stormbreaker - Enlightning (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2918.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Papik - Cocktail Sanremo, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2931.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gorillaz - The Happy Dictator (feat. Sparks) (2025) Single [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2964.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Devolver - Non Compos Mentis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3106.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Crematory - Act Seven (1999) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3113.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Judas Kiss - The Mirror Crack'd (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3115.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Maruja - Pain to Power (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3120.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Crematory - Awake (1997) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3121.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:4AED09563B54B7784999394038F742423EDAE6A5
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3122.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Hypermass - Studio Albums (3 releases) (2015-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3125.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Verses GT - Verses GT (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Trip Hop, Danc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3126.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Ed Sheeran - Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3140.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Phil Collins - No Jacket Required (1985) Mix, 2025, Rhino Atlantic [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3155.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Sophie Ellis-Bextor - Perimenopop (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3156.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ The Rasmus - Weirdo (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3163.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Foreigner - 4 (1981) 2025 4CD Deluxe Edition [FLAC 24/96, 16/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3172.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ ILWT - Наполовину полон. Сорокалетним посвяща�
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3183.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Antimatter - Studio Albums (11 releases) (2001-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3201.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Pharoah Sanders - Karma (1969) SHM-SACD, Japanese Edition, Reissue, Remastered, 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3291.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Hypocrisy - Virus (Remaster 2025) (2005) Remastered, 2025, Nuclear Blast [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3300.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Ashen - Chimera (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Metal, Modern 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3308.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ twenty one pilots - Breach (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3338.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Suede - Antidepressants (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3430.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Aaron Mccoy - Next Level (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3442.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Animalyze - Powerhouse (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Gl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3443.jpg" />
 </div>
 
 

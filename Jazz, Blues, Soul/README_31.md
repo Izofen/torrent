@@ -6,7 +6,7 @@ VA - The Best of Classic Jazz 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67487.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Yasuhiro Kohno - Princess Sayaka (1995) ASCAP Record [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67518.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Buddy Rich - Just In Time: The Final Recording (1986) 2CD, 2019, Gearbox Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67538.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Roy Eldridge & Charlie Shavers - Swing Trumpets (2024) Circle Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67555.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Bucky Pizzarelli - Renaissance: A Journey From Classical To Jazz (2015) Arbors R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67566.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Clifford Brown - Memorial Album (1953) 2003, Toshiba-EMI [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67572.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dogshark - Earth Is Not Room Enough (2024) [FLAC|Lossless|image + .cue] <Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67574.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67595.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Saori Yano - Answer (2012) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67605.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ally Venable - Money & Power (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67620.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Pepe Bueno & Os Estranhos - Confissões e Outros Blues (2025) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67652.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Tracy Weinberg & Friends - Another Saturday Night (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67653.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sir Dinha Blues Band - VISO (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67654.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Buddy Rich - Trios (1976, 1977) 2023, Lightyear [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67659.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Buddy Rich - Birdland (2015) Lightyear [FLAC|Lossless|tracks + .cue] <Big Band, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67663.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Pixel Music AI - Electro Swing, but in Japanese (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67700.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Bill Evans - We Will Meet Again (1979) 2013, Warner [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67746.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Country Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67758.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Books & Coffee Vol. 3_ Jazz & Easy-Listening Mix (2025) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67765.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Easy Living: Spring Jazz Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67766.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - House Adventures 12 & 13 (Black Mighty Wax presents) (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67771.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Frankie Campofelice - Every Night at Seven (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67773.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Oscar Peterson Quartet - City Lights: Live in Munich (1994) 2024, Mack Avenu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67778.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Michel Legrand - Michel Legrand By Michel Legrand (2002) Decca [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67801.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Kustan Adam - Pretty Black Suit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67821.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Jason Wells - Worried Man Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67822.jpg" />
 </div>
 
 

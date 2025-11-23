@@ -1,3 +1,78 @@
+###  Публикация: 1732179   (107562) от 23.06.2024
+
+Anita Ganeri | Amazing Earth (2021) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Award-winning children's author Anita Ganeri takes curious kids who love learning to the most incredible locations in the world. This science book for kids includes breathtaking images and mind-blowing facts about our majestic home - Earth. Turn the pages to discover natural wonders, stunning vistas and other jaw-dropping places from around the world.
+The Most Incredible (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A423C3B507DDBA37BE34CF92D379A937877DA4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731987   (107563) от 23.06.2024
+
+Иннокентий Белов | Апокалипсис начнется в 12:00 (Книга 5). Новая жизнь. Вожак шайки. Часть 2 (2024) [MP3, Михаил Обухов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш современник с немалыми таким плюшками попадает в мир магического Средневековья.Здесь все трудно, страшно и кроваво, жизнь человеческая не стоит и гроша.Правда, он сам и его товарищ по несчастью, или все же счастью, готовы к испытаниям, сражениям, рекам пролитой крови, ударам в спину и захвату неприступных замков со своей шайкой.
+Есть впоследствии соприкосновение (   Читать дальше...   )Жанр: Боевая фантастика, РеалРПГ, ПостапокалипсисИздательство: ЛиТрес: Чтец, Автор
+Категория: 18+Продолжительность: 06:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCAD47DA061F66ED2D4B4E87B16BA5AA22B0427
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732011   (107564) от 23.06.2024
+
+Смешанные единоборства. UFC on ABC 6: Уиттакер - Алискеров / UFC on ABC 6: Whittaker vs. Aliskerov (22.06.2024) HDTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Main card турнира "UFC on ABC 6", прошедшего в UFC Apex facility, in Enterprise, Nevada, part of the Las Vegas Metropolitan Area, United States.Телекомпания: Матч!Жанр: Спорт, смешанные единоборстваЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D72CC4922904D041750904B22DAFF1F810D82B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708165   (107565) от 23.06.2024
 
 Depeche Mode - A Broken Frame (1982) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
@@ -6,7 +81,7 @@ Depeche Mode - A Broken Frame (1982) 1st German Press [APE|Lossless|image + .cue
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107565.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Darktable 4.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107566.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ magnet:?xt=urn:btih:7319B79B674A84FA5FB7F80C7D7894E62CC21567
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107567.jpg" />
 </div>
 
 
@@ -83,7 +158,7 @@ magnet:?xt=urn:btih:8E6EC597507A6A8C582BDC8A3BC45CD1F788B16F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107568.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ magnet:?xt=urn:btih:07E72557700981B153A42D8F0EDB9FCC2DC6A1E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107569.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ Sexy Lovers Music Collection - Good Morning Sex (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107570.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ magnet:?xt=urn:btih:CBFF2FCA110679832D8462879BCBC19371FB9662
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107571.jpg" />
 </div>
 
 
@@ -185,7 +260,7 @@ magnet:?xt=urn:btih:C302A50C82C9EDC1606E045851731D8CE3639425
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107572.jpg" />
 </div>
 
 
@@ -209,7 +284,7 @@ Celine Dion (Céline Dion) - JE SUIS : CELINE DION (Bande originale du film) (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107573.jpg" />
 </div>
 
 
@@ -236,7 +311,7 @@ magnet:?xt=urn:btih:37DC9416BE2F12B8713B1F9F34B25860BD0C152B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107574.jpg" />
 </div>
 
 
@@ -260,7 +335,7 @@ Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [MP3|320 Kbps] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107575.jpg" />
 </div>
 
 
@@ -287,7 +362,7 @@ Eynomia - Sea of Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107576.jpg" />
 </div>
 
 
@@ -314,7 +389,7 @@ Maverick - Silver Tongue (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107577.jpg" />
 </div>
 
 
@@ -341,7 +416,7 @@ magnet:?xt=urn:btih:AA61B3EEF6E5472BF7AC6671424169AC0948060A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107578.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ Deiv Id Fuzz - The Witch and the Moonset (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107579.jpg" />
 </div>
 
 
@@ -393,7 +468,7 @@ Stoned Circus - The Stoned Circus (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107580.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ Danava - Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner Rock, Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107581.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ magnet:?xt=urn:btih:0E8CD2A0DFD1030884992FFB0BE6FC4ADBE5EDB3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107582.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ magnet:?xt=urn:btih:0E9AAA6897A2927CD046C27375D52C71449A20D9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107583.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ magnet:?xt=urn:btih:D37C3929B663C8497F5EBA1C941775DC05028B14
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107584.jpg" />
 </div>
 
 
@@ -527,7 +602,7 @@ magnet:?xt=urn:btih:683AA3141C52720CF0BFC5C9864C930881CF7809
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107585.jpg" />
 </div>
 
 
@@ -553,7 +628,7 @@ Fervent Hate - In Rot We Trust (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107586.jpg" />
 </div>
 
 
@@ -580,7 +655,7 @@ Cainites - Revenant (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107587.jpg" />
 </div>
 
 
@@ -594,84 +669,6 @@ Cainites - Revenant (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82FD5A8B8D9AD36EE9B895DA87CA812A9A1BEECC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731755   (107588) от 22.06.2024
-
-Antonio Sanchez - Channels Of Energy (2016) 2CD, 2018, CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life [11:01]
-02. Grids and Patterns [10:05]
-03. Imaginary Lines [9:35]
-04. Channels of Energy [14:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497773C5F080EDBB77BBAF768E07C3B780A94439
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731804   (107589) от 22.06.2024
-
-Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Solemn Hour
-02. Faster
-03. Paradise (What About Us?)
-04. Stand My Ground(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE453ECED57EB0AD3DA688220556818DAB701708
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731791   (107590) от 22.06.2024
-
-Поедем, поедим! Северная Осетия: асадо по-осетински, волшебные горы и знаменитое застолье (22.06.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107590.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Алании Федерико Арнальди поднялся на древнюю башню, покатался по бездорожью, поучаствовал в традиционном застолье и попробовал монастырские сыры, а еще приготовил говядину с фасолью и асадо по-осетински.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7956B20ACAE348A1B99C63A20FBBA11C1F38E8
 ```
 
 

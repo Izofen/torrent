@@ -6,7 +6,7 @@ Oxygen Not Included (2019) [Ru/Multi] (20240718/dlc) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49406.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Only Up! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49409.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49413.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Under The Waves (2023) [Ru/Multi] (01.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49416.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dragon Chronicles: Black Tears (2024) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49419.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49421.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49429.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49431.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Pro Cycling Manager 2024 (2024) [Multi] (1.4.1.141/dlc) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49436.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49437.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Scene PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49443.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Classified: France '44 (2024) [Multi] (20240718/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49447.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.52-267364) Repack Other s [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49450.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Spirit of the Island (2022) [Ru/Multi] (3.0.5.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49452.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Asterix & Obelix Slap Them All! 2 (2023) [Multi] (2023121101) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49458.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49460.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49476.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Thaumaturge (2024) [Ru/Multi] (73424/dlc) License GOG [Digital Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49477.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49587.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ TeleMorpher (2024) [Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49641.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49643.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49650.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ TerraScape (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49663.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49665.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Butanooo! Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49668.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49686.jpg" />
 </div>
 
 

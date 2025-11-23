@@ -6,7 +6,7 @@
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89475.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89482.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1747B6CDB4789862209C182887C604687A895FB8
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89502.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5DAFA6DA4180365D3833911F3C29257BABEC7F9D
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89519.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4D99493F04DF5B96CAFFE80B2808DCDCE76EBD39
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89953.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Shark Tale / Подводная братва [3+] (L) [Ru] (2005)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101698.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:BD1E81E85BB7FCEEF786C62821932E764748EA31
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130099.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:03DB2E6FD60F27076FB80C3FC89AB2CE30DDAD32
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155310.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B5F81F52A59DA9B8FF7A2F7479DC58745201BB40
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189083.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189083.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F2BBF6931EF2379AE09793CF832BB82F632E7F5B
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191990.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191990.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:A173C7E453329CBE85F8D848B77FAA136CD3F9C5
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227933.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227933.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:FC1A93D1603CD60F10CBF42700E57A24C9EC4BC6
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229683.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229683.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Peppa Pig: World Adventures [6+] (2023) [Multi] (1.0) Scene Tenoke
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244614.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244614.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:514D048FBEB5461820828355B0031106F52F92FE
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255827.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255827.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:791702C6E7875582EADE850FF15C8CFAD443B67D
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255855.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255855.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:15E38206A71154C2E79B5900B3070FB6110D0268
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256436.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2ED653C8F767206EA725026238534A42DADC6D33
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257011.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257011.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:332BC98D16E1F3774C601F34C946C6D06E84D3D7
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257322.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257322.jpg" />
 </div>
 
 
@@ -427,6 +427,30 @@ magnet:?xt=urn:btih:332BC98D16E1F3774C601F34C946C6D06E84D3D7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CE4019AEE812F1C4BA3BB39F6442AC02E5F96D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499956   (258169) от 24.05.2012
+
+Малыш Бакрёнок и Большие гонки / Mercer Mayer's Little Critter and The Great Race [5+] (P) [Ru/En] (2002)
+
+>>Детские PC Игры
+>>Детские Игры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добрый мультяшный квест для детей. В некой сказочной стране, где обитают... непонятно кто (скажем, для определенности, бобры), живет вполне благополучная семья, состоящая из папы, мамы и сыночка, мечтой которого является участие (и, непременно, победа) в гонках на самодельных детских авто. Парнишка подает заявку на участие в гонках и получает инструкцию по сборке гоночного средства. В книге находятся схемы трех различных авто совершенно немыслимых конструкций, причем запчасти для машин являются обычными предметами быта, например, деревянный ящик из-под лимонада или велосипедные колеса. Дело осталось за малым: выбрать машину, которую будем собирать и различными способами раздобыть все ее составляющие. Вся игра завязана на поиске необходимых запчастей и именно в этом маленькому бобрику придется подсобить.Тип издания: ПираткаРазработчик: Big Tuna New MediaЖанр: Adventure / For KidsЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA0892C39131394F41D3D78E98728C1278D1256
 ```
 
 

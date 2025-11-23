@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104635.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1A0BF8F04AAB112D02CC4AF413D5A986E6CDC953
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104822.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E0F2D8D3E99E8310B2827F309DA8FC50B471E6EC
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104824.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F9588EA43EDA75F2E5E1C48877DABD9A9E7ACE30
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104844.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Гонка (01.09.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104850.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:847A69F66F4F45930BE53B26497904B3925B243E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104864.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104885.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7D52B02B90DA466B07DDF5F5DBBCBAD6A235F0D8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104888.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Спринт (31.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104906.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:7801FC9FD743B114E08E5DCCA808896FA9551644
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104924.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:792783A8C0ED4914B3B06A6DA21411BEEB15040C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104987.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A0A80736E0697667DFCA8FE9A21E949A425D57B2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105215.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Гонка (18.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105332.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105357.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Спринт (17.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105380.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:F314A0BE27DF6DC7CE29377332CD34E52D03BCE8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105429.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:9B1D44CB56FB282482D7BA278D4A31EAB105660C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105668.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Го�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105697.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Сп�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105774.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Кв�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105777.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:8A1058397619088AB6402DAA48DD2CDCBCF9B73B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105832.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:ABCEF04765201A27C1306A848103B8FA3DCAC271
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105923.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E34FEEAC6B74053C95C645B05A977715B4433B7A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105925.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:175E60135208A4F8620769FDA244522E008268CE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106354.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:CCFA516BACF657480764C3D90DEA07772BFB1860
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106357.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:5F63D2CBF9CF26F12DD28B2637F5116A8EE34808
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106358.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12117.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:322C62D9B03732C1EC57372C4359005468A56AC4
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12939.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:45EC4E8E4A84794A41764F9AED31F6BC063DB951
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12944.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Самые лучшие хиты 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13785.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Если б не было войны (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14519.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:855A31A0E4FCE3275855FDF4D9117E8ECF945BBA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14708.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:5F97954E6A7EC35C1D3C5AE7A5EAFD95A4AAD303
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14833.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:543854E6ECB398C930A147ECE9DD084922819178
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14955.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:4178E2387F6C7E398A2EF8B7523B188DC814F66C
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15033.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Шансон премьера 2025 май (Новые песни. Новы�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15934.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Русская 30-ка хитов 15 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15936.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Шансон под рюмочку (2025) [FLAC|Lossless|WEB-DL|tracks] <Ш
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15940.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:79B5BC7D1CBCC7A92D41AD3131977E05F457E08D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15945.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:627D9B86757F095630A0FDC80A3F8546787BD25C
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16057.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A7EBA1966436F73E46F076D9A4B6905C9797062E
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17130.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - В нашу гавань заходили корабли (2001-2025) 15CD [
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17165.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:536B7D4CA9FA5AC140EB638350D0AE125799C82B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17518.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A615EE5E9F7FFC69607D97AB0D263FD37D56DFD5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17520.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5AF7AC5F93A415C1288707CDDB195568BACD3A28
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17521.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:DF437B1EDE4EBFB5D8AE1BC9A09691CEC43416B9
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17522.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:FCE20E0EF9EA50736C848572E7E75CFC72045C99
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17527.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F80E93FD8CEF9806AA256B61F1369344B87CBFFD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18194.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:F1E48BA9E80B6F59B3564B80C711113BC4D3F52B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18222.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:1CE4B53A30D9ED5584108D63C186382CCF211A14
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18602.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:D7B47986B7C2726F514DF46CB8C7637B05BE44F6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18618.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:867071B31E17875EC3D5FB8619151ED14B6B6AD9
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18620.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MotoGP. Этап 07 из 22. Гран-при Великобритании. Кв�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66528.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:00034EDB3219235878D4C207D7F8B816D4EC269A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66529.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66530.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Thus Spoke Zarathustra - I'm Done With Self Care, It's Time For Others' Harm (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66531.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Agressor - The Merciless Onslaught (2004) Compilation [WavPack|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66532.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Orbital - Orbital 2 (1993) The Brown Album Expanded, 2025, 5CD, London Records [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66533.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Estiva - Embrace (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66534.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:04AFFA2ACDA1287AC187E7331B47C97F0041C13C
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66535.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Jon Allen - Seven Dials (2025) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66536.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:457B8303D0947C353D199CF7C224D0E11F2C964F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66537.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Coven (2022-2025) [MP3|320 Kbps] <Trance, deep-house, progressive-house, Da
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66538.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ MotoGP. Этап 07 из 22. Гран-при Великобритании. Го�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66539.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Editio
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66540.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F1714F28F60C40BB8CC7C614963060FC201F62C3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66541.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Aesop Rock - Black Hole Superette (2025) [FLAC|Lossless|tracks + .cue] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66542.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ House of Protection - Outrun You All (2025) EP [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66543.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:B3F8C268836FE2E7B99885385665963AAFF4B3C8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66544.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:D20AD67A5DEE858D91E9A60F6A678F743829DF47
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66545.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:9C77B2E343586BE8DBCE7D354128511E7B976B3A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66546.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Seventh Day Slumber - Fractured Paradise: Garden of Shadows (2024) Deluxe Editio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66547.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:A1CA3EB78E555CAC578470C78146C1CF59ECF83F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66548.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Chris Connor - Warm Cool: The Atlantic Years (1956 - 1968) 2CD, 1999, 32 Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66549.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:F163B33D23CF30CF85D4D49A16D10C9F987A1489
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66550.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:E271A9FC9B83B8CCEC7944B68B316CF5E3E9BF62
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66551.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Shining - X - Varg Utan Flock (2018) Deluxe Digibox Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66552.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66553.jpg" />
 </div>
 
 

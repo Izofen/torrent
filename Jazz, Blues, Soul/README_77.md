@@ -6,7 +6,7 @@ Kool&Klean - Volume XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108211.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:32E4CC3E758FFC620D94C62F287588D9E7FF0353
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108214.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Muggsy Spanier - 1949 - 1954 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108252.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108253.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108255.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108259.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108262.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alastair Greene - Standing out Loud (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108311.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dede Priest and Johnny Clark's Outlaws - Best Pieces (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108312.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jesse Redwing - Trim the Fat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108314.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lake Effect - Drifting (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108315.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Blues People - The Skin I'm In (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108317.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Big Harp George - Cooking with Gas (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108318.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bane Gluvakov - Awake (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108319.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dave Williams - Open to Persuasion (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108321.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jack Hadley - The St. Louis Sessions, Vol. II (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108322.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108323.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108325.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108327.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hammerhead Blues - After The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108328.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Blue Deal - Can't Kill Me Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108333.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Black Cat Bones - Troublemaker (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108334.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ian Hunter - Defiance Part 2: Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108337.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jamie Lockhart - Ship Fools (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108340.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Louis Armstrong - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Dix
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108341.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Guitarbo' - Old Boxer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108344.jpg" />
 </div>
 
 

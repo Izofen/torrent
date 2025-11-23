@@ -6,7 +6,7 @@ Shiver. - Topsfield Fair (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65681.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Qbiq - Endless Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65682.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mute Balloon - Out of the Red (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65683.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Orianthi - Some Kind of Feeling (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65685.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Adrian Quesada - Boleros Psicodelicos II (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65691.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sonic Mood - Sunny Guitars - Neo Jazz LoFi (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65693.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nathan East & Noah East - Father Son (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65694.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Zig Zags - Deadbeat At Dawn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65695.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Frank Zappa, The Mothers Of Invention - Cheaper Than Cheep: The Soundtrack (Live
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65698.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Related to Strangers & Matthew. - Ghost (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65702.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Peter Gabriel - In The Big Room (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65708.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Royale Lynn - Black Magic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65710.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lorde - Virgin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Electropop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65714.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mint Club - Slice Of Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-Punk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65719.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Abys - Telegraph (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65722.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Triumph - Magic Power: All Star Tribute to Triumph (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65724.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wicked Bluesman - Dreams & Destiny (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65725.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ A-Z - A2Z² (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Progressive H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65728.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rosetta West - Gravity Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65729.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lord Belial - Unholy Trinity (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65730.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Red Moon Macabre - Baleful Gathering (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65733.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Wisemary - Awake (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65734.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Gregory James Falcon - Something Blue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65735.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Muzzy - Do You Know the Muzzy Man (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65736.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Muse - Unravelling (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65739.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Badflower - No Place Like Home (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65744.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Гонка (28.09.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_206.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Спринт (27.09.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_474.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_476.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2CD12AD354A3B9A487C9A7763A2D6894140D1D60
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1032.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5374412325345647CF1CDB19DCAC4CAE4FB23722
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1436.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:539420B4FCDB9EBDDE454A3ADEE9CBCCE8F06964
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1614.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Гонка (14
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2751.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Спринт (
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2902.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Квалифи
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2905.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:82956831A62D92CAC9E4E4C3BFF4D217827D2166
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3718.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Гонка (07.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3837.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3839.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3841.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:FF1597AAEC1325DE94C5007616A37596F94E594E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3873.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:E06CAB46EF07214C307E3D3C29A93D3C6069EEE8
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4100.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:D4DECDBBEC240AD9EF53EC00D38B19088B507AC8
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4829.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:5249C49EE1F0D0768ABD720146D66F69696237F7
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4941.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Гонка (24.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6074.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Спринт (23.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6249.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6250.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:1D0FCF306B0DD512B87BC7F28E3F68A1E5C761B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6457.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Гонка (17.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7017.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Спринт (16.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7186.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7190.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:159238A539615F7108EC082F53C778DD9E37A0B9
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7547.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:48044CA416730AD9B9D8450F7AFC4965ACB72E41
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9305.jpg" />
 </div>
 
 

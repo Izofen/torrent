@@ -1,3 +1,182 @@
+###  Публикация: 1270692   (155861) от 20.12.2018
+
+Хоккей. Еврохоккейтур 2018-2019. Кубок Первого Канала 2018. Чехия — Швеция (16.12.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155861.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 декабря 2018 года, воскресенье. 14:00 МСК
+Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир
+Кубок Первого Канала 2018.
+Чехия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AC051D0CD113D91B3EBB07B78A05A4355F2A55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676764   (155862) от 14.11.2023
+
+Quercus - Kverulant & Nenia (2018) 2CD [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ravine Burden Thorns (12:47)
+02. Ignis Fatus (11:50)
+03. Darkening of God's Gifts (8:18)
+04. Alogia (3:44)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A202B9266E83B4625BC5324353895FADF7DEF67E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346767   (155863) от 21.12.2019
+
+Optimage 3.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Optimage - это продвинутый инструмент оптимизации изображений, позволяющий минимизировать изображения без потерь для веб-сайтов, приложений, хранилищ и обмена. Он использует расширенные метрики для автоматической настройки качества изображения для файлов изображений меньшего размера, в 10 раз визуально воспринимаемых как оригиналы. Максимальный коэффициент сжатия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2019Разработчик: OptimageПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202228ACCF0937C6FCAFC06F2C85F56474575EFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085732   (155864) от 22.12.2016
+
+Проекты - VideoHive - Ink Slideshow - 18983366 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ink Slideshow - интересный вариант слайд-шоу, использующий эффект размывания чернил.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57DB867E79E255DF1B83896EC27E6D639A19AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588538   (155866) от 13.12.2012
+
+Бригада: Наследник (2012) DVDRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм является идейным продолжением жизни героев телесериала «Бригада». Однако акцент смещен в историю сына Александра Белова — Ивана. Это Кино о современной России. О том, что у всех на устах: политике, коррупции, цинизме крупного бизнеса и спецслужб. О новом поколении, которое, узнав правду о нечистом бизнесе родителей, не идет по их стопам, а выбирает новый путь. Для них дороги понятия чести, любви и Родины. Герой, комфортно живший за границей, тем не менее, выбирает Россию (в отличие от сериала) и остается жить в ней, надеясь привнести эти идеалы в жизнь своих близких и страны в целом.Жанр: Боевик, КриминалРежиссер: Денис АлексеевПродюсер: Александр Иншаков, Леонид Лебедев, Екатерина ПанфиловаАктеры: Иван Макаревич, Екатерина Гусева, Кирилл Нагиев, Владислав Демин, Александр Иншаков, Анна Попова, Валерий Золотухин, Игорь Жижикин, Юрий Чурсин, Наталия ГуслистаяПеревод: Не требуется (русский)Продолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA3BDEF7A98B12023C8DAE74DBA970812194404
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967962   (155867) от 23.12.2015
+
+MTV Video Music Awards 2015 (2015) HDTVRip[H.264-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155867.jpg" />
+</div>
+
+
+###  Подробнее
+
+MTV Video Music Awards 2015 — 32-я церемония вручения музыкальных наград, прошедшая 30 августа 2015 года в Microsoft Theater в Лос-Анджелесе, Калифорния. Тейлор Свифт была заявлена в 10 категориях, став лидером по числу номинаций; за ней последовал Эд Ширан, который получил 6 номинаций. Кендрик Ламар получил 4 номинации за свой клип на песню «Alright». Однако видеоклипы (   Читать дальше...   )• Ники Минаж / Тейлор Свифт — «Trini Dem Girls» / «The Night Is Still Young» / «Bad Blood»
+• Macklemore и Райан Льюис / Foxy Shazam / Melle Mel / Kool Moe Dee / Grandmaster Caz — «Downtown» (Live from Orpheum Theatre)
+• The Weeknd — «Can’t Feel My Face»
+• Деми Ловато / Игги Азалия — «Cool for the Summer» (Live from Orpheum Theatre)(   Читать дальше...   )Производство: США, MTV HDЖанр: Церемония награждения, концертПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84804C2E719608629427E1E59F8E8FE6E45ABE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346795   (155868) от 21.12.2019
+
+Alfred 4 Powerpack 4.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+
+Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32279E23921C42539633B4707E6B91F82ED8DB33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600611   (155869) от 28.12.2022
 
 Notebooks – Write and Organize 3.0.1 U2B [En]
@@ -6,7 +185,7 @@ Notebooks – Write and Organize 3.0.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155869.jpg" />
 </div>
 
 
@@ -30,7 +209,7 @@ magnet:?xt=urn:btih:CAF2F9167CEE6C35383215F4FD9BBFB0CD6BF8CE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155870.jpg" />
 </div>
 
 
@@ -54,7 +233,7 @@ magnet:?xt=urn:btih:CAF2F9167CEE6C35383215F4FD9BBFB0CD6BF8CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155871.jpg" />
 </div>
 
 
@@ -78,7 +257,7 @@ magnet:?xt=urn:btih:7775E39140AD74CFE224D0BE4D17A710768A35AB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155872.jpg" />
 </div>
 
 
@@ -104,7 +283,7 @@ Carved In Flesh - As Seen Through Tears (1997) Reissue, 2023, Vic Records [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155873.jpg" />
 </div>
 
 
@@ -131,7 +310,7 @@ Skye | Ross - Skye | Ross (2016) [FLAC|Lossless|tracks + .cue] <Trip Hop, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155874.jpg" />
 </div>
 
 
@@ -158,7 +337,7 @@ magnet:?xt=urn:btih:4554EEED4D264A5A2CD659BB189BD2B046596FF6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155875.jpg" />
 </div>
 
 
@@ -182,7 +361,7 @@ magnet:?xt=urn:btih:E9D32F4BFF28A2FB5F5DA303C47A3C25093CEC9A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155876.jpg" />
 </div>
 
 
@@ -209,7 +388,7 @@ magnet:?xt=urn:btih:45A978D1B1698350BB437C6F082628A38EC5BFCD
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155877.jpg" />
 </div>
 
 
@@ -233,7 +412,7 @@ Athentech Perfectly Clear Complete 3 v3.9.0.1711 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155878.jpg" />
 </div>
 
 
@@ -259,7 +438,7 @@ magnet:?xt=urn:btih:1C879363F53A5BFDB534CBB8750EDD83B7DE5CBC
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155881.jpg" />
 </div>
 
 
@@ -284,7 +463,7 @@ Long Voyage Back - Long Voyage II (1999) [FLAC|Lossless|image + .cue] <Gothic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155882.jpg" />
 </div>
 
 
@@ -311,7 +490,7 @@ magnet:?xt=urn:btih:1E87A8181F94F6E3850338C09A2FE20010EA0E63
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155885.jpg" />
 </div>
 
 
@@ -335,7 +514,7 @@ magnet:?xt=urn:btih:FABED3A312132CECB43639609D116746557A3D51
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155886.jpg" />
 </div>
 
 
@@ -359,7 +538,7 @@ magnet:?xt=urn:btih:AB559E54452338D1B320613BDC5758C8181F514F
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155887.jpg" />
 </div>
 
 
@@ -383,7 +562,7 @@ Zoc Terminal 7.25.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155888.jpg" />
 </div>
 
 
@@ -407,7 +586,7 @@ K-Lite Codec Pack Update 16.6.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155889.jpg" />
 </div>
 
 
@@ -431,7 +610,7 @@ magnet:?xt=urn:btih:D08F1B440845DAB4896AAA120706C9A7D462C9F1
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155890.jpg" />
 </div>
 
 
@@ -455,7 +634,7 @@ magnet:?xt=urn:btih:622F8542953927585E2BA0A6E77767E43ED530AE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155893.jpg" />
 </div>
 
 
@@ -470,184 +649,6 @@ Monster Shooter – это просто ураганный аркадный эк
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270682   (155894) от 20.12.2018
-
-Фигурное катание. Гран-при 2018-2019. Ванкувер (Канада). Финал (2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финал Гран-при по фигурному катанию 2018 — заключительный турнир серии Гран-при по фигурному катанию в сезоне 2018—2019 годов. В этом соревновании в каждой дисциплине приняли участие по шесть лучших взрослых и юниоров (одиночников или пар), определившихся по итогам серии.
-Арена: Дог Митчелл Тандербёрд (Ванкувер, Канада)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:12:04 — 02:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131318B666C60E7DC44824A2D0177F509D90B1FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194462   (155895) от 25.12.2017
-
-Фигурное катание. «Ростелеком-Чемпионат России» 2018. Санкт-Петербург (Россия). 2 День (22.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155895.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 декабря 2017 года, пятница
-«Ростелеком-Чемпионат России» 2018 года по фигурному катанию на коньках. Санкт-Петербург (Россия)
-День 2:
-1. Жeнщины - Короткая программа(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:43—02:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A529DC84AC8B7AFDA9FCA43D91DF1BA114EAAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518419   (155896) от 19.12.2021
-
-Своя игра (19.12.2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85F574B756DDB039AACE4A8C2A057BE32C493FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968038   (155897) от 23.12.2015
-
-Auto PowerOFF 6.2 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таймер выключенияРазработчик: Алексей ЕрофеевЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0051D8DAFD3856E1298C3DCEF93893951441F242
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347019   (155898) от 21.12.2019
-
-UltraEdit 20.00.0.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155898.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraEdit является многофункциональным многооконным редактором с гибкой и мощной системой настроек, многоязычным интерфейсом и встроенным FTP клиентом. Он предназначен для редактирования текстовых, HEX и HTML файлов, Имеется подсветка синтаксиса при написании программ на C/C++, VB, HTML, Java, Perl, FORTRAN и LaTex. Cоздан главным образом для программистов, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: IDM Computer Solutions, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D32E26C3F16FD1B6B15D41E0EBCB4A162A7C877
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676653   (155899) от 14.11.2023
-
-Dark Reality - Oh Precious Haze Pervade the Pain (1997) [FLAC|Lossless|image + .cue] <Death, Folk Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silberstreif (04:02)
-02. Rain Orison (05:22)
-03. Skytied (04:59)
-04. Spingono I Vecchi Giorni (03:35)(   Читать дальше...   )Жанр: Death, Folk Metal, RockПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB1050425ECB69965480CDA62771FC38EBD541D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518435   (155902) от 19.12.2021
-
-The Grandmaster - Skywards (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunar Water (4:36)
-02. The Tempest (4:28)
-03. Someday Somehow (4:45)
-04. Dead Bond (3:30)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AEF2F19BF580954DCBBAFE2209D960B1D5ED56
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 1653903   (205964) от 18.08.2023
+
+Журнал | Изобретатель и рационализатор №1 (2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205964.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Изобретатель и рационализатор» - ежемесячный журнал изобретателей и рационализаторов, в каждом номере которого публикуется более 100 самых разнообразных технических новшеств на уровне изобретений. Большинство разработок пригодно к непосредственному использованию, имеются модели, опытные образцы, некоторые уже прошли стадию мелкосерийного производства.Жанр: научно-популярный журналИздательство: ООО "Изобретатель и рационализатор"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688AA37C7A28236BB67C978AB3C341E21B2605FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652915   (206480) от 13.08.2023
 
 Подшивка журнала | Зарубежное военное обозрение №№1-8 (январь-август 2023) [PDF]
@@ -6,7 +30,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206480.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206480.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:09B31761CAA403EA45C716004D213225F5D0FB98
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206502.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206502.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:410295046E820C3C8ED8B3C7A20AD25011F11170
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206582.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206582.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:31066409C185EDAD976904566E8437E6FD6DF001
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206747.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206747.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:47ED7205A5100FFE49FBA8CFECC5CB6AC90E5416
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207340.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207340.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:AFB5EB0992FED2183C5ADAB1805E15221B245770
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207574.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207574.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:E4BA1ABAA219B080EE4B3274A760216CFD86A6FA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207928.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207928.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:4F99051AF43812B1EB10F501435463DF2878134F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208316.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:78CDF076056B0FCBB42310E8B11D06EACA7374B9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208420.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208420.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:497A14B50756A9B0E79DAED836A518670A6169B5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210644.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210644.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:06840B867EFCAB819F467AFB6A90ECA0D1129323
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212710.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212710.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:E443D0EFB94C84D8205CC67854BA4C707BDDB3B4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213756.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213756.jpg" />
 </div>
 
 
@@ -294,7 +318,7 @@ magnet:?xt=urn:btih:D744553F4E3FCD447D864BD53CA64C4DFA4C7AFA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214069.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214069.jpg" />
 </div>
 
 
@@ -318,7 +342,7 @@ magnet:?xt=urn:btih:47C45C690690C404B22DF877D2C826A5CECAB758
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214109.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214109.jpg" />
 </div>
 
 
@@ -342,7 +366,7 @@ magnet:?xt=urn:btih:E2D1C4641B9C593ED7760B14F52EA077A92F8427
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214281.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214281.jpg" />
 </div>
 
 
@@ -366,7 +390,7 @@ magnet:?xt=urn:btih:58F95AE552F7967D2CDFE4723806080C3574DB31
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214310.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214310.jpg" />
 </div>
 
 
@@ -390,7 +414,7 @@ magnet:?xt=urn:btih:276030E9F22907462FDD2E92A827624D516D2FAB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214329.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214329.jpg" />
 </div>
 
 
@@ -414,7 +438,7 @@ magnet:?xt=urn:btih:FA268B852BF242EBBD0244734611D80617CE372C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214370.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214370.jpg" />
 </div>
 
 
@@ -438,7 +462,7 @@ magnet:?xt=urn:btih:4C5BD03DA9A4C4223A57D9EE8D65A2196C488EC8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214379.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214379.jpg" />
 </div>
 
 
@@ -463,7 +487,7 @@ magnet:?xt=urn:btih:7C277FF61740910B2315052B50A3DE7E364D06D4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215412.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215412.jpg" />
 </div>
 
 
@@ -489,7 +513,7 @@ magnet:?xt=urn:btih:905F288055C3FD506F03085F362A1EFF3D51EBF9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218509.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_218509.jpg" />
 </div>
 
 
@@ -513,7 +537,7 @@ magnet:?xt=urn:btih:5FE3C3418016E42B07C2D1BAB57C310E882496EE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218677.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218677.jpg" />
 </div>
 
 
@@ -537,7 +561,7 @@ magnet:?xt=urn:btih:63C7B78BFEFDB376A29416415EB8A4253A04A69D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218765.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_218765.jpg" />
 </div>
 
 
@@ -562,7 +586,7 @@ magnet:?xt=urn:btih:376F1F154F2A589801EBD66C55CB58F2E1813589
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218820.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_218820.jpg" />
 </div>
 
 
@@ -587,7 +611,7 @@ magnet:?xt=urn:btih:06CCADE756B750B1E2477EBA5BCBD66D84AA6C3F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219745.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219745.jpg" />
 </div>
 
 
@@ -598,30 +622,6 @@ magnet:?xt=urn:btih:06CCADE756B750B1E2477EBA5BCBD66D84AA6C3F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF7D746E7F5F21C0E5A8813E37C830253E886667
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966304   (220295) от 17.12.2015
-
-Журнал | Популярная механика №12 (158) (декабрь 2015) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о том, как устроен наш мир. Для всех, кто хочет знать о научных изобретениях, сделанных в России и по всему миру, об инновационных технологиях, последних разработках в области космоса, авиации, автомобилей, оружия и компьютеров, которые в скором будущем могут усовершенствовать нашу жизнь.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37907A586964483AFA392794F3613F47A6CF44A
 ```
 
 

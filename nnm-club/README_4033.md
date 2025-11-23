@@ -1,3 +1,81 @@
+###  Публикация: 1689526   (124540) от 03.01.2024
+
+Екатерина Мурашова | Лекция «Если ребёнок ничего не хочет» (2020) [MP3, Екатерина Мурашова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители часто жалуются на то, что их ребёнок очень устал и ничего не хочет. Возраст «уставших и нехотящих» начинается с 9 лет, а заканчивается молодыми взрослыми, которые в процессе отчисления или уже отчислены из института. Они впадают в депрессию, лежат на диване и «ничего не хотят». Но почему? Ведь все родительские усилия направлены на «увлечь, развлечь и развить». (   Читать дальше...   )Жанр: детская психологияИздательство: Лекторий "Прямая Речь"Продолжительность: 01:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B937C5D40B0CF54720DB22BDF50D2C3F57B64C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689640   (124541) от 03.01.2024
+
+Black Rainbows - 4 Albums (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic-Rock, Stoner-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2007 - Twilight In The Desert (2022 Remastered)
+2020 - Cosmic Ritual Supertrip
+2022 - Live at Desertfest Belgium(   Читать дальше...   )Жанр: Psychedelic-Rock, Stoner-RockПродолжительность: 4 CD, 03:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1F5532B1BC40124622EA6CDCD3D7363BAA40D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689566   (124542) от 03.01.2024
+
+VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massive Attack - Teardrop (Theme Song) 5:32
+02. Gomez - See The World 4:04
+03. Michael Penn - Walter Reed 3:41
+04. Elvis Costello - Beautiful 3:50(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37482F4440E88EE379BA08769242DDC748137A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689716   (124543) от 03.01.2024
 
 А.С. Егоров (ред.) | Репетитор по химии (2022) [PDF]
@@ -6,7 +84,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124543.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Rainshow - Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124544.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:E77350C2C7AA3163C224BFFF0A1C87F9737A7C63
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124545.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ magnet:?xt=urn:btih:9164B49CD1EA650D833FCD50E9D7CA37159A7465
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124546.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ John Haydock - Compilation (2024) [MP3|320 Kbps] <Rock, Blues rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124547.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ magnet:?xt=urn:btih:B7E7AC6488E0D2A0A573DFDA7827419C0D980F41
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124548.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ magnet:?xt=urn:btih:23E051BEFAC3E2DD0A41A2DE035BAA0718A8EBDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124549.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ magnet:?xt=urn:btih:9EDCE0F1F130FAD3DCB0CBF8DAC41252149C797E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124550.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ StaxRip 2.31.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124551.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ The Voices Factory - The Voices Factory Sings The Beatles (2023) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124552.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ magnet:?xt=urn:btih:AAB08E2F5B7AA04D2FE547FE3DE0628478137012
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124553.jpg" />
 </div>
 
 
@@ -282,7 +360,7 @@ Richard Bargel - Compilation (2024) [MP3|320 Kbps] <Blues rock, Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124554.jpg" />
 </div>
 
 
@@ -309,7 +387,7 @@ RegCool 1.353 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124555.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ magnet:?xt=urn:btih:FDF20DBF6D407F5905CA37470F3659D5ED5FCAF6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124556.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ magnet:?xt=urn:btih:D3CFA3E49BDB9A0D6FCAA35F459D12FB8F9B8355
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124557.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ magnet:?xt=urn:btih:9430E4BEC3DDBCE5D37E498CCC53B4CD54421CB4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124558.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ magnet:?xt=urn:btih:2EA4CA2062E94F82A188F9649611B935C1365ED4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124559.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Django Novo & Tov Ramstad - The Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124560.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ Roadhouse Redeemers - From Gospel to Grit (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124561.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ magnet:?xt=urn:btih:33428C8D5344158C633C03F81095014FF9C2A04E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124562.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ magnet:?xt=urn:btih:F45C26E525DF2893A29889DD56C731AB467BB6BC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124563.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ SyMenu 8.00.8766 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124564.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ magnet:?xt=urn:btih:25C030FE47882B20C7D5C4294C6BF0420AEA515B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124565.jpg" />
 </div>
 
 
@@ -566,79 +644,6 @@ magnet:?xt=urn:btih:25C030FE47882B20C7D5C4294C6BF0420AEA515B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:929963C91E7E14772816EF13994A324B1C897562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689393   (124566) от 03.01.2024
-
-TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не может жить в одиночестве [2023, TV, 12 из 12 + 2 SP] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акэмацу тяжело жилось из-за печальной славы отца - мошенника и любимца женщин. Сын зарёкся искать с ними близости, но сорвался после одного происшествия. Решив усмирить свою душу, он подался в монахи в женский монастырь.
-© crunchyrollПроизводство: студия Gekkou / 月虹Жанр: комедия, романтика, повседневность, эттиРежиссер: Кога КадзуомиЯзык озвучки: Японский, русский (AniDUB)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин., 2 sp по 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF37032BF0E5E14DA7DC9E35AEC1290145D51E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689599   (124567) от 03.01.2024
-
-PrivaZer Pro 4.0.81 RePack (& Portable) by Dodakaedr  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124567.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D1AE641F74DB6B488ECEA7838B252C5EDEBDB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689666   (124568) от 03.01.2024
-
-Бесчинство / Outrage (2023) WEB-DLRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124568.jpg" />
-</div>
-
-
-###  Подробнее
-
-История вращается вокруг группы людей, которые собираются во французском замке, чтобы определить будущее французской политики, но они не осознают, что им, возможно, придется заплатить цену за смерть студента по имени Макс Моро, который был убит полицией. Макс был внушен неонацистской идеологией, распространяемой в средствах массовой информации, и собравшаяся группа (   Читать дальше...   )Производство: США, Швейцария / Madpark FilmsЖанр: триллерРежиссер: Мэтью БонсонАктеры: Жюли Гайе, Аделаида Кейн, Джей О. Сэндерс, Клеменс Шик, Мануэль Коши, Виктор Понтекорво, Жозиан Пинсон, Виктор Ассье, Матяш Саймон, Alix Gavoille и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:01Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5775015568B0585BD9281A76C8F4EE7EF8BF9B5F
 ```
 
 

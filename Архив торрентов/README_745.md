@@ -1,3 +1,81 @@
+###  Публикация: 1085946   (154718) от 23.12.2016
+
+OS Looper - 2022 (2016) [FLAC|Lossless|Web-DL|tracks] <Abstract Hip-Hop, Bass Music, IDM>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat (1:24)
+02. Flyght (2:09)
+03. A Dancefloor In 2022 (2:12)
+04. Shugyōsha feat. Sicaa (2:45)(   Читать дальше...   )Производство: Unc AudioЖанр: Abstract Hip-Hop, Bass Music, IDMПродолжительность: 00:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E221DC12E6ED705720DFEB2452CB40114287539
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517886   (154720) от 19.12.2021
+
+Windows 7 (6.1.7601.25796) x64 (4in1) by Brux [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе Windows 7 SP1 - Оригинальные образ от Microsoft.
+Интегрированы обновления от 15.12.21
+В качестве установки обновлений применён: Набор обновлений UpdatePack7R2 версия 21.12.15 от simplix. Образ содержит в себе 4 редакций ОС. Все изменения в сборке производились исключительно при помощи DISM.
+В сборке нет никаких изменений ничего (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83D8EA10B6192F284FA61D34D8CDABC1DB9BDB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600652   (154722) от 28.12.2022
+
+Sublime Text 3.2.2 Build 3211 RePack by DeLtA [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python. Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD2C90381E9987BAC650B7DC68AA273275CDACF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433990   (154732) от 22.12.2020
 
 VideoSolo Screen Recorder For Mac 2.0.28 [En]
@@ -6,7 +84,7 @@ VideoSolo Screen Recorder For Mac 2.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154732.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ VMware Workstation 14 Pro 14.1.0 Build 7370693 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154736.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:9023EDFA66A09FDCBF0F67A15745A9C8C02C6058
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154757.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:6B4E330F06711FCD44749AD2D565E11655E027D7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154762.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Windows 10 Manager 2.2.1 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154771.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ Opera Web Browser + VPN 57.0.3098.106 Stable Portable (32/64 bit) by PortableApp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154776.jpg" />
 </div>
 
 
@@ -154,7 +232,7 @@ Markus Schulz - Global DJ Broadcast - World Tour - Best of (2016) [MP3|320 Kbps]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154794.jpg" />
 </div>
 
 
@@ -181,7 +259,7 @@ Lyn 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154806.jpg" />
 </div>
 
 
@@ -205,7 +283,7 @@ DVDFab 12.0.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154833.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ Sweet Home 3D 5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154842.jpg" />
 </div>
 
 
@@ -257,7 +335,7 @@ magnet:?xt=urn:btih:277FB51AA19B3AE98DC4D855AA5A709DD524DEDD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154843.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ Photo Mechanic 6 v6.0 build 4155 (e068498) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154849.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ VA - Tangled Audio: Best Of 2016 (Mixed by Duncan Newell) (2016) [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154869.jpg" />
 </div>
 
 
@@ -332,7 +410,7 @@ Orion Markup - image notes and annotations 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154877.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ magnet:?xt=urn:btih:E119880AAFB292A7D666E1C5EEE07E7B968BE508
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154887.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ Auslogics BoostSpeed 10.0.21.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154892.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ VA - The Best Of Trancemission (Mixed By Feel) (2016) [MP3|320 Kbps] <Trance, Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154893.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ Dism++ 10.1.1000.52 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154900.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ magnet:?xt=urn:btih:ACB070DB887BDD07BB171E9B2EFC57A7CD70B5B2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154906.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ Nik Complete 2 Collection by DxO 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154909.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Ocenaudio 3.10.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154915.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ AusLogics BoostSpeed 10.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154928.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ magnet:?xt=urn:btih:D17E1C413A20BE042CDDED2A4A65D3D098AE9964
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154934.jpg" />
 </div>
 
 
@@ -566,78 +644,6 @@ magnet:?xt=urn:btih:D17E1C413A20BE042CDDED2A4A65D3D098AE9964
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9E12F6B3A47C3FC76073CC6D27C2B091B6A4AEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194372   (154943) от 25.12.2017
-
-Volume2 1.1.5.403 RC + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volume2 — альтернативный регулятор громкости, который полностью заменяет стандартный регулятор громкости Windows и обеспечивает простую настройку горячих клавиш и событий мыши.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34F1A8802DFFA1127538C025C6B3A541EFBA90C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676646   (154945) от 14.11.2023
-
-PotPlayer 231113 (1.7.22038) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34F26DDF87A060D17BD61F1543A2C78EE0C8AF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194545   (154953) от 25.12.2017
-
-RAM Saver Professional 17.9 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154953.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAM Saver Pro - инструмент для профессионального мониторинга, очистки и оптимизации оперативной памяти. Служит для повышения производительности операционной системы, освобождая оперативную память от драйверов и процессов MS Windows для приложений требующих максимальную загрузку процессора и оперативной памяти. RAM Saver Pro: дефрагментирует системную память для быстрого (   Читать дальше...   )Язык интерфейса: русский/английский/украинский/белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C1E5DABAAA698786838C1EF30844752459756D
 ```
 
 

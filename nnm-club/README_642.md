@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17007.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8FA80DAC1DE7382B920210BF855B01B60CD6BE14
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17008.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:89AB3EE244DFCC687961A266A6052351D0025192
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17009.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 21.05.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17010.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.14/dlc) Repack Let'sРlay [Advance
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17011.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ MyLanViewer 6.3.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17012.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:F5CFF70469F66195A18A3A3F9979CD4C71E68A15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17013.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.22 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17014.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:E9681504351D65AB09CBB26D764B9D595C0A80FE
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17015.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9E0B6B665401E60F234A38AE66F5DAA140D727D8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17016.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:1FECD7D43D23CBB9D1644B55B908485A65052008
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17017.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:5BE59F90E939A0D4BB1204A8F9E7B3711F3F9DE9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17018.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:7D0247E066E6E7585B7DDA9CC65D4F191F44DFAD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17019.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Dragon Quest III (3) HD-2D Remake (2024) [Multi] (1.2.0.0 Build 18186891/dlc) Sc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17020.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Wise Care 365 Pro 7.2.5.702 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17021.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:68763735BC6203BD040DCF4F7C9FC222F70A8249
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17022.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ GIMP 3.0.4 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17023.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:1E7786FA91D68474D9F54134703355853965FF9E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17024.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ The Last Hero of Nostalgaia (2022) [Ru/Multi] (3.3.6.7/dlc) Repack Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17025.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7C4881A68255E135BACB39766DC4CD8647BAE420
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17026.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E0C6991F664F44FECB09BC3F566AF2F6D42B0106
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17027.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:E7D44DA9A7E9D2E4961B40F0C0C38132B4022122
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17028.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:29C83EA4B5D7BD7C83B9447DDE50F11FE6F82B31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17029.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:D00A1C980C93E77B197C2B56B930386933601E98
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17030.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17030.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:6372EF2DDDD440A3DDE00C7F3F60C027045DF12F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17031.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Krugers - Outlaw Rock'n'Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17032.jpg" />
 </div>
 
 

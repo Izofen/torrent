@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3083.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5FF9DDD9F679D9F69E1035C711C309D635408266
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3084.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4AC37C44DC38E4608566CCC56183E5BCDBC531FB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3085.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) License GOG [Ultimate Edition]
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3086.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) Repack Decepticon [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3087.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.11.371/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3088.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Steel Division 2 (2019) [Ru/Multi] (166508/dlc) License GOG [Total Conflict Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3089.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3090.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:5F3A153371B77338010CCD93BC70C8966D1D1D57
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3091.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3092.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:CDB1B194FB626D9BEB8A64B6317F60B9AA81B20C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3093.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:82DE13F9B36E38DAE74CB6421DDE4B6A7EF4B9EF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3094.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.09.07 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3095.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:98A9B7B93589CBCA441455A7FCB2319C2FF59375
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3096.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:674131A341D9B491EE5192F6E0BB5BED323992DD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3097.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:EA00553075D0AA9FF577D5129E6110C8C2108891
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3098.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.3 HF1/dlc) Repack Let's
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3099.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3100.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D4B35A5B30D739C9E363427318F990D9CB577F15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3102.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:57CC62E31F91E4DA1DCFB54D5D78991C27111878
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3103.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:3B24D0F8829243670B99C4BF5C15912448BBD043
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3104.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Brigand: Oaxaca (2017) [En] (17.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3105.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Devolver - Non Compos Mentis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3106.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Uplifting Trance Collection (2025) [MP3|320 Kbps] <Trance, Uplifting Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3107.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C1D3FB73BD063FDA439AC99ABBBC509F4AE49919
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3108.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Anton Ryazanov Project - Collection 4 Albums (2024-2025) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3109.jpg" />
 </div>
 
 

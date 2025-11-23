@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81653.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81654.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81664.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:ABC40FFE8181928ACDD633BBC4246C67D01300AE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81666.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kidou Senshi Gundam Dai 08 MS Shoutai - Miller's Report / Mobile Suit Gundam - T
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81671.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:478BD2922973BC1835F80609E79CD4B21CCBFD4B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81673.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:3D6544B8FBDDA3BA5FD0AE748BD9A99BB5F6783C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81676.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Toaru Hikuushi e no Tsuioku / The Princess and the Pilot / Воспоминан�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81680.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:CB401AB71EC720BD6C596AAE435CD1E112CE0C5D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81682.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Driver Easy Professional 3.11.3 + Portable by BALISTA [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81684.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Hellsing Ultimate OVA 9 / Хеллсинг ОВА 9 [2011, OVA] DVDrip raw + rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81685.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:454AAD71FC452FC53E431CF7C3BD94E60F74DC29
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81691.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:148918276D37A95B5AB815581E2CCDDF221AFBA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81694.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:148918276D37A95B5AB815581E2CCDDF221AFBA8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81699.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:DB2036D1A29BFF3EAC3A083A2A75F6CEC7360EE3
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81706.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:EF838C5A12CED1F1651AD9356302FB6ECF5C2189
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81709.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Unattended Soft Pack 11.03.12 [X32/X64/Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81711.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Multi Flash Kit by Core-2 v.9.3.12 [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81714.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Tennis no Ouji-sama / The Prince of Tennis / Принц тенниса [2001, TV
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81728.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:4C667CA5BD7887DFA01865C19E346E275F283A45
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81729.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:9D6413B306A70FAF785D83B2E5FB72C5C857EEB4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81739.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:FB0C365408B018AA5699A447A151660AD196260D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81740.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Angry Birds (2010-2011) [Java, S^1 | 360x640] <Multi 5>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81763.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Ike Cosse - Cold Blooded World (2000) [MP3|320 кб/с]<Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81770.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:9DEFA66EB48C80B773A582429A64CF3E8DCA00D1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81771.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:9DEFA66EB48C80B773A582429A64CF3E8DCA00D1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81774.jpg" />
 </div>
 
 

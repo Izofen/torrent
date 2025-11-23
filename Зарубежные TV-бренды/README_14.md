@@ -6,7 +6,7 @@
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155631.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C830D30682E184463532D917EEDD24DF8D296900
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156038.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3E0459B0816868234186620311C187AE3D6BA516
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156138.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NGW: Море теней / Sea of Shadows (2019) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156835.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A18B3132A6CCE06528D3F46A467F3900A84C4C1B
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157046.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157062.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D254DD918B76FD3322B24B140D69C02A13D47B65
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157110.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ NGW: Дикая природа Великобритании / Wild Great Britain
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157140.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ NGW: Дикие места Африки. Величайшие архитекто
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157309.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Discovery: Разрушители легенд / MythBusters (2015) SATRip  (с�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157675.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:87C1F622705AC80ED804BB6D61B5C632398F1260
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157813.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ NG. Великолепные лошади / The Noble Horse (1999) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158006.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158008.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Nat Geo Wild: Дикая Австралия / Wild Australia [серии 1-4 и�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158056.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:47A48FF1EA4E4F7FD7401961C25B557CC0522FC6
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158639.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:263335B8BE4DA267461109D854146C9BDCEC675B
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158797.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:5A8EEADD41A7287B0762E0268B0B59A8249F39DB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158871.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159543.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160009.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:B4130636A615EF2DB3939404449A4E937DF7D9B7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162132.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162385.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ NG: Добро пожаловать на Землю / Welcome to Earth (2021) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162504.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ NG. Экстремальное путешествие: Вторая мирова
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163345.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:E9AC95411556847E3855AF2D3C9DF62FD6CFEF36
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163448.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Discovery. Насекомые "Чужие" (Молящийся Богомол) /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163599.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163837.jpg" />
 </div>
 
 

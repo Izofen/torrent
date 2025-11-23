@@ -1,3 +1,51 @@
+###  Публикация: 1646904   (195581) от 16.07.2023
+
+Total War: Shogun 2 (2011) [Ru/Multi] (1.1.0.6262.2931569/dlc) Repack dixen18
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total War: Shogun 2 является продолжением первой части внутриигровой серии, посвященной внутренним войнам на Японских островах, во времена феодализма и раздробленности государства на различные кланы. Над данным проектом работала студия The Creative Assembly, а вопросами издательства занималась компания SEGA. Релиз состоялся в марте 2011 года. Временные рамки охватывают (   Читать дальше...   )Тип издания: RepackРазработчик: The Creative AssemblyЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F52623C5FA204EC38688CBF34B5DFDD2F898A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645235   (195939) от 08.07.2023
+
+Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195939.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фоне голода, войны и эпидемий в восточных степях растет новая сила. Выходит новый вождь, и за спиной у него - миллион всадников, а взгляд его устремлен на Рим. Total War: Attila - новая часть прославленной стратегической серии игр, сочетающей сражения в реальном времени и пошаговые бои, переносит игрока в 395 год. Темное время начинается с катастрофы. Как вы будете (   Читать дальше...   )Тип издания: LicenseРазработчик: The Creative AssemblyЖанр: СтратегияЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D01571A18DE2548A562FDE96F871D3A0F2C7792
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828831   (200011) от 24.10.2025
 
 Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
@@ -6,7 +54,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200011.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_200011.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Total War: Three Kingdoms (2019) [Ru/Multi] (1.7.1/dlc) Repack FitGirl [Collecti
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200583.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_200583.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200724.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200724.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Age of Wonders: Shadow Magic (2004) [Ru/En] (1.30.0.2616) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200741.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200741.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ Age of Wonders 2: The Wizard's Throne (2002) [En] (1.20.0.3100) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200756.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200756.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200757.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200757.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201859.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201859.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.98/dlc) License GOG [Ultimat
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201968.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201968.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202454.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202454.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack dixen18 [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202459.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202459.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202484.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202484.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Solstice (2021) [En] (1.0.1) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203221.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203221.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Stellaris (2016) [Ru/Multi] (3.5.1/dlc) License FAiRLIGHT [Digital Anniversary E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205307.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205307.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Sins of a Solar Empire: Trinity (2010) [En] (1.38) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205604.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205604.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124627/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205678.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205678.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205681.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205681.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208926.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208926.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Dark Reign + Expansion (1997) [En] (1.4hotfix/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209951.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209951.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Machiavelli the Prince (1995) [En] (1.0.3) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213389.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213497.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213497.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Europa Universalis IV (2013) [En/Multi] (1.14.01/dlc) Repack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214623.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214623.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/En] (2.4.0.19728/dlc) Repack x
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218450.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218450.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru/En] (1.2.12) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221013.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221013.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221498.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221498.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:672327902A329B12E96F93716BCA443B076C70CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513543   (221793) от 30.11.2021
-
-Company of Heroes (2006) [Ru] (1.0) License
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221793.jpg" />
-</div>
-
-
-###  Подробнее
-
-По игровому процессу игра напоминает предыдущее творение Relic Entertainment - серию Warhammer 40,000: Dawn of War. Игрок командует отрядами бойцов, а не отдельными единицами (исключение составляет техника и уникальные боевые единицы), во главу угла поставлена борьба за ресурсы. Каждая сторона в игре разделена на три уникальных направления — пехотное, десантное и (   Читать дальше...   )Тип издания: LicenseРазработчик: Relic EntertainmentЖанр: Strategy (Real-Time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9046736EE59AA7F218454902333AAE2C307B4EBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513385   (224411) от 28.11.2021
-
-Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224411.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире Majesty вы правите королевством. Но ваша власть не абсолютна и часто сталкивается с упрямством и своеволием ваших подданных. И вам придется сильно постараться, чтобы убедить их выполнять ваши желания... Majesty 2 - продолжение и развитие лучших традиций великолепной Majesty: актуальное воплощение лучших черт классической стратегии непрямого контроля, а также (   Читать дальше...   )Тип издания: LicenseРазработчик: 1C Ino-CoЖанр: Стратегия, В реальном времени, ФэнтезиЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316283A7E2E430B264599F687984E80C952637F5
 ```
 
 

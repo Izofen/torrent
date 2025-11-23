@@ -1,3 +1,28 @@
+###  Публикация: 1430315   (174238) от 09.12.2020
+
+Xfer Records - Cthulhu 1.217 VSTi, AAX (x86/x64) Retail [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_174238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий титан в создании арпеджио и монстр аккордов!
+Cthulhu - это, во-первых, инструмент, запоминающий и исполняющий аккорды, позволяющий экспериментировать с созданием и перестройкой последовательностей аккордов с помощью нажатия отдельных нот. Включено более 150 заводских аккордовых предустановок, позволяющих создавать практически неограниченное количество возможных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73653915B4DCC2559D42FEAD12F8DFD3963C9551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595959   (174309) от 07.12.2022
 
 Фото на документы Профи 9.35 Portable by zeka.k [Ru]
@@ -6,7 +31,7 @@
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174309.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174309.jpg" />
 </div>
 
 
@@ -30,7 +55,7 @@ Any Video Converter Ultimate 7.1.8 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174923.jpg" />
 </div>
 
 
@@ -54,7 +79,7 @@ CameraBag Pro 2023.4.0 RePack (& Portable) by elchupacabra
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175112.jpg" />
 </div>
 
 
@@ -78,7 +103,7 @@ HitPaw Watermark Remover 2.1.0.15 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175336.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175336.jpg" />
 </div>
 
 
@@ -102,7 +127,7 @@ FastStone Photo Resizer 4.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175670.jpg" />
 </div>
 
 
@@ -126,7 +151,7 @@ ImageGlass 8.10.9.27 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175673.jpg" />
 </div>
 
 
@@ -151,7 +176,7 @@ CoolUtils Total Image Converter 8.2.0.263 RePack (& Portable) by Dodakaedr [Mult
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175769.jpg" />
 </div>
 
 
@@ -175,7 +200,7 @@ Metasequoia 4.8.6a [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175820.jpg" />
 </div>
 
 
@@ -199,7 +224,7 @@ IcoFX 3.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175853.jpg" />
 </div>
 
 
@@ -224,7 +249,7 @@ Image Tuner Pro 9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175889.jpg" />
 </div>
 
 
@@ -248,7 +273,7 @@ IcoFX 3.9.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175933.jpg" />
 </div>
 
 
@@ -272,7 +297,7 @@ Exposure X7 7.1.8.9 (x64) [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176456.jpg" />
 </div>
 
 
@@ -297,7 +322,7 @@ Audio Damage Collection 12.2020 VST, VSTi, AAX (Retail) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177237.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_177237.jpg" />
 </div>
 
 
@@ -313,6 +338,30 @@ magnet:?xt=urn:btih:639A1287738CE5C0264E07B83FACF5B2DF85B3BB
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428829   (178164) от 04.12.2020
+
+Pixia 6.5.0ne [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixia - компактный но в то же время мощный графический редактор, обладающий всеми основными функциями программ подобного типа. В этой программе предусмотрена возможность расширения функций редактирования графических файлов за счёт подключения фильтров от Photoshop и других программ по обработке графики. Pixia - это инструмент для рисования и ретуши живописи и предназначена (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FC7F929DDEB61DFCBDC99E0CAA0FA846178D7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666625   (178877) от 05.10.2023
 
 IcoFX 3.9 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -321,7 +370,7 @@ IcoFX 3.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178877.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178877.jpg" />
 </div>
 
 
@@ -345,7 +394,7 @@ IcoFX 3.9 Home, Business, Site [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179385.jpg" />
 </div>
 
 
@@ -369,7 +418,7 @@ IcoFX 3.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179412.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179412.jpg" />
 </div>
 
 
@@ -393,7 +442,7 @@ Imagenomic Portraiture 4.0.3 Build 4033 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179459.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179459.jpg" />
 </div>
 
 
@@ -417,7 +466,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Portable by NNM [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180128.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180128.jpg" />
 </div>
 
 
@@ -441,7 +490,7 @@ Baby Paint | Детская рисовалка 3.50 Portable [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180284.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180284.jpg" />
 </div>
 
 
@@ -465,7 +514,7 @@ VSDC Video Editor Pro 8.2.3.477 (x64) Portable by FC Portables [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180550.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180550.jpg" />
 </div>
 
 
@@ -482,6 +531,30 @@ magnet:?xt=urn:btih:50C0FE653EE03D8597740E21B118779582E75778
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427986   (180554) от 01.12.2020
+
+Toontrack - EZbass 1.0.7 (build 26474) Update 64-bit STANDALONE, VSTi, VSTi3 RePack by V.R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновление Toontrack - EZbass 1.0.0 Мы с гордостью представляем первое на рынке басовое программное обеспечение такого рода. Тот, который выходит за рамки традиционной библиотеки сэмплов, чтобы обеспечить не только первозданный звук, но и фундаментальные функции, которые без особых усилий позволяют добавлять басы в ваши песни. По словам Toontrack, EZbass – не очередная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DBFA7562FDD3B108B071254913BD7B550B40A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592588   (180692) от 26.11.2022
 
 GreyscaleGorilla Plus Hub Plugins for C4D R22-R26 Win 2022 [En]
@@ -490,7 +563,7 @@ GreyscaleGorilla Plus Hub Plugins for C4D R22-R26 Win 2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180692.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180692.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ Polyverse Music - Supermodal 0.5.0 VST,  VST 3, AAX (x64) RePack by r4e [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181031.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181031.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ Cyotek Palette Editor 1.7.0.411 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181399.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181399.jpg" />
 </div>
 
 
@@ -552,80 +625,6 @@ Cyotek Palette Editor позволяет создавать и работать 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E42AB5E3ED41E63D51C4E5C057EA00A10BB8FDE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593137   (181605) от 25.11.2022
-
-Valhalla DSP - Valhalla Delay 2.5.0 VST, VST3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valhalla Delay — это наш взгляд на классический и современный плагин задержки и эха.
-Ленточное эхо, BBD, цифровое звучание старой школы, смещение высоты тона - все в одном плагине. ValhallaDelay предлагает классику и расширяет ее до новых возможностей с уникальными стилями задержки Ratio и Quad, режимом Ghost (который добавляет сдвиг частоты) и мощной диффузионной (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261B795824D0269ADA2BD791B803F0685111E488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593140   (181629) от 25.11.2022
-
-iZotope Audiolens 1.1.0 (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с новым настольным приложением Audiolens, которое упрощает поиск и сравнение дорожек за счет анализа звука с любой потоковой платформы или источника звука. Создайте свою личную библиотеку эталонных треков, к которой вы можете получить доступ в любое время, чтобы сравнить их с вашими собственными миксами или мастерами.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DC31AB153AFF0D166776AE2AC3E3DBB125E724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593138   (181708) от 25.11.2022
-
-iZotope - Stutter Edit 2 2.1.0 VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181708.jpg" />
-</div>
-
-
-###  Подробнее
-
-IZotope в сотрудничестве с BT представила Stutter Edit 2 – серьезное обновление своего плагина для обработки микроритмических звуковых эффектов. BT описывает обновление как «абсолютную червоточину силы и вдохновения».
-Stutter Edit 2 позволяет создавать знаменитый эффект редактирования «заикание» с помощью одной кнопки, чтобы нарезать слайсами и кубиками ваши семплы, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FB383645C034D05DC5419530B02BEDABA24289
 ```
 
 

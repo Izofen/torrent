@@ -1,3 +1,78 @@
+###  Публикация: 1689517   (124696) от 02.01.2024
+
+Bruce Springsteen - Japanese Singles Collection - Greatest Hits (2023) 2xCD, Japanese Edition, Compilation, Remastered, Sony Records Int'l [FLAC|Lossless|tracks + .cue] <Classic Rock, Arena Rock ...
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124696.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 - Born To Run (04:31)
+02 - Tenth Avenue Freeze-Out (03:12)
+03 - Prove It All Night (03:59)(   Читать дальше...   )Жанр: Classic Rock, Arena RockПродолжительность: 02:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECBA5F79C70F5381B6545697A2C20C2879AE6D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689167   (124697) от 02.01.2024
+
+Токийская повесть / Tokyo monogatari (1953) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилая супружеская пара едет из провинции в Токио навестить детей: сына, ставшего доктором, и дочь, открывшую салон красоты. Дети слишком заняты, поэтому отсылают родителей на курорт. После бессонной ночи на шумном курорте родители возвращаются в Токио. Перед тем как уехать, мать проводит ночь со вдовой другого, погибшего, сына, а отец встречается со своими старыми (   Читать дальше...   )Производство: Япония / Shochiku Kinema Kenkyu-joЖанр: драмаРежиссер: Ясудзиро ОдзуАктеры: Тисю Рю, Тиэко Хигасияма, Сэцуко Хара, Харуко Сугимура, Со Ямамура, Кунико Миякэ, Кёко Кагава, Эйдзиро Тоно, Нобуо Накамура, Широ Осака, Хисао Тоакэ, Тэруко Нагаока, Мицуко Сакура, Тоёко Такахаси, Тору АбеПеревод: профессиональный многоголосыйЯзык озвучки: русский, японскийСубтитры: русские (fix, bonifakula, Yule, lil-kodomo), английские (Criterion)Продолжительность: 02:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D8CF0AD7815D405655963E5D032B5475D351F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689411   (124698) от 02.01.2024
+
+Василиса Микулишна (1975) WEBRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как Василиса Микулишна умом да хитростью своего мужа Ставра Годиновича из темницы Киевского князя вытащила.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, сказка, короткометражныйРежиссер: Роман ДавыдовАктеры: Анна Каменкова, Анатолий Васильев, Владимир БасовСубтитры: нетПродолжительность: 00:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B712F463BD6C875C6161155FF9C64C9E6BCE8BF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683540   (124699) от 02.01.2024
 
 Против всех (2023) WEBRip [H.264/2160p] [4K, SDR, 8-bit] (сезон 2, серии 1-13 из 13)
@@ -6,7 +81,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124699.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:FF5493590921BD2BC5F2C2CF3D8961145D2E6E80
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124700.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:84949B668F34966D4C068E5EF0E13D0F80840178
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124701.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:7FF8B7279B5EE068BD7BC2C9275F8AE441AC3231
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124702.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:A168EB43DD596D6F9F1C9CCA2031395D8B3888DF
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124703.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ Islanders (2019) [Ru/Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124704.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ Domestika, Nick Liefhebber | Illustrated pattern design: Eye catching vector ill
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124705.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ Udemy, Virtual Pair Programmers, Richard Chesterwood, Prageeth Warnak | Kubernet
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124706.jpg" />
 </div>
 
 
@@ -200,7 +275,7 @@ magnet:?xt=urn:btih:9E1CA8B4F57019093E42698C0DBF0D74C4D0DA45
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124707.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ magnet:?xt=urn:btih:D6E1D6F9A4431250BDC930941065FFCD7DD9C61B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124708.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:3B78F46DA08CDADE68F9C1D91AC03C882B4F1AA3
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124709.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:ABCE11EA4B612C5D00B6FFCA32BDE5B538D4B979
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124710.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ ColorControl 9.8.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124711.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:3515291DAA18F8A43ECEE2CB31EB929E19461C68
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124712.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ magnet:?xt=urn:btih:C953C873993AEC4CC9DC5B6395A82F193BCB32AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124713.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ VA - Золотая песня года (2023) [FLAC|Lossless|WEB-DL|tracks] <Ш
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124714.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ LibreOffice 7.6.4.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124715.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ magnet:?xt=urn:btih:14CCDEB638706EBF0166538D2F1A25AEC23F7A7A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124716.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ magnet:?xt=urn:btih:190C22397BE581AA0028D50D9492691F969B786F
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124717.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ magnet:?xt=urn:btih:8B642DF65ECD40D1A9EB78B48592ED1C25D85200
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124718.jpg" />
 </div>
 
 
@@ -495,7 +570,7 @@ magnet:?xt=urn:btih:0280C300368C5FF75FF6B16912A8144F20956719
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124719.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ magnet:?xt=urn:btih:4650538EE44A4E295575F6BD0989C82BB9EECB27
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124720.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ magnet:?xt=urn:btih:94D5324E2C4BE79A1F548F245134E10085470D6A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124721.jpg" />
 </div>
 
 
@@ -556,80 +631,6 @@ magnet:?xt=urn:btih:94D5324E2C4BE79A1F548F245134E10085470D6A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E418FB4571186EEBAE63F5D1B96B1D99BAD5E610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689558   (124722) от 02.01.2024
-
-IAmTimCorey, Tim Corey | C# Mastercourse (2023) WEB-DL [EN]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124722.jpg" />
-</div>
-
-
-###  Подробнее
-
-C# - это язык программирования, используемый для создания приложений для веба, мобильных устройств, настольных компьютеров и в играх. Мир функционирует на приложениях. Изучая C#, вы осваиваете навык, который миру нужен прямо сейчас. Если вы знаете C#, то варианты карьеры практически безграничны.
-
-Мастер-курс по C# от Тима Кори разработан, чтобы перевести вас из начинающего (   Читать дальше...   )Производство: IAmTimCoreyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 70:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB8BDBDE6D6D1DE2A3AC0161796B3DCD614F1E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689410   (124723) от 02.01.2024
-
-Синдром (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страшная автомобильная авария переворачивает жизнь Маши и Кирилла. Девушка не узнает мужа — тот становится пугающе идеальным. Все больше странных совпадений, образов и знаков говорит о том, что Маше опасно доверять себе.Производство: Россия / Централ Партнершип, Продюсерский центр «ГОРАД»Жанр: триллер, драмаРежиссер: Антон БорматовАктеры: Оксана Акиньшина, Кирилл Кяро, Алина Алексеева, Евгения Добровольская, Николай Мачульский, Виктор Тереля, Полина Бахтигозина, Елизавета Пинегина, Георгий Шабанов, Кристина АйвазовскаяСубтитры: отсутствуютПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D156E4CF227639692B060FC9CCE1385AAA0BD49D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615223   (124724) от 02.01.2024
-
-Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colossal Cave - это классическая текстовая приключенческая игра, также известная как «интерактивная фантастика». Она была создана в 1970-х годах и с тех пор стала известной и влиятельной игрой в истории видеоигр. В игре игрок берет на себя роль искателя приключений, исследующего таинственную систему пещер, решая головоломки и находя по пути сокровища. Геймплей состоит (   Читать дальше...   )Тип издания: LicenseРазработчик: Cygnus EntertainmentЖанр: Adventure, Point-and-click, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2453EC3618A19AFC83919B1157A2033A8F5863A2
 ```
 
 

@@ -6,7 +6,7 @@ James - 2001 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105917.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Whispering Sons - The Great Calm (2024) [FLAC|Lossless|tracks + .cue] <Post-Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105980.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106080.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106424.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ James - 1999 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106729.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Amongst Liars - By Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106957.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Axty - Hannya (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107055.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Indepen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107111.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Algorithmic Melody - Love & War (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alt Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107184.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Muna - Live at The Greek Theatre in Los Angeles (2024) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107283.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Alanis Morissette - Supposed Former Infatuation Junkie (1998) Thank U Edition, 2
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107556.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Manafest - Learning How To Be Human (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107602.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Used - MEDZ (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, EmoCore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107603.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Psychic Graveyard - Wilting (2024) [FLAC|Lossless|WEB-DL|tracks] <synth punk, in
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107750.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Terminal Zero - Brace for the End (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108230.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bolu2 Death - OBRAVIVA, Vol. 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108581.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Night Sins - A Silver Blade In The Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108701.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ twikipedia - for the rest of your life (2024) [FLAC|Lossless|WEB-DL|tracks] <alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108708.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Stellar Circuits - Ways We Haunt (2018) Remaster, 2024, Stellar Circuits [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108785.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Reach - Prophecy (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109100.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Boys of Fall - Boys of Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109219.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Crooked Ways - No Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109283.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eat Defeat - My Money's On Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109400.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Haunting Ghosts - Shadow Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109580.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Cats And Cats And Cats - Sweet Drunk Everyone (2006) ReMaster, 2024, Robot Needs
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109627.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Incubus - Morning View XXIII (2001) Remastered, 2024, Incubus [FLAC|Lossless|WEB
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109633.jpg" />
 </div>
 
 

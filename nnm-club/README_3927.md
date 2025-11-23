@@ -1,3 +1,75 @@
+###  Публикация: 1692576   (121784) от 21.01.2024
+
+У ИИ обнаружили удивительные способности к обману человека
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_121784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователи из компании Anthropic обнаружили, что модели искусственного интеллекта можно научить обманывать людей вместо того, чтобы давать правильные ответы на их вопросы. Причём ИИ демонстрирует удивительные способности к обману.Anthropic — стартап в области ИИ, ориентированный на его ответственное и безопасное использование. В сентябре 2023 года его частичным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571822   (121785) от 21.01.2024
+
+Приключения Паддингтона / Paddington (2014) BDRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь, это медведь по имени Паддингтон из дремучего Перу. Он приехал в Лондон, чтобы обрести семью и стать настоящим английским джентльменом. На пути к этой цели его ожидают невероятные приключения, полные юмора и опасностей.Производство: Великобритания, Франция, США, Китай/ Heyday Films, DHX Media, StudioCanalЖанр: комедия, приключения, фэнтезиРежиссер: Пол КингАктеры: Бен Уишоу, Николь Кидман, Хью Бонневилль, Салли Хокинс, Джули Уолтерс, Мадлен Харрис, Сэмюэл Джослин, Джим Бродбент, Питер Капальди, Имелда СтонтонПеревод: ДублированныйСубтитры: Английские (full, SDH)Продолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B8CF6A87B30E35C784963CAB65C579B86ED94B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571830   (121786) от 21.01.2024
+
+Приключения Паддингтона 2 / Paddington 2 (2017) BDRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121786.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антикварном магазине Лондона обаятельный и хорошо воспитанный медведь Паддингтон находит уникальную старинную книгу. Пока он изо всех своих медвежьих сил старается накопить на нее деньги, редчайшее издание внезапно похищают. Паддингтон оказывается вовлечен в аферу века, затеянную знаменитым, но вышедшим в тираж актером, который ныне рекламирует собачьи консервы, (   Читать дальше...   )Производство: Великобритания, Франция, США, Китай, Канада / Amazon Prime Video, Bona Film Group, Canal+Жанр: фэнтези, комедия, семейныйРежиссер: Пол КингАктеры: Бен Уишоу, Хью Грант, Брендан Глисон, Хью Бонневилль, Салли Хокинс, Джули Уолтерс, Джим Бродбент, Питер Капальди, Мадлен ХаррисПеревод: Дублированный (iTunes)Субтитры: Английские (full, SDH)Качество: BDRip 1080pПродолжительность: 01:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D675825D4A28AE8870E82B10985D5D8294534AC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509795   (121787) от 21.01.2024
 
 Ангар-1: Архив НЛО / Hangar 1: The UFO Files (2014) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8)
@@ -6,7 +78,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121787.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:DA11400155C69517836BDAFEA9C3DA2A30CA42EA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121788.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:1E8FC0254F05249A824D4B2E5FAF0C50778B758C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121789.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:758781DDC3C016005FA3A52520F09CA1C706D824
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121790.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:2647D309E94AA436AB6A33010AA6539008B23A74
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121791.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ magnet:?xt=urn:btih:75494E7E31F1D618A64A8ED3616D08426C4AFE52
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121792.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121793.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:8FF914864F673DEAA48CA197E3D29CA2A8669637
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121794.jpg" />
 </div>
 
 
@@ -207,7 +279,7 @@ magnet:?xt=urn:btih:935FF1F49CCAA9D00A320372BE58863322C43AA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121795.jpg" />
 </div>
 
 
@@ -231,7 +303,7 @@ magnet:?xt=urn:btih:B3824F2FD886BCD7FA0D419C6199FB5B9BC2EF37
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121796.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ magnet:?xt=urn:btih:36B1DBB8DAF3B03ED4029F2B5716FB1C6850701B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121797.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ Microsoft Windows 11 [10.0.22631.3007], Version 23H2 (Updated January 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121798.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ magnet:?xt=urn:btih:DFA18C27D8942FDF4F20A492E6CF2B3ED6AB5B63
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121799.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121799.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ magnet:?xt=urn:btih:DFA18C27D8942FDF4F20A492E6CF2B3ED6AB5B63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121800.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:CA956D725CBBB2C417EA4B06E02561F9052A347C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121801.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ magnet:?xt=urn:btih:A7B60CC2F890BE38460C9BC5858B65C1F97DF6CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121802.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ Rufus 4.4 (Build 2103) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121803.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:BF3A7A051AED76128A94608CE551513788E91E1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121804.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ magnet:?xt=urn:btih:23A03E705A13D9160DB8665B04CD46A1D0DA4560
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121805.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121806.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:98B31D626C45068ACF65D39493573198D1A2B75D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121807.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:777D82A86720A5A6552570756BF6B3B817316F1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121808.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:E76A536ECA230BD0C45B5661F2485A1BC0976776
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121809.jpg" />
 </div>
 
 
@@ -554,81 +626,6 @@ magnet:?xt=urn:btih:E76A536ECA230BD0C45B5661F2485A1BC0976776
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E5367C43EB52075E6FB74EFBD10E2BB1C2DFB56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450188   (121810) от 21.01.2024
-
-D. White - 4 Albums, 67 Singles (2016-2023) [MP3|320 Kbps] <Disco, Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121810.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 - One Wish
-2020 - How Are You?
-2022 - The Butterfly Effect
-2022 - Towards the SunЖанр: Disco, Pop, DanceПродолжительность: 14:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADABF5CEC67D47641BD677F938294F9C3E44FAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693670   (121811) от 21.01.2024
-
-A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лео и Винсент — два парня, мотающих срок в хорошо охраняемой тюрьме. Еще вчера они не были даже знакомы, но сегодня у них просто не осталось иного выхода… и они решаются на побег. A Way Out — приключение исключительно для совместной игры, где вам предстоит примерить роль одного из двух заключенных, задумавших побег. Рывок на свободу быстро становится захватывающим (   Читать дальше...   )Тип издания: RepackРазработчик: HazelightЖанр: Adventure (CO-OP), Action, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063BE8B69946F42D47A384B4E341223139445485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678492   (121812) от 21.01.2024
-
-Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сеттинг в Above Snakes показывает альтернативную вселенную Дикого Запада, где в 1883 году начинается восстание нежити. В одну из темных ночей, недалеко от Трупного ручья, происходит огненный дождь и падение ярко-зеленого метеорита. Из-за удара массивного космического объекта об поверхность земли, происходит загадочная метаморфоза с мертвецами и они начинают оживать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Square Glade GamesЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AEB697031CDA379444A6F086474A837B71F99D
 ```
 
 

@@ -6,7 +6,7 @@ File & Image Uploader Donated 8.4.4 Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106394.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RadioMaximus 2.33.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107153.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SoftPerfect Cache Relocator 1.7 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111990.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Lacey Free Music & Video Downloader 2.96 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111992.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Vivaldi 7.6.3797.63 Portable by IDE`a [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112373.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Wireless Network Watcher 2.41+  Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114888.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Google Earth Pro 7.3.6.9796 (x64) Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115638.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ NetTraffic 1.71.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116251.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116951.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by Topersoft [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117112.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Speedtest by Ookla 1.13.194.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117274.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ MyLanViewer 6.6.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117567.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VCap Downloader 0.1.37.6739 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117649.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Air Explorer Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117881.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ ToDesk 4.7.2.1 [Ru/En/Cn]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118818.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ YT Downloader 9.17.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121427.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Ant Download Manager Pro 2.16.0  Build 91578 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121428.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Telegram Desktop 6.2.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121429.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ MediaHuman YouTube Downloader 3.9.17 (1010) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121432.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Ant Download Manager 2.16.0 Build 91579 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121460.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ MediaHuman YouTube Downloader 3.9.17 (1010) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121527.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Karing 1.2.4.869 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121537.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ SeaMonkey 2.53.18.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122042.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Whale Browser (NAVER Whale) 3.24.223.21 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122055.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ DU Meter 8.05 Build 4838 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122273.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ DU Meter 8.05 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122409.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1695903   (119548) от 03.02.2024
+
+Багровый рассвет / Sunrise (2024) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сара одна воспитывает двоих детей и пытается содержать большую ферму. Такая семья является легкой наживой, немудрено, что на ее земли позарилась местная банда головорезов. Но у женщины появляется загадочный защитник: он избегает солнечных лучей, обладает невероятными способностями и жаждет крови.Производство: США, Великобритания / 23ten, Baird Films, Creativity Capital, Dark Dreams Entertainment, LB Entertainment, Northern Ireland ScreenЖанр: Ужасы, триллерРежиссер: Эндрю БейрдАктеры: Алекс Петтифер, Гай Пирс, Кристал Ю, Уильям Гао, Олуэн Фуэре, Курт Ягер, Райли Чунг, Джон Коннорс, Лалор Родди, Форрест КэмпбеллПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:52Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696602   (119549) от 03.02.2024
+
+Нельская башня / Башня запретной любви / Der Turm der verbotenen Liebe (1968) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на пьесе "Путешествие по Неслю" Александра Дюма-отца, написанной, в свою очередь, по оригинальному тексту Фредерика Гайарде, основанному на историях разврата, касающихся Маргариты, дочери герцога Бургундского и других членов королевских семей Франции и Англии, которые, как говорили, использовали старую сторожевую башню на берегу реки Сены (   Читать дальше...   )Производство: Германия (ФРГ), Франция, Италия / Filmes Cinematografica, Films EGE, Rapid FilmЖанр: драма, приключенияРежиссер: Франц Антель, Фриц УмгельтерАктеры: Тери Тордаи, Жан Пиа, Уши Глас, Вероника Венделл, Мари-Анж Анье, Карлхайнц Феге, Франц Рудник, Йорг Плева, Дада Галлотти, Армандо ФранчолиПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F467A6FE9B0B874C04C368DD0A064B860005BFD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696652   (119550) от 03.02.2024
+
+Враг у ворот / Enemy at the Gates (2001) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119550.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 год, разгар Сталинградской битвы. Немецкое командование направляет на передовую своего лучшего стрелка, майора Кенига, с особым заданием. Этот опытный и терпеливый профессионал - единственный, кто может попытаться справиться с русским «ангелом смерти» - неуловимым снайпером Василием Зайцевым. Зайцев - легенда и икона для защитников Сталинграда. Каждый день он (   Читать дальше...   )Производство: США, Великобритания, Франция, Германия / Paramount PicturesЖанр: боевик, драма, военныйРежиссер: Жан-Жак АнноАктеры: Джуд Лоу, Рэйчел Вайс, Джозеф Файнс, Эд Харрис, Боб Хоскинс, Ева Маттес, Рон Перлман, Гэбриел Томсон, Маттиас Хабих, София Ройз, Иван Шведов, Клеменс ШикПеревод: Дублированный, Многоголосый, Двухголосый, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, Украинские, АнглийскиеПродолжительность: 02:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E8A50FBA783A4C4B8A9418F2129E2EE3106DD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696623   (119551) от 03.02.2024
 
 Книжная серия | Электроника для начинающих [4 книги] (2017-2022) [PDF]
@@ -6,7 +78,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119551.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:7BC8CE42A4B423E78B31FADE90C325348126EEBD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119552.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:0B9C1558F9F7579F86248323A2FEAEBE7691C373
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119553.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:0B9C1558F9F7579F86248323A2FEAEBE7691C373
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119554.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:6E9955FAE0D5490453BDBE63F34DDB3B2261A5FF
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119555.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:29BA78D4E747D1DAA3AE1B15D63296BE1EE3B98A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119556.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:25F262587C77F247206BBE8FB833C112390D48BD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119557.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:4D5CEC84EBC31DD5C742AC1ADA87C90B28762C30
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119558.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:F148DDD1568362384CA86443F35F9B13AA93184A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119559.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:6509FB3C4EE7BC634A0EC052B147AF09B31F329D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119560.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:6509FB3C4EE7BC634A0EC052B147AF09B31F329D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119561.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ Long Gone Days (2023) [Ru/Multi] (20240130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119562.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:10284043BF945C282180C2F269BB1302DCDA464F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119563.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:26A2C3105C90572F760C0B844712FB14A3AFC321
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119564.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:6C9B71F7A07F77E02964661161E9D9F3698D9799
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119565.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:122234351DC3136CAFD3195FCB28515AD6F5C500
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119566.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:1B34DC571C719E13A4F2984C84EF638EB2A10101
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119567.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ magnet:?xt=urn:btih:D3CABC8BCDCE0E6890406C9A5438BF50D45EA2A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119568.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:4A2426EAFBC55EBD814424C635A5464555F04010
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119569.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ Garmin: Дороги России Топо 6.44 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119570.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ AOMEI Partition Assistant Technician Edition 10.3.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119571.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ Floating Life 2 (2023) [Multi] (1.0.2.58) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119572.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:1151D90396F7DC0B822E04BF7BD09DA5EB77D31B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119573.jpg" />
 </div>
 
 
@@ -552,78 +624,6 @@ magnet:?xt=urn:btih:1151D90396F7DC0B822E04BF7BD09DA5EB77D31B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8288D6EAA48AFB72FB441B0F8DC221FB7D59EEE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575144   (119574) от 03.02.2024
-
-Неогранённые алмазы / Неогранённые драгоценности / Uncut Gems (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119574.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 год. Говард Ратнер владеет небольшим ювелирным магазином в Нью-Йорке. Являясь большим фанатом НБА, он жизни не мыслит без ставок на игры, поэтому находится по уши в долгах и постоянно скрывается от кредиторов. Однажды подельник приводит к нему в магазин ведущего игрока «Бостон Селтикс» Кевина Гарнетта, и в это же время из Эфиопии приходит посылка с редкими неогранёнными (   Читать дальше...   )Производство: США, Elara Pictures, Scott Rudin Productions, Sikelia ProductionsЖанр: драма, криминал, триллерРежиссер: Бен Сэфди, Джошуа СэфдиАктеры: Адам Сэндлер, Джулия Фокс, Кевин Гарнетт, Идина Мензел, Ноа Фишер, Лакит Стэнфилд, Эрик Богосян, Кит Уильямс Ричардс, Джадд Хёрш, Майк ФранчезаияПеревод: дублированный (студия Пифагор), авторский (Михаил Яроцкий)Субтитры: русские (на неанглийскую речь и полные), английские SDHПродолжительность: 02:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D4B3BAF431013F96EFE30876620E7BFECFA4D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674078   (119575) от 03.02.2024
-
-COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая игра от Йеппе Карлсена, ведущего гейм-дизайнера LIMBO и INSIDE. Это путешествие по мирам внутри других миров. Овладейте механикой прыжков по мирам и разгадайте космическую тайну. Уникальный взгляд на головоломки и приключения. Здесь каждый мир – это сфера, которую можно буквально таскать на спине. Постигайте механику прыжков между мирами: манипулируйте ими, (   Читать дальше...   )Тип издания: RepackРазработчик: Geometric InteractiveЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1977132C6ABFBE6D7DB1A6FDCEC4CBDB8375672
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682159   (119576) от 03.02.2024
-
-Склифосовский (2023) WEBRip [H.264] (сезон 11, серии 1-16 из 16)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119576.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Склифе снова не все спокойно! В главный институт скорой помощи приходит новый главврач и устраивает всему отделению внеплановую аттестацию. Завотделением Ирина Павлова "теряет" сразу трёх врачей, но находит новых: супруги Пастуховы возвращаются в Москву. Марина Нарочинская получает в наследство дом, но это оборачивается опасным приключением для Олега (   Читать дальше...   )Производство: Россия | Кинокомпания «Русское»Жанр: Драма, медицинаРежиссер: Юлия КрасноваАктеры: Максим Аверин, Мария Куликова, Елена Яковлева, Андрей Ильин, Дмитрий Миллер, Ольга Павловец, Роман Мадянов, Нина Усатова, Анна Якунина, Екатерина Травова и др.Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388607B9BEFDA895C321B32DF66610D17E9D6A82
 ```
 
 

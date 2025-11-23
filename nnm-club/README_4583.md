@@ -1,3 +1,152 @@
+###  Публикация: 1435655   (141964) от 29.12.2020
+
+Unclutter 2.1.24d [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
+Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8800D398B153BE7D43A8E3BD99EFA5D5EC1EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272596   (141965) от 28.12.2018
+
+VA - Лучшая Дискотека 80/90. (Зарубежный выпуск) (2018) [MP3|320 Kbps] <Диско, Итало-диско, Евродэнс>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141965.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Sound - Your Love Is My Energy
+002. Mike Oldfield - Moonlight Shadow
+003. E-Rotic - Get Away
+004. The La's - There She Goes(   Читать дальше...   )Жанр: Диско, Итало-диско, ЕвродэнсПродолжительность: 06:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30F613146E8E72CC7A59238173FA3A48AA280B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435859   (141967) от 29.12.2020
+
+Растровый клипарт - Fotolia - New Year and Christmas stock photos №77 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3396x4440-5616x3438
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96016382C9555CB9013A535A64F06B3809B3C171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853854   (141968) от 29.12.2014
+
+Книга жизни / The Book of Life (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая история любви на фоне празднования Дня мертвых в Мексике.
+Тореадор Маноло разрываясь между  ожиданиями его семьи и  зовом сердца, пускается в приключение, которое охватывает три фантастических мирах, где он должен встретиться со своими страхамиПроизводство: США |  Reel FX Animation Studios, Twentieth Century Fox, ChatroneЖанр: мультфильм, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Хорхе Р. ГутьерресПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4497C7CB8E4437D2E93D113013B5CE7B1D0FDFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678823   (141969) от 23.11.2023
+
+Журнал | Elektronika Praktyczna №11 (ноябрь 2023) [PDF][Pl]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elektronika Praktyczna (Практическая электроника) - журнал для радиолюбителей и профессионалов на польском языке. В каждом номере описания практических конструкций для радиолюбителей различной тематики: аудиотехника, измерительные приборы, бытовая электроника и другое. Приводится полное описание проектов, со схемами и печатными платами. На более чем 100 страницах: (   Читать дальше...   )Жанр: ЭлектроникаЯзык: ПольскийИздательство: AVT-KoorporacjaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAE7C10231837C7715E6E47AD8F75007ED45E54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087940   (141970) от 29.12.2016
+
+Проекты - VideoHive - 120 Animated Emojis - Christmas Pack - 19155211 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141970.jpg" />
+</div>
+
+
+###  Подробнее
+
+120 Animated Emojis - Christmas Pack - набор новогодних анимированных иконок с выражениями эмоций.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18E8A295C745A018B429A02C250FD00B01B3571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435877   (141972) от 29.12.2020
 
 Растровый клипарт - Fotolia - New Year and Christmas stock photos №85 [JPG]
@@ -6,7 +155,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141972.jpg" />
 </div>
 
 
@@ -30,7 +179,7 @@ magnet:?xt=urn:btih:EDB73127B50A8807AC9BB9C7E0E42996FBD65E2F
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141973.jpg" />
 </div>
 
 
@@ -54,7 +203,7 @@ Eventide Ensemble Bundle v1.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141974.jpg" />
 </div>
 
 
@@ -78,7 +227,7 @@ magnet:?xt=urn:btih:47219519E950982D110C8FE9CB62B6C431D6035F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141975.jpg" />
 </div>
 
 
@@ -102,7 +251,7 @@ Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141976.jpg" />
 </div>
 
 
@@ -129,7 +278,7 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141977.jpg" />
 </div>
 
 
@@ -153,7 +302,7 @@ magnet:?xt=urn:btih:B1744F3CA45C1052370AED98C6DAF29D0C6CEB50
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141978.jpg" />
 </div>
 
 
@@ -177,7 +326,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141979.jpg" />
 </div>
 
 
@@ -204,7 +353,7 @@ magnet:?xt=urn:btih:FD563FFCB71E180AEB20545A2B255474AEB5835C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141980.jpg" />
 </div>
 
 
@@ -228,7 +377,7 @@ Californium (2016) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141981.jpg" />
 </div>
 
 
@@ -252,7 +401,7 @@ Windows 7 Профессиональная SP1 x86 (OA CIS and GE) 6.1.7601.1751
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141982.jpg" />
 </div>
 
 
@@ -276,7 +425,7 @@ VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141983.jpg" />
 </div>
 
 
@@ -303,7 +452,7 @@ magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141985.jpg" />
 </div>
 
 
@@ -327,7 +476,7 @@ magnet:?xt=urn:btih:33506533A72D93A80B0DD207902691F8F6A365B1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141986.jpg" />
 </div>
 
 
@@ -351,7 +500,7 @@ magnet:?xt=urn:btih:27F24E71D8325E955A2CAB74D40C38A141CFFAC0
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141987.jpg" />
 </div>
 
 
@@ -377,7 +526,7 @@ magnet:?xt=urn:btih:545ACA8B7C9143DFC3EB1888E927CB7DCA52B883
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141988.jpg" />
 </div>
 
 
@@ -401,7 +550,7 @@ Les Discrets - Septembre Et Ses Dernieres Pensees (2010) Limited Edition [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141989.jpg" />
 </div>
 
 
@@ -428,7 +577,7 @@ magnet:?xt=urn:btih:CA8213391E7AF9C22CA2CEFA9C0D93F1C2F63879
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141991.jpg" />
 </div>
 
 
@@ -452,7 +601,7 @@ VA - Music For You vol.21 (2021) [MP3|320 Kbps] <Rock, Metal, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141992.jpg" />
 </div>
 
 
@@ -479,7 +628,7 @@ WinTools.net Premium 18.0.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141994.jpg" />
 </div>
 
 
@@ -490,162 +639,6 @@ WinTools.net – набор инструментов для оптимизаци
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F17814EB0110376B6E7E9C433CA87D1353C37C26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272696   (141995) от 28.12.2018
-
-Мег: Монстр глубины / The Meg (2018) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоководный батискаф, осуществляющий наблюдение в рамках международной программы по изучению подводной жизни, был атакован огромным существом, которое все считали давно вымершим. Неисправный аппарат теперь лежит на дне глубочайшей впадины Тихого океана… с оказавшимся в ловушке экипажем. Их время на исходе. Китайский океанограф-новатор, несмотря на протесты его (   Читать дальше...   )Производство: США, Китай / Warner Bros. Pictures, Gravity Pictures, Maeday ProductionsЖанр: Ужасы, фантастика, боевик, триллерРежиссер: Джон ТёртлтаубАктеры: Джейсон Стэйтем, Ли Бинбин, Рэйн Уилсон, Клифф Кёртис, Уинстон Чао, Шуя Софиа Цай, Руби Роуз, Пейдж Кеннеди, Роберт Тейлор, Оулавюр Дарри ОулафссонПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, исландские, латышские, литовские, португальскиеПродолжительность: 01:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10DBDFD222C6302A050179EBE9988AB9D3766521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194870   (141996) от 29.12.2017
-
-Легенды севера / Aventures dans le Grand Nord (1995) DVDRip (сезон 1, серия 3 из 6)
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казан был наполовину волком. Его хозяина убили двое неизвестных. Таким, преданно охраняющим тело своего хозяина, и нашел его Пол Уэйман. Только Казан видел преступников. Позже он, конечно, опознал убийц, но новые хозяева не поняли его, и Казан ушел в лес и стал вожаком волчьей стаи. Но он помнил доброту людей, как и понимал и всю исходящую от некоторых из них опасность...Производство: Канада, Франция / Canal+, Cinévidéo Plus, Ellipse AnimationЖанр: приключенияРежиссер: Арно СелиньякАктеры: Джефф Фэйи, Софи Дьюз, Лорн Брасс, Патрис Биссоннет, Власта Врана, Арон Тэйджер, Серж Уд, Бруно Парент, Ив Гелт и др.Перевод: Многоголосый закадровыйПродолжительность: 01:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C478E95A30468BE0C3A9C474E2E4FDEC7FB915B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520441   (141997) от 28.12.2021
-
-Макабро / Macabre (1980) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейн Бейкер, живущая в Новом Орлеане, заводит роман с мужчиной, Фредом, за спиной своего мужа и детей. Её дочь-подросток Люси подозревает, что её мать изменяет отцу. Джейн встречается с Фредом в комнате, которую она снимает в пансионе, принадлежащем миссис Дюваль, чей слепой взрослый сын Роберт также живёт в этом доме. Пока Джейн встречается с Фредом, Люси топит (   Читать дальше...   )Производство: Италия, A.M.A. Film, Medusa DistribuzioneЖанр: ужасыРежиссер: Ламберто БаваАктеры: Бернис Стиджерс, Станко Мольнар, Вероника Дзинни, Роберто Поссе, Фердинандо Орланди, Фернандо Паннулло, Элиза Кадиджа БовеПеревод: авторский (Сергей Визгунов)Субтитры: английскиеПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D9ACD6E701FFA28AEDD5C417C6E95FB2DDEBA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590724   (141998) от 17.12.2012
-
-VA - Осенний Рэп удар русский (2012) [MP3|256 кб/с]<Rap,Hip-hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клика - Слова на свободу
-02. Словетский feat. Тато - Часть 4ая
-03. Bad Balance - Жги темноту
-04. Стриж feat. Centr - Лозунги
-05. Тёмный Страж - Уходи
-06. Daydream - За спиной
-07. Словетский - Слышишь
-08. ST feat. Dino MC47 - Газета большого города (prod. Miko)
-09. TERRA - Пока есть время
-10. Триада - Promo 2 (Prod. Swizz Beatz)(   Читать дальше...   )Жанр: Rap,Hip-hopПродолжительность: 06:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12AAB80FEDAD15D12B87D374040EDE79449319D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348711   (141999) от 29.12.2019
-
-VA - Ritter Butzke: 10 Years (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Downtempo, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booka Shade – Night Surfing | Remix by Matthias Schuell, Prismode & Solvane (7:16)
-02. Digitalism – Knight Life (07:31)
-03. Dominik Eulberg – Welt Am Montag (10:30)
-04. Extrawelt – Grand Slow Slam (07:51)(   Читать дальше...   )Жанр: Tech House, Deep House, Downtempo, MinimalПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59C018779C13996D7D00FF0FDB614CD95ADF3C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087949   (142000) от 29.12.2016
-
-Проекты - VideoHive - Christmas - 18952707 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas - проект для создания поздравительной новогодней открытки и праздничного показа вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59EB06A70A6075F3961C0A6C9871A3B2ECDC82A9
 ```
 
 

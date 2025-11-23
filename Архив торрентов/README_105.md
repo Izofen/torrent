@@ -6,7 +6,7 @@ XRecode 3 1.163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27513.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27513.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Plus Messenger (Telegram+) v11.7.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27517.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27517.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1F184AA82286E38D094C069621E149456AEEE7F9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27520.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27520.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27525.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DC73F73BA7B1405DAE1E21449B8F15CAEBB9F1DC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27528.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27528.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ eM Client 10.1.5131.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27529.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27529.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ WPS Office + PDF v18.15.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27532.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27532.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ EasyUEFI 5.8 Release 1 Technician RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27544.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27544.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D5363E1620880F507FE492E2C92C423D5C8376EF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27545.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27545.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VueScan Pro 9.8.44.10 RePack (& Portable) by elchupacabra (DC 2025.02.13) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27576.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27576.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ FL Studio Producer Edition 24.2.2.4597 - All Plugins Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27593.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27593.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Activation Program 1.01 b01 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27594.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27594.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:11FD997EC51AA30E18C6BC06315F53C1893B7D7A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27602.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27602.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Telegram Desktop 5.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27608.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27608.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ XnView MP 1.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27609.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27609.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Calibre 7.26.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27618.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27618.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D04E3E8F7870390A8E64D5B985DBA210A54B0CD3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27619.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27619.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ IObit Uninstaller Pro 14.2.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27621.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27621.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Native Instruments - Kontakt 8.2.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27625.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27625.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ TreeSize Professional 9.4.1.2001 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27630.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27630.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Adobe Illustrator 2025 29.3.0.146 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27650.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27650.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adobe InDesign 2025 20.1.0.71 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27661.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27661.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Adobe Acrobat Pro 2024.005.20399 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27674.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ PDF-XChange Editor Plus 10.5.2.395 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27684.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AnyDesk 9.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27685.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27685.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PDF-XChange PRO 10.5.2.395 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27686.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 490701   (130322) от 02.05.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (01.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2479
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524743   (130323) от 18.01.2022
+
+VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Yeah Uhhh Oui (3:00)
+02. Weber & Weber - Speaking Without Words (4:49)
+03. Svendaq - Blue Bossa (6:01)
+04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525024   (130324) от 18.01.2022
+
+VideoSolo Screen Recorder For Mac 2.0.50 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Независимо от того, какие виды экранных действий на вашем компьютере, например, онлайн-видео игры, скайп-чат, демонстрации, вы можете использовать VideoSolo Screen Record для записи их на видео.
+• Захват экрана на вашем компьютере в HD-видео
+• Запишите звук с компьютерной системы и микрофона одновременно
+• Сделайте снимок определенных областей экранаТип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C1F18271E2226F6EC869ACEA8BC9D586C47853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490946   (130325) от 02.05.2012
 
 [Wallpapers] Girls Desktop Wallpapers Pack 9
@@ -6,7 +84,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130325.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130326.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ Anita O'Day - Complete Signature & London Recordings (1942 - 1950) 2CD, 2001, Th
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130327.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ TunesKit AceMovi Video Editor 4.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130328.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130329.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ Wondershare PDFelement Pro 8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130331.jpg" />
 </div>
 
 
@@ -155,7 +233,7 @@ VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130333.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ Sound Grinder Pro 3.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130334.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ Movavi Video Suite 10.3 SE [Русский / Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130335.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ My PaintBrush Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130336.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ Default Folder X 5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130339.jpg" />
 </div>
 
 
@@ -282,7 +360,7 @@ DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130340.jpg" />
 </div>
 
 
@@ -309,7 +387,7 @@ magnet:?xt=urn:btih:2517B25271E011B4C93F9663FF70AD994F9085B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130341.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ Dato 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130342.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ VA - In The Mood For Love (2022) [AAC|~308 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130344.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ magnet:?xt=urn:btih:0F26C4A60220FA4812DE4C45C2EAD9BE62C3CBB9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130345.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ PullTube 1.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130347.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ VA - White Sands (Chill Out And Electronic Collection), Vol. 1 (2022) [AAC|~323 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130348.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ Final Fantasy X International [En/Jap] (RePack/Emul) 2002 | MarkusEVO
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130349.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ EverWeb (Standalone) 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130351.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ Shanti People - Krishna Is Love (2013) [AAC|~287 Kbps] <Folk, EDM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130352.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ magnet:?xt=urn:btih:6102A58C4E37F1BABF06D7F6AAEE2F5B342DFF40
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130353.jpg" />
 </div>
 
 
@@ -564,90 +642,13 @@ magnet:?xt=urn:btih:A8984BD1EC9495325B538E5039C751C203B1635E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130354.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Журнальные ключи для Dr.Web pro\Dr.Web Security Space pro 5.0/6.0/7.0
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491248   (130355) от 03.05.2012
-
-Восьмидесятые (2012) DVB (сезон 1, серии 1-12 из 12)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130355.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Восьмидесятые» – это целая эпоха в истории Советского Союза. Страна стояла на пороге глобальных перемен: молодежь уже не боялась вслух произносить слово «секс», слушала популярную композицию «Белые розы» Юры Шатунова и танцевала под музыку Modern Talking. Кто-то вспомнит югославские гарнитуры, заводские проходные, поездки «на картошку» и первый автомобиль «Москвич», (   Читать дальше...   )Жанр: КомедияАктеры: Александр Якин, Наталья Земцова, Александр Половцев, Мария Аронова, Леонид Громов, Дмитрий Белоцерковский, Юлия Стадник, Саша Новицкий, Роман Фомин, Ирина ЧипиженкоПродолжительность: 12~00:25:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491320   (130357) от 03.05.2012
-
-ЕШКО | Рисование [2009] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступно и увлекательно курс расскажет о принципах, на которых основано искусство рисования, и поможет развить практические навыки рисунка. Вы познакомитесь с рисовальными принадлежностями и материалами, познаете секреты создания иллюзии пространства, использования контрастов и законов композиции. Вы овладеете техникой рисования пейзажей, интерьеров, натюрмортов и портретов.
-
-Этот курс учит всегда видеть прекрасное, воспринимать окружающий мир во всем великолепии и разнообразии его красок, а затем отражать его индивидуальное восприятие на листе бумаги или холсте. Он станет незаменимым руководством Вашего творческого раскрепощения, научит создавать пейзажи, портреты и автопортреты, оформлять коллажи, макеты, делать эскизы интерьеров. Познав секреты пространства и перспективы, цветовой гаммы и композиции, Вы не только разнообразите свой досуг, но и, возможно, получите еще один шанс улучшить свое благосостояние.
-Курс будет полезен как тем, кто ищет возможности самовыражения, так и тем, кто готовится к вступительным (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB3CF89327589987F25B0A64900918F1BCF243C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491463   (130359) от 03.05.2012
-
-Windows 7 x86 Ultimate UralSOFT v.5.1.12 [2012/Rus]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка сделана на основе оригинального образа ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463
-Установлены важные и необходимые обновления,установлен IE9,DirectX9,
-Применен патч для сторонних тем,твики ПКМ,ОЕМ,удалены стандартные рисунки пользователя,добавлены другие!Изменена звуковая схема,"Привет" "Пока".Изменен интерфейс установки,в самой системе так же изменены ярлыки,папки ,иконки.Добавлена функция сделать любую картинку сделать фоном входа(с помощью правой кнопки мыши)Название программы: Windows 7 Ultimate SP1 UralSOFTЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,77 @@
+###  Публикация: 594486   (133363) от 26.12.2012
+
+Миссия Дарвина / G-Force (2009) BDRip [1080p] [Вертикальная анаморфная стереопара 3D] [Hand Made 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133363.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Миссия Дарвина» — это суперкоманда морских свинок, работающих на правительство США. Для выполнения специальных заданий зверьков подготовил один ученый, и теперь они могут проникать в места, недоступные для людей, вооружившись самыми современными технологиями.
+
+В спецподразделение входят: Дарвин — командир отряда, спец по коммуникациям; Хуарес — единственная девушка (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Боевик, Комедия, Приключения, СемейныйРежиссер: Хойт ЙетменАктеры: Билл Найи,  Уилл Арнетт,  Зак Галифианакис,  Келли Гарнер,  Тайлер Патрик Джонс,  Николас Кейдж,  Сэм Рокуэлл,  Джон Фавро,  Пенелопа Крус,  Стив БушемПеревод: ДублированныйПродолжительность: 01:28:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681022   (133364) от 01.12.2023
+
+Сёстры Спенсер / The Spencer Sisters (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133364.jpg" />
+</div>
+
+
+###  Подробнее
+
+После сорвавшейся карьеры полицейской Дарби Спенсер возвращается в родной городок и в шикарный дом своей мамы, популярной писательницы. Делает она это с большой неохотой, ведь памятны ещё детские обиды на родительницу, которая литературе уделяла внимания больше, чем дочери. Но две женщины быстро находят общий язык и организуют частное детективное агентство «Сестрички (   Читать дальше...   )Производство: Канада / Buffalo Gal Pictures, Entertainment OneЖанр: драма, комедия, криминал, детективРежиссер: Эйприл Маллен, Мелани Орр, Дэвид УэллингтонАктеры: Лиа Томпсон, Стэйси Фарбер, Томас Энтони Оладжиде, Родриго Масса, Кейтлин Либ, Эдвард Раттл, Аеша Мансур, Хусейн Мадхавджи, Адам Хертиг, Пол Попович и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AB385B4CC8673B39CFD0F32FC1F7F5E13334F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594361   (133367) от 26.12.2012
+
+Жизнь Пи / Life of Pi (2012) TS [EN]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, индийский подросток переезжает с родителями в Канаду, но после кораблекрушения оказывается в спасательной шлюпке в компании бенгальского тигра, гиены, зебры и орангутанга.Жанр: Драма, ПриключенияРежиссер: Энг ЛиПродюсер: Энг Ли, Джил Неттер, Дэвид УомаркАктеры: Сурадж Шарма, Ирфан Кхан, Табу, Рейф Сполл, Жерар ДепардьеПеревод: ОтсутствуетПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594253   (133368) от 26.12.2012
 
 Ван Хельсинг / Van Helsing (2004) BDRip [720p] [hand made 60fps]
@@ -6,7 +80,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133368.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ RealPlayer 16.0.0.282 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133369.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ Sparrow 1.6.4 [EN+RU]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133370.jpg" />
 </div>
 
 
@@ -87,7 +161,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133371.jpg" />
 </div>
 
 
@@ -112,7 +186,7 @@ magnet:?xt=urn:btih:226E701B589D99F24294E248283DAAB91DA81CBC
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133373.jpg" />
 </div>
 
 
@@ -139,7 +213,7 @@ magnet:?xt=urn:btih:F049C774B6989530E2563D4771CAEBD692116C99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133375.jpg" />
 </div>
 
 
@@ -163,7 +237,7 @@ magnet:?xt=urn:btih:15492BD66ED91A3E3D6129DB0099193C17B8AE8D
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133376.jpg" />
 </div>
 
 
@@ -187,7 +261,7 @@ Opera Crypto Browser 105.0.4970.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133377.jpg" />
 </div>
 
 
@@ -212,7 +286,7 @@ Icecream PDF Editor PRO 3.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133379.jpg" />
 </div>
 
 
@@ -236,7 +310,7 @@ magnet:?xt=urn:btih:20A660FA0B5B3C287D7795784AB07790BED5EB32
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133380.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ Opera One 105.0.4970.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133381.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ Wondershare PDFelement 10.1.10.2563 + OCR Plugin (x64) Portable by 7997 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133382.jpg" />
 </div>
 
 
@@ -308,7 +382,7 @@ DigiKam 8.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133383.jpg" />
 </div>
 
 
@@ -332,7 +406,7 @@ magnet:?xt=urn:btih:470669788B2C7765114A484F24385452A7FA7C6E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133384.jpg" />
 </div>
 
 
@@ -356,7 +430,7 @@ magnet:?xt=urn:btih:FAD43676BB6D353157719DA648019D3B3AF00599
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133385.jpg" />
 </div>
 
 
@@ -380,7 +454,7 @@ Firefox Browser 120.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133386.jpg" />
 </div>
 
 
@@ -404,7 +478,7 @@ magnet:?xt=urn:btih:5304F5EFE5EFB6F219FF204235F05317E510ADC5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133387.jpg" />
 </div>
 
 
@@ -428,7 +502,7 @@ magnet:?xt=urn:btih:D89D3BAA5119F095A8C45DE5D9DA6ED79515ACB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133388.jpg" />
 </div>
 
 
@@ -454,7 +528,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133389.jpg" />
 </div>
 
 
@@ -480,7 +554,7 @@ magnet:?xt=urn:btih:EEAE76D9FE36B62EF01C06D41DCA3A9A528B9906
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133390.jpg" />
 </div>
 
 
@@ -504,7 +578,7 @@ Transcend SSD Scope 4.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133391.jpg" />
 </div>
 
 
@@ -529,7 +603,7 @@ magnet:?xt=urn:btih:5690896256C226C56C28FEFAA1A2193A3FEFCDA4
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133392.jpg" />
 </div>
 
 
@@ -555,7 +629,7 @@ Shotcut 23.11.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133393.jpg" />
 </div>
 
 
@@ -566,80 +640,6 @@ Shotcut - мощное кроссплатформенное приложение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C9CD49E7BBD3AA31F0313BC749CF90A18550ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680990   (133395) от 01.12.2023
-
-Строительство Ватикана: секреты Священного города / Building the Vatican: Secrets behind the Holy City (2021) HDTVRip
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его площадь составляет менее 500 квадратных метров... Хотя Ватикан представляет собой микро территорию, менее чем за 2000 лет он стал не только духовным маяком для 1,3 миллиарда католиков, но и исключительным сокровищем мирового наследия. И подумать только, изначально это место было практически пустым... Все было построено вокруг важнейшего места: гробницы апостола (   Читать дальше...   )Производство: Франция, RMC ProductionЖанр: документальный, история, архитектураРежиссер: Абдель МостефаПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C578394C681110F13B839FA1373507AD69BC59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594023   (133396) от 26.12.2012
-
-Samsung Kies v2.5.1.12123 Multi/Rus
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Samsung Kies - это программа, предназначена для синхронизации работы мобильных устройств Samsung с компьютером. Обмен данными происходит по USB-интерфейсу или по беспроводному каналу — Wi-Fi
-Программа Kies позволяет просматривать и прослушивать различное содержимое, хранящееся на мобильном телефоне, в проигрывателе MP3, цифровом фотоаппарате, видеокамере и т.д., а также музыкальные файлы, файлы фотографий и видеофайлы, хранящиеся на компьютере. Кроме того, программа позволяет размещать фотографии и видеофайлы в Интернете и показывать их своим друзьям без выполнения нудного процесса входа на сайт.
-В дополнение к перечисленным функциям программа Kies импортирует на компьютер номера телефонов, сообщения, расписания и заметки, хранящиеся на мобильном телефоне, благодаря чему пользователь может хранить важные личные данные и управлять ими на своем компьютере.Название программы: Samsung KiesЯзык интерфейса: Multi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680925   (133397) от 01.12.2023
-
-Ms. Holmes 5: The Milverton Plot (2023) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Ms. Holmes. Шарлотта Холмс всегда гордилась тем, что пошла по стопам своего знаменитого дяди. Однако в одной из газет появилась статья, поставившая под сомнение ее репутацию! Таинственный информатор утверждает, что располагает доказательствами того, что великий Шерлок Холмс на самом деле был преступником-мошенником. Неужели он и (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE8AD1D38133EB8AEDEFF8D1E29A8A8BD51BEB0
 ```
 
 

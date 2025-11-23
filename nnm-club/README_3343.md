@@ -1,3 +1,84 @@
+###  Публикация: 1736923   (106600) от 14.07.2024
+
+Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live at Westonbirt Arboretum, New 2023 Mix) [00:01:36]
+02. Caroline (Live at Westonbirt Arboretum, New 2023 Mix) [00:04:44]
+03. The Wanderer (Live at Westonbirt Arboretum, New 2023 Mix) [00:02:48]
+04. Rain (Live at Westonbirt Arboretum, New 2023 Mix) [00:06:06](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 01:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B691CA49EA3CFB82FA7E645CB4F5E39CC3F6E27E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736498   (106601) от 14.07.2024
+
+Слава Благов - Первый (2024) [MP3|320 Kbps] <Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Такая хорошая [00:03:27]
+02 - Она любила виски [00:03:08]
+03 - Соседи [00:04:20]
+04 - Голос кубинских улиц [00:04:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96B992DA4AAEB1395F95119749376B189EFE215
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736967   (106602) от 14.07.2024
+
+VA - Nothing But... Trancetopia Vol. 16 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starry Major - Find My Dream (Radio Edit) [4:08]
+02. Aladdim - Revelando Reinos (Original Mix) [6:59]
+03. Montxo & Julio Posadas - XYN (Original Mix) [6:12]
+04. Henry Gao - Ataraxia (Extended Mix) [6:46](   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEDA84FF4FE792AFC2BB7919D635994C01EB3FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736983   (106603) от 14.07.2024
 
 The Chronicles of Father Robin - The Songs & Tales Of Airoea - Book III: Magical Chronicle (2024) [FLAC|Lossless|tracks + .cue] <Prog Rock>
@@ -6,7 +87,7 @@ The Chronicles of Father Robin - The Songs & Tales Of Airoea - Book III: Magical
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106603.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Jimmy Page - Ohio (2021) Remaster, 2024, gOLDfISh reCORds [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106604.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ EarthView 7.9.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106605.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Reface: Face Swap AI Generator v4.16.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106606.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ magnet:?xt=urn:btih:97C31048A97DA3D1B714F627DB869B03C5DD1A6B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106607.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ Mega NRG Man - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Hi NRG, Italo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106608.jpg" />
 </div>
 
 
@@ -159,7 +240,7 @@ magnet:?xt=urn:btih:EF3AEA28607BC69D1A554F3A754B45659E4AE886
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106609.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ YT Downloader 9.9.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106610.jpg" />
 </div>
 
 
@@ -210,7 +291,7 @@ VA - Italia - Dance Music From Italy (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106611.jpg" />
 </div>
 
 
@@ -237,7 +318,7 @@ magnet:?xt=urn:btih:8BAF77A4B1B854B6D9BF1FCC221CEAAB1793AEB4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106612.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ magnet:?xt=urn:btih:126A878C9635BB71C1254AE61E0DD4185FBE3267
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106613.jpg" />
 </div>
 
 
@@ -285,7 +366,7 @@ magnet:?xt=urn:btih:6553B7D8588BB80C2632758C53D8F4EEFF7626E2
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106614.jpg" />
 </div>
 
 
@@ -312,7 +393,7 @@ VA - Ibiza 2024 - Armada Music [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106615.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ magnet:?xt=urn:btih:62FBCE58C4038552E312F872ECE9C54F0F38DA17
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106616.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0713) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106617.jpg" />
 </div>
 
 
@@ -390,7 +471,7 @@ Photo Lab PRO v3.13.17 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106618.jpg" />
 </div>
 
 
@@ -414,7 +495,7 @@ Testament - The New Order (1988) Remastered, 2024, Nuclear Blast [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106619.jpg" />
 </div>
 
 
@@ -441,7 +522,7 @@ Testament - The Legacy (1987) Remastered, 2024, Nuclear Blast [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106620.jpg" />
 </div>
 
 
@@ -468,7 +549,7 @@ Phish - Evolve (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Psy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106621.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Grand River and Abul Mogard - In uno spazio immenso (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106622.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ Chris Avantgarde - Live @ Seismic Dance Event Spring Edition (The Concourse Proj
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106623.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ Travis - L.A. Times (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soft rock, Britp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106624.jpg" />
 </div>
 
 
@@ -576,7 +657,7 @@ magnet:?xt=urn:btih:E49116F861BBD5FB6B7693B46AD7EBA10CCE7A84
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106625.jpg" />
 </div>
 
 
@@ -587,83 +668,6 @@ magnet:?xt=urn:btih:E49116F861BBD5FB6B7693B46AD7EBA10CCE7A84
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E105D5895BB4E3C78CD625683FDCB380CB8FDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736701   (106626) от 13.07.2024
-
-Фрэнсис Бёрнетт | Таинственный сад (2012) [MP3, Галина Чигинская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Лучшее - детям.
-Фрэнсис Элиза Бёрнетт (1849–1924), англо-американская писательница.
-Тяжело остаться без родителей, особенно когда тебе всего десять лет, окружающие тебя не любят и ты тоже ненавидишь чуть ли не весь белый свет. Кажется, ничего хорошего в этой жизни уже не будет. Но будто сама судьба протягивает героине книги спасительную руку и выводит (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, романИздательство: Аудиокнига (АСТ)Продолжительность: 06:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FA23099326816C871072B74B0E9800846AB12E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736669   (106627) от 13.07.2024
-
-Seth - La France des Maudits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris des Maléfices (5:09)
-02. Et Que Vive le Diable ! (5:35)
-03. La Destruction des Reliques (5:51)
-04. Dans le Coeur un Poignard (5:43)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D07DC24DD3EA83C5C8E4CDD5EF0F507F91DD82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736655   (106628) от 13.07.2024
-
-Алекс Коваль | Счастье с доставкой на дом (2022) [MP3, Ева Ларина]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь бизнесмена Романа Бурменцева – сплошная череда встреч, совещаний и командировок. Ни семьи, ни детей, ни праздников в его системе координат не существует. А уж тем более чуда! Но одна волшебная ночь за неделю до Нового года в корне перевернёт его жизнь. Когда нелепое желание, загаданное в супермаркете, неожиданным образом исполнится в самые кратчайшие сроки. (   Читать дальше...   )Жанр: Современные любовные романыИздательство: ИДДКПродолжительность: 15:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA84517484FC8D06729233514748C03049D69898
 ```
 
 

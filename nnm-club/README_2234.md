@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58449.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0109A395E8EBB67E2EEFDFB86BB232970CFC5245
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58450.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:994F9802C982E8E1B5CB6E477A06C363292AA4D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58451.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Royal Order (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58452.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58453.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Luminar Neo 1.19.0.13323 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58454.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ WinRAR 7.01 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58455.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F3493F8C8043BB149AE2449E236999C7248476CD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58456.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:83F6CB29A9865C613BF13DDFCDF77EFB97513224
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58457.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Pepper Grinder (2024) [Ru/Multi] (392-full_release) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58458.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:EDB333FD31E1C6FB20F21832524827C941810397
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58459.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Spine 2D Pro v3.8.75 x64 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58460.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:79149227A372A052545C9632C547E5AD1D888FB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58461.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:CC516FDC954FB2FA721FCDF4D1A29FF85BA85083
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58462.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Topaz Photo AI 3.0.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58463.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9298128686BF86D3BC7763E7BAEBFD11A6C5BB27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58464.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:3A469DBFC10BC468D785F2C0AC94AB464C0E2B54
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58465.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58466.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:2AFB3297C3F01369A44684B8643604EB01A0AB2E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58467.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ PowerISO 8.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58468.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:D170C503E50B0C768915C5BCC87135E7200D68ED
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58469.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:EAF5EB080E4F1D6D34CCA36939FB3F5B236543BC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58470.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:1752292EC4163193FDD609898591CDF1A7DFDC83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58471.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Foxit PDF Editor Pro 2024.2.0.25138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58472.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:D577B938E05A0A7E3F376109ECA71627840EBB5F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58473.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ ACDSee Photo Studio Ultimate 2024 17.1.0.3778 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58474.jpg" />
 </div>
 
 

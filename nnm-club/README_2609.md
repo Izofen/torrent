@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68582.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BC404E35065CE7D271E4ABEA5F42916551CA9062
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68583.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:39C08BE53445E7A4A850C4213669E8E96D587A4A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68584.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Ancient Silence - The 1st Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68585.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:6AF11D269BCBC80F589241A19A05452591593EF6
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68586.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Dear Reality - dearVR PRO 2 2.1.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68587.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Covered in Hits - A Tribute to Modern Talking (2010) [MP3|320 Kbps] <Euro-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68588.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Dear Reality - dearVR MIX 1.17.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68589.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Santana - Sentient (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68590.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:9391CA0802FE0AE511925F1079E70A803F03253B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68591.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:31523CD0EE6F70189DAFE40FBD4C8DF8BC943BCB
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68592.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Milk & Sugar Miami Sessions 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68593.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Ancient Silence - The 1st Album (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68594.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68595.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:997305471A5AE30EF150B4697C7C8AF8E76C561F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68596.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - I Love ZYX Italo Disco Collection 15 (2013) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68597.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Ariana Grande - eternal sunshine deluxe: brighter days ahead (2024) brighter day
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68598.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:AF9EA5CB44C675E8C8D25BC76E06A71D18EAF3FD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68599.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ PowerDirector – Video Editor v15.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68600.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:B2872EFB7D3E7E680300CE91A9D0CF2BC724DE7A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68601.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ PrivaZer Pro 4.0.104 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68602.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:5C957FD36A8BFC302C866CA202C0898E77C78C46
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68603.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:2D49305828FA4DD34B237BB7DCD948244E557C61
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68604.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ant Download Manager Pro 2.15.2 Build 8951 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68605.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:3402071BA31F0DEF295C16C4AEEBB177DFCA225B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68606.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ PrivaZer Pro 4.0.104 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68607.jpg" />
 </div>
 
 

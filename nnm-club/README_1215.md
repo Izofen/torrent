@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31943.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AD7DAF15E86D6A3B824D536D134BCA27E5F2F1E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31944.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack seleZen [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31945.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0499B81AD5AE6F0A309969DB06618D741CC2BDC0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31946.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.6.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31947.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Graph Messenger (Telegraph) vT11.5.3 - P11.16.2 Mod by NNN x RBMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31948.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31949.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Garry's Mod (2006) [Ru/Multi] (Build 162138607) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31950.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31951.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Tangerine Dream - One Night In Africa (2013) [MP3|320 кб/с]<Traditional Elect
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31952.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5D257812B45FA5A0A324498D22A224A1BF907BF1
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31953.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31954.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:D9AF039FAA9D8395E94A8F49A0F88275EFF094AE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31955.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:E7385BA17FA1B3BD1E890FA2275B9CFEB21EEC1D
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31956.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:52BB11365B69C87DBD4B7F70FDA7D7E10CDA2F2F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31957.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:6C4946F789314F08AC5B3776600351F0B55904E9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31958.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:B7606FCE5221F3B5D08C839B23A91F6F1FAD4763
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31959.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31960.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:DAC3D5C4CFFA9D2BF5120B33CDC034515DC9817C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31961.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PurpleSchool, Антон Ларичев | Продвинутый Golang (2024) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31962.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Основы Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31963.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:81C2BCF793DD718562E8B2FD9ED90F07FBD03C5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31964.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Kaspersky Small Office Security 21.19.7.527 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31965.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:CD1B81FE8FC0EAAE7C81CA603098750F58396448
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31966.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:B74A5AAD442084F1A33F5BA8D0E8C4E46FC1DC72
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31967.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31968.jpg" />
 </div>
 
 

@@ -1,3 +1,99 @@
+###  Публикация: 1629467   (238364) от 26.04.2023
+
+Знакомимся с сурикатами / Meet the Meerkats (2020) WEB-DLRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Храбрая стая борется за выживание: в семье сурикатов заботятся друг о друге. В пустыне много опасностей. Одной молодой самке приходится нелегко, ведь она осталась бездомной. Ей придется примкнуть к другой группе, потому что только вместе эти маленькие хищники могут выжить...Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4722A23F7E6482D9AA3D23DD203E53E32BAC088D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629465   (238366) от 26.04.2023
+
+Знакомимся с сурикатами / Meet the Meerkats (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Храбрая стая борется за выживание: в семье сурикатов заботятся друг о друге. В пустыне много опасностей. Одной молодой самке приходится нелегко, ведь она осталась бездомной. Ей придется примкнуть к другой группе, потому что только вместе эти маленькие хищники могут выжить...Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E38B89F1F3B77175080FA8FBEDB8633D375843
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629489   (238384) от 26.04.2023
+
+Животные, изменившие мир (Лошадиная сила) (2022) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Табун лошадей, мчащихся по бескрайней степи — одно из самых красивых зрелищ в природе. Лошадь — живой символ неукротимой свободы, мощи и скорости. Но человеку удалось приручить это стремительное и вольнолюбивое создание. Давайте заглянем вглубь веков и узнаем, как лошадь стала нашим союзником и спутником. И почему она по праву называется животным, изменившим мир.Производство: Россия, ЕМГЖанр: документальный, научно-познавательныйРежиссер: Илья ЦыгановЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59E526A9706A9B2C434BE97E37774F7B013E828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637337   (238439) от 03.06.2023
+
+Список желаний. Южная Америка / Bucket List: South America (2020) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это один из самых больших континентов полный возможностей для исследования. Реки рекордсмены. Самые длинные горы. Крутые водопады. И самые большие тропические леса. На таком разнообразном ландшафте обитает бесчисленное количество видов. У каждого своя изюминка. Крупные грызуны, выдры и попугаи. Уникальные птицы, млекопитающие, пресноводные дельфины, а также потрясающие (   Читать дальше...   )Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Фил КоулзПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CCF546BB63A1DD8397B8F90E9ACFC7BD99537C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580107   (238456) от 30.09.2022
 
 Дикая природа Африки / Wildlife Mosaic (1994) VHSRip [H.264]
@@ -6,7 +102,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238456.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238456.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ magnet:?xt=urn:btih:AFCAEE1BAB043A9725FCCB4CCBA4588ADED5F9A9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238501.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238501.jpg" />
 </div>
 
 
@@ -54,7 +150,7 @@ magnet:?xt=urn:btih:E3FC452F734E61AA1FC4BCC0E419217D695E7310
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238510.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238510.jpg" />
 </div>
 
 
@@ -78,7 +174,7 @@ NG. Львиная династия / Lion Dynasty (2021) HDTVRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238662.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238662.jpg" />
 </div>
 
 
@@ -102,7 +198,7 @@ magnet:?xt=urn:btih:A8C01834BC89058C63438B17C876A6FAC1CDF244
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238671.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238671.jpg" />
 </div>
 
 
@@ -126,7 +222,7 @@ RTG. Птицы Юго-Запада Сибири (2012) HDTV [H.264/1080i]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239149.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239149.jpg" />
 </div>
 
 
@@ -150,7 +246,7 @@ magnet:?xt=urn:btih:956DF808376417876ECE39D474646EA5B40B1AB3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239279.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239279.jpg" />
 </div>
 
 
@@ -174,7 +270,7 @@ magnet:?xt=urn:btih:D3B232496CB451CFE52A6D983640618D13B0050C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239281.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_239281.jpg" />
 </div>
 
 
@@ -198,7 +294,7 @@ magnet:?xt=urn:btih:E1EB5CC9D30E92B1785CC4BCDDDA4A9C2C6318E0
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239632.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239632.jpg" />
 </div>
 
 
@@ -222,7 +318,7 @@ magnet:?xt=urn:btih:3437715827B0FA6421AB08E0833F42681A62FD8D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240038.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240038.jpg" />
 </div>
 
 
@@ -246,7 +342,7 @@ magnet:?xt=urn:btih:CBE651E6152641B91902E389CE1D59CA6B238EDD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240041.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240041.jpg" />
 </div>
 
 
@@ -270,7 +366,7 @@ magnet:?xt=urn:btih:ED1DE472D20BAF63D57DCBB39275A164996F1D03
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240054.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240054.jpg" />
 </div>
 
 
@@ -294,7 +390,7 @@ magnet:?xt=urn:btih:F010D4FDB8C529AA77BA724FFEAF2A12FB420677
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240069.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240069.jpg" />
 </div>
 
 
@@ -318,7 +414,7 @@ magnet:?xt=urn:btih:EC229105EEBEAE1548D83554F24AABE6DD91066F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240096.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240096.jpg" />
 </div>
 
 
@@ -342,7 +438,7 @@ magnet:?xt=urn:btih:24B56FB5648B1CDE7E049B8C850E3224964E3460
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240117.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240117.jpg" />
 </div>
 
 
@@ -366,7 +462,7 @@ magnet:?xt=urn:btih:C03DC8B9A8A47A32661A5858563037702ED7021B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240260.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240260.jpg" />
 </div>
 
 
@@ -390,7 +486,7 @@ magnet:?xt=urn:btih:513560CD86ACC729F29216F4693A0A89A234D790
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240400.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240400.jpg" />
 </div>
 
 
@@ -414,7 +510,7 @@ magnet:?xt=urn:btih:EB41FE7C2A68E21BEE0CD7D9E5ABBA311457BAB5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240831.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240831.jpg" />
 </div>
 
 
@@ -438,7 +534,7 @@ magnet:?xt=urn:btih:A230B38773489E8220303AA2590BA0D549294C99
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240921.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240921.jpg" />
 </div>
 
 
@@ -462,7 +558,7 @@ Viasat Nature: Самые ядовитые животные мира / World's M
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241222.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241222.jpg" />
 </div>
 
 
@@ -486,7 +582,7 @@ magnet:?xt=urn:btih:C031AC66134DEBB16F79EF77B13D9C7DC0E234DD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241338.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241338.jpg" />
 </div>
 
 
@@ -510,7 +606,7 @@ magnet:?xt=urn:btih:4A06AE38B427A44CDCD9BA2FA09F8A148632EBB8
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_241927.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_241927.jpg" />
 </div>
 
 
@@ -521,102 +617,6 @@ magnet:?xt=urn:btih:4A06AE38B427A44CDCD9BA2FA09F8A148632EBB8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E31F7BE5B9D124E79871433E6F748BC8C00D95C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628623   (241980) от 23.04.2023
-
-Тибет: крыша мира / Tibet: Roof of the World (2019) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к нам в изучении самых высоких горных плато на Земле. От тибетских волков до антилоп чиру, мы узнаем, как удивительным животным удается процветать на крыше мира.Производство: Австралия, Infocus Asia PTE LTDЖанр: документальный, природа, флора, фаунаРежиссер: Карен Басс, Дэвид МарксПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95DD055EA334F8A6B58A27E78AE04EEBDAF7D82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628602   (242068) от 23.04.2023
-
-Жизнь пчелы / A Bee's Diary (2020) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя мир медоносной пчелы Виннифрид! В течение альпийской весны и лета фильм рассказывает о двух пчелах, которые собирают еду, разведывают и сражаются с захватчиками - каждая со своим поведением и индивидуальностью. Эта волнующая картина отражает красоту и сложность мира пчелы, проблемы, с которыми она сталкивается, и решения, которые ей предстоит принять. (   Читать дальше...   )Производство: Германия, aglicht media, handful of filmsЖанр: документальный, природа, флора, фаунаРежиссер: Деннис УэллсПеревод: одноголосый профессиональный (1 ТВЧ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D6C0F814846BBDD2005D986730801588E6ABA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628613   (242103) от 23.04.2023
-
-Снежный барс и его друзья / Snow Leopards and Friends (2021) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о жизни новорожденных детенышей снежного барса и животных, которые учат и защищают их в годы становления. Дружба, сотрудничество и забота в мире снежных барсов очень важны.Производство: Австрия, Китай, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Си ЧжинунПеревод: одноголосый профессиональный (Iyuno-SDI Group Russia)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B190109A9E0A11EB72498D59AE336967B84F1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628606   (242119) от 23.04.2023
-
-Тайное обезьянье царство в Китае / China's Secret Monkey Kingdom (2020) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холмы Китая - это последнее убежище самых редких приматов в мире - белоголовых лангуров. В дикой природе их осталась всего 1000, и сериал рассказывает об их общественной жизни.Производство: Китай, Mandarin Film, Earth TouchЖанр: документальный, природа, флора, фаунаРежиссер: Бенджамин ХьюиттПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C273A6FEFEF28173EBD57773F229B68FFB9F64
 ```
 
 

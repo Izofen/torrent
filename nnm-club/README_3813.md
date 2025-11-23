@@ -1,3 +1,75 @@
+###  Публикация: 1697531   (118820) от 07.02.2024
+
+Смеющаяся смерть / The Laughing Dead (1989) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группе туристов, приехавших в Мексику, выпадает шанс увидеть фольклорный фестиваль «Смеющаяся смерть». Казалось, ничто не предвещает беды. Но мистическая земля древних Майя преподносит свои жуткие сюрпризы. Тысячи лет назад богине смерти Ацтеков принесли в жертву всё человечество. И вот она вернулась... Здесь нелегко сохранить жизнь, ещё труднее сохранить разум.Производство: США / Skouras PicturesЖанр: ужасыРежиссер: Сомтов СучариткулАктеры: Джои Аседо, John Anthoni, Хэнк Азкона, Брюс Барлоу, Джордж Барнетт, Эдвард Брайант, Майкл Бустаманте, Matt Demeritt, Премика Итон, Ryan EffnerПеревод: Двуголосый профессиональный (Дмитрий Полонский и Елена Соловьёва)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF920156058BE3658590364D5DDD2AD60FA77146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692031   (118821) от 07.02.2024
+
+Гора девственности / Fusi / Virgin Mountain (2015) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118821.jpg" />
+</div>
+
+
+###  Подробнее
+
+43-летний мужчина всё ещё живёт со своей матерью. Он, словно в спячке, идёт туда, куда его ведёт монотонная жизнь. Появление деятельной Альмы и 8-летней Херы нарушает его холостяцкие привычки...Производство: Исландия, Дания / Blueeyes Productions, Nimbus Film ApS, RVK StudiosЖанр: драмаРежиссер: Дагюр КауриАктеры: Гуннар Йонссон, Ильмюр Кристьяунсдоуттир, Сигюрйоун Кьяртанссон, Маргрет Хельга Йоханнсдоттир, Аднар Йоунссон, Торстейнн Гуннарссон, Фридрик Тоур Фридрикссон, Вальтер ГримссонПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, исландскийСубтитры: русские (два варианта), английскиеПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E634C4A2E12650C4D82C7E56664D27A78551EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697705   (118822) от 07.02.2024
+
+Capture One 23 Enterprise 16.3.5.1929 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACB7AB2E1907C248E280E9C27B2A5B337E8CC29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694677   (118823) от 07.02.2024
 
 Рим в 11 часов / Roma ore 11 / Roma ore undici (1952) DVBRip [H.264]
@@ -6,7 +78,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118823.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:690C7069F4D2FF9AB672DCBC9C6FAD6777A6433E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118824.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:D10112250A07C810A1B5EA96A05ECD53B5CD00DB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118825.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:60DE2B76FB73800AAD089268458167C2759BCF0A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118826.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:79A8780F6FE9B0BD4C722644912E6FA6144FA650
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118827.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:89E7291A5673A24A3E68B00467936F2B8C451250
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118828.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:FE35E2EC0CBB5A07CC42B0C89B7065913A8037A4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118829.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ ES File Explorer File Manager v4.4.2.1.1 Premium by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118830.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:A505A2191E2D5AAD5C8A1A60C320D4B949AB5AEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118831.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Lucy - The Eternity She Wished For (2016) [Ru/Multi] (v.1.05) Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118832.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:E7027AFEB04AB6257C79D81C415230DE62912928
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118833.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Google Chrome 121.0.6167.161 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118834.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Winaero Tweaker 1.60.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118835.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ AVS Media Player 5.6.4.158 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118836.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ The Great Rebellion (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118837.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ magnet:?xt=urn:btih:9AFEA1F08DA9608C6CF16B0B1B5C2BEE73866309
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118838.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ magnet:?xt=urn:btih:9AFEA1F08DA9608C6CF16B0B1B5C2BEE73866309
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118839.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:E812211119F8B3E41DB09811008E66D464038F62
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118840.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ magnet:?xt=urn:btih:3F9442F64071F345986CA5E22DC7A75137347770
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118841.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118842.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ magnet:?xt=urn:btih:21DD79A792F217BBD3B3292493C1FB9354C18B36
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118843.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:2AA20DB0C43EBF0026734653382EBE6EA84890ED
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118844.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:2B8F142D3C61E27F1A542DAE0AB25346443C9399
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118845.jpg" />
 </div>
 
 
@@ -551,80 +623,6 @@ magnet:?xt=urn:btih:2B8F142D3C61E27F1A542DAE0AB25346443C9399
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0108AD81BAD16FC7623C6C1CCE325D633540B875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697605   (118846) от 07.02.2024
-
-ReviverSoft Driver Reviver 5.43.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Reviver – это приложение, которое просканирует вашу систему на предмет устаревших драйверов и предложит их обновить. Сканирование производится по одной из самых больших баз драйверов, что гарантирует поддержку очень многих устройств. С использованием Driver Reviver все ваши устройства ПК будут работать максимально быстро и эффективно. Устаревшие драйвера могут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C05672997994F0ED9B04D2A6E38F95AF2B87BB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697558   (118847) от 07.02.2024
-
-Американское чтиво / American Fiction (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известного писателя и профессора литературы Телониуса «Монка» Эллисона критикуют за то, что его работы «недостаточно чёрные». В попытке завоевать внимание аудитории он пишет анонимный роман, вобравший в себя все стереотипы о темнокожем населении США. Книга моментально становится сенсацией, и теперь Монку придётся лично мириться с масштабными последствиями.Производство: США / 3 Arts Entertainment, Media Rights Capital, Metro-Goldwyn-Mayer (MGM)Жанр: драма, комедияРежиссер: Корд ДжефферсонАктеры: Джеффри Райт, Трэйси Эллис Росс, Исса Рэй, Стерлинг К. Браун, Джон Ортис, Эрика Александр, Лесли Аггамс, Адам Броди, Кит Дэвид, Окьерете ОнаодованПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072A0E98C8BB9D39EE2759CA26E824EA6F913B20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697657   (118848) от 07.02.2024
-
-Олег Сапфир, Алексей Ковтунов | Идеальный мир для Лекаря (Книга 7) (2024) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории про лекаря из другого мира.
-Нет смысла пересказывать в аннотации события из предыдущей части.
-Да и спойлерить, что будет в этой не буду...Жанр: Боевое фэнтези, Бояръ-АнимеИздательство: Author TodayПродолжительность: 07:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4523CADED4BA2B38968810F40B7F53CEC77F27AB
 ```
 
 

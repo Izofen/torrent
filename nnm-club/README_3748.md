@@ -1,3 +1,75 @@
+###  Публикация: 1700541   (117130) от 17.02.2024
+
+Последний наёмник / In the Land of Saints and Sinners (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный наемный убийца Финбар решает, что он уже не так хорош и ему пора отойти от дел. Но однажды в город, где он залег на дно, наведывается банда и начинает беспредел. Финбару ничего не остается, как встать на сторону правосудия и снова взяться за оружие. И на этот раз он рискует не только собой, но и всеми, кто ему дорог.Производство: Ирландия / Facing East Entertainment, Jumpy Cow Pictures, London Town FilmsЖанр: боевик, триллер, криминалРежиссер: Роберт ЛоренцАктеры: Лиам Нисон, Керри Кондон, Джек Глисон, Киран Хайндс, Сара Грин, Колм Мини, Десмонд Иствуд, Нив Кьюсак, Конор Макнил, Шеймус О’ХараПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full), английские (Full, SDH)Продолжительность: 01:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29D00CD3AFF2FE6CE3D1674367F3927C3CA87F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700589   (117131) от 17.02.2024
+
+Adguard for Mac 2.13.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2023Разработчик: © 2022 AdguardПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4953A3733173E2FFE087C627A2602C9321594AB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700561   (117132) от 17.02.2024
+
+Бешеные псы / Reservoir Dogs (1992) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это должно было стать идеальным преступлением. Задумав ограбить ювелирный магазин, криминальный босс Джо Кэбот собрал вместе шестерых опытных и совершенно незнакомых друг с другом преступников. Но с самого начала все пошло не так, и обычный грабеж превратился в кровавую бойню.Производство: США / Dog Eat Dog Productions Inc., Live EntertainmentЖанр: Криминал, драма, триллерРежиссер: Квентин ТарантиноАктеры: Харви Кейтель, Тим Рот, Майкл Мэдсен, Крис Пенн, Стив Бушеми, Лоуренс Тирни, Рэнди Брукс, Кирк Балц, Эдвард Банкер, Квентин ТарантиноПеревод: Дублированный, профессиональный (многоголосый, двухголосый закадровый), авторский (одноголосый, закадровый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (full x4), английские (full, SDH)Продолжительность: 01:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F941422BDB6EE77D5726438006649A3BAAB5DB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700494   (117133) от 17.02.2024
 
 После потопа / After the Flood (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) ColdFilm
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117133.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ DNS Changer - Secure VPN Proxy v1321-2r Pro Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117134.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:2C5E05CD58886104060EE55AFDC27D4B844B45F8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117135.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:81B0594CBCCFC384C0A61FFFF228801BFFBD67BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117136.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Idles - Tangk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117137.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ WeatherCat for Mac 3.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117138.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:1444F8681EA7F7F40DEAD2CE0480C2D93E94ACFD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117139.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ Fork 2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117140.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ Svend Asmussen - Spotlight (1991) Sonet [FLAC|Lossless|tracks + .cue] <Swing, Vi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117141.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117142.jpg" />
 </div>
 
 
@@ -259,7 +331,7 @@ magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117143.jpg" />
 </div>
 
 
@@ -283,7 +355,7 @@ NCH DreamPlan Plus for Mac 9.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117144.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ Donald Byrd & Kenny Burrell - All Night Long (1956) 2003, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117145.jpg" />
 </div>
 
 
@@ -337,7 +409,7 @@ Ray Drummond - Excursion (1993) Arabesque Jazz [FLAC|Lossless|image + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117146.jpg" />
 </div>
 
 
@@ -364,7 +436,7 @@ GoodTask 7.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117147.jpg" />
 </div>
 
 
@@ -389,7 +461,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117148.jpg" />
 </div>
 
 
@@ -413,7 +485,7 @@ David Aubaile - Trafiquants (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117149.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ The Barry Harris Sextet - Luminescence! (1967) 1997, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117150.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ Boinx FotoMagico Pro 6 v.6.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117151.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:454EC67DC28CCA462422BED3BEE1BDD1A08F66F9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117152.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ VA - Armin van Buuren - A State Of Trance 1160 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117153.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ magnet:?xt=urn:btih:159986631C01B6348E3ECFA6E58A509F2C535DBC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117154.jpg" />
 </div>
 
 
@@ -573,7 +645,7 @@ Sip Pro 3.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117155.jpg" />
 </div>
 
 
@@ -585,84 +657,6 @@ Sip Pro 3.3.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09EFC3618E401E93DB30C3BF72B6229009BB4156
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700362   (117156) от 16.02.2024
-
-GraphicConverter 12 for Mac 12.1 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117156.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2024Разработчик: © 2024 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AC54EAE48089DD2C9114B31426995ACCACAD17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700443   (117157) от 16.02.2024
-
-Von Hertzen Brothers - Live At Tavastia (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Day Of Reckoning
-02 - Blue Forest
-03 - The Promise
-04 - Frozen Butterflies(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23949EF5745A4F5DD5B17BCB93154CA3F4DC5C7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700287   (117158) от 16.02.2024
-
-Art Of Anarchy - Let There Be Anarchy (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Hard
-02. Echo Your Madness
-03. Vilified
-04. Bridge Of Tomorrow(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275041633601C11D6B92A7A45493A8CA24782329
 ```
 
 

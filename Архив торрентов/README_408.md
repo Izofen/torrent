@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96561.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Chillout Sessions XIV (2011) [MP3|320 кб/с]<Chillout / Downtempo / Lo-Fi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96562.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Abrosoft FantaMorph Deluxe 5.3.1 Portable [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96566.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96566.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FantaMorph - программа для создания анимированны
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96575.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96575.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Ibiza Chill Session (2011) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96576.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ VA - 538 Dance Smash 2011 vol.1 (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96580.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96584.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Adam Nitti - Liquid Blue (1995) [FLAC|Lossless]<Fusion>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96589.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96589.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ UCS - No Rules (2012) [MP3|~205 кб/с (V1)]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96594.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - White Night vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96599.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - Best of Club 2012 (01.03.2012) [MP3|320 кб/с]<Progressive House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96601.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:4E433909D87916BC813A1AB19036876FAE18FDB6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96603.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Black Light Discipline - 2 albums (2008, 2012) [MP3|320 кб/с]<Industrial Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96609.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Лучшая 100ка - Хитовый взрыв 4 50/50 (2012) [MP3|256 к
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96610.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Freemake Video Converter 3.0.1.25 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96612.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96612.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Freemake Video Converter – это бесплатное универсальн�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96617.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:8980D92EBD5BC6D4FAD0F0EC5A5B9826EBC6A489
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96624.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96624.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Hornil StylePix 1.9.0 [Многоязычный (включая Английск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96628.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96628.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ StylePix - это составное слово, которое содержит
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96635.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ WinISO Standard 6.1.0.4454 Portable by BALISTA [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96639.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96639.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ WinISO Standard — новая версия мощного и многофунк
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96657.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96657.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Big Air Vol. 2 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96659.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - 538 Dance Smash 2011 vol.3 (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96675.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - 538 Dance Smash 2011 vol.2 (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96679.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ magnet:?xt=urn:btih:8ECC8B50FBC7AB43106C5B8F7F87B3AD1D3A2D0B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96685.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ magnet:?xt=urn:btih:FE22E0373C3C8F360BF93670712C3B7796BF89E0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96694.jpg" />
 </div>
 
 

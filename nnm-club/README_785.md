@@ -6,7 +6,7 @@ VA - National Pop Dance Music Vol.104 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20736.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20736.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AD0F70FD487E5E9E1347DFB0A9836085DC5A6FFB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20737.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:B2AF4570CFDF498B21429201AE975AEA4C1C0676
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20738.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20738.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Mensla - Stereo Tool 1.1 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20739.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20739.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:857BAD5620EA0B08EA377076F069C924EEE86D1E
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20740.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:970B966447377FC3B014C6E353F7A4FAB7CDCB10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20741.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20741.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E183B717D283BEF3D3F849DFBB84FD55978FA27F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20742.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20742.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.1 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20743.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20743.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:678EB18BC3E737322AB424312B94810D104287A1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20744.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20744.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ UALinux CyberPack FaP 22.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20745.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20745.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Block Fortress 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20746.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20746.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:074D55033DA685248D6D5864EC91DBE56C085D85
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20747.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20747.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Jetbrains WebStorm 2025.1 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20748.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20748.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:C1F214EEC29D4F90E99E4E2CB861326FCEA24989
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20749.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20749.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10/dlc) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20750.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20750.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A815FDB59357477DC9972C77A11BA414B5BAD9F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20751.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20751.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:16CAC0E7E3473F1DFB1B33BE28F15976AF522919
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20752.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20752.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:16CAC0E7E3473F1DFB1B33BE28F15976AF522919
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20753.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20753.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:FA822D782337DEBA227C06E41FBB120C0893D7FC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20754.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20754.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:2297A2104E078E53A7ED25C0EA9DBD9E04C24B0A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20755.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20755.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:C95B2C90370268C9EA6BFB005BC462366200B257
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20756.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20756.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ JetBrains DataGrip 2025.1 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20757.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20757.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Derail Valley Simulator (2019) [Ru/Multi] (Build 99.4) Repack Other s [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20758.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20758.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:7C415F23C63ED5F98EAE3E292A8FDD0C226A0E50
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20759.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20759.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:D9F423926730CAA364D91797A1E2198776E22EE1
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20760.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Subverse (2018) [En] (1.1.1) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20761.jpg" />
 </div>
 
 

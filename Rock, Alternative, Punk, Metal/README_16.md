@@ -6,7 +6,7 @@ Sign of the Wolf - Sign of the Wolf (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20488.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20488.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Baron Rojo - Las Aventuras Del Baron (25 Aniversario) (2006) 2 x CD, Compilation
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20688.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Whipstriker - Cry of Extinction (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20697.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20697.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Epica - Aspiral (2025) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20992.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20992.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eagles - Hotel California (1976) Japanese Edition, Reissue, 1988, Asylum Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20998.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:F9073CE11D02C35D63740EA04DBFD3D86896D002
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20999.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:90084B497E7883406B5D5DA9E6100F7A303C9EA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21000.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:8851C278A5BE557528B61F46907253E8D7EAB459
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21046.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21046.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Enticer - Second Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21202.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21202.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Top Indie Rock Mix Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21207.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21207.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Todo Rock! 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21209.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21209.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - April is Rock 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21210.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21210.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Slaughter the Giant - Asylum of the Damned (2019) EP [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21218.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21218.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Black Sabbath - The Legendary California Jam, 1974 (2025) Live [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21302.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21302.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Охота! 87 (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21308.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Guns N' Roses - Greatest Hits Live Broadcast Collection (2025) Live [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21417.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alice Cooper - Original Album Series (2012) Box Set, 5xCD, Reissue, Warner Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21418.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ L.A.Guns - Leopard Skin (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21722.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21722.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C6DD5D682B1FE9D26CC4AC6CB49ADA432F3D526D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21723.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Охота! 87 (2019) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21737.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Birthday Massacre - Pathways (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21765.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21765.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:D406D6A2B0DF3912D35D5CF9E3F4203CAFD1E79A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21849.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21849.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:2335FC480B6046A9BA2FF868422D6A2250BB39A6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21852.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dream Theater - Official Bootleg: Dark Side Of The Moon (2006) 2CD [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21911.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ polnalyubvi - Прощай и люби меня (2025) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21936.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21936.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:CC88AF58F8C1979B0DB8C860664B781148555BFF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21948.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21948.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Files Inspector Pro 4.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49301.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Wise Duplicate Finder Pro 2.1.3.64 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50023.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ O&O AppBuster 1.4.1345 Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50432.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Driver Easy Pro 6.1.0.32140 Portable by zeka.k [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50496.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Driver Easy Pro 6.1.0.32140 Portable by FC Portables [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50579.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ HiBit Startup Manager 2.6.45 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50677.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Auslogics BoostSpeed 13.0.0.8 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51004.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Auslogics Duplicate File Finder 10.0.0.6 RePack (& Portable) by elchupacabra [Mu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51008.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ CCleaner 6.25.11131 Technician Edition (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51219.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Winaero Tweaker 1.63.0.0 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51236.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.54.120, Speccy 1.33.079) R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51260.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ PC Cleaner Pro 9.6.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51329.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Driver Easy Pro 6.0.0.25691 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51432.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Piriform Recuva 1.54.0120 All Editions RePack (& Portable) by Dodakaedr [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51743.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Process Monitor 4.01 RePack by KLASS [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51825.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Speccy 1.33.079 Professional | Business | Technician Edition RePack (& Portable)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51953.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ IObit Driver Booster Pro 13.0.0.143 (DC 2025.09.25) RePack (& Portable) by elchu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52141.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Speccy 1.33.075 Professional | Business | Technician Edition RePack (& Portable)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52404.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Process Monitor 4.01 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52564.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Error Lookup 2.6 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52582.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ PowerOff 6.4-05beta build 0111 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52644.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Ashampoo WinOptimizer 27.00.03 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54053.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ IObit Driver Booster Pro 11.5.0.83 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54376.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Process Explorer 17.06 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54878.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Process Explorer 17.06 RePack by druc [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54947.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Privacy Eraser Free 6.7.2 Build 4929 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55113.jpg" />
 </div>
 
 

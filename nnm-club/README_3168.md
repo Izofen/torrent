@@ -1,3 +1,84 @@
+###  Публикация: 1764658   (101476) от 08.12.2024
+
+Catherine Russell, Sean Mason - My Ideal (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Porter’s Love Song (To A Chambermaid) (4:56)
+02. I Don't Need No Doctor (3:02)
+03. My Ideal (4:39)
+04. You Stayed Away Too Long (3:18)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241809519F16BC6DBAB1170998D0D0F11C81FA89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764708   (101477) от 08.12.2024
+
+Pathen X - Pay (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PAY (3:10)
+02. OUTRAGEOUS (3:11)
+03. WIDGET (3:23)
+04. BURN (3:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1EFEFE107D04B684E2DFBB51975E5DE23FA2DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764673   (101478) от 08.12.2024
+
+Jola Recchioni - Gone To Find My Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiny Missed Beat (2:59)
+02. It Aint The Place For You (2:44)
+03. On The Sunny Side (4:02)
+04. Hazy Blue (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEAB69E062D95A4413EAC7C56E473E90617ECF17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764711   (101479) от 08.12.2024
 
 Slears - The Chaos Within (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +87,7 @@ Slears - The Chaos Within (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101479.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Action Fire - Until The Heat Dies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101480.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Grant Sabin - Work (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101481.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Ice Exiled - Reset the Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101482.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Booker Little - Booker Little (1960) 2017, Solid Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101483.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Nat Adderley Sextet - Autumn Leaves: Live At Sweet Basil (1990) 1994, Evidence [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101484.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ magnet:?xt=urn:btih:1936E56979FFDA637CFE548AF52FB768BB9CE68A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101485.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ magnet:?xt=urn:btih:8C60C021C167B3A5E589736783922E9FD09BAF57
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101486.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ Neon Rider - Destination Unknown (2024) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101487.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ magnet:?xt=urn:btih:F8040530D5F9D15EE86256BD926403749D6011E7
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101488.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ Cory Marks - Sorry For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101489.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ Whiskey Nips - Whiskey Nips (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101490.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ VA - Redux Selection Vol. 12 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101491.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ Apollo Brown & CRIMEAPPLE - This, Is Not That (2024) [FLAC|Lossless|Web-DL|track
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101492.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ Herm Solo and the Prompts - Düsterherz (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101493.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ magnet:?xt=urn:btih:226497EAABBF6483460EC4FDEC3399EBE70A93EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101494.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ Holler - Reborn (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101495.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ magnet:?xt=urn:btih:ACE78CEEDE7FF2D427296127112311FA01D183EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101496.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ magnet:?xt=urn:btih:E3C424FA3EDD5C7E8EAB62DC3BE492BF5103E901
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101497.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ Ella Fitzgerald - Ken Burns Jazz (2000) CD, Compilation, Club Edition [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101498.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ Jill Scott - Beautifully Human: Words and Sounds, Vol. 2 (2004) [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101499.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ magnet:?xt=urn:btih:CC5D6BD0E625CC5942323205A1F36001A80B32E1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101500.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ magnet:?xt=urn:btih:BDCFAE398EF748E77AE2050B55968C56DCD7B5C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101501.jpg" />
 </div>
 
 
@@ -598,87 +679,6 @@ magnet:?xt=urn:btih:BDCFAE398EF748E77AE2050B55968C56DCD7B5C4
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764671   (101502) от 08.12.2024
-
-Jacqueline Tabor feat. Michael Underwood & Jeremy Boettcher - All Shades of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo Woman (4:05)
-02. Love Me Right (2:13)
-03. Love Ain't Nothin' but the Blues (3:43)
-04. Keep it to your Darn Self (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2724CFF845BB9D9BC217380B7C8D22ACBC5D2DCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764704   (101503) от 08.12.2024
-
-Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Instrumental Hip-Hop, Underground Hip-Hop, Boom Bap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got It Good (3:26)
-02. Time Lost (3:05)
-03. It Just Is (3:12)
-04. Flowers Die (3:24)(   Читать дальше...   )Жанр: Instrumental Hip-Hop, Underground Hip-Hop, Boom BapПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B5EBEE0FC088F15D3781C1904C99BC029FFA49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764702   (101504) от 08.12.2024
-
-Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Food (0:52)
-02. Get The Dough Off (3:42)
-03. Panama Sun (feat. Marv Won) (3:29)
-04. Stones (3:46)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47855419A001E1E4180804BA42067FB7E80AA129
 ```
 
 

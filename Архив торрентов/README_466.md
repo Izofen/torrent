@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lenovo B550 Win7 Drivers v1.0 (32bit & 64bit) v1.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102095.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102095.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Lenovo B550 Win7 Drivers v1.0 (32bit & 64bit) v1.0 [Русский]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102100.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102100.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Update SIEMENS NX 8.0.1.5 x86/x64 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102103.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102103.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Unigraphics NX – это лидирующая CAD/CAM/CAE система, по�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102118.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ MARVEL VS. CAPCOM 2 [5.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102124.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102124.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ DAEMON Tools Lite 4.45.4.0315 Rus/Eng Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102135.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102135.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Daemon Tools Lite - маленький по размеру, но мощнейш�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102144.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102144.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Daemon Tools Lite - маленький по размеру, но мощнейш�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102153.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ SolSuite 2012 {v 12.04} (P) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102160.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:6C3FE714D166DF1B6B011543A4656B65E9B91995
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102164.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:7DA18D0C6D0DD1AB5FC2E436D301593EF81E2E9A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102172.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102172.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:7DA18D0C6D0DD1AB5FC2E436D301593EF81E2E9A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102173.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:9B501BC9A68FA74DC4FFD63A77034358F9A652B7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102182.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Data Flow Accelerator 3.4.2.27 Beta [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102183.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ WWE Legendary Moments (2010) DVDRip (русская версия от 545TV)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102185.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:D7A7CD99B8C7AE789185916B4EA24FACA49962E5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102189.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102189.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:D7A7CD99B8C7AE789185916B4EA24FACA49962E5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102191.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:16E8D8BECFAA997EE8E9B8441D69BC9DFD26189C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102192.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Ace Translator 9.3.8.671 Portable x32/x64  [Многоязычный + Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102202.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102202.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Ace Translator Portable – программа для перевода любы�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102209.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102209.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Ace Translator Portable – программа для перевода любы�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102219.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:9444A22BBCF8BEA94FC522518B5A13A1F7E87D15
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102233.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102233.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:9444A22BBCF8BEA94FC522518B5A13A1F7E87D15
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102239.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102239.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:9444A22BBCF8BEA94FC522518B5A13A1F7E87D15
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102244.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:5B5B581BD9EDBF15640264A7325634A96CDC7CEB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102248.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102248.jpg" />
 </div>
 
 

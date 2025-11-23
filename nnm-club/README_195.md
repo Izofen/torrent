@@ -6,7 +6,7 @@ Carolyn Jones - All in divine timing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5134.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DCCCFCBDB61B3FEEC5EAB9A866230184D348EBA4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5135.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:03F7792F3CF17ED66182E0C9AD931AAB4E258456
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5136.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1ADD16EBCF9DC6BA306DDF5AEE84E838A76EC01B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5137.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:8931E2EE5E46C351929FA02CFD01EB4C56B522C6
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5138.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B7A1B8156212E056F6D40D7DBE46B57E954699EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5139.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:46232720A749E1C410D9528F2AF87876E4EC4FD5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5140.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E23AF142BBD5A3880F1F4829FBC4E0A8D2D07CDD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5141.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A325F56CE52F8F0C8D6645A4BDECA90359635415
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5142.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5952DA98F72D76F493F307C62811ED62E37A5FCD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5143.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Macrorit Partition Expert 8.6.0 Pro / Technician / Server / Unlimited Edition Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5144.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:405C81715F9EB1824B6A569A92A5DF98B998A813
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5145.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Photo Editor v11.9 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5146.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:89B5FDDEFA50E4CFE7641389279FF03CC89EB318
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5147.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:FF17F1EE6FA79693534C15F48DAB8F5C865AB164
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5148.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:78F46F0E7430A31287197E596E2040904C782218
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5149.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Knox Evercrest - Unwritten Game (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5150.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:D05E08AA8436146A279AB98885D13BB794292512
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5151.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dasu - Nakakapagpabagabag (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5152.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Queensryche - Live Evolution (2001) Japanese Edition, 2XCD [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5153.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:77D5CA73AF3ABA862B8033A62DB2A4B6C154A115
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5154.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:C6D45DA581936AA45E712FDBFBBBB8581A165719
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5155.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5156.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:DCDDBFB20B3A64FF1CB776C964FB9525A8FCC7E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5157.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:11B06CC06C16E77FE09F7766B623DA144B77B0E8
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5158.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Pentiment (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5159.jpg" />
 </div>
 
 

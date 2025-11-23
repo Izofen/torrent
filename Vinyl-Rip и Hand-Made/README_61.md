@@ -1,3 +1,111 @@
+###  Публикация: 1639148   (238458) от 12.06.2023
+
+Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shakra — швейцарская рок-группа, основанная в конце 1990-х годов.1998 - Shakra
+1999 - Moving Force
+2001 - Power Ride
+2003 - RisingЖанр: Hard RockПродолжительность: 11:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817EAB28176C895D92D157F58724122BEE6215DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628701   (238489) от 24.04.2023
+
+Amon Amarth - Studio Albums (13 releases) (1996-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amon Amarth — шведская метал-группа, играющая в жанре мелодичный дэт-метал. Название группы значит «Роковая гора» на синдарине, эльфийском языке, и отсылает к горе Ородруин из романа Дж. Р. Р. Толкина «Властелина Колец». Основной тематикой группы является германо-скандинавская мифология. Музыку Amon Amarth составляет сочетание гроулинга с «тяжелыми» мелодиями и эпическими (   Читать дальше...   )1996 - Sorrow Throughout The Nine Worlds
+1998 - Once Sent From The Golden Hall
+1999 - The Avenger
+2001 - The CrusherЖанр: Melodic Death MetalПродолжительность: 10:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5951C6CF42EB48D5DADE0E5EF44A5514BEAC3E60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628957   (238506) от 25.04.2023
+
+Duran Duran - Notorious (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238506.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Notorious
+A2 American Science
+A3 Skin Trade
+A4 A Matter Of Feeling(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18B0B3CA005E4E029B8627AEA5DB9DBB3F4830C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636742   (238726) от 01.06.2023
+
+Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_238726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Royal Hunt — англоязычная рок-группа из Дании, основанная в 1989 году.1992 - Land Of Broken Hearts
+1994 - Clown In The Mirror
+1995 - Moving Target
+1997 - ParadoxЖанр: Melodic Progressive MetalПродолжительность: 15:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628145   (238861) от 22.04.2023
 
 Оркестр Поля Мориа (Paul Mauriat) - Под музыку Вивальди (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Instrumental>
@@ -6,7 +114,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238861.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238861.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238862.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238862.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238933.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238933.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Europe - Дискография (14 albums) (1983-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238954.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238954.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238977.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238977.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239353.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239353.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239544.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239544.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239608.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239608.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239802.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239802.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239834.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239834.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239913.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239913.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239937.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239937.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239947.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239947.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239963.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239963.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ DIO - Легенды Зарубежного Рока (2001) Compilation, Unoffic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240023.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240023.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ VA - Девочка Моя Синеглазая - Песни В. Дорохин�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240202.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240202.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ VA - Пулсиращи Ноти 1 (1984) [APE 2.0 24/96|image+.cue (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240263.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240263.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ magnet:?xt=urn:btih:478255D319B255DD31D6D6CFAE804A56040F0228
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240885.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240885.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ Orchestra Caravelli - Оркестр Каравелли (1985) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240900.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240900.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241081.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241081.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ magnet:?xt=urn:btih:9DFE70E25FBE7BAFBFED3C7DC454C1C7948648FC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241108.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241108.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241112.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241112.jpg" />
 </div>
 
 
@@ -587,114 +695,6 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0021F9F5C6A6B45209431AF991C6FCC9C5603033
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059485   (241130) от 17.04.2022
-
-Blood Sweat & Tears - Nuclear Blues (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Fusion, Jazz-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241130.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Agitato
-A2 Nuclear Blues
-A3 Manic Depression
-A4 I'll Drown In My Own Tears(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870CCC4AEC2CFDDB9256C0A841EED98487B4E19D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625084   (241158) от 10.04.2023
-
-The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Robot (6:02)
- 02. I Wouldn’t Want to Be Like You (3:22)
- 03. Some Other Time (4:05)
- 04. Breakdown (3:54)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625441   (241189) от 10.04.2023
-
-Secret Service - Jupiter Sign (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-A1 Jupiter Sign 4:52
-A2 Love Cannot Be Wrong 2:53(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AEE7B7496BEBF2E16E72A476987597A1982B36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625184   (241666) от 10.04.2023
-
-The Buggles - The Age Of Plastic (1980)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-
-1 Living In The Plastic Age 5:12
-2 Video Killed The Radio Star 4:08(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA844F0F87A5271B2A70BF0F697A865BDC188928
 ```
 
 

@@ -6,7 +6,7 @@ WizFile 3.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36701.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F23D718D883FFC71076CF1BAC39B87983E34A976
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36702.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Bee Gees - 3 Albums (2020-2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36703.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:34E916B9FCD279F28A2DA78E122A88BA09FE7B34
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36704.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VIDEOVERSE (2023) [En] (1.2.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36705.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36706.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:553C2BF68FE6E44F0B2B567C56C307C49947B471
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36707.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Farlanders (2023) [Multi] (1.2.0f1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36708.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:893581A6120013904A6905808FD720834C171196
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36709.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ FreeCAD 1.0.0 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36710.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F189935A4C74E6ED7EB189274AA5EA533F4BDE74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36711.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36712.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36713.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Beloved Rapture (2024) [En] (1.1.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36714.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:B1496764F88C7311D70E4F1B270728D6C4E20D65
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36715.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36716.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:9E15C5F261395F499BC80AFAA7A9392673240C7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36717.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:ADC523508CABDB4A7E2046F59EB884F0E2D1E9D9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36718.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4A5577BAFC6C9FB8597E450BC382F61DB3C1F0EF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36719.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:314638565F168AA318C194E3B43C0A1850895365
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36720.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3C20A60C1E448ED86DD0981332092B9DB0AD24DE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36721.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ inPixio Photo Focus Pro 4.3.8623 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36722.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36723.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36724.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:3A7D77D27567648926CC0BC78672F2A027F5039C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36725.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Microsoft Windows 11 [10.0.26100.2314], Version 24H2 (Updated November 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36726.jpg" />
 </div>
 
 

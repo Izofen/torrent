@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42943.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ XnConvert 1.101.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42944.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:651872F250D68973F02748F26ADCD395A6855413
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42945.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Depeche Mode - Spirit The 12 Singles (2024) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42946.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:F0BECC7E552D171F0F0C6CA28084ED017E814BEE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42947.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:832727D425051C25DF8268712DFE76F525315273
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42948.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:DAC16814C76274A630A8A7DBDEED8CFACC94D2C7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42949.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Synchro Arts - ReVoice Pro 5.1.19 STANDALONE, VST 3, AAX (x64) RePack by R2R [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42950.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:03C1195694E784A29AA98F6E260FC094F1DB1FF1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42951.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:6042316D3409271B0B6E083D29FBA368A3AD94EC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42952.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Skype 8.128.0.207 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42953.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:8FDBF9145FB7706910ED8598D665A2D99C6303B2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42954.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42955.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ StartAllBack 3.8.9 build 5161 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42956.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Google Chrome 129.0.6668.59 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42957.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:0847A31BF5DBE6E2AD1B28D7A278874191E792A9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42958.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:D7CC330782C9949A54570D28D99D9F217D67C92F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42959.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:FF60668A62072CFDEFBF5974F72B7D9295D44848
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42960.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:4D9D9A268158573B2F58CFD5D7B51EF3EC57C6DA
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42961.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:1FD6EE908D0190A630B17F492BAF64F2BAA5139C
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42962.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ StartAllBack 3.8.9 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42963.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:EEBE3A8FEF7C85ED8425CC648A685195A048A94C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42964.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:EEBE3A8FEF7C85ED8425CC648A685195A048A94C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42965.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:BFAAA657F16F3544E9B90DD58CE08B839AE976DB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42966.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:77760ACFC1AE5701921923D5325641A4A6BF3990
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42967.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Automation Studio Professional Edition 7.0.0.10038 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42968.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1674339   (161183) от 05.11.2023
+
+4K YouTube to MP3 4.13.0.5540 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161183.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A95A4AE188D826C48087AB606AEBD94EDF1590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518152   (161185) от 18.12.2021
+
+Diagrams 2.2.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diagrams - это редактор диаграмм для Mac, который помогает вам лучше понять ваши конструкции и процессы с помощью визуализации. Его доступный дизайн, чистый интерфейс, четкий визуальный стиль и оптимизированное взаимодействие с холстом позволяют создавать красивые диаграммы и в кратчайшие сроки интегрировать их в свои рабочие процессы.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: © 2020-2021 Structured Path GmbHПоддерживаемая ОС: macOS 10.15.2+Язык интерфейса: Английский, Немецкий и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDA72DE313E7F756A50F11C1205F95CB6014E85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674337   (161186) от 05.11.2023
+
+Luminar Neo 1.15.1.12389 (x64) Portable by 7997 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar Neo — это инновационный фоторедактор от Skylum на основе искусственного интеллекта.
+Новый редактор Luminar Neo использует улучшенный механизм ИИ, который должен повысить качество обработки и увеличить производительность нового программного обеспечения.
+Luminar Neo – это отдельный редактор, который включает многие функции редактора Luminar AI. Также в нем (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816E767285A7982A1CE19132583050D5CCA02900
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599005   (161189) от 21.12.2022
 
 UnHackMe 14.40.2022.1122 (акция Comss) [Ru]
@@ -6,7 +80,7 @@ UnHackMe 14.40.2022.1122 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161189.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ Mp3tag 3.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161194.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ Icecream Slideshow Maker Pro 5.04 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161200.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Author 8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161202.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ Pixelmator Pro 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161204.jpg" />
 </div>
 
 
@@ -130,7 +204,7 @@ GOM Mix Pro 2.0.5.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161211.jpg" />
 </div>
 
 
@@ -154,7 +228,7 @@ magnet:?xt=urn:btih:26A1A89436D626D235A009E55B535B432E710C50
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161224.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ Rhinoceros 7 v.7.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161236.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ One Commander Pro 3.28.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161242.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ Icecream PDF Editor PRO 3.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161243.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ Wise Care 365 Pro 6.4.1.618 + Portable [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161260.jpg" />
 </div>
 
 
@@ -276,7 +350,7 @@ Photos Exif Editor 2.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161280.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ Icecream Video Editor Pro 3.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161282.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ PhotoSweeper X 3.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161291.jpg" />
 </div>
 
 
@@ -352,7 +426,7 @@ Velvet Velour - Pleiades (2020) EP [MP3|320 Kbps] <Darkwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161295.jpg" />
 </div>
 
 
@@ -379,7 +453,7 @@ Icecream Photo Editor 1.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161301.jpg" />
 </div>
 
 
@@ -405,7 +479,7 @@ magnet:?xt=urn:btih:4AAFE4BAE90995B1C588EAC9B8C60909406ED338
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161304.jpg" />
 </div>
 
 
@@ -429,7 +503,7 @@ XYplorer 23.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161307.jpg" />
 </div>
 
 
@@ -453,7 +527,7 @@ Mactracker 7.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161308.jpg" />
 </div>
 
 
@@ -478,7 +552,7 @@ Icecream Video Converter Pro 1.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161319.jpg" />
 </div>
 
 
@@ -502,7 +576,7 @@ Skype 8.92.0.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161322.jpg" />
 </div>
 
 
@@ -526,7 +600,7 @@ TweakNow WinSecret Plus! 4.9.12 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161324.jpg" />
 </div>
 
 
@@ -551,7 +625,7 @@ Comodo Dragon 108.0.5359.95 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161326.jpg" />
 </div>
 
 
@@ -562,80 +636,6 @@ Comodo Dragon - быстрый универсальный браузер на б
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00055983E18166CB555EC10B2AAF837973436072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518006   (161328) от 17.12.2021
-
-O&O Defrag Professional 25.2 Build 7405  RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161328.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag - одна из самых известных и лучших программ для дефрагментации жёстких дисков на рабочих станциях. Позволит вам вернуть утраченную производительность рабочих станций Windows. Данное решение устранит фрагментацию файлов и расположит их в нужном порядке. Программа предлагает широкий выбор новых и уникальных функциональных возможностей, которые позволяют (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F2B678546484D9168F7408F35B4A06EEA3E434
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599001   (161342) от 21.12.2022
-
-Opera GX 93.0.4585.78 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E930E410E14A6A5B1D11268C36632825E201764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598947   (161348) от 21.12.2022
-
-Aiseesoft Screen Recorder 2.6.16 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите самый простой, но профессиональный способ записывать экран и делать с него снимки. Aiseesoft Screen Recorder - лучшее программное обеспечение для записи экрана, позволяющее фиксировать любую активность на компьютере Mac или Windows. Он может работать как хороший рекордер видеоигр, захватывать видеозвонки и многое другое для захвата любой области экрана. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39BC73ADB3606F4007E7327E303569E389F37FE
 ```
 
 

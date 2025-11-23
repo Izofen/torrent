@@ -1,3 +1,79 @@
+###  Публикация: 1736690   (106652) от 13.07.2024
+
+О.С. Ушакова (редактор) | Развитие речи детей 5-7 лет (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена вопросам развития речи детей дошкольного возраста старшей и подготовительной к школе групп. Предлагаются методические рекомендации по организации образовательной деятельности. Рассмотрены возрастные особенности развития речи детей 5-7 лет. Вводная часть знакомит с теоретическими основами программы и методики.
+В пособии дается материал для занятий, (   Читать дальше...   )Жанр: учебное, методическое пособиеИздательство: Москва: СфераФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D9D99321E50D6EF1AEAF6C6E63691ED50BE671
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736644   (106653) от 13.07.2024
+
+Александр Городницкий  - 2 Альбома (1997-1998) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег
+02. А женам надоели расставанья...
+03. Бухта Тикси / Две весны
+04. Песня полярных летчиков(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A544BD528397BAC0DE9F5B370A341C1C9073A53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736678   (106654) от 13.07.2024
+
+Лира Алая | Хозяйка приюта магических существ (Книга 1) (2021) [MP3, Людмила Шапочкина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я хотела жить беззаботной жизнью в другом мире. Но вот у меня на руках несчастный детёныш дракона, одинокий двухвостый котёнок и брошенный стаей магический волчонок. И с этими милыми, но весьма опасными детьми я обустроилась прямо в Лесу Монстров. Посёлок рядом, дом есть, а что монстры бегают – так эти дети поопаснее будут. Лишь бы поладить с хозяином этого леса (   Читать дальше...   )Жанр: любовное фэнтези, юмористическое фэнтезиИздательство: ИДДКПродолжительность: 16:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8DA0884FD3E9813136C7606B07D6289093B379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736538   (106655) от 13.07.2024
 
 Radiant Photo 1.3.1.486 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +82,7 @@ Radiant Photo 1.3.1.486 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106655.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ FastFlix 5.7.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106656.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:0837AD1A492FAB1892AE2720AB3E117AA1877EC9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106657.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ R-Studio Network / Technician 9.4 Build 191338 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106658.jpg" />
 </div>
 
 
@@ -102,7 +178,7 @@ Mountainroad DSP - Lumina Delay 2.2.0.308 VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106659.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ Sumatra PDF 3.6.16424 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106660.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ magnet:?xt=urn:btih:BFABF4808D05C62C361CF7EDDD14D43E3A15574A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106661.jpg" />
 </div>
 
 
@@ -180,7 +256,7 @@ magnet:?xt=urn:btih:2451860BE24B782CBA03C0F39E51A5779A25035C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106662.jpg" />
 </div>
 
 
@@ -204,7 +280,7 @@ Van Halen - For Unlawful Carnal Knowledge (1991) Expanded Edition, 2024, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106663.jpg" />
 </div>
 
 
@@ -228,7 +304,7 @@ magnet:?xt=urn:btih:9C241359C1AB786DD3A0EE7D8A0CB9E99690B866
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106664.jpg" />
 </div>
 
 
@@ -255,7 +331,7 @@ magnet:?xt=urn:btih:85E9DD28DB275F90192CEC231A9E7D93C5D3C6D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106665.jpg" />
 </div>
 
 
@@ -279,7 +355,7 @@ YT Downloader 9.9.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106666.jpg" />
 </div>
 
 
@@ -303,7 +379,7 @@ XYplorer 26.20.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106667.jpg" />
 </div>
 
 
@@ -328,7 +404,7 @@ magnet:?xt=urn:btih:5B803477E0DDB3693FD57D6F1BE4A07A8AA39315
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106668.jpg" />
 </div>
 
 
@@ -352,7 +428,7 @@ VA - Life is about Love (2024) [MP3|320 Kbps] <Pop, Rock, Blues, Jazz>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106669.jpg" />
 </div>
 
 
@@ -379,7 +455,7 @@ Dalida - La Dolce Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson franç
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106670.jpg" />
 </div>
 
 
@@ -406,7 +482,7 @@ magnet:?xt=urn:btih:4C1ED1A27AF04B1B11F1D757772338B574EB3772
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106671.jpg" />
 </div>
 
 
@@ -430,7 +506,7 @@ magnet:?xt=urn:btih:59C35E5DA1235C8991F7B8A9D2394F1FCF3519DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106672.jpg" />
 </div>
 
 
@@ -455,7 +531,7 @@ magnet:?xt=urn:btih:7301682C56A03908E0E44113AB08692A993E6731
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106673.jpg" />
 </div>
 
 
@@ -479,7 +555,7 @@ Pain - I Am (Remixes) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106674.jpg" />
 </div>
 
 
@@ -506,7 +582,7 @@ magnet:?xt=urn:btih:2C4FBD297FCD4F6DD33079380B5151335FE13E4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106675.jpg" />
 </div>
 
 
@@ -530,7 +606,7 @@ Opera One 112.0.5197.24 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106676.jpg" />
 </div>
 
 
@@ -554,7 +630,7 @@ MediaHuman YouTube Downloader 3.9.9.93 (0713) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106677.jpg" />
 </div>
 
 
@@ -565,81 +641,6 @@ MediaHuman YouTube Downloader 3.9.9.93 (0713) RePack (& Portable) by Dodakaedr [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68DE1554DB67E5F7A8B22CBD7EC7F154FB9CDC55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736459   (106678) от 13.07.2024
-
-Clairo - Charm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bedroom Pop, Dream Pop, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nomad (3:46)
-02. Sexy to Someone (3:28)
-03. Second Nature (3:47)
-04. Slow Dance (3:55)(   Читать дальше...   )Жанр: Bedroom Pop, Dream Pop, Indie PopПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81B53F45B3380507683AD24A86E93712441C5C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736606   (106679) от 13.07.2024
-
-Проклятие. Дом с прислугой / The Maid (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная девушка по имени Джой устраивается горничной в дом богатой супружеской пары с маленькой дочкой, где подозрительно часто меняется прислуга. Главное правило для работников — не совать нос в чужие дела, но соблазн оказывается слишком велик, когда Джой начинает видеть призрака.Производство: Таиланд / Global Film Station, Hollywood, Thongkham FilmsЖанр: драма, мистика, триллерРежиссер: Ли ТхонгкхамАктеры: Плойнарин Сорнарин, Савика Чайядей, Тхирапхат Саякул, Ратчанок Суваннакет, Китапат Понгрыа, Каннапорн Пуангтонг, Сорабоди Чангсири, Венус Саксири, Алина Хомсангпрадит, Натани СиттхисаманПеревод: ДублированныйЯзык озвучки: русский, тайскийСубтитры: английскиеПродолжительность: 01:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9531D88AF475A1F04976E5605BBFB3A5D4F9FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736637   (106680) от 13.07.2024
-
-Будь красивой и молчи / Sois belle et tais-toi (1958) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая 18-летняя сирота сбегает из исправительной колонии, связывается с бандой контрабандистов драгоценностей и выбирает преступную жизнь. Однако она влюбляется в полицейского и выходит за него замуж, что кладет конец её криминальной карьере...Производство: Франция / Films EGEЖанр: комедияРежиссер: Марк АллегреАктеры: Ален Делон, Анри Видаль, Милен Демонжо, Беатрис Альтариба, Рене Лефевр, Жан-Поль Бельмондо, Энн Коллетт, Робер Дальбан, Франсуа Дарбон, Робер БазильПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: английские, французские SDHПродолжительность: 01:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A99D76D9039B34B6749F66410A13956E87FF3D
 ```
 
 

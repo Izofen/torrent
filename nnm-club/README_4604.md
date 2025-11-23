@@ -1,3 +1,151 @@
+###  Публикация: 1435641   (142643) от 29.12.2020
+
+GrabIt 4.930 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всякий раз, когда вы хотите избавиться от чего-либо на экране, вы, вероятно, использовали Cmd + Shift + 4 или другие приложения. Но, как вы знаете, «Cmd + Shift + 4», приложение «снимок экрана», включенное в Mac OS X, просто сохраняет захваченное изображение на рабочем столе, а не показывает его вам мгновенно.
+Это приложение захватывает любую часть экрана в виде (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: MajimakHARUПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Упрощенный китайский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F924F3425BD2CFC7468DA9E16ADE3AA5EADDACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969965   (142644) от 29.12.2015
+
+Больше, чем любовь / A Lot Like Love (2005) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек и девушка знакомятся в самолете, но вскоре расстаются. В течение семи последующих лет они то встречаются, то расстаются вновь. И только позже они понимают, что все это время искали друг друга и то, что казалось простой случайностью, на самом деле - любовь...Производство: США / Touchstone PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Найджел КоулАктеры: Аманда Пит, Эштон Катчер, Гэбриэл Манн, Кэтрин Хан, Кэл Пенн, Эли Лартер, Тэрин Мэннинг, Джереми Систо, Эйми ГарсиаПеревод: Дублированный BD EURЯзык субтитров: Русский, АнглийскийПродолжительность: 01:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BD901BCDB7A20F3D663F83C81BFD8DED13200F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272602   (142645) от 28.12.2018
+
+Смолфут / Smallfoot (2018) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: СШАЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигАктеры: Ченнинг Татум, Джеймс Корден, Зендея, Коммон, Леброн Джеймс, Дэнни ДеВито, Джина Родригез, Яра Шахиди, Эли Генри, Джимми ТатроПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  АнглийскиеПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9AFE81857F7AFC5E3F377F1482C634F604BE18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087973   (142648) от 29.12.2016
+
+Святитель Феофан Затворник | Собрание сочинений [69 Томов] (2008) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Феофан Затворник (1815—1894) — выдающийся русский духовный писатель конца XIX в.
+
+Будучи участником Палестинской миссии, ректором Санкт-Петербургской духовной академии, епископом Тамбовской, а потом Владимирской кафедры и проведя 22 года в затворе в Вышенском монастыре, он приносил данный ему Богом дар духовного совета соприкасавшимся с ним людям.
+(   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DAA9D320BAB6C2607D475CC315D0A86F289C8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520041   (142649) от 27.12.2021
+
+Microsoft Office 2016 Professional/ProPlus + Visio Standard/Pro + Project Standard/Pro 16.0.9029.2167 (x86/x64) Retail - Оригинальные образы от Microsoft [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Оригинальные версии Office
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5D294CE9C950282E9F8FC8481C7175B4FBBE23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512571   (142651) от 27.12.2021
+
+Колесо времени / The Wheel of Time (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142651.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Эмондов Луг приезжают трое чужестранцев: седой менестрель Том Меррилин, прекрасная леди Морейн и её страж Лан. Морейн принадлежит к организации «Айз Седай» и считает, что силы тьмы охотятся за пятью подростками, один из которых — реинкарнация древней могущественной личности. Согласно пророчеству, вернувшись в мир, она спасёт человечество, навредив ему.Производство: США / Amazon Studios, Little Island Productions, Radar Pictures Inc., Red Eagle Entertainment, Sony Pictures TelevisionЖанр: фэнтези, боевик, драма, приключенияРежиссер: Ута Бризвитц, Салли Ричардсон-Уитфилд, Уэйн ЙипАктеры: Розамунд Пайк, Дэниэл Хенни, Зои Робинс, Мадлен Мэдден, Джоша Страдовски, Маркус Рутерфорд, Барни Харрис, Кейт Флитвуд, Приянка Бозе, Хаммед Анимашон и другие.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full),английские (Full, SDH)Продолжительность: ~00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B231E6A2EEAEED3DAE2359E739A540A74EF76492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970186   (142652) от 29.12.2015
 
 Игорь Коротеев | Оригами. Полная иллюстрированная энциклопедия (2011) [PDF]
@@ -6,7 +154,7 @@
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142652.jpg" />
 </div>
 
 
@@ -30,7 +178,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142653.jpg" />
 </div>
 
 
@@ -57,7 +205,7 @@ Downie 4 v4.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142654.jpg" />
 </div>
 
 
@@ -83,7 +231,7 @@ magnet:?xt=urn:btih:47F0C49F68EEEB6CB029013887C5CCCA161C01E3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142655.jpg" />
 </div>
 
 
@@ -107,7 +255,7 @@ magnet:?xt=urn:btih:47611C7E0C3F8E5BD76726CF2AA4F05074A5DB15
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142658.jpg" />
 </div>
 
 
@@ -131,7 +279,7 @@ magnet:?xt=urn:btih:78DFA6CD4464C6413CCCBD8FFF16F36586B25A3A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142659.jpg" />
 </div>
 
 
@@ -156,7 +304,7 @@ magnet:?xt=urn:btih:15369D5A4B52695B82178FDB2888E77056E5831A
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142662.jpg" />
 </div>
 
 
@@ -180,7 +328,7 @@ magnet:?xt=urn:btih:EFA6ACE8445BBB610EB60EC1ECD1DBDEA1FD2976
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142663.jpg" />
 </div>
 
 
@@ -206,7 +354,7 @@ Adobe Prelude CC 2015 (v4.1.0) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142664.jpg" />
 </div>
 
 
@@ -230,7 +378,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142665.jpg" />
 </div>
 
 
@@ -257,7 +405,7 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142666.jpg" />
 </div>
 
 
@@ -281,7 +429,7 @@ Udo Lindenberg - Stärker als die Zeit Live (2016) Deluxe Edition 3CD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142669.jpg" />
 </div>
 
 
@@ -311,7 +459,7 @@ magnet:?xt=urn:btih:520095384CBB6DAF8657493BA21817B12E638EC8
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142670.jpg" />
 </div>
 
 
@@ -335,7 +483,7 @@ Shin Chuuka Ichiban! | Новый мастер кулинарии [2019, TV, 12 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142671.jpg" />
 </div>
 
 
@@ -360,7 +508,7 @@ Tormented Souls (2021) [Ru/Multi] (Build 7622656) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142673.jpg" />
 </div>
 
 
@@ -384,7 +532,7 @@ magnet:?xt=urn:btih:539853599ADA568514321F3A35220A1E74247C55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142674.jpg" />
 </div>
 
 
@@ -409,7 +557,7 @@ Black Pyre - Fall Of The Northern Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142675.jpg" />
 </div>
 
 
@@ -436,7 +584,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142677.jpg" />
 </div>
 
 
@@ -463,7 +611,7 @@ magnet:?xt=urn:btih:D244B6687C6FBD8F255249090D9777B9AEF80953
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142678.jpg" />
 </div>
 
 
@@ -488,7 +636,7 @@ magnet:?xt=urn:btih:4D6FBEF5B4BE66CCDA0A9DA80BB437CFA09DD2A7
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142680.jpg" />
 </div>
 
 
@@ -502,156 +650,6 @@ magnet:?xt=urn:btih:4D6FBEF5B4BE66CCDA0A9DA80BB437CFA09DD2A7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A3DAADCA32CF6FF60E8970EFF4C8234C9DC2A05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088052   (142681) от 29.12.2016
-
-VA - Новая Русская Дискотека (Лучшие 2) (2016) [MP3|256-320 Kbps] <Поп, Диско>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аракадиас - На белом покрывале января
-02. Фея Моргана - День как день
-03. Любовь Попова - А я солгу
-04. Сергей Трощенков - Мой грустный дождик(   Читать дальше...   )Жанр: Поп, ДискоПродолжительность: 05:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C57492F228F27C290A79E31DEA89CA7D9B6476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679001   (142682) от 23.11.2023
-
-Vehemence - God Was Created (2002) [FLAC|Lossless|image + .cue] <Metal, Melodic Death Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Made For Her Jesus [5:59]
-02 - She Never Noticed Me [7:01]
-03 - Fantasy From Pain [6:06]
-04 - Christ, I F**king Hate You! [5:03](   Читать дальше...   )Жанр: Metal, Melodic Death Metal, Death MetalПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B39375008FE35891D2A8E3AB59F578D539DC519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272570   (142683) от 28.12.2018
-
-DiskDigger 1.20.8.2677 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142683.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CE9F78A1362D4B0790DF554C8A884EBD5916C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347980   (142685) от 28.12.2019
-
-Intel готовит революционную систему охлаждения для ноутбуков
-
->>След.
->>Компьютерные новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142685.jpg" />
-</div>
-
-
-###  Подробнее
-
-На выставке CES 2020 компания Intel покажет новый дизайн теплового модуля, который позволит на треть увеличить эффективность систем охлаждения ноутбуков. Там же покажут готовые решения на его основе.Этот проект входит в инициативу Intel Athena. Конструкция состоит из комбинации испарительных камер и графитовых листов. Также, помимо новых материалов, изменится и компоновка. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590426   (142686) от 17.12.2012
-
-Работы художников - Художник Danijel Frka
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Художник Danijel Frka
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1C607159512B31B767D8BBE3A0766BC59AACCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195420   (142687) от 29.12.2017
-
-Студия Союз (2017.12.28) WEB-DLRip (выпуск 21: Дайджест)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07676792BA47083A99552151B0318C44F721799
 ```
 
 

@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154100.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D2CA45313C76637C2E70D7F4E5937E225DC85A3E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154111.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:580C608AA9BE569E762487E09C4E1F484B18D789
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154129.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:397BF5D0C87411858F09C777B6F3F2D8F5CB4699
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154165.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F940ED2238E963088241AF140D84F82CCAE8ADBF
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154170.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:F55716F79C5FDD18B40E0E1C0EFFE88532F5E078
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154204.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:4B2BA2A8E99D417A2731A0B7D7FF786B3888DD64
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154360.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Associate (SAA-C03) (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154476.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:C38618B8479197E9BE7185C78BE9210A14346A6B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154486.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Slurm (Слёрм) | Асинхронное программирование н�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154493.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:DD0FD7573310936071573461D1C2B25DF2C7E563
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154496.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Skillbox, Евгений Мирошниченко  | Шахматы с нуля 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154498.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop 2023: Adobe Camera 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154503.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:631251793060FEAAA804950A1BE0AA01FCFF8895
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154524.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Udemy, Roman Dushkin | Основы криптографии и подстано
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154545.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Shultais Education | Основы SQL (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154552.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Udemy.com | Photoshop CC 2020 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154592.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Shultais Education | Расширенные возможности SQL (2019) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154602.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Skillbox, Оксана Осадченко | Fashion-скетчинг (2021) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154622.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Convert Monster | Тренды интернет-маркетинга 2018 (2017)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154633.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Shultais Education | Проектирование баз данных (2018) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154669.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Learn Squared, Maxx Burman | Intro to Matte Painting (2017) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154673.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:3BE7174A79017063713835EF31C52CF81AEBEDE2
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154693.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ BAS, Павел Дуглас | Курс по BAS (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154707.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ devtodev | Введение в геймдев (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154719.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ ProfIT | DBA Введение в профессию (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154756.jpg" />
 </div>
 
 

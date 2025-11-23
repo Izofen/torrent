@@ -1,3 +1,155 @@
+###  Публикация: 1679012   (142581) от 23.11.2023
+
+Legacy - Stand And Conquer (2003) [MP3|320 Kbps] <Progressive, Power Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Free To Fly [00:05:02]
+02 - You Can't Hide [00:03:24]
+03 - Stand And Conquer [00:03:58]
+04 - Sky Will Burn [00:04:07](   Читать дальше...   )Жанр: Progressive, Power Metal, Hard RockПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC650B0B807BABF4081945B45E2B87666D7827D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435893   (142583) от 29.12.2020
+
+Disk Space Analyzer Pro 3 v3.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Space Analyzer (Disk Expert) - приложени позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
+Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, смонтированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB5246F3307F786130B802614084C09F06C7B49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272529   (142584) от 28.12.2018
+
+VA - Best 50 New Year 2019 Edition (2018) Compiled by mCITY [MP3|320 Kbps] <Eurodance, Eurohouse>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gareth Emery & Emma Hewitt - Take Everything (Extended Mix) (4:29)
+02. Alan Walker - Faded (Dash Berlin Remix) (3:36)
+03. Brisby & Jingles - Surrender (4.Boyz Remix) (4:15)
+04. Alan Walker - All Falls Down (3:19)(   Читать дальше...   )Жанр: Eurodance, EurohouseПродолжительность: 03:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844B0BA6F832EB6945AC335227C2E1F0D6CF0B39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970076   (142585) от 29.12.2015
+
+Екатерина Шагалова | Самый новейший толковый словарь русского языка XXI века (2011) [FB2]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142585.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Словаре описано около 1500 слов, появившихся в русском языке в первом десятилетии XXI века и еще не зафиксированных толковыми словарями русского языка. В основном это заимствования из английского, реже немецкого и французского языков. Словарь поможет читателю лучше ориентироваться в этом море названий. В нем представлена максимально полная информация о новом слове: (   Читать дальше...   )Жанр: Языкознание, Справочники, СловариФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A417EC2215E8C9A59D12F9BFCC573C2FA162FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348701   (142586) от 28.12.2019
+
+Артём Исламов | Путь фрилансера. Поколение людей, работающих в интернете (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ключ от свободы скрыт в книжном магазине. Данное произведение — золотой ключ от двери с надписью «Фриланс».
+Это история сильной личности, выковавшей себя из камня. Это глубоко, честно и про каждого из нас. С первых страниц автор затрагивает струны души тех самых людей, которые захотели жить по-другому. И самое уникальное то, что в книге раскрыт подробный план к действиям. (   Читать дальше...   )Жанр: Просто о бизнесеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0156C42AFA94F03E224506732F957141CC9FD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970175   (142588) от 29.12.2015
+
+Андрей Посняков | Невеста из ниоткуда (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женька Летякина – студентка, спортсменка, красавица… и просто девушка решительная. Поэтому, когда пришлось спасаться бегством от злоумышленников, она, недолго думая, прочитала заклинание «на отворение Врат», которому ее научила бабушка-колдунья, и оказалась… в 964 году от Рождества Христова. Как раз в это время верховный правитель племени весь Миронег отправил в (   Читать дальше...   )Жанр: Русское фэнтези, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3A8597A62CD36CC982C68C12E1B33320412379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590704   (142589) от 17.12.2012
 
 Василий Сахаров | Черная Свита [2011] [FB2]
@@ -6,7 +158,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142589.jpg" />
 </div>
 
 
@@ -30,7 +182,7 @@ magnet:?xt=urn:btih:FDFAE011B3820DB7CA9412DFB7838312A3C680B1
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142590.jpg" />
 </div>
 
 
@@ -54,7 +206,7 @@ NCH DreamPlan Plus 8.61 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142591.jpg" />
 </div>
 
 
@@ -81,7 +233,7 @@ Dwell in Doom - 5 CD (2019-2020) [MP3|320 Kbps] <Doom Metal, Gothic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142592.jpg" />
 </div>
 
 
@@ -105,7 +257,7 @@ Typing 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142593.jpg" />
 </div>
 
 
@@ -129,7 +281,7 @@ magnet:?xt=urn:btih:59F65F352BC9B302F792EF153433D2EA6970665C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142594.jpg" />
 </div>
 
 
@@ -153,7 +305,7 @@ magnet:?xt=urn:btih:6135365859BAA80595855B36466FF0F53629784B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142596.jpg" />
 </div>
 
 
@@ -178,7 +330,7 @@ DVDFab 9.2.2.3 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142597.jpg" />
 </div>
 
 
@@ -202,7 +354,7 @@ magnet:?xt=urn:btih:315B6A2ED4B15870EE590B3BBC4BAFBB7485E6F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142598.jpg" />
 </div>
 
 
@@ -226,7 +378,7 @@ magnet:?xt=urn:btih:B2344F254A3595226B0615DCEAE42A7E09D942CE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142600.jpg" />
 </div>
 
 
@@ -253,7 +405,7 @@ Larva Island (2019) WEB-DL [H.264/1080p] (сезон 2, серии 1-13 из 13)
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142601.jpg" />
 </div>
 
 
@@ -277,7 +429,7 @@ magnet:?xt=urn:btih:E0F4965D7EC27E484F8BF62B4B312E9F0CA2F8A1
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142602.jpg" />
 </div>
 
 
@@ -304,7 +456,7 @@ VA - Modern Beats: Electro House (2018) [MP3|320 Kbps] <Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142603.jpg" />
 </div>
 
 
@@ -331,7 +483,7 @@ R-Studio 7.8 Build 160621 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142604.jpg" />
 </div>
 
 
@@ -355,7 +507,7 @@ magnet:?xt=urn:btih:F0707B219BD1B7DB48DA358EE571CDEAD12AB1C5
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142605.jpg" />
 </div>
 
 
@@ -379,7 +531,7 @@ BlueHarvest 8 v8.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142606.jpg" />
 </div>
 
 
@@ -404,7 +556,7 @@ magnet:?xt=urn:btih:32D52D95FD1330F98C7D232BF0B209EDBE5DF100
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142607.jpg" />
 </div>
 
 
@@ -428,7 +580,7 @@ magnet:?xt=urn:btih:90167A58C36FCBB491D9D471BF2A50E68815AA02
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142608.jpg" />
 </div>
 
 
@@ -452,7 +604,7 @@ magnet:?xt=urn:btih:6422207962D409F8ECB75CC3D693C6A087F31B31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142609.jpg" />
 </div>
 
 
@@ -476,7 +628,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142611.jpg" />
 </div>
 
 
@@ -490,161 +642,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0B51743D7A74F860C7B7CA54E5B2D67634E31A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435469   (142612) от 29.12.2020
-
-Сто к одному (27.12.2020) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FD8751E3834D04D5A45FF6B78F7B502788C71B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272653   (142613) от 28.12.2018
-
-Л. Ямпольский | Воронение. Практическое руководство по химическому окрашиванию железного металла (1929) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воронение железа относится к процессам, которые в совокупности именуются химическим окрашиванием металлов. Воронение представляет одну из отраслей техники химического окрашивания металлов и, как таковое, сопряжено с препаративными химическими работами. Общие принципы воронения и разнообразные рецепты даны в данной книге.Жанр: Практическое руководствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E872BE3062E38A0F08D03E856934DB2CADD63274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347545   (142615) от 28.12.2019
-
-Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Rock> [upconvert]
-
->>След.
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Speak To Me 1:12
-2. Breathe 2:44
-3. On The Run 3:35
-4. Time 7:06(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6E5F46E09A505CB11108D600D117300775A123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678868   (142616) от 23.11.2023
-
-McCoy Tyner - Time For Tyner (1968) 2006, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. African Village [12:12]
-02. Little Madimba [8:37]
-03. May Street [5:23]
-04. I Didn't Know What Time It Was [7:11](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077A675E0EE720F8C5FE0C76E39CFB9D007C4B38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435822   (142618) от 29.12.2020
-
-Хелена Дагган | Незваные гости в городе Идеал (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрыв тайну пугающе безупречного города Идеал, Вайолет и другие горожане наслаждаются свободой от тирании злобных братьев Арчер. Но с клумб стали пропадать цветоглазки, Мальчик сам не свой, а главное – в Городе появились настоящие зомби!
-Новое жуткое приключение для поклонников Роальда Даля, Нила Геймана и Тима Бёртона.
-Для среднего школьного возраста.Жанр: Детективное фэнтези, Приключения для детейПеревод: Л.И. БеляковаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26B218B54BEF7CA1E252F21F4A79F52BAC50D28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 394255   (142619) от 29.12.2013
-
-VA - Promodj Trackpoint Podcast (2009-2013)[MP3|192-320 kbps]<Drum and bass, Dubstep, Techno, Nu Disco, Tech House,Trance, Breaks, DeepHouse, ProgressiveHouse, UK Garage>
-
->>След.
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 01:06:42
-Битрейт: 192 kbps
-Дата записи: 31 декабря 2009
-(   Читать дальше...   )Продолжительность: 404:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D09C238ED5D13626B4CAEBA77B1A4DD6C921FA
 ```
 
 

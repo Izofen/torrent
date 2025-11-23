@@ -6,7 +6,7 @@ Microsoft Windows 11 [10.0.22631.3447], Version 23H2 (Updated April 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59359.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F497F0698A5D455F8788F4E177E60DDD0D2E695F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59360.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B008F1BBC653103F770B5396E96364D230749111
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59361.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1B92C3336291249068DCCA9DD607141BF4B95481
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59362.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E2923417A832BBE55E9771632B4D0E27E74886A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59363.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59364.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:178376877A3498A582A21A70A8117AF81BD1AF2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59365.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9CD0BE63A4105ED2777584F3CBE8724656CD1E5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59366.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:51288BB33F46D0D47DCC87D523AEA5EBE3D9EE5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59367.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:6660E74A84D42027156E1FFBB5748F177B9E88EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59368.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:F77E5CAEBDD288E59F4C510E8100272793F1ED79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59369.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:D79576BDFD4FC3308B764435317ED0C7A8D99497
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59370.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:82E430E989C6162ACBFC326F222D96D5D67EF8AC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59371.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:82E430E989C6162ACBFC326F222D96D5D67EF8AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59372.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ FPS Monitor 5472 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59373.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D4338C606C9C95648A5A2686CDA30AC18DF87F8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59374.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Corona Renderer 11.2 for 3ds Max 2016-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59375.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:DB5DBC95541976A218478952A7879C3FC8778848
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59376.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F6522F0D2FEE049BF29FF689AC9922A579D1125C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59377.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:60576BA724FFEA1756F7D185F8723762DAFAB2D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59378.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CCleaner 6.23.11010 Technician Edition (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59379.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ IsMyHdOK 3.96 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59380.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Koan - Dell'arte (Side A-B) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59381.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:BDFA60D37D2AE57D36E2A07AF3865F8DEEFF80C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59382.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:EC3D4F7A1A13BA3DD9299DCAD5707E27BBD45465
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59383.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Linkin Park - Papercuts (2000-2023) Compilation, 2024, Warner Records [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59384.jpg" />
 </div>
 
 

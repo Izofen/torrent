@@ -1,3 +1,100 @@
+###  Публикация: 1670175   (172316) от 19.10.2023
+
+Icecream Photo Editor Pro 1.41 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Photo Editor - лучший бесплатный фоторедактор и менеджер фотографий для Windows. С легкостью редактируйте свои фотографии как профессионал: добавляйте текст и изображения, обрезайте и изменяйте размер, добавляйте фильтры, создавайте коллажи и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9B85582BCCA596C346BFE6E95342D214852AB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670073   (172322) от 19.10.2023
+
+Wondershare PDFelement 10.1.2.2508 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C95241370F177716F78DEC858277D3D7659BFD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670139   (172325) от 19.10.2023
+
+Affinity Designer 2 v.2.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное приложение для графического дизайна для Mac.
+Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2023Разработчик: © 2022 Serif (Europe) LtdПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ABB4F332CEA01DB93E925FEB977D0DC5C9BF4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670113   (172327) от 19.10.2023
+
+Skype 8.106.0.212 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A934B6245DC6D0B4FBE060264CD6C18E9B4FFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670101   (172329) от 19.10.2023
 
 HWiNFO 7.65 Build 5245 Beta Portable [Multi/Ru]
@@ -6,7 +103,7 @@ HWiNFO 7.65 Build 5245 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172329.jpg" />
 </div>
 
 
@@ -30,7 +127,7 @@ O&O DiskImage Professional 18.4 Build 330 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172330.jpg" />
 </div>
 
 
@@ -54,7 +151,7 @@ Zoner Photo Studio X 19.2309.2.499 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172334.jpg" />
 </div>
 
 
@@ -78,7 +175,7 @@ Affinity Photo 2 v.2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172335.jpg" />
 </div>
 
 
@@ -102,7 +199,7 @@ Affinity Publisher 2 v.2.2.1  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172342.jpg" />
 </div>
 
 
@@ -127,7 +224,7 @@ AirFoil+Airfoil Satellite 5.11.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172343.jpg" />
 </div>
 
 
@@ -151,7 +248,7 @@ TechSmith Camtasia 2023 Studio 2023.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172352.jpg" />
 </div>
 
 
@@ -175,7 +272,7 @@ GoodTask 7.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172364.jpg" />
 </div>
 
 
@@ -200,7 +297,7 @@ Dash 7.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172365.jpg" />
 </div>
 
 
@@ -224,7 +321,7 @@ Noir – Dark Mode for Safari 2023.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172366.jpg" />
 </div>
 
 
@@ -250,7 +347,7 @@ EdgeView 4.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172369.jpg" />
 </div>
 
 
@@ -274,7 +371,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 10.2023 by OVGorskiy 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172370.jpg" />
 </div>
 
 
@@ -298,7 +395,7 @@ CCleaner 6.17.10746 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172392.jpg" />
 </div>
 
 
@@ -322,7 +419,7 @@ Tails 5.18 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172405.jpg" />
 </div>
 
 
@@ -346,7 +443,7 @@ Parallels Desktop Business Edition 19 for Mac 19.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172419.jpg" />
 </div>
 
 
@@ -371,7 +468,7 @@ Reg Organizer 9.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172421.jpg" />
 </div>
 
 
@@ -395,7 +492,7 @@ The Bat! Professional 10.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172422.jpg" />
 </div>
 
 
@@ -419,7 +516,7 @@ CrossOver 23.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172424.jpg" />
 </div>
 
 
@@ -444,7 +541,7 @@ Teorex Inpaint 10.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172425.jpg" />
 </div>
 
 
@@ -468,7 +565,7 @@ Luminar Neo 1.14.1.12230 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172426.jpg" />
 </div>
 
 
@@ -494,7 +591,7 @@ Commander One PRO Pack 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172427.jpg" />
 </div>
 
 
@@ -519,7 +616,7 @@ Adobe Character Animator 2024 24.0.0.46 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172429.jpg" />
 </div>
 
 
@@ -531,103 +628,6 @@ Adobe Character Animator 2024 24.0.0.46 (x64) Portable by 7997 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84679A6A2F1349D484A442C592BE27EE23F509E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669794   (172430) от 18.10.2023
-
-Adobe Animate 2024 24.0.0.305 x64 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Animate, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate CC также позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E23D5370BC2601AD738D7BD323168233A22596F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669879   (172435) от 18.10.2023
-
-iStat Menus 6 v.6.72 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172435.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2022 Bjango Pty LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0358D57A3D55AC35CBEE9668F6C9B05CDC706D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669951   (172438) от 18.10.2023
-
-XY VPN - Security Proxy VPN 4.7.216 Mod by ModdingUnited [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172438.jpg" />
-</div>
-
-
-###  Подробнее
-
-XY VPN — это абсолютно бесплатный VPN! Быстрое и глобальное VPN-приложение для обеспечения конфиденциальности и безопасности в Интернете для всех пользователей Android.Тип издания: VIPРазработчик: MATRIX MOBILE PTE. LTD.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F82E587DBABF1F32CDA4E76E9A35BE4BC68A33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669913   (172444) от 18.10.2023
-
-Topaz Video AI 4.0.0 (x64) Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172444.jpg" />
-</div>
-
-
-###  Подробнее
-
-До сих пор не было возможности идеально воссоздать видео высокого разрешения из видеоряда низкого разрешения. Video AI превратит ваши видео в чистые увеличенные видео с разрешением до 8K, от старых домашних фильмов до низкокачественных SD и DVD. Video AI - это идеальный способ снять хорошие кадры и сделать их великолепными. Вы когда-нибудь хотели, чтобы ваши кадры (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA446FB94F687A43DC01AC24A15CA4C4360CE555
 ```
 
 

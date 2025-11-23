@@ -1,3 +1,78 @@
+###  Публикация: 1696462   (119678) от 02.02.2024
+
+Константин Демченко | Шагая в вечность (Книга 1) (2024) [MP3, Александр Сидоров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пусть небо и вода остались того же цвета, но мир перестал быть самим собой. Ничто не осталось неизменным. И в этом новом мире, среди разрушенных городов и неведомо откуда взявшихся тварей, выживает и эволюционирует Данила Звягинцев, в прошлом обычный историк, а в будущем… А кем он будет в будущем, не знает никто, даже он сам. Но он идёт.Жанр: Боевая фантастика, ПопаданцыИздательство: ЛитРес: чтец, АвторПродолжительность: 10:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6FD2CBF60E288607FEEFE9608E83D4FD5DD525
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696501   (119679) от 02.02.2024
+
+Евгений Шалашов, Олег Ковальчук | Воля императора (Книга 1). Двойник (2024) [MP3, Илья Дементьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Похоже, я попал в рай…
+Идеальная Россия 1940-го года!
+Российская империя не участвовала в Первой мировой и не была растерзана революцией. Остальным странам остаётся лишь плестись в хвосте. Я, как учитель истории, счастлив, но события спешат наверстать своё.
+Император готовит преемника на трон, а над страной нависла катастрофа, которую, похоже, вижу только я…Жанр: Альтернативная история, Историческое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 07:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FF0ED61517592CC4D4DBED2EC373050F13B421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696459   (119680) от 02.02.2024
+
+Михаил Зощенко | Собрание избранных рассказов и повестей в одном томе (2023) [FB2]
+
+>>Художественная литература
+>>Сатира, Юмор
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Зощенко (1894–1958) – знаменитый русский и советский писатель-сатирик, чьи колоритные персонажи мгновенно завоевывают любовь читателей каждого нового поколения. В этой книге представлены избранные произведения, отражающие все грани творчества автора: сентиментальные и исторические повести, юмористические рассказы и фельетоны, а также серьезное автобиографическое (   Читать дальше...   )Жанр: Советская классическая прозаИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04F3945A6D181411A695A1DD0AE0DA7F10B6DEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696352   (119681) от 02.02.2024
 
 ONLYOFFICE 8.0.0.99 Portable by 7997 [Multi/Ru]
@@ -6,7 +81,7 @@ ONLYOFFICE 8.0.0.99 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119681.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ magnet:?xt=urn:btih:A1145D32D494E0DDCA036838061982FBB98A41E1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119682.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:BB135032ACE49124321FD655ED5CF2882F031746
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119683.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Wondershare PDFelement 10.2.8.2643 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119684.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Image Uploader 1.4.0 Build 5125 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119685.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Room Arranger 9.8.2.644 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119686.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:88554877A258A750F51593C91D05960371FFE8F1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119687.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:0974071966CDD67B2AAB32F5FDE60C83B9E30803
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119688.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ magnet:?xt=urn:btih:F016BA3A26AC4BFEB48F857DE009BA1E7CEFF597
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119689.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:9698994894D8FD53A15AA6BEEBA904B9C503FEA0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119690.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ magnet:?xt=urn:btih:DD01690FD20CC7588CE14C3137FFC44CFD7139FF
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119691.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:D9FEC823E2B780D16A54F7E53BEE57B0B1B21AE5
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119692.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ magnet:?xt=urn:btih:506E19A0F4D2E5A458E43AE920C05C308B8071BC
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119693.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ magnet:?xt=urn:btih:9D80B99C3C0A4875AF1BC36BB1225BA0ED9493B0
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119694.jpg" />
 </div>
 
 
@@ -353,7 +428,7 @@ AIDA64 Extreme Edition 7.00.6738 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119695.jpg" />
 </div>
 
 
@@ -377,7 +452,7 @@ Topaz Gigapixel AI 7.0.2 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119696.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ Topaz Photo AI 2.3.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119697.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ magnet:?xt=urn:btih:52A768741872F1D700BF06E5F678BCAD7B5278FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119698.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ magnet:?xt=urn:btih:3D6BA88B56CA54EFE81CDD409931FBE069F9EC35
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119699.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ magnet:?xt=urn:btih:E619743EB44ABFA163A9D7D426EC4500DB63C81E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119700.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ magnet:?xt=urn:btih:5CF8EEC9BFA997A1635C0D99BAEE7147578ABEA1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119701.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ magnet:?xt=urn:btih:E78180CB66B58A8B5E10E1C65205545AD9920F56
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119702.jpg" />
 </div>
 
 
@@ -549,7 +624,7 @@ magnet:?xt=urn:btih:DDBFA82E88C53300035469ED11CAC6564F352252
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119703.jpg" />
 </div>
 
 
@@ -560,78 +635,6 @@ magnet:?xt=urn:btih:DDBFA82E88C53300035469ED11CAC6564F352252
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFF5BE08FEEB56EF721148C7421C02F9E8B3D17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696485   (119704) от 02.02.2024
-
-Ascold Flow | Вторжение (Книга 1). Академия магоубийц (2023) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119704.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Добро пожаловать в военную академию "Ареса", абитуриент!". Не успел поступить, как проблемы одна за другой навалились на меня. Мало было мне испытаний: выжить ребёнком в начале войны, стать сиротой, потерять свой дворянский статус, стать повёрнутым на мести одиночкой... Судьба решила, что мало. Но, может, оно и к лучшему, ведь теперь дорога на (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 11:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC01E426DA86C80CB1BFE1A8463A99D77A6A4DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696300   (119705) от 02.02.2024
-
-Андрей Стоев | За последним порогом (Книга 10). Ветры Запада. Книга 2 (2024) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119705.jpg" />
-</div>
-
-
-###  Подробнее
-
-У лесных сложные отношения между отдельными племенами, и там нередко случались войны на истребление. В конце концов они додумались попросить Драгану о защите, и Драгана им её предоставила. Реальную защиту – я знаю, что она полностью истребила как минимум одно племя, напавшее на племя под её защитой. Вот в этом и состоит суть её договора с лесными – алхимия в обмен (   Читать дальше...   )Жанр: Героическая фантастика, Попаданцы, Социальная фантастикаИздательство: ЛитРес: чтецПродолжительность: 09:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA694EAFC7A344183E9060CF6D0C46C13B62F9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696446   (119706) от 02.02.2024
-
-Total Commander 11.03 RC4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E6FD06DC76CF164C28D68E9BCA1B25E2375BC4
 ```
 
 

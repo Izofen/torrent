@@ -1,3 +1,85 @@
+###  Публикация: 472930   (84203) от 24.03.2012
+
+Бурлеск / Burlesque (2010) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Али — молодая амбициозная девушка из маленького городка с чудесным голосом, совсем недавно потеряла своих родителей. Теперь никому не нужная, она отправляется в большой город Лос-Анджелес, где устраивается на работу у Тесс, хозяйки ночного клуба «Бурлеск». За короткое время она находит друзей, поклонников и любовь всей своей жизни. Но может ли сказка длиться вечно? (   Читать дальше...   )Жанр: мюзикл, драма, мелодрамаРежиссер: Стив ЭнтинАктеры: Шер (Cher), Кристина Агилера (Christina Aguilera), Эрик Дэйн (Eric Dane), Кэм Жиганде (Cam Gigandet), Джулианна Хаф (Julianne Hough), Алан Камминг (Alan Cumming), Питер Галлахер (Peter Gallagher), Кристен Белл (Kristen Bell), Стенли Туччи (Stanley Tucci), Дианна Агрон (Dianna Agron), Глинн Тёрмен (Glynn Turman), Дэвид Уолтон (David Walton), Терренс Дженкинс (Terrence (   Читать дальше...   )Перевод: Профессиональный (дублированный)Продолжительность: 01:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EE540B8CDD8968E49B5E00F2439AACE93072F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472616   (84204) от 24.03.2012
+
+Autodesk AutoCAD 2013 (x86) (Английский)
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84204.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD наиболее распространенная программа для автоматизации проектных работ, применяемая для 3D моделирования, архитектурного проектирования и подготовки рабочей документации. Благодаря использованию программы миллионами специалистов всего мира, формат DWG, родной для AutoCAD, стал стандартом для обмена документацией. Обмен документацией в данном формате производится между специалистами различных отраслей, независимо от используемых ими систем автоматизированного проектирования.
+Компания Autodesk впервые выпустила систему AutoCAD в конце 1982 года, таким образом опыт применения, развития и совершенствования продукта начался более 28 лет назад. Первые версии программы были призваны заменить распространенные тогда кульманы и состояли из базовых, простейших команд и примитивов, таких как отрезок, окружность, полилиния, текст. Современные версии AutoCAD помогают проектировщикам не только на этапе оформления чертежной документации, но и выступают как инструмент анализа, как платформа экспериментирования и поиска (   Читать дальше...   )Название программы: Autodesk AutoCAD 2013 (x86)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471866   (84206) от 24.03.2012
+
+VA - Лучшие хиты дискотек 2000-х (Vol. 1,2) (2012) Refresh[MP3|320 кб/с]<Dance/Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol. 1
+Продолжительность: 03:27:05
+1. 666 - Bomba
+2. Aqua - Roses Are Red
+3. ATC - Around the World
+4. Atischa Feat. Blue System - Secret Of The Night
+5. Babe - Oh My Little Baby Boy
+6. B-Cap - Send Me An Angel (Radio Version)
+7. Bellini - Samba De Janeiro
+8. Bizz Nizz Feat. G.Arrendell - Dabadabiaboo (Ragga Edit)(   Читать дальше...   )2012Жанр: Dance/PopПродолжительность: 06:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849AF0FA8696DB5BE3CE112782E4F787C414D7C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472516   (84207) от 24.03.2012
 
 Клятва / The Vow (2012) DVDRip
@@ -6,7 +88,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84207.jpg" />
 </div>
 
 
@@ -30,7 +112,7 @@ Windows 8 Skin Pack for Windows 7 (x86/x64) 12.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84208.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ Windows 8 Skin Pack for Windows 7 (x86/x64) 12.0 [Русский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84209.jpg" />
 </div>
 
 
@@ -82,7 +164,7 @@ Windows 8 Skin Pack for Windows 7 (x86/x64) 12.0 [Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84210.jpg" />
 </div>
 
 
@@ -106,7 +188,7 @@ Wing Commander Saga: The Darkest Dawn [En] (P/1.0.2.7795) 2012
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84211.jpg" />
 </div>
 
 
@@ -132,7 +214,7 @@ Wing Commander Saga: The Darkest Dawn делала команда преданн
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84213.jpg" />
 </div>
 
 
@@ -157,7 +239,7 @@ magnet:?xt=urn:btih:DA73F7B75F8D29B12EBB3ABCF915D6C72121BED7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84214.jpg" />
 </div>
 
 
@@ -181,7 +263,7 @@ Bascom AVR 2.0.7.1 [Английский и Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84215.jpg" />
 </div>
 
 
@@ -212,7 +294,7 @@ Creedence Clearwater Revival - Compilation (2006) [DSD 2.0 1bit/2822,4kHz |SACD-
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84216.jpg" />
 </div>
 
 
@@ -245,7 +327,7 @@ Bulletstorm Limited Edition [Ru] (RePack/1.0.7147.0) 2011 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84219.jpg" />
 </div>
 
 
@@ -269,7 +351,7 @@ magnet:?xt=urn:btih:FFEF5C84709687A3B63F6661476D1DA7B79869E7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84221.jpg" />
 </div>
 
 
@@ -293,7 +375,7 @@ magnet:?xt=urn:btih:C8B51E93995A136362E8210262B9E20E559AB59E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84224.jpg" />
 </div>
 
 
@@ -323,7 +405,7 @@ magnet:?xt=urn:btih:3A1C3273270EF372965A307E48FF3C50DC09DF55
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84225.jpg" />
 </div>
 
 
@@ -347,7 +429,7 @@ Ghost Encounters: Deadwood (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84227.jpg" />
 </div>
 
 
@@ -371,7 +453,7 @@ magnet:?xt=urn:btih:DDC7726DDC8E809DB2B2BB3088E04588EB9F7DA0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84228.jpg" />
 </div>
 
 
@@ -395,7 +477,7 @@ magnet:?xt=urn:btih:DDC7726DDC8E809DB2B2BB3088E04588EB9F7DA0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84229.jpg" />
 </div>
 
 
@@ -423,7 +505,7 @@ magnet:?xt=urn:btih:C3C1D13CDC2A2EAF6F421A40447F84BD86BACE53
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84230.jpg" />
 </div>
 
 
@@ -449,7 +531,7 @@ magnet:?xt=urn:btih:09BFEBB0CC831D0385A693F23CE26882227AB332
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84231.jpg" />
 </div>
 
 
@@ -474,7 +556,7 @@ magnet:?xt=urn:btih:DC5877D08F5901B6A8EA5140B1E8E411BA034A4F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84232.jpg" />
 </div>
 
 
@@ -500,7 +582,7 @@ magnet:?xt=urn:btih:6613E3AA905672DAE6EE77BF4A08C70A8C6F4CE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84242.jpg" />
 </div>
 
 
@@ -524,7 +606,7 @@ magnet:?xt=urn:btih:6613E3AA905672DAE6EE77BF4A08C70A8C6F4CE6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84243.jpg" />
 </div>
 
 
@@ -557,7 +639,7 @@ magnet:?xt=urn:btih:785420C746426C581FEF3759258DC8B1D61DD17F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84245.jpg" />
 </div>
 
 
@@ -590,7 +672,7 @@ magnet:?xt=urn:btih:AF3D5FF7CEB465267CB094A36D6D99F3DC1ECEAC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84246.jpg" />
 </div>
 
 
@@ -606,87 +688,6 @@ magnet:?xt=urn:btih:AF3D5FF7CEB465267CB094A36D6D99F3DC1ECEAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:121726663A7626D5D5860A591BA5974DDFCB1F7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473107   (84247) от 25.03.2012
-
-Как все / Comme les autres (2008) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что не хватает респектабельному французу в сорокалетнем расцвете сил? Деньги — есть, дом — есть, положение в обществе — есть, культурный и разнообразный досуг — есть, любовь — есть, да и все родственники и друзья давно привыкли, что он -. .. гей, много лет живущий в паре с другим мужчиной. Однако, оказалось, не хватает объекта для тёплой родительской заботы — своего ребёнка. И жажда приложения нерастраченных родительских сил может заставить пойти его на многое — даже бросить любимого и ввязаться в сомнительную авантюру с незаконной иммигранткой — ведь законного способа стать отцом у него нет. Неужели у такой истории может быть хороший исход?Жанр: Драма, Мелодрама, КомедияРежиссер: Венсан Гаренк / Vincent GarenqАктеры: Ламбер Вильсон, Пилар Лопес де Айяла, Паскаль Элбе, Анн Броше...Перевод: Двуголосый закадровыйПродолжительность: 01:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92CA1F84EE8593E29FC4BBB476554DE97309C03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472341   (84249) от 25.03.2012
-
-VA - 100% Хиты Радио Шансон (2012) [MP3|256 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84249.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Алексей Брянцев - Я буду рядом
-002 Ирина Круг - За то что ты есть
-003 Мафик - Босота
-004 Ильдар Южный - Ты моё всё
-005 Жека - Моя любовь
-006 Арматура - Березники
-007 Владислав Медяник - Тень-день
-008 Александр Маршал - Беззаботный
-009 Леонид Телешев - Девочка на белом Мерседесе
-010 Виктор Калина - Курю у окна(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DACB32FF8F9FDFF1DFE3830FA2935DB10D216A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472680   (84251) от 25.03.2012
-
-[Картинки] Фото знаменитости/Нонна Гришаева
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нонна Валентиновна Гришаева — российская актриса театра, кино и телевидения, комедиантка, телеведущая и певица. Заслуженная артистка Российской Федерации (2006).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08A2E03A50B8CA3ED1452872B939E1AE8D3BFD9
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1695532   (120380) от 29.01.2024
+
+Серж Винтеркей | Цикл "Эгида" [17 книг] (2019-2022) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженер едет домой к семье, но внезапно погибает в автомобильной аварии. Жизнь после смерти приобретает форму участия в виртуальной игре, в ней ему поставлены строгие ограничения, невыполнение которых приведет к окончательной гибели. Но если герой справится с испытаниями, то получит шанс вернуться к семье. Первичная локация нубятник. Так ли он безопасен, как наивно (   Читать дальше...   )Жанр: ЛитРПГ, Юмористическое фэнтези, Боевая фантастикаИздательство: Самиздат, litresФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E47251B61E3C841E71588C0E5E402442680B92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683735   (120381) от 29.01.2024
+
+Братья Карамазовы (1968) WEBRip [H.264] (серии 1-3 из 3) [Реставрация МФ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноименному роману Фёдора Достоевского.
+В фильме поднимаются вопросы о корнях зла и источниках добра, о том, как сосуществуют эти начала в душе человека, в мире, в котором он живет.Производство: СССР / МосфильмЖанр: драмаРежиссер: Иван ПырьевАктеры: Михаил Ульянов, Лионелла Пырьева, Кирилл Лавров, Андрей Мягков, Марк Прудкин, Светлана Коркошко, Валентин Никулин, Павел Павленко, Андрей Абрикосов, Геннадий ЮхтинСубтитры: отсутствуютПродолжительность: 01:20:57 + 01:12:39 + 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85338C4EBC7E0EF29AA222728FA7DE941A43F64B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694120   (120382) от 29.01.2024
+
+Half-Life: Alyx (2020) [Ru/Multi] (1.5.4 Build 8694564/dlc) Repack Other s [NoVR Mod]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Half-Life: Alyx — это возвращение Valve во вселенную Half-Life в виртуальной реальности. Это история невозможной борьбы с жестокой расой пришельцев, известной как Альянс. События происходят между Half-Life и Half-Life 2. Вы играете за Аликс Вэнс, и вы — единственный шанс человечества на спасение. Контроль Альянса над планетой после инцидента в Чёрной Мезе только (   Читать дальше...   )Тип издания: RepackРазработчик: Valve CorporationЖанр: Adventure, Action, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4417A374A0E65772E78693B2CF3A2F157AEB8D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695428   (120383) от 29.01.2024
 
 Adobe Photoshop for Mac 2024 v.25.4 [Multi/Ru]
@@ -6,7 +79,7 @@ Adobe Photoshop for Mac 2024 v.25.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120383.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:1F7009F4977BE0599A06E00120379F36911B6AE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120384.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:153C41343C3D58A14BCC88B9CDDA30DE2E924C54
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120385.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:8240384F56315F86FC84CF32AC0D717632DA9813
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120386.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:946ED7840FDA595C1F2F385EF80B29B726D15AFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120387.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ magnet:?xt=urn:btih:F9DE958FF47406B677A32B0D1451ADC1B6B7714F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120388.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:17C4C6C37CB64828BFAFCC7070AB144F8BE4F043
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120389.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ magnet:?xt=urn:btih:7E9F3D784F192398E1D62B8B956ACF5A464008CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120390.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ GINSHA (2023) [Multi] (1.1.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120391.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120392.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:1A3C3227024E23F55A4D4D5ECFFBE41775B92228
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120393.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:741ED1221F6C7EA5A3907184F62C4B27876E96A0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120394.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120394.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ magnet:?xt=urn:btih:741ED1221F6C7EA5A3907184F62C4B27876E96A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120395.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ magnet:?xt=urn:btih:D8024C361631BF090D950E3DC512CB1376590E70
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120396.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ The Last Faith (2023) [Ru/Multi] (1.5.0) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120397.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ magnet:?xt=urn:btih:D9B158B764E50C83783FD832F1EB7D0383ECAB2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120398.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ magnet:?xt=urn:btih:25195C5E8B136AA3B6139CD60D8D6E78639B8115
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120399.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ magnet:?xt=urn:btih:DF561CBBF0DE00086689F78CD2DEF84ACE1314F4
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120400.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120401.jpg" />
 </div>
 
 
@@ -467,7 +540,7 @@ Eve's Bite - Blessed in Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120402.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ Mike Goudreau Band - Just Wanna Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120403.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ Alice Babs - The Unforgettable Songbird (2024) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120404.jpg" />
 </div>
 
 
@@ -548,7 +621,7 @@ Davide Pannozzo - Room for Joy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120405.jpg" />
 </div>
 
 
@@ -562,84 +635,6 @@ Davide Pannozzo - Room for Joy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36ED55C7AF997343817EDB6026F30AF55758791
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695107   (120406) от 28.01.2024
-
-Fionn Legacy - Rise of the Windlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Departure (01:43)
-02 - Majestic Return (04:15)
-03 - Distant Lands (04:36)
-04 - Farewell (04:39)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448333CB661AFBE130096CC572AE9BBD51628D9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695296   (120407) от 28.01.2024
-
-Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для PostgreSQL — это мощный, но простой в использовании графический интерфейс PostgreSQL, предоставляющий обширные функциональные возможности для управления базой данных PostgreSQL и ее разработки. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7767B8161385AED810F423767792AB4C31362C54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695244   (120408) от 28.01.2024
-
-Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightless (5:07)
-02. Labyrinthine Hex (7:11)
-03. Morningstar (6:57)
-04. Shapshu (4:22)(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320DF0D9E9A8AC6DB00477154B30EA1F85E44C8B
 ```
 
 

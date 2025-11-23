@@ -6,7 +6,7 @@ Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115512.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Oliver Scheffner - Ambient Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115534.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115549.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Corbetta, Izhar Elias - La Guitarre Royalle (2018) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116890.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:ACB88557275DA7A3DD1DC1F4B3AAA74F08120EEF
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117798.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117799.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечнос�
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117805.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Atomic Heart, Vol.4 (Original Game Soundtrack) (2024) [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117890.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kevin Costner & Modern West - Turn It On (2010) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117968.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kevin Costner & Modern West - Untold Truths (2008) [FLAC|Lossless|WEB-DL|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117972.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117976.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Sensual Piano Jazz: Restaurant Week 2024 (2023) [FLAC|Lossless|WEB-DL|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118275.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sex Music Zone - Night Sexual Trap: Erotic Chill Trap Music (2023) [FLAC|Lossles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118327.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Paul Mauriat - Bossa Nova Wave (1991) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Lis
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119346.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Paul Mauriat - Souvenirs D'Ete (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Classica
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119356.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Paul Mauriat - Iberia (1990) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119358.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Paul Mauriat - Nagekidori (1987) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listenin
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119359.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Paul Mauriat - Love Sounds Journey (1988) [OGG Vorbis|480 Kbps] <Jazz, Pop, Clas
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119360.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8DB51F5CE3B954AA8D3A70429B85527204F9A1D4
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119484.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Александр Зацепин. 31 июня (2021) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119517.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Paul Mauriat - Windy (1986) [OGG Vorbis|480 Kbps] <Classical>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119639.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ashley Ryan - Too Far Gone (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119780.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Paul Mauriat - White Christmas (1977) Reissue, 1984, Philips [OGG Vorbis|480 Kbp
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119798.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Александр Зацепин. 31 июня (2021) [FLAC|Lossless|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119829.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Paul Mauriat - Amapola (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119942.jpg" />
 </div>
 
 

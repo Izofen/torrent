@@ -1,3 +1,77 @@
+###  Публикация: 358320   (115440) от 27.02.2024
+
+В бой идут одни «старики» (1973/2009) BDRip [H.264] [Цветной]
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта эскадрилья стала «поющей» — так капитан Титаренко подбирал себе новичков. Его «старикам» было не больше двадцати, но «желторотиков», пополнение из летных училищ ускоренного выпуска, в бой все равно, по возможности, не пускали.
+Им еще многое предстояло испытать — и жар боев, и радость первой победы над врагом, и величие братства, скрепленного кровью, и первую (   Читать дальше...   )Производство: СССР, к/ст им. А. ДовженкоЖанр: Военный, Драма, КомедияРежиссер: Леонид БыковАктеры: Леонид Быков, Сергей Подгорный, Сергей Иванов, Рустам Сагдуллаев, Евгения Симонова, Ольга Матешко, Владимир Талашко, Алексей Смирнов, Виктор Мирошниченко, Григорий Гладий, Юрий Саранцев, Алим Федоринский, Александр Немченко, Вилорий Пащенко, и др.Продолжительность: 01:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27FD1A0BB830BB056B8FBD1947BDE1AD2B8C606
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695952   (115441) от 27.02.2024
+
+Большая игра / Независимый / The Independent (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальная политика похожа не на карточный домик, а на бассейн с голодными акулами. Накануне президентских выборов журналистка ведущего медиа ныряет туда с головой.
+Ее внимание привлекает независимый кандидат. Он молод, красиво говорит и обещает избавить страну от коррупции. Но чем глубже она погружается на дно бассейна, тем сильнее льется кровь. Столь приятный глазу (   Читать дальше...   )Производство: США / Anonymous Content, NEXT Productions, Park Pictures, The ExchangeЖанр: триллерРежиссер: Эми РайсАктеры: Джоди Тёрнер-Смит, Брайан Кокс, Энн Дауд, Джон Сина, Люк Кирби, Стивен Лэнг, Маргарет Одетт, Майкл Гандольфини, Алисия Райнер, Имани ЛавПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BD1E3B6447FD6A922EB4119EC59892B716F7E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694469   (115442) от 27.02.2024
+
+Хрупкость / Хлюпик / Petite nature / Softie (2021) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о 10-летнем Джонни Юнге, развитом не по годам мальчике, интересующемся самыми разными вещами. Он проживает в тихом городке Форбак на северо-востоке Франции вместе со старшим братом Диланом, младшей сестрой Мелиссой и проблемной матерью-одиночкой Соней, которая работает в табачном киоске. Когда новый учитель замечает потенциал мальчика и помогает (   Читать дальше...   )Производство: Франция / Avenue B Productions, France 3 CinemaЖанр: драмаРежиссер: Сэмюэл ТейсАктеры: Алёша Рейнерт, Мелисса Олекса, Антуан Райнарц, Изиа Ижлен, Джейд Шварц, Иларио Галло, Абдель Бенчендих, Роман Эш, Джонатан Зито, Тьерри ЛюддекеПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Lisok), английскиеПродолжительность: 01:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC86E14CDEEA2BAE6467704A27A53E0352C7AFFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702279   (115443) от 27.02.2024
 
 Илон Маск обвинил нейросеть Google в "безумном расистском" программировании
@@ -6,7 +80,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115443.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115444.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Adobe Premiere Pro 2024 24.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115445.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:BACF88EF67A1F231A4333BCA9236580CE3038454
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115446.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ Ai-Centr, Роман Кумар Виас, Кирилл Макушкин | ChatGP
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115447.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ Adobe After Effects 2024 24.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115448.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Total Commander 11.03 Final - Titan v34 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115449.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ Windows 10 PE x64 by AnkhTech V7.5 (26.02.2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115450.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ magnet:?xt=urn:btih:CB7DADADFC5CB8E98DC76BEDD373E1C7A5785523
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115451.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ Stepik, Сергей Балакирев | Добрый, добрый Django с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115452.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ magnet:?xt=urn:btih:19A76F7EE52E192602A05B1779B6DD3EE94C934E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115453.jpg" />
 </div>
 
 
@@ -276,7 +350,7 @@ magnet:?xt=urn:btih:4DA71116BBBA2EF83E8ABC8B8DC8CF3F54577867
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115454.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ magnet:?xt=urn:btih:153C13E7AEF701CAA40292BAF4ADBE00CFE42444
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115455.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ Funeral Winds - 333 (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115456.jpg" />
 </div>
 
 
@@ -354,7 +428,7 @@ Dissolving of Prodigy - Louceni se svetem pozemskym (2002) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115457.jpg" />
 </div>
 
 
@@ -381,7 +455,7 @@ Funeral Winds - Godslayer Xul (1998) Reissue, 2003, Death To Mankind [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115458.jpg" />
 </div>
 
 
@@ -408,7 +482,7 @@ Dissolving of Prodigy - Louceni se svetem pozemskym (2002) Reissue, 2023, Pařá
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115459.jpg" />
 </div>
 
 
@@ -435,7 +509,7 @@ Eternal Storm - Come the Tide (2019) [FLAC|Lossless|image + .cue] <Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115460.jpg" />
 </div>
 
 
@@ -462,7 +536,7 @@ Funeral Winds - The Unheavenly Saviour (2019) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115461.jpg" />
 </div>
 
 
@@ -489,7 +563,7 @@ Dissolving of Prodigy - Stvanice (2008) [FLAC|Lossless|image + .cue] <Doom, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115462.jpg" />
 </div>
 
 
@@ -516,7 +590,7 @@ magnet:?xt=urn:btih:F80AD8AEB9AB8829A2390F956F7CCA69352C4273
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115463.jpg" />
 </div>
 
 
@@ -540,7 +614,7 @@ Far Beyond - The End of My Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115464.jpg" />
 </div>
 
 
@@ -567,7 +641,7 @@ Eternal Storm - From the Ashes (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115465.jpg" />
 </div>
 
 
@@ -581,84 +655,6 @@ Eternal Storm - From the Ashes (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA35451B4CA30A72994CDCD132951DB6A21CEDDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702832   (115466) от 26.02.2024
-
-Белое золото (1929) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый полнометражный туркменский фильм. Бывший батрак Курбан, окончив в городе курсы трактористов, организовал в родном ауле колхоз. Вот они какие, трактористы!Производство: СССР, ТуркменгоскиноЖанр: драма, история, немое киноРежиссер: Александр ВладычукАктеры: Б. Ораз-оглы, Б. Куль-Мурадов, Ай-Джаман, Х. Нур-байСубтитры: русские (интертитры)Продолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00632BCD040F84A88B7EF700604F0EE61DFFB5DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702712   (115467) от 26.02.2024
-
-Oathbringer - Tales Of Valor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morgoth (05:44)
-02. Hall Of The Slain (04:45)
-03. Arakis (04:40)
-04. Holy War (04:04)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E80F975365616252E6B2E6DDD9F83D2200FC2C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702656   (115468) от 26.02.2024
-
-Dissolving Of Prodigy & Bigotry - Lamentations of Innocents & Step to the Grave (2017) Split [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dissolving Of Prodigy:
-01. Affliction (07:39)
-02. The Torment In Blind Eyes (08:19)
-03. Damocles Gladius (07:04)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F7CC2540DAA3C69A5697D410DCC9E4D7E5DD5E
 ```
 
 

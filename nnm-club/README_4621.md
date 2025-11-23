@@ -1,3 +1,150 @@
+###  Публикация: 1088016   (143202) от 29.12.2016
+
+T-Square - Human (1993) Sony Music[FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Door To Tomorrow [04:43]
+ 02.Rainy Day, Rainy Heart [05:55]
+ 03.High Time [04:27]
+ 04.Anabelle [05:57](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B527B9438398B96012D0AB9F8D8F41AF6A307399
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678610   (143204) от 22.11.2023
+
+Алекс Бредвик | Проект "Погружение" (Книга 1). Странник (2023) [MP3, Алиса Тверская, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир был в опасности. Смертельной и неотвратимой. Несколько десятков лет человечество готовилось, развивалось, становилось сильнее, но в итоге не успело завершить подготовку. «Астероид» оказался быстрее. Несколько программ спасения было так и не завершено в полном объеме, но было принято решение их запустить.Проект «Погружение» начался раньше установленного срока. (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 07:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BF801B89DE6FBB8D830E9EEEFF3A2C59C2A658
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970174   (143205) от 29.12.2015
+
+FileMenu Tools 7.0.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа настраивает пункты контекстного меню проводника Windows, позволяя самостоятельно составить список нужных команд. Одним щелчком мыши можно переименовать, скопировать, переместить, удалить файлы, запустить нужные программы, скопировать выделение в буфер обмена, вызвать антивирусный сканер, открыть интернет-ссылки и многое другое. Программа позволяет задать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3975CDF6151C20E1B51B4CF4EDA6F1FC3841716F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195115   (143206) от 28.12.2017
+
+Octodad: Dadliest Catch (2014) [PSVita] [USA] 3.60 [NoNpDrm] [License] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Octodad: Dadliest Catch — это игра о разрушении, хитрости и отцовстве. Игроку предстоит управлять Осьмипапой, проворным осьминогом, притворяющимся человеком. Жизнь Осьмипапы проходит в постоянной борьбе, в которой ему приходится справляться с повседневными задачами при помощи своих бескостных щупалец, держа при этом свою осминожью сущность втайне от своей человеческой (   Читать дальше...   )Тип издания: LicenseРазработчик: Young Horses, Kevin ZuhnЖанр: Adventure, 3D, 3rd Person.Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DECC5FE31EAE3FA385D23F6AD8F28B8C93E0E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435533   (143207) от 28.12.2020
+
+Карантинные истории / Relatos con-fin-a-dos (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять ироничных историй о человеческих страстях в условиях полной самоизоляции. Что творится в испанских квартирах, когда миру угрожает коварный вирус? Классические романы, ссоры и преступления принимают неожиданные обороты: серийный убийца встречает свою половинку, юный гангстер учится убивать по Zoom, актриса записывает кинопробу, которая круто меняет жизнь ее мужа, (   Читать дальше...   )Производство: Испания / Morena FilmsЖанр: КомедияРежиссер: Мигель Бардем, Хуан Диего Ботто, Фернандо КоломоАктеры: Карлос Бардем, Луис Тосар, Мануэла Веласко, Иско Аларкон, Альберто Амман .Перевод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8159440DF19811D5155F358BB495DE5CB98DF204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590841   (143208) от 17.12.2012
+
+Фотография - Фотограф Paul Octavious
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Paul Octavious
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F190DB47E2D1BD48ECA1B3340A99967F280E0DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678633   (143209) от 22.11.2023
 
 ON1 Photo RAW 2024 v.18.0.4.14762  [Multi/Ru]
@@ -6,7 +153,7 @@ ON1 Photo RAW 2024 v.18.0.4.14762  [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143209.jpg" />
 </div>
 
 
@@ -30,7 +177,7 @@ magnet:?xt=urn:btih:C5295154C8FE37FAF0360AA54883F79556A7C7F0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143210.jpg" />
 </div>
 
 
@@ -58,7 +205,7 @@ magnet:?xt=urn:btih:1118726F658A83B4CF9E8D88A9DC5EA5AC171A10
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143212.jpg" />
 </div>
 
 
@@ -82,7 +229,7 @@ magnet:?xt=urn:btih:55DDD49BFD8260F1326C0822449F72E28956173E
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143213.jpg" />
 </div>
 
 
@@ -106,7 +253,7 @@ magnet:?xt=urn:btih:5370F6DE28549F6E468C39B3556107E45999DC8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143214.jpg" />
 </div>
 
 
@@ -130,7 +277,7 @@ VA - Christmas Chill Album (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143215.jpg" />
 </div>
 
 
@@ -157,7 +304,7 @@ magnet:?xt=urn:btih:94516084F59D0874E42864ECC0F7E43FA1DB7C0C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143217.jpg" />
 </div>
 
 
@@ -182,7 +329,7 @@ magnet:?xt=urn:btih:5F7932CB22878C579A55D57F307F977DB26EAD48
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143218.jpg" />
 </div>
 
 
@@ -206,7 +353,7 @@ magnet:?xt=urn:btih:8A00D44DB401A2A5A399BD299C1582AA943211BB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143219.jpg" />
 </div>
 
 
@@ -230,7 +377,7 @@ Big Bad Family (1994) Finalmix Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143221.jpg" />
 </div>
 
 
@@ -257,7 +404,7 @@ Polarr Photo Editor Pro 5.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143222.jpg" />
 </div>
 
 
@@ -283,7 +430,7 @@ Ridel High - Emotional Rollercoaster (1998) [FLAC|Lossless|tracks + .cue] <Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143223.jpg" />
 </div>
 
 
@@ -310,7 +457,7 @@ magnet:?xt=urn:btih:822FE0FF47DEE5600DB61FBCF1223CF82770D145
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143224.jpg" />
 </div>
 
 
@@ -334,7 +481,7 @@ magnet:?xt=urn:btih:89408AF6F517E965164C8A068231107AB7BDFADE
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143225.jpg" />
 </div>
 
 
@@ -358,7 +505,7 @@ Le Maximum Kouette - Moi j'aime ça! (2002) Maxi-Single [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143227.jpg" />
 </div>
 
 
@@ -384,7 +531,7 @@ magnet:?xt=urn:btih:0747DF51538F7155D96623FFBED91880EA6CC4C3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143228.jpg" />
 </div>
 
 
@@ -408,7 +555,7 @@ Mosaic v.1.1.8 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143229.jpg" />
 </div>
 
 
@@ -434,7 +581,7 @@ Maciej Malenczuk - Psychodancing (2008) [MP3|192 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143230.jpg" />
 </div>
 
 
@@ -467,7 +614,7 @@ magnet:?xt=urn:btih:909A9970640B3440FEAC5E75BCCD23D1DA4F1B6F
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143231.jpg" />
 </div>
 
 
@@ -491,7 +638,7 @@ Chad Morgan | Animation Pipeline in Unreal Engine 4 1-4 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143232.jpg" />
 </div>
 
 
@@ -502,156 +649,6 @@ Chad Morgan | Animation Pipeline in Unreal Engine 4 1-4 (2017) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0276204A123FA11A68F4B575E6C71C3AA676F0A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520233   (143233) от 27.12.2021
-
-MAGIX Sound Forge Pro 15.0 Build 161 (x86/x64) [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143233.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOUND FORGE Pro вот уже 25 лет представляет собой удобный программный инструмент для работы с музыкой и другими звуковыми файлами на самом высоком профессиональном уровне. Последняя версия убедительно продолжает славные традиции, может похвастаться улучшенным пользовательским интерфейсом, большей эффективностью, стабильностью и скоростью работы. Постоянно совершенствуемый (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B641AA6588CB235D6ED428AD20759FD9BEE14BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088155   (143234) от 29.12.2016
-
-Вести в 20-00. Большие Вести. Россия 1 (29.12.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A241179952C7D2A509C9BE8863C67DA0037B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434963   (143235) от 28.12.2020
-
-Udemy, Sandor Kiss и др. |  Полный Курс Личностного Развития - 22 курса в 1 / The Complete Personal Development Course - 22 Courses in 1 (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый всеобъемлющий мастер-класс по личностному развитию - начни расти сегодня!
-Чему вы научитесь:
-Освободите себя от эмоциональной боли и разочарования, узнав, как на самом деле работают эмоции и как вы можете достичь большего мастерства
-Разрушьте личные иллюзии и раскройте свой скрытый потенциал(   Читать дальше...   )Производство: UdemyЖанр: Психология, саморазваитиеЯзык озвучки: АнглийскийПродолжительность: 53:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5947A84094441A2A58ABDBFBC9E726E3CA9A8932
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272701   (143236) от 28.12.2018
-
-Jimmy Eat World - Static Prevails (1996) [FLAC|Lossless|tracks + .cue] < Alternative Rock, Emo >
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinking, That's All (2:52)
- 02. Rockstar (3:48)
- 03. Claire (3:40)
- 04. Call It In The Air (3:00)(   Читать дальше...   )Жанр: Alternative Rock, EmoПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8FB18D4B166E28489D9DD2779D5848B165E7CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348688   (143237) от 28.12.2019
-
-Флоренция и Галерея Уффици / Florence and the Uffizi Gallery/ Firenze e gli Uffizi (2015) DVBRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флоренция и галерея Уффици - это неповторимый кинотур по городу, который когда-то был колыбелью, а сейчас является главным музеем Ренессанса. Этот поразительный город, который и сам по себе может по праву называться музеем под открытым небом, стал альма-матер для легендарных творцов: Микеланджело, Брунеллески, Рафаэля, Леонардо да Винчи и Сандро Боттичелли. Этот (   Читать дальше...   )Производство: Италия, Magnitudo, Sky ItaliaЖанр: Документальный, архитектура, искусствоРежиссер: Лука ВиоттоПеревод: Одноголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A695C212A683103B0AA9D6ABEC50009A80816DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150778   (143238) от 28.12.2017
-
-Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Элегантная жизнь в общежитии с монстрами [2017, TV, 26 из 26] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители Инабы Юси умерли во время первого года его учёбы в средней школе, и ему пришлось переехать к своим родственникам. Хоть они и заботились о нём, он мог бы сказать, что был обузой. После выпуска из средней школы, он с радостью приготовился к переходу в старшую школу, где было общежитие. К несчастью, общежитие сгорело дотла, прежде чем он успел переехать! Юси (   Читать дальше...   )Производство: Япония / Shin-Ei AnimationЖанр: Повседневность, мистика, детективРежиссер: Хасимото МицуоПеревод: AniPlay.TV перевод: MsHolloweenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ, 26 серий по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFC3012A616E6D4CFEDB645D9929EDB4B728300
 ```
 
 

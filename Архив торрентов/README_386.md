@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_90269.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_90269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90280.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90290.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90291.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Revo Uninstaller PRO 2.5.8 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90303.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Revo Uninstaller — утилита для удаления нежелатель
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90316.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Revo Uninstaller — утилита для удаления нежелатель
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90323.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Pestretsov Dead Pixel Test 1.0.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90328.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Pestretsov Dead Pixel Test 1.0.0 [Русский]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90349.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Running Wild - Shadowmaker (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90375.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ BitTorrent 7.6.1 Build 27098 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90377.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90380.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90382.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:EAD7A20268F0757BAE9C44E9BDC5C2EF9029775E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90384.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90389.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:9C839EFB28FAE8AEEAF452F0441B3A77B2EEF507
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90392.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Fantasy wallpapers 001
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90397.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Revo Uninstaller PRO 2.5.8 RePack (& Portable) by KpoJIuk [Мульти, ест�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90400.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Revo Uninstaller — утилита для удаления нежелатель
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90401.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:4477654AEBDAAAA16826C160A12C93EB5FB7B22C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90405.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:4477654AEBDAAAA16826C160A12C93EB5FB7B22C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90418.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:94A29E054772E452B2494A75F3B7D3D357DB4657
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90438.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:94A29E054772E452B2494A75F3B7D3D357DB4657
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90439.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C3027A7212E1FEC32A01CBB8CB7587BE0FDC8C54
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90445.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:66897DF61286E7FEFC27526D2B2B6158866CC640
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90454.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Ashampoo WinOptimizer 9.4.3 [Multi/Rus] + Portable by Boomer
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90467.jpg" />
 </div>
 
 

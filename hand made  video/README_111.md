@@ -1,3 +1,75 @@
+###  Публикация: 1606633   (203712) от 22.01.2023
+
+Чужие / Aliens (1986) HybridRip [H.264/1080p]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_203712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чужой – совершенный организм. Идеальная машина для убийства, чье физическое превосходство сочетается с его феноменальной жаждой уничтожения. Офицер Элен Рипли и команда космического корабля Ностромо один раз уже встретилась с такой тварью. В живых осталась только Элен. Капсула с Элен найдена спасателями после многих лет блуждания в космосе. Ей сообщают, что планета (   Читать дальше...   )Производство: США, Великобритания / 20th Century Fox Film Corporation, Brandywine Productions Ltd., SLM Production GroupЖанр: ужасы, фантастика, боевик, триллер, приключенияРежиссер: Джеймс КэмеронАктеры: Сигурни Уивер, Майкл Бин, Кэрри Хенн, Пол Райзер, Лэнс Хенриксен, Билл Пэкстон, Дженетт Голдстин, Уильям Хоуп, Эл Мэтьюз, Марк Ролстон, Рикко РоссПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 02:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F202BDA8F5287E44C68CE5C367337E6E07729E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606323   (203753) от 21.01.2023
+
+Джон Картер / John Carter (2012) BDRip [H.265/1080p] [10-bit] [hand made 60fps]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_203753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран Гражданской войны в США Джон Картер против своей воли оказывается на Марсе, где попадает в плен к воинственным четырехметровым туземцам. Картеру предстоит не только спастись самому, но и спасти принцессу Дею Торис из Гелиума.Производство: США / Walt Disney PicturesЖанр: фантастика, боевик, приключенияРежиссер: Эндрю СтэнтонАктеры: Тейлор Китч, Линн Коллинз, Марк Стронг, Доминик Уэст, Джеймс Пьюрфой, Брайан Крэнстон, Дэрил Сабара, Аманда Клэйтон, Киаран Хайндс, Николас ВудесонПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 02:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D9882C89CC45881769840DA806E0E361C26D72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606107   (203767) от 20.01.2023
+
+Джон Картер / John Carter (2012) BDRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_203767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран Гражданской войны в США Джон Картер против своей воли оказывается на Марсе, где попадает в плен к воинственным четырехметровым туземцам. Картеру предстоит не только спастись самому, но и спасти принцессу Дею Торис из Гелиума.Производство: США / Walt Disney PicturesЖанр: фантастика, боевик, приключенияРежиссер: Эндрю СтэнтонАктеры: Тейлор Китч, Линн Коллинз, Марк Стронг, Доминик Уэст, Джеймс Пьюрфой, Брайан Крэнстон, Дэрил Сабара, Аманда Клэйтон, Киаран Хайндс, Николас ВудесонПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 02:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424BA9489D30F543BD5D1A2AA6B9AB062A8FA048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606058   (203781) от 20.01.2023
 
 Чужие / Aliens (1986) Hybrid [H.264/1080p]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203781.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203781.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:70B66AEB89B33D16EA07A9C46FD0B5EA1803FFD4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203929.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203929.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:25F15EA9AD8A961FD9DC53916C5E462C7DF4F9CD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203958.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203958.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:06205C79305551DF1F36A151CD829EE889EAE05C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204040.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204040.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:1E0FC5623C79F4B52C4E0723EFE975F01E6A4772
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204060.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204060.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:0A0D4B0DDE69A625193DF490AB736D5CA64840B8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204065.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204065.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:BA232B3DB2D0D67A726B04B3B195C3372E4E1993
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204121.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204121.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:F128764D3CF69A15C948D884699398957B3DCE7D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204156.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204156.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:2FB216A19E7699CDDA4AE27EAB269279CEB91FF2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204176.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204176.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:508A98E7F8F611A9862DF16275C232E560C455F9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204181.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204181.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:F5AC4B06201C4902E3554EFE44F2EE6225D078D4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204261.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204261.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:0F234BC169D4BB6595D768EF8EBE9AD23EC6F5B1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204334.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204334.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:1DE369D2D24E6FA73A431C20B20E30EF2943EC04
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204459.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204459.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:9F2E872BE23BFBA5F9C91B472B7CAA5958138513
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204629.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204629.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:37F22DEC9F3BB967F5715325051BD2BC81A3FF65
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204648.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204648.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:C2F9FD8D32F764245240304EBA9AF09BE8FDFF46
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204883.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204883.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:23EE1FADB53D56C1E9C11E7F583ACD2E248D9B44
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205066.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205066.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ magnet:?xt=urn:btih:1FA69B89BDC4720ED15D3600BC4AB23822A67330
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205686.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205686.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:5908C51C8516D94EE383CA16A9C7F93919CB2CB5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205912.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205912.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:4C7AA263112F1B9AD1F4D04E21FA611037803D75
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206275.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206275.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:A19C9A46C2069B1DA1EE4A77E7A817305932C663
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206334.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206334.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:F7BACDC92624138483611A443468211451C042E7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206605.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206605.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:BA236EBBF31E1B32CBBADDE523A6CA39BBFD83F1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206686.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206686.jpg" />
 </div>
 
 
@@ -549,78 +621,6 @@ magnet:?xt=urn:btih:BA236EBBF31E1B32CBBADDE523A6CA39BBFD83F1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315C1AD5A6E6695FD58A9F39B3A7124E87C91989
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651355   (207059) от 06.08.2023
-
-Дело было в Пенькове (1957) DVBRip [H.264/1080p] [Колоризованная версия] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тракторист Матвей Морозов (Тихонов), парень веселый и озорной, гроза всей деревни. Его любила дочь председателя, и любви этой отец не одобрял. Тем не менее Матвей на ней женился, и все было бы тихо да спокойно, но... В колхоз к деду приехала из Ленинграда Тоня, и устоявшиеся нравы и обычаи в деревне начинают меняться. Она собирает молодежь, затевает строительство (   Читать дальше...   )Производство: СССР, Студия им. ГорькогоЖанр: драма, мелодрамаРежиссер: Станислав РостоцкийАктеры: Вячеслав Тихонов, Светлана Дружинина, Майя Менглет, Владимир Ратомский, Валентина Телегина, Анатолий Кубацкий, Юрий Медведев, Александра Харитонова, Юрий Мартынов, Елена МельниковаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 1:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8E4504CFB97E23D9EF755C478B3B2724AF61E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651349   (207068) от 06.08.2023
-
-Бинго Бонго / Bingo Bongo (1982) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек-обезьяна, найденный где-то в джунглях Конго, перевезен в Милан и назван Бинго-Бонго. Одна лишь Лаура, женщина-антрополог, верит в человеческие качества этого необузданного полуживотного, и их привязанность друг к другу даже перерастает в любовь.Производство: Италия, Германия (ФРГ) / IntercapitalЖанр: комедия, семейныйРежиссер: Паскуале Феста КампанилеАктеры: Адриано Челентано, Кароль Буке, Феличе Андреази, Энцо Робутти, Вальтер Д’Аморе, Роберто Марелли, Альфио Патане, Элизабет Коббен, Маурицио Табани, Марио БариллаПеревод: Многоголосый профессиональный (СЕЕ)Язык озвучки: русский, итальянскийСубтитры: русские (pgs)Продолжительность: 01:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D59FD9A42647572B6C081B4C8DBA2F4DEED86DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650977   (207097) от 04.08.2023
-
-Пчелиная матка (Королева пчел: Современная история) / The Conjugal Bed (Una storia moderna - L'ape regina) (1963) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодожены любят друг друга. В их супружеской постели царит идиллия, но когда женщина беременеет, всё меняется. Провокационная и удачная сатира на католическую мораль. Черная комедия о мужчине, долго добивавшегося молодой капризной женщины, а, наконец, женившегося на ней, горько пожалевшем об этом. Жена своей непрерывной властно-нежной опекой сводит мужа в могилу. (   Читать дальше...   )Производство: Италия, ФранцияЖанр: драма, комедияРежиссер: Марко ФеррериАктеры: Уго Тоньяцци, Марина Влади, Вальтер Гиллер, Сини, Риккардо Феллини, Джан Луиджи Полидоро, Нино Винджелли, Акилле Майерони, Ренато Монтальбано, Вера РагацциПеревод: Одноголосый закадровыйЯзык озвучки: русский, итальянскийСубтитры: английские, итальянскиеПродолжительность: 01:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1807CCB3A3791A47ABFB36F595828F0D87CE45C1
 ```
 
 

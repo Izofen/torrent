@@ -1,3 +1,78 @@
+###  Публикация: 1689891   (124384) от 04.01.2024
+
+Вадим Скумбриев | Департамент Контроля Реальности (Книга 3). Иллюзия контроля (2023) [MP3, Юрий Несговоров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, все слышали о попаданцах – людях, которые внезапно перемещаются из одного мира в другой. Одни благодаря своим познаниям наводят в нездешнем мире шороху. Другим – не везёт… Так вот, оказывается, каждый попаданец учтён, а их деятельность отслеживается специальными органами. Артём Лещенко уже давно живёт в параллельном мире, но по-прежнему мечтает вернуться (   Читать дальше...   )Жанр: Героическая фантастика, ПопаданцыИздательство: 1С-ПаблишингПродолжительность: 09:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981171C04FD56252B0C1DAC8E3B282DA4EB5D46F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689895   (124385) от 04.01.2024
+
+Google Chrome 120.0.6099.200 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB46FC89E701FACC6B5DE9870B766ACD1495D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823306   (124386) от 11.10.2025
+
+Стихи русских поэтов v2.0.6.3 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи русских поэтов - содержит более 19000 стихи 260 русских поэтов.
+
+Александр Пушкин
+Сергей Есенин(   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 11.10.2025Разработчик: TTdictionaryПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58A5A83A3278E30EDA956D9AA90484A59A0A7BF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689785   (124387) от 04.01.2024
 
 Предатель / Il traditore / The Traitor (2019) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124387.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:E339CFE73E9B8B9BF95EDA450629DDB918B27A11
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124388.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ WPS Office + PDF v18.6 b1486 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124389.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.708 Fix Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124390.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Laibach - 3 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Class
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124391.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:854AAE2C9C25C67BA83470CCD25F85D7A5A04368
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124392.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:F8B9A179F5DEBBB9221250248BE0D4392543B0BD
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124393.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:3A7DC238B7AD5FC1CF68E3A1529F60A947D66A58
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124394.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ Andrii Yurlov - Northern Low Blues (2024) [MP3|320 Kbps] <Blues, Instrumental, H
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124395.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ magnet:?xt=urn:btih:9E53CC6A95F7EB4F204074EFC150170B23374719
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124396.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:59705E6E63F52E459F9B9C3D652ABA7B08FB08D3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124397.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ Vanessa Paradis - Le retour des beaux jours (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124398.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ magnet:?xt=urn:btih:4C967C55B01407A36EA8E136168FECF01A950779
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124399.jpg" />
 </div>
 
 
@@ -329,7 +404,7 @@ John Lennon and Yoko Ono Plastic Ono Band with Elephant’s Memory - Power To Th
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124400.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ ASAP Utilities for Excel 8.4 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124401.jpg" />
 </div>
 
 
@@ -381,7 +456,7 @@ Procreate (Corel) Painter 7 7.1.357 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124402.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ magnet:?xt=urn:btih:6B54AD0081462BF9C245CCB48B3FEAD2B72D4C78
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124403.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ The Orb - Buddhist Hipsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambien
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124404.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ magnet:?xt=urn:btih:576CE9F308222805742BBF5FE4130182999DEA8A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124405.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ magnet:?xt=urn:btih:267FBFF076535DEC8B4309742BB580805F423915
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124406.jpg" />
 </div>
 
 
@@ -505,7 +580,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.003/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124407.jpg" />
 </div>
 
 
@@ -529,7 +604,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v14 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124408.jpg" />
 </div>
 
 
@@ -556,7 +631,7 @@ magnet:?xt=urn:btih:CFC6DBBD613A20F09CED46A4357E1C931FB10AC8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124409.jpg" />
 </div>
 
 
@@ -567,80 +642,6 @@ magnet:?xt=urn:btih:CFC6DBBD613A20F09CED46A4357E1C931FB10AC8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C26799284EABAF416D5B24F779CEF9FE5DEEE61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823371   (124410) от 11.10.2025
-
-PSPaudioware - PSP preQursor3 3.0.0 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124410.jpg" />
-</div>
-
-
-###  Подробнее
-
-PSP preQursor3 предлагает уникальные фильтры PSP с низкими резонансными пиками для уменьшения артефактов звона, отличным разделением полос и узким вырезом при ослаблении. Все четыре фильтра представляют собой фильтры колоколообразного типа при усилении и имеют прогрессивную добротность.
-PSP preQursor3 представляет усовершенствованное аналоговое моделирование предусилителя (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C16DAEDD2406DB0AD700A391DBD5D2763C9754C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823370   (124411) от 11.10.2025
-
-Woodstock Audio - Open Compressor 1.0.2 VST 3 (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Open Compressor призван раскрывать технические процессы и предоставлять пользователям информацию, необходимую для принятия оптимальных творческих решений.
-Основой пользовательского интерфейса Open Compressor является множество усовершенствованных визуализаторов, которые показывают тип и степень применяемой компрессии, эквализации и сатурации в детальном виде, превосходящем (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE557286C5A221850F3D15DFB80C7B697864E4D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689727   (124412) от 04.01.2024
-
-Неукротимая Анжелика / Indomptable Angelique (1967) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поиски мужа приводят Анжелику к морскому побережью, где следы Жоффре де Пейрака обрываются… Капитан королевской галеры, пораженный красотой молодой женщины, принуждает ее подняться на борт и сопровождать его в плавании.Производство: Франция, Италия, Германия / Cinéphonic, Films BorderieЖанр: мелодрама, приключения, историяРежиссер: Бернар БордериАктеры: Мишель Мерсье, Робер Оссейн, Роже Пиго, Кристиан Роде, Этторе Манни, Бруно Дитрих, Паскуале Мартино, Зигхардт Рупп, Польдо Бенданди, Омеро КапаннаПеревод: Дублированный (Советский дубляж)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208645CCEE837033BCE26A5F6C7241D66B591DD2
 ```
 
 

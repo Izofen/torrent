@@ -1,3 +1,80 @@
+###  Публикация: 1761073   (103115) от 17.11.2024
+
+Telegram Desktop 5.8.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, английский, Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1903EEB35746C4911DB76EB7E744BCC80559ACE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761038   (103116) от 17.11.2024
+
+Пикник - Родом Ниоткуда (1988) Release 2004, Grand Records [WavPack|Lossless|image + .cue] <Soft Rock, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Невидим
+02. Интересно
+03. Нет Берегов
+04. Романс(   Читать дальше...   )Жанр: Soft Rock, Goth RockПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068BF7970C815B39908084A10790DBBCCF47BF20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760982   (103117) от 17.11.2024
+
+VivaVideo Video Editor v9.22.5 Mod by MustHave [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103117.jpg" />
+</div>
+
+
+###  Подробнее
+
+VivaVideo - это простой в использовании видеоредактор и профессиональный редактор видео , который помогает вам легко записывать и показывать свою жизнь.Скачайте Viva Видеоредактор для монтаж и обработка видео с фото, музыкой и эффектами, делитесь ими на ютуба, Инстаграм, Тик Ток Профессиональный видеоредактор с эффектами и бесплатное программа для монтажа видео. (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 16.11.2024Разработчик: QuVideo Inc. Video Editor & Video Maker AppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65D734F6F91D8894384F7D940A6D10327E826D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760766   (103118) от 17.11.2024
 
 Underworld - Strawberry Hotel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive, Techno, Electronic>
@@ -6,7 +83,7 @@ Underworld - Strawberry Hotel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103118.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:8EF5A5B646148EBE584730029470E08C056F0B0A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103119.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ VA - Steel Bars - A Rock Tribute To Michael Bolton (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103120.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:4E132ED6A0B625CC959BD79C10E881EF07895C58
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103121.jpg" />
 </div>
 
 
@@ -110,7 +187,7 @@ Tubesnakes - Navasota TX (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103122.jpg" />
 </div>
 
 
@@ -137,7 +214,7 @@ magnet:?xt=urn:btih:403FCDC2F9490957B1E3E2696A6388DA04A05FAC
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103123.jpg" />
 </div>
 
 
@@ -164,7 +241,7 @@ The Feelgooders - Soul & Imagination (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103124.jpg" />
 </div>
 
 
@@ -191,7 +268,7 @@ MotoGP. Этап 20 из 20. Гран-при Барселоны. Гонка (17.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103125.jpg" />
 </div>
 
 
@@ -215,7 +292,7 @@ Solon Fishbone - Better Late (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103126.jpg" />
 </div>
 
 
@@ -242,7 +319,7 @@ The Damned - Darkadelic (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk Rock, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103127.jpg" />
 </div>
 
 
@@ -269,7 +346,7 @@ magnet:?xt=urn:btih:704DA9259AF2DB1252DF5F4C38F13500E19A1866
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103128.jpg" />
 </div>
 
 
@@ -293,7 +370,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.1 (1952, 1953) Blue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103129.jpg" />
 </div>
 
 
@@ -320,7 +397,7 @@ Times Of Grace - Studio Albums (2 releases) (2011; 2021) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103130.jpg" />
 </div>
 
 
@@ -345,7 +422,7 @@ magnet:?xt=urn:btih:85C939975E79CECAEAEA0F2576B171B65512C58F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103131.jpg" />
 </div>
 
 
@@ -372,7 +449,7 @@ magnet:?xt=urn:btih:C39FE98A0B2834126208775A19E977294BD6EF07
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103132.jpg" />
 </div>
 
 
@@ -397,7 +474,7 @@ Blues Rock Generations - Blues Rock Generations No.5 (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103133.jpg" />
 </div>
 
 
@@ -424,7 +501,7 @@ magnet:?xt=urn:btih:A737285C504CE4334EFFF2D5FB5DCCA913A3974F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103134.jpg" />
 </div>
 
 
@@ -449,7 +526,7 @@ Don Henley (Eagles) - Building The Perfect Beast (1984) Remastered 2024 [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103135.jpg" />
 </div>
 
 
@@ -476,7 +553,7 @@ magnet:?xt=urn:btih:9D8B0807EE653AC114CFE1B567CE40AE015F328A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103136.jpg" />
 </div>
 
 
@@ -500,7 +577,7 @@ magnet:?xt=urn:btih:57253DA799D9D743408CC3B688FD4CE75AE37514
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103137.jpg" />
 </div>
 
 
@@ -527,7 +604,7 @@ magnet:?xt=urn:btih:7BC00CEF0A20228BB658B87C411C4248703D4DC4
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103138.jpg" />
 </div>
 
 
@@ -554,7 +631,7 @@ Lonerider - Down In The Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103139.jpg" />
 </div>
 
 
@@ -581,7 +658,7 @@ VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103140.jpg" />
 </div>
 
 
@@ -595,87 +672,6 @@ VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A98D5A636FA01394E62AA34716B06055B77D9B13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760821   (103141) от 16.11.2024
-
-Дмитрий Райс - Я счастливчик (2013) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цунами (acoustic)
-02. Капли дождя
-03. Life-Кайф
-04. Не замерзай(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C0C9AA222C14650EC37125FF568E3E5E3EF0C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760880   (103142) от 16.11.2024
-
-Kenny 'Blues Boss' Wayne - Ooh Yeah! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ooh Yeah! (2:53)
-02. Whatcha Gonna Do Now? (4:28)
-03. Baby, I'm Your Man (2:24)
-04. Sailing With The Sunset (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF3CB348685AF43B664E24E4D8E50925293E95B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760812   (103143) от 16.11.2024
-
-Анита Цой - Твоя_А (2011) CD+DVD [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. Разбитая Любовь
- 03. Твоя_А
- 04. Ну И Пусть(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45B2509B4BB037370A12E0380C7160FEA639FE8
 ```
 
 

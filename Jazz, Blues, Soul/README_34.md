@@ -6,7 +6,7 @@ Blues Mucus - Blandad Kompost (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68417.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hitman Blues Band - Calling Long Distance (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68431.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Highway Heavy - Pinky Ring Music Volume 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68438.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The John Ford Blues Society - Rollin' On (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68455.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mike Eric Blues Band - Cupcakes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68456.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mitch Ryder - With Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68457.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Willie Clayton - Double Play Soul & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68458.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ms. Jody - Cougar on the Prowl (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68460.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mojo Diggers - The First on the Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68461.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Patriot - Untuk Indonesia (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68462.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Robi Zonca - TO FILL MY SOUL (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68463.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Woong San - Once I Loved (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68480.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Too Bad Jims - Over the Hill (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68488.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Todd Shuffler - Stoned and Lonesome (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68489.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Enrico Pieranunzi - The Complete Remastered Recordings On Black Saint & Soul Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68507.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Janiva Magness - Back For Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68531.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Duke Pearson - Four Classic Albums (1959 - 1962) 2CD, 2016, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68558.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Popa Chubby - I Love Freddie King (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68569.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Woong San - Tomorrow (2012) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68634.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Duke Ellington - Early Ellington: The Complete Brunswick And Vocalion Recordings
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68697.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Gene Ammons - Three Classic Albums Plus (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68719.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Emily Remler - Cookin' At the Queens: Live In Las Vegas (1984,  1988) 2CD, 2024,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68739.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kenny Wayne Shepherd, Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68758.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Nu Urban Jazz Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68781.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Pop International Hits Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68793.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sun Ra And His Arkestra - Jazz In Silhouette (1959) 2CD, 2023, Cosmic Myth Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68809.jpg" />
 </div>
 
 

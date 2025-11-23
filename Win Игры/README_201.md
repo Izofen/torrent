@@ -6,7 +6,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61340.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61342.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ STAR WARS: Dark Forces Remaster (2024) [Ru/En] (1.0.1308.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61352.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Strange Horticulture (2022) [Ru/Multi] (1.1.26) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61359.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ STAR WARS: Battlefront Classic Collection (2024) [Ru/Multi] (20240319/dlc) Repac
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61367.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61370.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Silverwood Bay: An Eleanor Grey Mystery (2024) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61388.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ONE PIECE: PIRATE WARRIORS 4 (2020) [Ru/Multi] (1.0.8.0/dlc) Scene Rune [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61440.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61442.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack Other s [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61470.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61538.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Distant Bloom (2024) [Multi] (1.0) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61542.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61544.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Once Upon a Jester (2022) [Multi] (1.1.2) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61558.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61560.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Millennia (2024) [Ru/Multi] (1.0.1.F/dlc) Scene FAiRLIGHT
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61571.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61583.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61591.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Living Legends 11: The Red Trace / Живые легенды 11: Красный 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61603.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Between Horizons (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61610.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61625.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61629.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Alpha Protocol (2010) [Ru/Multi] (1.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61633.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Silent Nights: The Pianist Collector's Edition / Безмолвные ночи. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61636.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Scene Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61649.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rise of Gun (2024) [Multi] (3.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61664.jpg" />
 </div>
 
 

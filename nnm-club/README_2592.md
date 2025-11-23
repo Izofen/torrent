@@ -6,7 +6,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 09 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68140.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68141.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Markus Schulz - Global DJ Broadcast World Tour, MAD Club Wynwood Miami (2025-04-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68142.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Shari Puorto - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68143.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fear Factory - Demanufacture (1995) Reissue, 2007, Cargo Records [FLAC|24/192|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68144.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Calyces - Fleshy Waves of Probability (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68145.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Stealth - Metal Force (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68146.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:C372666E204844613EC505F8D4C53A4E39118408
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68147.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wildmen Bluesband - Troubled Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68148.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wildan Kusnadi - Highway (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68149.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Richard Davies & The Dissidents - High Times & Misdemeanours (2025) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68150.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tim Hain - Tales of Timeless Tim (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68151.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Marcos Ottaviano - Marcos Ottaviano And His Blues Band: Celebrando 35 Anos De Ca
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68152.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ PS & Co - I brennandi husi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68153.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mike Dangeroux - Empty Chair (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68154.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tony Slone - Tony Slone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68155.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:BD697A90A7B5F73292D8F72A9599397ACC27D3FE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68156.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Okay Alright - soften my eyes after sleepless nights (deluxe) (2025) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68157.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:68B2E8594CEBFF8B87FC325B587920D03BC7BC10
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68158.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:FF346329376D5427289B562A97871E53A9786B83
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68159.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Trance In Motion Vol.387 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68160.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Otto Dix - Классика (2025) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, New 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68161.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:6DC232F87646F04C4C24B38D12F7D4EA1E366439
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68162.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:C8006117214D396C5291EF6A97655C08E71538FC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68163.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - EDM Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68164.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ magnet:?xt=urn:btih:76A3C55E824E1870BD9939AA245CB9FF275DEC1A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68165.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ NirLauncher Package 1.30.8 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128460.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ashampoo WinOptimizer 26.0.0.22 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128461.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PowerISO 8.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128480.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Media Encoder 2024 24.1.0.68 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128485.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ OBS Studio 30.0.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128503.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.2.3593 Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128520.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Soul Browser 1.3.92 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128677.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Soul Browser 1.3.92 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128701.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Speedtest от Ookla 5.2.4 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128704.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Lark Player - YouTube Music & Audio Player 5.66.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128707.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Duolingo: изучай языки 5.131.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128721.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Adobe Photoshop Express 11.8.192 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128731.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Smart AudioBook Player 10.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128732.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Topaz Video AI 4.0.6 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128761.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PDF Extra PDF Editor & Scanner v10.8.2228 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128764.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PowerISO 8.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128766.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Topaz Photo AI 2.1.4 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128773.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ W10Privacy 5.0.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128779.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Topaz Photo AI 2.1.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128781.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:C01B1F70F2F3995695CC56D2DB774EE4900136D4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128789.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ SHAREit Premium: Pure Share v1.1.18.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128793.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Purvpn 10.0 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128884.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ FreeTube 0.23.11 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128893.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ MAX Desktop 25.13.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128935.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:2CE19AD6918FABA69CCB7FF392D66542A3D9130D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128941.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Linda Jo Rizzo - Best Of (1999) [FLAC|Lossless]<Italo-Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128943.jpg" />
 </div>
 
 

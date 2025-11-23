@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58345.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:698D340D1FA83DD1AB752304035C9C1FBFF11B81
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58346.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Apowersoft Screen Capture Pro 1.5.4.3 RePack (& Portable) by elchupacabra [Multi
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58347.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Paranormal Files 10: Counterpart / Паранормальные явления 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58348.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Music News vol.369 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58349.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Music News vol.370 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58350.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:CD307489EB57841A82915742FDC09BD946BFC374
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58351.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - HITS AND MORE HITS 2024 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58352.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ O&O Defrag Professional 28.0 Build 10014 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58353.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58354.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Topaz Gigapixel AI 7.1.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58355.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:6AE58CD524E17061F1DD2F92A5201D4BF1711B20
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58356.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:226168EC7A2C2B8F450A1401F8125E06BFD8856B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58357.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4440CEB9E38838A11ED0758021EF17558AD447CE
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58358.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Format Factory 5.17.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58359.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:DCBAD296FB75488241D3340CB0891C8E06F79C78
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58360.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Tents and Trees (2024) [Ru/Multi] (2404041009) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58361.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Punto Switcher 4.5.0 Build 576 RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58362.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:798250E6370F1F7528E412C01CBF26D431BEAB50
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58363.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:3589AD894F80943799F798ABBB1C9F13A508A577
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58364.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0212DBAD7693911844234FBE63E839DB1F02C451
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58365.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:0212DBAD7693911844234FBE63E839DB1F02C451
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58366.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Format Factory 5.17.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58367.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:115374DC729199AE50CC64DDFD1BCDF718DB8223
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58368.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:B8419FAD5B70664EAE41B4C71B7C93A9365E8F90
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58369.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.2.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58370.jpg" />
 </div>
 
 

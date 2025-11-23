@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38339.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38340.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C13FFDDE0DA7201F98F6F59171EF2AA76088527D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38341.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:95268F661CD685C059B9838FAA5D5407366AA4AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38342.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Notepad++ 8.7.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38343.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Cyberpunk 2077 (2020) [Ru/En] (1.63 HotFix/dlc) Repack West4it
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38344.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:59F76BEDF4AA91FCB7B6003442DBA8362E5F4B2A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38345.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7C1D1D0E102E921088CA262F2F9D02BF14CA833D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38346.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:89B91D9E3A6F182CBC3F86542F25BCFC8DD09662
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38347.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ House Builder (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38348.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8551A0A10DA9AA601DCFF77452A657F8849E1383
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38349.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mail.ru отменила бесплатные вечные 100 ГБ для пе�
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38350.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Mail.ru отменила бесплатные вечные 100 ГБ для пе�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38351.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Amnezia VPN удалена из AppStore по требованию РКН
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38352.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Amnezia VPN удалена из AppStore по требованию РКН
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38353.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:1E9735A02A617B320DB56852544A32E2F36A89FE
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38354.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:1957DC532094567A14B6D6AE4602DCCBC5508145
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38355.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:2CA088FEE7B298AD8FA519F926E1A9C68EF8AB3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38356.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:46CD6C4667DE4EFA2B97552EF0D2D97FA37B83CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38357.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:32BA7FCB955D8D21713D3F6C33350923964CECB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38358.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Scene Razor1911
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38359.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:FF4BA228BF124C48A9E1C65D3A21BE942B9BF36F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38360.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:9A911D918EB88CD3AB3CC246E37BA99B4CA18327
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38361.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:FC4D78DDBF9674342CC4927CB0B0C2916E1C8808
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38362.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:BC9C711E78C3912E9DE0AE638F56FC09A1E472A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38363.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ensiferum - Studio Albums (11 releases) (2001-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38364.jpg" />
 </div>
 
 

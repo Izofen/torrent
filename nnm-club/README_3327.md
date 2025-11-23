@@ -1,3 +1,84 @@
+###  Публикация: 1739157   (106184) от 26.07.2024
+
+Stratovarius - Heroes (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Symphonic Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heroes [3:46]
+02 - We Are Not Alone [4:35]
+03 - Dragons [4:05]
+04 - The Game Never Ends [3:54](   Читать дальше...   )Жанр: Metal, Symphonic Metal, Power MetalПродолжительность: 00:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAEDAF59FBB2E20FF5B6396E9BB5C5964AD032B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739069   (106185) от 26.07.2024
+
+Мураками - Казань / Big Twin Arena 2024 (2024) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106185.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рок-н-ролл (Live)
+2. Встречи не будет (Live)
+3. 364 (Live)
+4. Наутёк (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA10346BF77B8C4811336F2FDC5F6337FED5ACB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739079   (106186) от 26.07.2024
+
+VA - Balatonica Chillout: Summer Edition 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incognita Alma - Mahe (Original Mix) [5:05]
+02. Gary B - Rainy Day In The City (Original Mix) [1:52]
+03. Supira - Beautiful You (Original Mix) [5:04]
+04. Beamy - Still Waters (Original Mix) [4:26](   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E43FE8B5E5060CD8D8397AD3819A6F0F136B949
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739077   (106187) от 26.07.2024
 
 Моя семья / Treasure (2024) TS [звук с TS] [AD]
@@ -6,7 +87,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106187.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106188.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ AudioRealism - ABL3 3.3.3.2 Standalone, VSTi, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106189.jpg" />
 </div>
 
 
@@ -80,7 +161,7 @@ magnet:?xt=urn:btih:3EEFF718CB7CE4B957C12FFAE40259C1C325D380
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106190.jpg" />
 </div>
 
 
@@ -104,7 +185,7 @@ VA - Sunrise Sessions Vol. 1 - Mixed by Robilardo (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106191.jpg" />
 </div>
 
 
@@ -131,7 +212,7 @@ VA - Redux Selection Vol. 8 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106192.jpg" />
 </div>
 
 
@@ -158,7 +239,7 @@ The Blues Vultures - You Can't Ruffle My Feathers (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106193.jpg" />
 </div>
 
 
@@ -185,7 +266,7 @@ Sparrow Blue - No Lies, No Tricks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106194.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ Photo Supreme 2024.2.2.6599 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106195.jpg" />
 </div>
 
 
@@ -236,7 +317,7 @@ Christopher Wyze & the Tellers - Stuck in the Mud (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106196.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ Sam Joyner - COME WHAT MAY (I'll Always Love You) (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106197.jpg" />
 </div>
 
 
@@ -290,7 +371,7 @@ Rusty Apollo - Apollo-III (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106198.jpg" />
 </div>
 
 
@@ -317,7 +398,7 @@ The Conqueror Root - The Conqueror Root (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106199.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ The B. Christopher Band - 106 Miles to Chicago (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106200.jpg" />
 </div>
 
 
@@ -371,7 +452,7 @@ Sierra Green & the Giants - Here We Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106201.jpg" />
 </div>
 
 
@@ -398,7 +479,7 @@ The Chatham Singers - Blues That Kills (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106202.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ Rodrigo Belloni - Like a Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106203.jpg" />
 </div>
 
 
@@ -452,7 +533,7 @@ Paul Bley - The Complete Remastered Recordings on Black Saint & Soul Note (1984 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106204.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ Bill Nadeau - Mutts and Mongrels (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106205.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ Category 7 - Category 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106206.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ Memento Database Pro 5.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106207.jpg" />
 </div>
 
 
@@ -557,7 +638,7 @@ Jethro Tull - Live - Bursting Out (1978) 3 x CD, Reissue, 2024, Chrysalis [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106208.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ FontViewOK 8.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106209.jpg" />
 </div>
 
 
@@ -595,82 +676,6 @@ FontViewOK 8.51 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B6FC71407305EEA2394AA5085DF7E522BE6DE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738990   (106210) от 25.07.2024
-
-Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bless 'em With the Blade (2:48)
-02. Sinners of the Seven Seas (3:01)
-03. Kyrie Klitorem (3:04)
-04. Heretic Hunters (3:27)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C99D2F65AE2C817ABC684BA406822E2936C2DC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738939   (106211) от 25.07.2024
-
-FanControl V197 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106211.jpg" />
-</div>
-
-
-###  Подробнее
-
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C6839ED3A76CF67DADB265DB2667184BAD2080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738844   (106212) от 25.07.2024
-
-XYplorer 26.30.0000 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106212.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer - продвинутый файловый менеджер, который внешне напоминает стандартный Проводник Windows, но имеет множество дополнительных функций и инструментов для удобной работы с файлами. Особенностью этого менеджера является поддержка мультивкладок - откройте столько окошек, сколько Вам нужно, и быстро переключайтесь между ними.
-Приложение имеет гибкие настройки и (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBA0A915166C6BEE26F25CC780A9BC0EF0C63A2
 ```
 
 

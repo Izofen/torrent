@@ -1,3 +1,178 @@
+###  Публикация: 1085466   (157777) от 21.12.2016
+
+WindowsPlayer 3.5.1.0 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Player - инновационный видеоплеер для просмотра видео и фильмов, без кодеков! Смотрите любимые фильмы в высоком качестве, у себя на компьютере, ноутбуке или на Вашем ТВ. Забудьте слово "кодек" - плеер и без них умеет воспроизводить все форматы видео и аудио. Windows Player - плеер каким его хотел бы видеть каждый пользователь компьютера - все воспроизводит, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8940DCF15444D9B080FB58BE2EE4DFD75363F26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518103   (157779) от 18.12.2021
+
+Вкус азарта / Taste of Excitement (1969) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка Джейн Керрелл отправляется на отдых во Францию, но, не успев прибыть на место, становится жертвой сразу нескольких неудачных покушений на ее жизнь. Обращение в полицию не дает никаких результатов: там ей попросту не верят. Джейн решает сама разобраться в происходящем с помощью случайного знакомого, художника Пола Хедли.Производство: Великобритания, США / Group W, Trio FilmЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Дон ШарпАктеры: Ева Ренци, Дэвид Бак, Питер Вон, Пауль Хубшмид, Софи Харди, Кэй Уолш, Френсис Мэтьюз, Джордж Правда, Питер Боулз, Алан РоуПеревод: Одноголосый любительский, SATKURСубтитры: Русские, английскиеПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00A4397EC4E1FBB8C929FA8481310220F53F17A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346617   (157780) от 20.12.2019
+
+TG Pro (Temperature Gauge Pro) 2.46 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157780.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2019Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F166928EF2304D69F0A34908C93471CB373D23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600514   (157781) от 27.12.2022
+
+Жорж Мельес: Первый волшебник кинематографа / Georges Melies: First Wizard of Cinema (1896-1901, 1953) DVDRip (диск первый)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается коллекция фильмов Жоржа Мельеса, изданная студией "Фликер аллей" на пяти DVD. Жорж Мельес построил первую в мире киностудию в 1896 около Парижа; оттуда увидели свет фильмы фантастические, сказочные, мечтательные, исторические, фантазийные, мелодрамы, комедии положений - даже эротические фильмы. Вы найдёте здесь образчики всех (   Читать дальше...   )Производство: Франция, StarFilmЖанр: немое кино, короткометражныйРежиссер: Жорж МельесАктеры: Жорж Мельес, Антуан Феро, Антуан Люмьер, Фелисьен Треве, Альфонсе Винклер, Жанна д’Альси, Томас Уайт, Блёэтт Бернон, Барраль, Dupeyron и др.Перевод: НемойСубтитры: Интертитры, русские отдельным файломПродолжительность: 00:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A2583873B43ACA1E07D67C08E6D16E48EA0848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676421   (157782) от 13.11.2023
+
+Unheilig - Das 2. Gebot (2003) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva
+02. Maschine
+03. Gib Mir Mehr
+04. Sternenschiff(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6711810F465EFCCE7734D6F8FA3404DD6B89439
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346629   (157783) от 20.12.2019
+
+VA - Little Sea Lounge (2019) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luzzana - Tlvi
+002. Sodur - Benatural
+003. Davide Paganotto - Va Pensiero
+004. Soul Train - Jules Renauld And Von Mondo(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 09:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0F01D0CCAF6EDA61858B83CB4F1C8A3471F6D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471351   (157784) от 18.12.2021
+
+Рисунки дождем (2018) WEBRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная на реальных событиях история одной тюменской семьи возвращает нас в недалекое прошлое, 60-е годы. Обычный советский мальчишка, Костя, борется с тяжелой болезнью и попадает в детский противотуберкулезный санаторий. Болезнь мальчика открывает глаза героям на истинную ценность жизни.Производство: Россия / Студия ПрессингЖанр: ДрамаРежиссер: Константин ОдеговАктеры: Сева Храмов, Николай Аузин, Елена Самохина, Юлия Ауг, Наталья Никулина, Владимир Толоконников, Леонид Окунев, Сергей Осинцев, Алексей Шлямин, Константин Одегов, Юлия РытиковаСубтитры: ОтсутствуютПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89468E159C8C4AF63660332D3A22B48F38FF8D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600446   (157787) от 27.12.2022
 
 На вынос / Take Out (2004) BDRip [VO]
@@ -6,7 +181,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157787.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ Bethzaida - LXXVIII (1998) [FLAC|Lossless|image + .cue] <Deathб Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157788.jpg" />
 </div>
 
 
@@ -57,7 +232,7 @@ magnet:?xt=urn:btih:FC175C95F9710820D37F251B7D191000CC84ADE9
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157789.jpg" />
 </div>
 
 
@@ -81,7 +256,7 @@ Bethzaida - War Vol. II (1999) Split [FLAC|Lossless|image + .cue] <Death, Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157792.jpg" />
 </div>
 
 
@@ -108,7 +283,7 @@ magnet:?xt=urn:btih:F59EF92865FE622FF594040C8B4F0CF2B54143FE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157793.jpg" />
 </div>
 
 
@@ -134,7 +309,7 @@ magnet:?xt=urn:btih:0BA3840C227162559B73EFBEE0D66C61C35FD3D1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157794.jpg" />
 </div>
 
 
@@ -158,7 +333,7 @@ Weedcraft Inc. 1.3 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157795.jpg" />
 </div>
 
 
@@ -184,7 +359,7 @@ Fantastic Wallpapers (12.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157796.jpg" />
 </div>
 
 
@@ -208,7 +383,7 @@ magnet:?xt=urn:btih:7BAA0DAA1CCD3F9B144734F4ADC1165FE97D4C02
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157797.jpg" />
 </div>
 
 
@@ -232,7 +407,7 @@ magnet:?xt=urn:btih:E917CAD00276A06E486300FC13992FF45707320E
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157799.jpg" />
 </div>
 
 
@@ -256,7 +431,7 @@ magnet:?xt=urn:btih:8A17FCBE4F264D90AEABD60F07BF41D50C40E9E2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157800.jpg" />
 </div>
 
 
@@ -280,7 +455,7 @@ DaVinci Resolve Studio 12.5.4 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157801.jpg" />
 </div>
 
 
@@ -307,7 +482,7 @@ Kampf - Nothing But Wrath (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157803.jpg" />
 </div>
 
 
@@ -334,7 +509,7 @@ Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157804.jpg" />
 </div>
 
 
@@ -361,7 +536,7 @@ CrystalDiskInfo 8.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157805.jpg" />
 </div>
 
 
@@ -385,7 +560,7 @@ magnet:?xt=urn:btih:BFD39FF4CB5AB92923C4619F47EBC7AB7F6CED27
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157806.jpg" />
 </div>
 
 
@@ -409,7 +584,7 @@ VA - Beatport Electronic Pack 01 (2019) [MP3|320 Kbps] <Electronic, Synthwave, S
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157807.jpg" />
 </div>
 
 
@@ -436,7 +611,7 @@ South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157808.jpg" />
 </div>
 
 
@@ -463,7 +638,7 @@ Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157809.jpg" />
 </div>
 
 
@@ -477,187 +652,6 @@ Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92C693885BBE4004E821750F8FABEE987AF4ECFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588761   (157810) от 13.12.2012
-
-Газета | Красная Армия № 187 (2484) [18 августа 1937] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157810.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Красная Армия» — ежедневная газета, орган политического управления Украинского военного округа. Выходила в 1919—1925 годах на русском языке в Киеве, в 1925—1934 в Харькове на украинском языке и с 1934 до января 1938 года снова в Киеве. У «Красной Армии» были приложения: «Красная Звезда» (1921—1922), «Вийськор» (1927—1933) и др.
-
-В раздаче - номер, посвящённый Дню авиации.
-
-В газете 4 страницы, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F69EE9F669D15C1A8A7F95D0A7FFFECB6AF653
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084979   (157813) от 21.12.2016
-
-Невероятные изобретения / Wicked Inventions (2015) SATRip (1 сезон: 1-30 выпуск из 30)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гонка вооружений и освоение космоса привели к созданию множества замечательных вещей. Мы пользуемся ими каждый день, не подозревая об их удивительном происхождении. В сериале "Невероятные изобретения" мы постараемся приоткрыть тайны науки и разгадать загадки прошлого, чтобы познакомиться с удивительной историей всем нам известных предметов. В каждом выпуске (   Читать дальше...   )Телекомпания: Великобритания, Defenition Media LtdЖанр: Документальный, технологии, инновации, дизайн, путешествияРежиссер: Джэймс ФловерПеревод: Одноголосый закадровый, профессиональный,Продолжительность: 30 x ~00:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4859A7AA2197F7B5E5874941C444FC487F744548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518197   (157814) от 18.12.2021
-
-VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - A Voyage to Nowhere (04:35)
-02. Mare et Monti - The Beauty of Things (04:00)
-03. Buddhatronic - Ambervox (04:00)
-04. Artenovum - An Angel Voice (Soundpleasures Mix) (05:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1143B58C3E9C1B475B8173A7A1C4F1F6596DB70E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194406   (157816) от 24.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 11) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Лев Лещенко  -  Я люблю тебя всегда  3:03
-02.  Иосиф Кобзон  -  На седьмом этаже  3:10
-03.  Муслим Магомаев  -  Свадьба  3:21
-04.  Эдита Пьеха  -  Огромное небо  5:05(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1535993F2CCE6FE9CF07B5826024363DDC67C4D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346723   (157819) от 20.12.2019
-
-System Monitor 2.7 (build 191216) [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157819.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Monitor - это приложение для панели меню macOS, предназначенное для незаметного информирования вас о деятельности вашего компьютера. Вы можете получать современные технические данные в любое время, такие как загрузка процесса, температура процессора, потребление основной памяти, пространство для хранения, активность диска, связь на сетевых интерфейсах и т. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2019Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B1C21EB444FA141FC5EBDCBD1439EF9022B7FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600346   (157820) от 27.12.2022
-
-На вынос / Take Out (2004) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китайский иммигрант, проживающий в США нелегально, просрочил несколько платежей криминальному кредитору. И времени, чтобы расплатиться, у Мин Диня осталось только до вечера сегодняшнего дня.Производство: США / Cre FilmЖанр: драмаРежиссер: Шон Бэйкер, Цоу Ши-ЧинАктеры: Чарльз Янг, Jeng-Hua Yu, Wang-Thye Lee, Джастин Ван, Джефф Хуанг, Shih-Yun Tsou, Joe Chien, Waley Liu, Ed Jansen, Дэвид ЛюПеревод: Одноголосый любительский (Мика Бондарик | 18+)Язык озвучки: русский, китайскийСубтитры: английские (full, SDH, forced на китайскую речь), русскиеПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BC086DCAA2C64E8011446A32E468B7602EF27E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 196195   (157821) от 20.12.2020
-
-Маргулис, Чиж, Ромарио - Имена (2010) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157821.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Евгений Маргулис - Таня - дура!
-2. Чиж & Co - Пой, как Маргулис
-3. Ромарио - Мой главный порок
-4. Евгений Маргулис - Не молчи(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B60E83E033882858C1F87F55933B27A1671689
 ```
 
 

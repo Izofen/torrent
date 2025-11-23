@@ -1,3 +1,84 @@
+###  Публикация: 1726358   (108706) от 29.05.2024
+
+Fughu - Stolen Pictures (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me for Fun [00:06:30]
+02. Alive [00:06:02]
+03. Fade Away [00:05:35]
+04. Chemical Rainbows [00:05:18](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8543E5626C345E3D5F949D3EF62EF203F367481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726663   (108707) от 29.05.2024
+
+Freeways - Dark Sky Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Protected (2:26)
+02. Can't Deny Destiny (3:27)
+03. Give Em The Gears (3:45)
+04. Dark Sky Sanctuary (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507FA4869447A81281D2F7736710857891D19F5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726465   (108708) от 29.05.2024
+
+twikipedia - for the rest of your life (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. room for one [00:03:12]
+02. garden [00:03:43]
+03. cardboard boxes [00:03:22]
+04. learn yourself [00:02:49](   Читать дальше...   )Жанр: alternative rockПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC00DC499119CBFD6CE0CE61AF4F210AD72AD079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726533   (108709) от 29.05.2024
 
 Telegram Desktop 5.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +87,7 @@ Telegram Desktop 5.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108709.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108710.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ Maegandune - Melodic Memoirs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108711.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ Jesse Kramer - HWY 12 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108712.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108713.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ VA - Chillout Melodies of the Outgoing Summer, Vol. 3 (2023) [MP3|320 Kbps] <Lou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108714.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ magnet:?xt=urn:btih:DE40ADC279B4A85F78FC05D1661FEE821644D841
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108715.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ magnet:?xt=urn:btih:E4B11BD1A39CF4574FDEB987ACF0420DDF1320BE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108716.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ magnet:?xt=urn:btih:AA70B3293FBD9328A227440A252BA2C9B820BBA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108717.jpg" />
 </div>
 
 
@@ -239,7 +320,7 @@ VA - Smooth Jazz House Music (Bar & Coffee Lounge) (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108718.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ StaxRip 2.39.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108719.jpg" />
 </div>
 
 
@@ -291,7 +372,7 @@ VA - Infiniti Night Club R&B Collection No. 1 (2006) [WavPack|Lossless|image + .
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108720.jpg" />
 </div>
 
 
@@ -318,7 +399,7 @@ magnet:?xt=urn:btih:4514FEAF9FBB5D80D19D75BBEEDDC583073F497B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108721.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ magnet:?xt=urn:btih:3F3018059B24F011258BB2010488AFF62467722C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108722.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ Opera GX 109.0.5097.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108723.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:46E9AF82710AC0FC48F731DEDA8EA6FF0A3DDB1F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108724.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ Teramaze - Eli: A Wonderful Fall from Grace (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108725.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ Jennifer Lyn & The Groove Revival - Live from the Northern Plains (2024) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108726.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ magnet:?xt=urn:btih:11E8248271EF0BEBA1517D0E33CBB1115ED454C8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108727.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Zaranka - Feel at Easy (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chill-Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108728.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ Methodica - Hypocricity (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108729.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ magnet:?xt=urn:btih:03869ED3C230112B14202FA79C1DBF8C50608069
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108730.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ magnet:?xt=urn:btih:E9C40E333C21463DF10F419F6FB73B283FA37280
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108731.jpg" />
 </div>
 
 
@@ -584,87 +665,6 @@ magnet:?xt=urn:btih:E9C40E333C21463DF10F419F6FB73B283FA37280
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2135A3CD608ED970450CC1BDDFFFD3C8F4398DEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726415   (108732) от 28.05.2024
-
-Ирвинг Вашингтон и др. | Сказки американских писателей. Храбрый Братец Опоссум (2012) [MP3, Владимир Левашёв, Станислав Федосов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Сказки любят все, потому что каждый человек до конца жизни остается немножко ребёнком. В сказках заключена мудрость народа, они помогают понять самые сокровенные устремления народной души.
-Музыка Саши Артишок и Геннадия Медведева.
-(   Читать дальше...   )Жанр: Зарубежная детская литература, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 06:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FDA063CDD108DDE98E036AE9E74042676D58DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726346   (108733) от 28.05.2024
-
-Mad Hatter - Oneironautics (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oneironautics
-02. Lord Of Dragons
-03. Death In Wonderland
-04. I Will Find My Way(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7BE6E6DF86D384488FCE8DEA0AE8A7B64024DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726350   (108734) от 28.05.2024
-
-Phil Woods - Into The Woods: The Best of Phil Woods (1987 - 1995) 1996, Concord Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Bird's Children [7:12]
-02. Hal Mallet [5:12]
-03. Bop Stew [7:31]
-04. Misirlou [7:04](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A3C4A65FBE4580ACD9946D27800185F3E94D27
 ```
 
 

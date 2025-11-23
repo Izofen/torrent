@@ -6,7 +6,7 @@ Black Sabbath - Deep Black (The Massachusetts Broadcast 1983) (2023) Live [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133078.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Forever Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133082.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Billy's Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133084.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Steely Dan - Gaucho (1980) Reissue, 2023, UMG [FLAC 24/192|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133115.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Bruce Springsteen - The Live Series: Songs on Keys (2023) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133117.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Elvis Presley - If Every Day Was Like Christmas (1994) [FLAC|Lossless]<Rock, Bal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133124.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Crate Digging - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133147.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133154.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A9BADD56A7DFD3759161AB5303CFF874FFF40DFD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133155.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Citizen Soldier - ICU (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133157.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Brian Durbin - Only Jams (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133160.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звез
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133165.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Hellfrost - Hellfrost (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133173.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Greydon Fields - Otherworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133175.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Sebasteion - Tales +1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133179.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133180.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Kelakos - Hurtling Towards Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133187.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133189.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Night In Gales - Sylphlike (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133195.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:CACC1E09EFA535B8193737B0D5F32BC4A6BC60BA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133204.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Peter Gabriel - i/o (2023) [MP3|320 Kbps] <Art-rock, neo-folk, progressive-rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133399.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Voodoo Circle - 15 Years of Voodoo (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133477.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Voodoo Circle - 15 Years of Voodoo (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133483.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:1D915B5C90C8191D21450B9CC7CF4B0FB9900A8A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133495.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ The Moody Blues - Long Distance Voyager (1981) Reissue, 2008, Decca [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133507.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Dissection - Storm of the Light's Bane (1995) Reissue, Remastered, 2006, 2CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133518.jpg" />
 </div>
 
 

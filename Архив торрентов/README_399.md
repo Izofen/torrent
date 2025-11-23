@@ -6,7 +6,7 @@ National Geographic: Профессия - разрушитель / National Geog
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95154.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95161.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95161.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Shaltu (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95207.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Peter Tosh - The Best Of (1996) [FLAC|Lossless]<Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95216.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95216.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Straight Up Drum & Bass! (2012) [MP3|320 кб/с]<Drum'n'Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95224.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Glary Utilities Pro 2.43.0.1419 Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95231.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95231.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MegaTroll Media - All Music (2011-2012) [MP3|320 кб/с]<Troll Music>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95243.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:815A75EAC5EA3D33455876EF64DC4DF481D6F2F3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95265.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Chacruna (Compiled by DJ Gino) (2008) [APE|Lossless]<Psychedelic / Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95311.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95311.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Chacruna (Compiled by DJ Gino) (2008) [APE|Lossless]<Psychedelic / Progress
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95318.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Xubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95324.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:3FDE7CFE612E9D709BD5FF11E7CC2BDED50AED67
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95326.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95326.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3FDE7CFE612E9D709BD5FF11E7CC2BDED50AED67
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95329.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + Extens
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95338.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95338.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + Extens
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95345.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:7CD4B1DF1ECA584E8FA3A9D4AF53CB4267C96AA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95356.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95356.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - The Songs of Leonard Cohen Covered (2012) [FLAC|Lossless]<Folk-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95362.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95362.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - The Songs of Leonard Cohen Covered (2012) [FLAC|Lossless]<Folk-Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95363.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:9C8D7A1D3F30A240A12C2696DAF849D83A0E4CCE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95367.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95367.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG: Суперсооружения древности / Ancient Megastructures (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95370.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95409.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Schallusion - Morphologic Tales (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95416.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:BB20C2817CC8F55BC050A0B30441C1DEDBC3D1CB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95430.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:02003CD8B160191511D2F30F22FD062F6162B290
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95435.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ John McLaughlin with The One Truth Band - Electric Dreams (1979) [FLAC|Lossless]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95443.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95443.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ KISS - Dressed To Kill (1975) [MP3|320 кб/с]<Hard Rock, Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95459.jpg" />
 </div>
 
 

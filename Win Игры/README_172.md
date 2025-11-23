@@ -6,7 +6,7 @@ Star Leaping Story (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50864.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50872.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FlashBack 2 (2023) [Ru/Multi] (20240627) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50875.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ KoroNeko (2024) [Multi] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50876.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chocolate Factory (2024) [Ru/Multi] (1.006) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50885.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Metal Gear Rising: Revengeance (2014) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50900.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MotoGP 24 (2024) [Multi] (1356129) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50910.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50916.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Circuit Superstars (2023) [Ru/Multi] (1.6.2/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50924.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50925.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Frozen Synapse 2 (2018) [En] (108) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50942.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51001.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51002.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51003.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51006.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Forge Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51035.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51044.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Crystal Caves HD (2020) [En] (1.1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51045.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51055.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Fish Game (2023) [En] (00.02.79) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51057.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cookie Cutter (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51085.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Monster Bash HD (2021) [En] (1.1.5.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51087.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ CRUELTY (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51106.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:9CDC89DED1CEC56C43457AFEA80F1609E5996CD1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51110.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Mountains of Madness (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51112.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51139.jpg" />
 </div>
 
 

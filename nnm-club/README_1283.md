@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9B8589A825B7BDB82D5D1A8A6596BEC8B3692C9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D295F6D3DDE17BDCB7479FE2872DACF3250BAD56
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33713.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D295F6D3DDE17BDCB7479FE2872DACF3250BAD56
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33714.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:760A1287DEF44EC487A9BF6CA5EEB34F525CF5C5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33715.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:760A1287DEF44EC487A9BF6CA5EEB34F525CF5C5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33716.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:12B13BF13E3FCED95FCDFE4BA0A4530B1C08E1E6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33717.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:AD2DBD0B50FD62116164E799CFC54E3E4473C350
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33718.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:257658606F80ABD1B813C89E51EF26860F459EC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33719.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33720.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:D970995DF84210F0E8A41BCCA42E1F9B4ECE6A50
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33721.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:D970995DF84210F0E8A41BCCA42E1F9B4ECE6A50
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33722.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:A79468F9AC29F84B815855629B85BC7FED27AFC2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33723.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33724.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:C4390A4CD227EB0EC77175BFB6A878CCE044D003
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33725.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ K-Lite Codec Pack 18.7.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33726.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:C7037442C8838980F4A77FB490F16E51EA00D6AD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33727.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:5FBA34A59EAE404BD3152EB5AD2E3F85906DF9D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33728.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:98104999387711405E5702A361F5BD73DC345DAC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33729.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ State of Decay 2 (2018) [Ru/Multi] (1.3273.08/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33730.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:DFD4F6A79910D35AB8A04D28146C1A47C77977A0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33731.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:9F2171DAAF4408E22E178166FF7DA1756038E22B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33732.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:3D45739E6C45A57CD81896F4B05950AB35D58580
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33733.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.83/dlc) Repack Decepticon [Digital C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33734.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:3083B178800412CE1BFD2F1299FFFF6B139EBF86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33735.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33736.jpg" />
 </div>
 
 

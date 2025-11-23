@@ -1,3 +1,81 @@
+###  Публикация: 1686905   (126235) от 24.12.2023
+
+Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 1). Встречи начинаются (2010) [MP3, Ростислав Плятт, Василий Качалов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
+В 40-80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
+...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и спешили (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 04:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4481381097618C4939B80B8A506493C614CE42F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686960   (126236) от 24.12.2023
+
+VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betamaxx - Integrated Circuitry (4:02)
+02. Le Matos - Overdog (6:30)
+03. Absolute Valentine - She Is a Dancer (4:22)
+04. Das Mortal - The Curse (3:26)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAFFC7875B4620BFB775A27F43E6540AD2CCAB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686976   (126237) от 24.12.2023
+
+Privacy Eraser Free 6.2.0 Build 4812 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0877D19D24858866E673AD4C8855324F5D8598FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686930   (126238) от 24.12.2023
 
 Эльвира Осетина | Я тебя не отпущу... (2022) [MP3, Екатерина Мухина]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126238.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126239.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Cosmic Gate - Best Of 2023 (2023-12-20) [MP3|320 Kbps] <Progressive House, Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126240.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:F2E8CFC00791A22FA248F9200E7575B9C2A5B09D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126241.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ VA - The Best Of Hit News Vol.3 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126242.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:F517D1327F8F1C8837BB2F4ED28B34E53C989D25
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126243.jpg" />
 </div>
 
 
@@ -161,7 +239,7 @@ VA - Morning Bells Coffee Jazz Music for A Cozy Christmas Mood (2023) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126244.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ magnet:?xt=urn:btih:187CC206691BCE2B24348B89E33108DBB07B95D8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126245.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ magnet:?xt=urn:btih:C0BD5F8A063984C3F553CAD96408D275D5B86A36
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126246.jpg" />
 </div>
 
 
@@ -239,7 +317,7 @@ magnet:?xt=urn:btih:10649FFBE7A857CB66561016543C42751992F996
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126247.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ Various Artists - Best Carnival Party Jazz 2023 Brazilian Vibes (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126248.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ magnet:?xt=urn:btih:177C5AD7E2BC9DA6F3849ADF1DE254E1E37B9DB3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126249.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ magnet:?xt=urn:btih:839DDDECFA93D2FEE0B09461B14CB0D35EC65832
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126250.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ TV Girl - Death of a Party Girl (2018) Digital Album [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126251.jpg" />
 </div>
 
 
@@ -368,7 +446,7 @@ magnet:?xt=urn:btih:459B281917CF3CAD7E101426CF739B7CC3980032
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126252.jpg" />
 </div>
 
 
@@ -394,7 +472,7 @@ magnet:?xt=urn:btih:64B2FF30E092640864B59110C63FCE9031EFEA20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126253.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ magnet:?xt=urn:btih:1A4CD9E2CE8ADFC9210A046093377F655C527573
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126254.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ magnet:?xt=urn:btih:5D5A2969958BAE249C68BD7AC4A2154719BBD85B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126255.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ magnet:?xt=urn:btih:4D14E9EEB7DDE523A4AF6AFFB9B827831B2456B3
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126256.jpg" />
 </div>
 
 
@@ -497,7 +575,7 @@ magnet:?xt=urn:btih:2543AC0F98615F44392BA0D5E841781FCD5636D2
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126257.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ magnet:?xt=urn:btih:071FE10D290ADD40942561AEC48D40D34A7E4F22
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126258.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ magnet:?xt=urn:btih:51F53CA0E96CCF8CDDBD38350DAF19A7230BDE62
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126259.jpg" />
 </div>
 
 
@@ -572,7 +650,7 @@ Knight Wolf 1981 - R.A.G.E. (2023) [MP3|320 Kbps] <Darksynth, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126260.jpg" />
 </div>
 
 
@@ -586,86 +664,6 @@ Knight Wolf 1981 - R.A.G.E. (2023) [MP3|320 Kbps] <Darksynth, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB1B74F362314BF60E0E7C96E5EB706CB785C6EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686823   (126261) от 24.12.2023
-
-Рэй Брэдбери | У нас всегда будет Париж [сборник] (2020) [MP3, Александр Хошабаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэй Брэдбери был замечательным рассказчиком.
-
-Каждая история, вошедшая в книгу «У нас всегда будет Париж» – подлинная жемчужина. На каждой странице вас ждёт открытие – полёт на Марс и рассказ о пожилых супругах; размышления о том, как может измениться человеческая жизнь под влиянием одного момента, одного неосторожно сказанного слова.Жанр: Зарубежная фантастика, Интеллектуальный бестселлер, Классика фантастики, Малая проза, Научная фантастика, Социальная фантастикаПеревод: Арам ОганянИздательство: ЭксмоПродолжительность: 05:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882A256762050849AFFCF70EFF93B054D754DAE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686811   (126262) от 24.12.2023
-
-Johnny Hallyday - Made in Rock'n'Roll (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Un cri [00:03:02]
-02 - Made in Rock'n'Roll (Remasterisé en 2023) [00:02:55]
-03 - De l'amour (Remasterisé en 2023) [00:04:00]
-04 - Jamais seul (Remasterisé en 2023) [00:03:50](   Читать дальше...   )Жанр: Pop-Rock, Rock'n'RollПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32A2F6777E09D94EB8A50A6B0776674D67F5F14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686889   (126263) от 24.12.2023
-
-The Death Spell - The Death Spell (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nail You Higher Than Before (00:04:54)
-02 - Leave You Lying On The Ground (00:04:16)
-03 - Funeral Pyre (00:05:35)
-04 - Die Alone (00:02:06)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F17BDBE18BDF08460B45BC060FE7E9A0E205581
 ```
 
 

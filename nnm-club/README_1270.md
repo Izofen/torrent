@@ -6,7 +6,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33373.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33374.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33375.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ranma 1/2 (2024) | Ранма 1/2 (2024) [2024, TV, 12 эп.] WebRip 720p 10-bit
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33376.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:05185C87CD500E3068392CFFD28E96759BCD9F1A
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33377.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ao no Exorcist: Yuki no Hate Hen | Blue Exorcist: Beyond the Snow Saga | Син�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33378.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:41D18BECB171BAC80785A963AB2A016DD9F63821
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33379.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:FC91A5566B01A4C713D591079FC69D0FD4AE2A64
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33380.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Notepad3 6.24.1221.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33381.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:A6BCC6131D03FF121E1E859891E6A992E3BDBD85
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33382.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:C27AD671C9714F6E47F2AE65DFC3C1BFA4D799B0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33383.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:23666A6140D1168C7018F2C2B74DEB561FF34ADF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33384.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33385.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33386.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.35.8 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33387.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:158F6EC64F1C4B9F9FCA3F921FB6074BE69DE953
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33388.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Image Uploader 1.4.1 Build 5219 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33389.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:B9321DE3908BB0F5D35C703B8D7F8C81643F6D6E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33390.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:7859E5600AC94A7165EEDCA626F4537072C48DC8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33391.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ PIDKey Lite 1.64.4 b44 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33392.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:257157B6ECB045D2724A9FA80DDF48F78E70C516
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33393.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Folder Player Pro v5.30 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33394.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Party kara Tsuihou Sareta Sono Chiyushi, Jitsu wa Saikyou ni Tsuki / Целит�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33395.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:8B01F5B1A9ED8B4C02DE026265D20C81B8CCF94A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33396.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:E46F3D01EAAAC2D20C460290A7C5287720F48BD5
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33397.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:A8CD058D45D5EAA8E6FAA393E35006289145388C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33398.jpg" />
 </div>
 
 

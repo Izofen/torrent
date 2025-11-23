@@ -6,7 +6,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65124.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D149FB2155ABCBF5281E2FB79EBEF10ABC23E2A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65125.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65126.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9D8A1FE88728E8ABB9DF43E0D5B8E016E01963DF
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65127.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A410126AB5226A605EAE6DE1F55AEB7A27140BF8
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65128.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Calling All Astronauts - Noise Against Tyranny (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65129.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:E60079FEF8C201777FE820EAE3544EA513A71145
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65130.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:76AFD143CA7F38F2A139CB66494F6628EEFF244E
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65131.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:47B13B9C88DDD2156D1A614F606D8ED7A7DCF86E
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65132.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ AirBrush: ИИ Фоторедактор v7.11.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65133.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Assorted Compilation Part 12 (2025) [MP3|320 Kbps] <Electronic, Easy listen
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65134.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Strava: бег, велоезда, хайкинг v420.11 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65135.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Firefox Browser 140.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65136.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:AE0E0A523C1D626F57CBE095BE9A25C8287EE248
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65137.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Firefox Browser ESR 128.12.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65138.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PicWish: AI Photo Editor v2.1.7 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65139.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Motorhead - The Manticore Tapes (2025) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65140.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Manowar - Gods Of War (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65141.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:97D8052A85A1EE0CD20554D12D7AD9629BA287DF
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65142.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:3862BECBABEDAF2B0216DC2A4FFA28304F7B2EC4
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65143.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65144.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ As the Sea Parts - Psychosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65145.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ MotoGP. Этап 12 из 22. Гран-при Чехии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65146.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Forth Wanderers - The Longer This Goes On (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65147.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Charlie Hunter & Ella Feingold - Different Strokes for Different Folks (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65148.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Chyco Simeon - Future (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65149.jpg" />
 </div>
 
 

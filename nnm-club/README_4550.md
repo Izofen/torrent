@@ -1,3 +1,154 @@
+###  Публикация: 970274   (140876) от 30.12.2015
+
+Depeche Mode - Playing The Angel (2005) SACD [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Pain That I'm Used To (4:11)
+02. John the Revelator (3:42)
+03. Suffer Well (3:49)
+04. The Sinner in Me (4:56)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66F0551F0AD8983171294497B86DBC045BA5928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 828304   (140879) от 29.12.2018
+
+Владимир Колычев | Королева шансона (2014) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лихие 90-е... Время "бригад", "стрелок", "крышевания" и безнаказанных убийств. В портовом городке Южноморске хозяйничают уголовники, руководит ими авторитет по кличке Сугроб. Ошалевший от вседозволенности, он однажды похищает семнадцатилетнюю Аллу и отдает ее для развлечения своим "браткам". Сугроб на сто процентов уверен, (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5880DBA2CBE399F9C1C856760747FA6B5487F833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678368   (140880) от 23.11.2023
+
+В России введут утилизационный сбор для смартфонов, планшетов, ноутбуков и видеокамер
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140880.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России планируют ввести утилизационный сбор для импортной электроники: планшетов, смартфонов, ноутбуков и видеокамер. Об этом сообщили на круглом столе Комитета Совета Федерации по экономической политике. Инициативу уже поддержали в Минпромторге.Планируется, что утильсбор на электронику будет работать по той же системе, что и утильсбор на импортные автомобили, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520599   (140881) от 29.12.2021
+
+The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Never Smile Again [2:59]
+02. A Latin's Lamp [3:44]
+03. Close to You [4:37]
+04. My Silent Love [2:50](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E434BE39F9B4503D7E1490209C2EA3791B9CF12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970199   (140882) от 30.12.2015
+
+Проекты - Проект ProShow Producer - Ёлка светится огнями [PSH]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Новогодний фотоальбом собранный из файлов одноимённой фотокниги. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
+Превью и аудио трек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441716D46F5BCCB7E425D038B9BCD3B5F0881C5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195480   (140883) от 30.12.2017
+
+С. Моложавый, Е. Шимкевич | Проблемы трудовой школы в марксистском освещении (1924) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый вниманию товарищей-педагогов ряд статей является результатом нашей не только теоретической, но и практической работы как в дореволюционной школе, так и в школе трудовой. Продолжительная работа в средних учебных заведениях старой школы на непосредственном опыте вскрыл перед нами вое дефекты и ложные предпосылки прежней школьной системы и ее методов, побудила (   Читать дальше...   )Жанр: История, политология, искусство, психология, педагогикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D510CB1363FE221D3E5AC82E3FDE13D35BCE8DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435884   (140885) от 29.12.2020
 
 App Cleaner & Uninstaller Pro 7.3 [Multi/Ru]
@@ -6,7 +157,7 @@ App Cleaner & Uninstaller Pro 7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140885.jpg" />
 </div>
 
 
@@ -32,7 +183,7 @@ Call of Duty Black Ops 2/II (2012) [Ru] (1.0.0.1 upd3) RePack R.G. Games [Digita
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140886.jpg" />
 </div>
 
 
@@ -57,7 +208,7 @@ Call of Duty Black Ops 2/II (2012) [Ru] (1.0.0.1 upd3) RePack R.G. Games [Digita
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140887.jpg" />
 </div>
 
 
@@ -81,7 +232,7 @@ Downie 4 v4.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140888.jpg" />
 </div>
 
 
@@ -107,7 +258,7 @@ Punto Switcher 4.1.9 Build 903 Final RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140889.jpg" />
 </div>
 
 
@@ -131,7 +282,7 @@ magnet:?xt=urn:btih:F3F5D604F0FE9523DFE35179BFE7CEE0EDF4AE4F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140890.jpg" />
 </div>
 
 
@@ -155,7 +306,7 @@ VA - International Sports Collective 7 (2017) [MP3|320 Kbps] <House, Euro-House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140891.jpg" />
 </div>
 
 
@@ -182,7 +333,7 @@ KiCad 5.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140893.jpg" />
 </div>
 
 
@@ -206,7 +357,7 @@ magnet:?xt=urn:btih:6D0839BACBAED8246DFE75AC7E76AF364C04FE7C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140894.jpg" />
 </div>
 
 
@@ -230,7 +381,7 @@ George Shearing - Walkin' (1995) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140895.jpg" />
 </div>
 
 
@@ -257,7 +408,7 @@ magnet:?xt=urn:btih:DD1B356E8E2408D85EA225AF9FFA18E621B3BE27
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140897.jpg" />
 </div>
 
 
@@ -282,7 +433,7 @@ magnet:?xt=urn:btih:50E39533F972B36400B77B024B6FA1DB10FE4A12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140898.jpg" />
 </div>
 
 
@@ -306,7 +457,7 @@ Lyzzard - Savage (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140899.jpg" />
 </div>
 
 
@@ -333,7 +484,7 @@ magnet:?xt=urn:btih:79237FE127B7435A9CBFA923CF58BCCEFE6123C9
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140900.jpg" />
 </div>
 
 
@@ -357,7 +508,7 @@ magnet:?xt=urn:btih:219E01ED3D39D70E43359077436F7EED93B4D507
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140901.jpg" />
 </div>
 
 
@@ -382,7 +533,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140902.jpg" />
 </div>
 
 
@@ -407,7 +558,7 @@ magnet:?xt=urn:btih:DCF885E154087F8E53BC67DC9294CDE0ED11B581
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140904.jpg" />
 </div>
 
 
@@ -431,7 +582,7 @@ VA - Sunshine Dance 9 (2017) [MP3|320 Kbps] <House, Euro-House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140905.jpg" />
 </div>
 
 
@@ -458,7 +609,7 @@ magnet:?xt=urn:btih:CC1F1A83035FF38CD99CDA7E9C9ECED55940A2BD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140906.jpg" />
 </div>
 
 
@@ -482,7 +633,7 @@ Scrollow 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140907.jpg" />
 </div>
 
 
@@ -493,156 +644,6 @@ Scrollow позволяет управлять различными параме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F2AD3B12C3FBB038F609AFF996A7180848A5CA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348504   (140908) от 29.12.2019
-
-Мандалорец / The Mandalorian (2019) WEB-DL [H.264/720p] (сезон 1, серии 1-8 из 8) Kerob [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Кайл Пацек, Педро Паскаль, Брендан Уэйн, Бернард Баллен, Александра Гилман, Тейт Флетчер, Омид Абтахи и др.Перевод: Многоголосый любительский (Kerob)Продолжительность: ~00:39:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D80F54E76E1D19EC085DB0117FC8B51FB5FC55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970385   (140909) от 30.12.2015
-
-VA - Народный Микс Новогодний (2015) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Паола - Новогодняя Сказка
-002. Согдиана - Эпидемия
-003. Ольга Орлова - Птица
-004. Dan Balan - Плачь(   Читать дальше...   )Жанр: PopПродолжительность: 12:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8223E6F3030DC9DA0AC12859C8163BB0375815D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272711   (140910) от 29.12.2018
-
-Стивен Эриксон | Память льда (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжетное продолжение Садов Луны с действием, происходящим параллельно Вратам Мертвого дома. Новая война, новые враги, новый Дом; многое проясняется и еще больше запутывается. Боги все ближе, чтобы «взойти» достаточно всего лишь отрубить тысячи голов, спасая одну жизнь под флагом окровавленной детской рубашки; некоторые небожители уже спустились (были сброшены) вниз. (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 40:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F816F56866B79FD509BD29148458ECC54997975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435717   (140911) от 29.12.2020
-
-Hard Disk Sentinel PRO 5.61.15 Build 11973 Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0E9EDC084D1821C40B7ED88968E1A74FD8CE0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088187   (140912) от 30.12.2016
-
-Risssing - Risssing (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Breaks, Downtempo, Future Garage>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная, романтичная электроника в сочетании с ломаными битами в разных их формах. Это не концептуальный альбом, а скорее сборник разных по настроению треков, которым автор подводит некую черту в своём творчестве. Каждый трек - отражение каких-то воспоминаний, чувств и мыслей.01. Your Cloud [03:47]
-02. Morning [03:04]
-03. Event Horizon [04:49]
-04. Four [03:21](   Читать дальше...   )Жанр: Atmospheric Breaks, Downtempo, IDM, Future GarageПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D6839085CDD45FA070545375BB6AD9CA59CCCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679007   (140913) от 23.11.2023
-
-Слепой / The Blind (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задолго до того, как Фил Робертсон из "Утиной династии" стал звездой реалити-шоу, он влюбился в мисс Кей и создал семью, но его демоны грозили разрушить их жизнь. В фильме "Слепой", действие которого происходит в глухих болотах Луизианы 1960-х годов, рассказывается о никогда ранее не раскрывавшихся моментах жизни Фила, когда он пытается победить (   Читать дальше...   )Производство: США / GND Media Group, Stacey Films, Tread LivelyЖанр: драмаРежиссер: Эндрю ХайаттАктеры: Арон фон Андриан, Амелия Ив, Мэттью Эрик Уайт, Бриэль Робиллард, Коннор Тиллман, Джон Алес, Ронан Кэрролл, Скарлетт Абинанте, Керри Кнуппе, Аарон Далла ВиллаПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240F1CBFB127F80003797EF8D466FD2E6982E50D
 ```
 
 

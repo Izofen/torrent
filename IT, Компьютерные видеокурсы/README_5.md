@@ -6,7 +6,7 @@ PurpleSchool, Антон Ларичев, Игорь Матюшкин | Осно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27651.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deworker Pro, Дмитрий Елисеев | Способы ускорения 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27659.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27659.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Deworker Pro, Дмитрий Елисеев | Большой стрим про S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27664.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27664.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Frontendblok, Анна Блок | «Продвинутый курс по вёр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27675.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dartware | Многопоточность в C++ (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27701.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ D-Link | Видеоматериалы про основы сетевых тех�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27704.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Convert Monster | Яндекс.Метрика (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27705.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:880871A084AC44B12F25BA29021DCB353F33A602
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27753.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27753.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microarch, Кирилл Ветчинкин | Микросервисная арх
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27797.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Product University, Дмитрий Жечков, Артем Новиков | Сu
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27909.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Andrew Perkins | Build a CMS in Symfony 2 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28021.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ PurpleSchool, Антон Ларичев, Дмитрий Мозулёв | Сов�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28092.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco SD-WAN (Viptela). Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28284.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28284.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco ACI. Базовый �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28310.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Skillbox, Дмитрий Шадрин, Арсений Павлов | Специ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28435.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Product University, Анна Филина, Дмитрий Жечков, Алек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28441.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28441.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Systems.Education | Конференция по проектированию п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28492.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Master-Skills & Андрей Скидан | Программирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28507.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Merion Academy, Никита Буцев | Онлайн-курс по сетев�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28521.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ ITVDN | VUE.JS (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28530.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Infostart, Артур Аюханов, Александр Кунташов, Ва�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28720.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:602C264A10744EF472209766CA369C6273DFD79E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28849.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Merion Academy, Сергей Егоров | MikroTik (2024) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28956.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28956.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:D886E24097FB4BBF2B19D1E5E3F66926727956A5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28963.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28963.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:20B3409A2FEA5CDE71A6F4EAA18DA472CD4B79BC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29054.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Deworker Pro, Дмитрий Елисеев | Стрим про безопасн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29069.jpg" />
 </div>
 
 

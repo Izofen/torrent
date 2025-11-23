@@ -1,3 +1,180 @@
+###  Публикация: 1194868   (152391) от 27.12.2017
+
+K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Alternative, Post-grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not An Addict (04:50)
+02. A Sound That Only You Can Hear (04:15)
+03. White Kite Fauna (04:59)
+04. Mr. Freeze (04:23)(   Читать дальше...   )Жанр: Indie rock, Alternative, Post-grungeПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36B4862F1409AD6FD9015ED78DC2DEFF4DCDCD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518827   (152392) от 21.12.2021
+
+Джеймс Кори | Пространство (Книга 8). Гнев Тиамат (2021) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ворота в будущее человечества открыты. Одним махом стали доступны более тысячи новых миров, в их числе и Лакония, где император Дуарте установил режим, с помощью которого он намерен подчинить себе остальную часть галактики. Кажется, ничто не сможет остановить его – даже Солнечная система находится под его контролем. И хотя команда Росинанта начинает опасную подпольную (   Читать дальше...   )Жанр: Фантастика, космоопераПеревод: Галина СоловьеваПродолжительность: 16:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052134459318938BDAF0ECD466061F89876CFFC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434098   (152393) от 23.12.2020
+
+Павел Андреевич Виктор | Школьный курс физики 7-11 классы (2014-2020) CamRip
+
+>>След.
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офлайн подборка уроков физики по программе 7-11 классов замечательного преподавателя физики одесского Ришельевского лицея Павла Андреевича Виктóра. Их около 700, они охватывают как курс основной, так и курс старшей школы. Курс находится в свободном доступе на авторском YouTube канале.Жанр: ФизикаПродолжительность: 483:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F55B1014326CA818A4A1EF9AAAE1C35686E72F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677074   (152394) от 16.11.2023
+
+Смерть на границе / Death on the Border (2023) WEB-DLRip [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступная организация похищает юных девочек, превращая их в жертв сексуальной торговли. Коррумпированная полиция закрывает на это глаза, и единственными спасительницами похищенных становятся две решительные девушки — бывшая полицейская и ее подруга. Вместе они бросают вызов преступникам, всеми способами вызволяя их жертв и расправляясь с похитителями, параллельно (   Читать дальше...   )Производство: США / W ProductionsЖанр: криминал, драма, детективРежиссер: Венди УилкинсАктеры: Эрик Робертс, Шеннон Элизабет, Дэнни Трехо, Фрэнк Уэйли, Кико Эллсворт, Венди Уилкинс, Кика Магалхэс, Джей Хайрон, Дач-Барр Джонсон, Робин МакДональд и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:12Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271208   (152395) от 22.12.2018
+
+Wirecast Pro 11.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. В приложение интегрирована поддержка карт захвата Blackmagic. Кроме того, программное обеспечение поддерживает высококачественные видео форматы Main Concept H.264 и On2 VP6 Flash. «Чтобы производить и транслировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2018Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76972FEED722C64EC5F4560381F5F6417B8510C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194825   (152396) от 27.12.2017
+
+Manu Zain - Don't Give Yourself Away (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Don't Give Yourself Away (5:16)
+2.  Lou-Lou (4:33)
+3.  Precious (4:34)
+4.  Last Train (3:49)Жанр: Balearic, DowntempoПродолжительность: 00:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4514A50154ADBA189A4FEB3E77EFEE0D1FBF817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347343   (152397) от 23.12.2019
+
+We Are Stardust - A Dance for the King (2017) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Post Rock, Doom Jazz>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shepherd's Walk (2:57)
+02. Squid Marks on a Broken Fool: Volume One (7:45)
+03. Private Windy Plains (6:40)
+04. A Stroll to Nowhere (2:50)(   Читать дальше...   )Производство: JM Throne ProductionsЖанр: Experimental, Ambient, Post Rock, Doom Jazz, InstrumentalПродолжительность: 00:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E289E5ECF53DD50F87561F7ADB0DF240780940BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518881   (152398) от 21.12.2021
 
 Windows 11 Manager 1.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +183,7 @@ Windows 11 Manager 1.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152398.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ UltraSearch 3.0.1.634 Free + Portable & Pro with patch [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152399.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ Bandicam 7.0.1.2132 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152400.jpg" />
 </div>
 
 
@@ -78,7 +255,7 @@ Duolingo Plus: изучение иностранных языков 5.39.3 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152401.jpg" />
 </div>
 
 
@@ -103,7 +280,7 @@ Coolutils Total PDF Converter 2.1.226 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152402.jpg" />
 </div>
 
 
@@ -127,7 +304,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152403.jpg" />
 </div>
 
 
@@ -152,7 +329,7 @@ Helloween - Better Than Raw (1998) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152405.jpg" />
 </div>
 
 
@@ -179,7 +356,7 @@ Stanislav Vdovin | Unit 21 | Initial Run - Collection 11 Releases (2007-2017) Oc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152406.jpg" />
 </div>
 
 
@@ -203,7 +380,7 @@ Psiphon 3 build 180 (15.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152407.jpg" />
 </div>
 
 
@@ -227,7 +404,7 @@ magnet:?xt=urn:btih:E525E16D009D1491383A3C261B24736A62E52523
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152408.jpg" />
 </div>
 
 
@@ -254,7 +431,7 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриотизм Мориарт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152409.jpg" />
 </div>
 
 
@@ -278,7 +455,7 @@ magnet:?xt=urn:btih:2529C69943DA760D8CDBB554E86BD3E819B82DB3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152410.jpg" />
 </div>
 
 
@@ -302,7 +479,7 @@ SmartOffice - View & Edit MS Office files & PDFs v3.12.14 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152411.jpg" />
 </div>
 
 
@@ -326,7 +503,7 @@ NeoFinder Business 7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152413.jpg" />
 </div>
 
 
@@ -350,7 +527,7 @@ magnet:?xt=urn:btih:DECE0B8C6B234E75ECACACD35BBB611AF253A2F2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152414.jpg" />
 </div>
 
 
@@ -374,7 +551,7 @@ magnet:?xt=urn:btih:49206C753FD285785563F1C00AB96FEE3AC94BD6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152415.jpg" />
 </div>
 
 
@@ -398,7 +575,7 @@ magnet:?xt=urn:btih:3384D4B1D2E85F41BCF1011C12EEAE40933B5641
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152416.jpg" />
 </div>
 
 
@@ -425,7 +602,7 @@ magnet:?xt=urn:btih:4F2AA41F3028F3E98C841DB89616B92E8F70C851
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152417.jpg" />
 </div>
 
 
@@ -449,7 +626,7 @@ magnet:?xt=urn:btih:7BAF8BDF743EF6222403E9AE27C886083B82094E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152418.jpg" />
 </div>
 
 
@@ -460,182 +637,6 @@ magnet:?xt=urn:btih:7BAF8BDF743EF6222403E9AE27C886083B82094E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8924BCA5CAD05808BFAF59503B31828DFC6A3E58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434096   (152420) от 23.12.2020
-
-Выход / Exit (2020) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152420.jpg" />
-</div>
-
-
-###  Подробнее
-
-2047 год. Небольшая компания, основанная тремя друзьями программистами, создаёт "Inifinitalk" - искусственный интеллект, предлагающий вечную жизнь с помощью оцифровки разума. Справедливо полагая, что их разработка принесёт огромные деньги, ребята решают выйти на мировой рынок, но на этом этапе им приходится столкнуться с настоящей акулой IT-бизнеса – американским (   Читать дальше...   )Производство: Германия / Sommerhaus FilmproduktionЖанр: Фантастика, триллерРежиссер: Sebastian MarkaАктеры: Лаура Де Бур, Aram Tafreshian, Jan Krauter, Дэвид К.С. Тсе, Эмануэла фон Франкенберг, Астрид Полак, Торстен Мертен, Trang Le Hong, Фридрих МюкеПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:27:21Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBB2AA473890F5BF880EBC70139BB005B2EC090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195148   (152421) от 27.12.2017
-
-Александр Исбах | Золотые кувшинки (1957) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы о молодежи, в героическом времени периода гражданской войны.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B9BAA400EDDDA08CA1C8ADC70A754BC719342F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347548   (152422) от 23.12.2019
-
-Adware Zap Pro 2.7.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Adware Zap восстанавливает первоначальное состояние браузера, удаляя нежелательные расширения, cookie-файлы и кеш, а также сбрасывая настройки браузера. Adware станет для вас оптимальным выбором в следующих случаях:
-Ваш браузер постоянно отображает всплывающую рекламу мошеннических или просто подозрительных продуктов и услуг, даже если вы отказываетесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: VorInn IncПоддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B696F4A3C0C9F278EF94CABB8976CE0D5D6C21C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677018   (152423) от 16.11.2023
-
-ASCOMP Secure Eraser Pro 6.004 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152423.jpg" />
-</div>
-
-
-###  Подробнее
-
-ASCOMP Secure Eraser — программа для полного удаления данных с жесткого диска. Сразу после удаления информации Secure Eraser несколько раз перезаписывает освободившиеся секторы производной комбинацией символов, что делает практически невозможным ее восстановление программами, предназначенными для восстановления данных.
-Кроме надежного удаления данных, Secure Eraser (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E924D9DD0D3F8E4EEF87B3F1177CC1AD7FDE3AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518883   (152425) от 21.12.2021
-
-HWiNFO 7.16 Build 4650 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152425.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5854B1EC4348B4AB8B2443E1C2FF4432FB8C0F1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600053   (152426) от 30.12.2022
-
-Miss Li - The best (2006-2017) Compilation Album [MP3|320 Kbps] <Music Hall, Indie Pop, Blues Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Daughter or a Son
-02. Beautiful
-03. Billy’s Got a Gun
-04. Black Widow(   Читать дальше...   )Жанр: Music Hall, Indie Pop, Blues RockПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF30021D2EBFAE107A948B3DC7D4AF67FC8397A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271160   (152427) от 22.12.2018
-
-Promises - Promises (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby It's You (3:49)
-02. Let's Get Back Together (3:21)
-03. Who's Givin' It To Ya (3:33)
-04. I'm Sleeping Over (3:31)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C802997AB6EBA9E1EB7BE46E34518B5A13235E6
 ```
 
 

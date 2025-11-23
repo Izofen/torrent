@@ -1,3 +1,124 @@
+###  Публикация: 1638612   (247680) от 09.06.2023
+
+Роб Персиваль и др. | JavaScript с нуля до профи (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга демонстрирует возможности javascript для разработки веб-приложений, сочетая теорию с упражнениями и интересными проектами. Она показывает, как простые методы javascript могут применяться для создания веб-приложений, начиная от динамических веб-сайтов и заканчивая простыми браузерными играми. В "javascript с нуля до профи" основное внимание уделяется (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86756FBA8133B1BD9168A4D7875D054E0BF5D818
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638541   (247708) от 08.06.2023
+
+Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга показывает, как данные могут быть полезны для решения бизнес-задач. В ней рассматриваются различные методы анализа данных для обнаружения скрытых закономерностей и взаимосвязей, прогнозирования будущих результатов, оптимизации эффективности и повышения результативности работы организаций. Вы узнаете, как анализировать данные, применяя концепции статистики, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480B1799A8BD71FFE8392F7773038AF9726AA1A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833758   (247886) от 02.11.2025
+
+Mitch Leeuwe | Mitch Leeuwe Tutorials / Учебные пособия Митча Леуве [48 книг] (2019-2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник учебных пособий - самоучителей по рисованию от нидерландского художника Митча Леуве (Mitch Leeuwe).
+Раскройте свой творческий потенциал и улучшите свои навыки рисования с помощью пошаговых обучающих курсов! Независимо от того, новичок вы или хотите отточить свою технику, данные уроки охватывают всё: от дизайна персонажей и анатомии до рисования животных, (   Читать дальше...   )Жанр: 2D графика, рисование, самоучительЯзык: АнглийскийИздательство: Самиздат (mitchleeuwe.nl)Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68AEEF30BA71DDB4FAA7C9816E59FEC0C08E8725
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492398   (248094) от 05.05.2012
+
+Х. Граф | Руководство для начинающего пользователя Joomla! 2.5 [2012] [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга окажется полезной всем — тем, кто ранее не имел дела с системами управления содержимым; кто использовал другие CMS; и тем, кто знаком с Joomla! предыдущих версий. В книге рассказывается, как создать, наполнить и оптимизировать сайт на основе Joomla!, а также о том, как настроить и адаптировать данную CMS под свои нужды. Автор книги, Хаген Граф — преподаватель, консультант, разработчик. За 8 лет издательской деятельности он написал множество популярных книг технической тематики, рассказывая про Mambo, Joomla!, Drupal, Apache, вопросы безопасности Windows. Работы Хагена Графа переведены на 14 языков.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968A4B7CCCFB7A4C2E7B72DEC25C118E1688375C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492393   (248099) от 05.05.2012
+
+С.В. Одиночкина | Разработка баз данных в Microsoft Access 2010. Учебное пособие [2012] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248099.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии излагаются методические рекомендации к выполнению лабораторных работ по работе с СУБД Microsoft Access 2010 по дисциплине "Введение в специальность". Предназначено для студентов, обучающихся по всем профилям подготовки бакалавров направления 210700 "Инфокоммуникационные технологии и системы связи".2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A7A830267022CA7BC92B37EFFD6A6870703F0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492415   (248333) от 06.05.2012
 
 Т.В. Зудилова и др. | Работа пользователя в Microsoft Excel 2010. Учебное пособие [2012] [PDF]
@@ -6,7 +127,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248333.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248333.jpg" />
 </div>
 
 
@@ -30,7 +151,7 @@ magnet:?xt=urn:btih:481F584CB1A69F847995F521A2940BB7C6224F35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248674.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248674.jpg" />
 </div>
 
 
@@ -54,7 +175,7 @@ magnet:?xt=urn:btih:1B96EBAB79368A0DC4E3132A4DC57817CCD21275
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249265.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249265.jpg" />
 </div>
 
 
@@ -78,7 +199,7 @@ magnet:?xt=urn:btih:601BA99B36C9A8E33D17AB79908AC2E47A9194C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249293.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249293.jpg" />
 </div>
 
 
@@ -104,7 +225,7 @@ magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249312.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249312.jpg" />
 </div>
 
 
@@ -129,7 +250,7 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249573.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249573.jpg" />
 </div>
 
 
@@ -155,7 +276,7 @@ magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249922.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249922.jpg" />
 </div>
 
 
@@ -179,7 +300,7 @@ magnet:?xt=urn:btih:9C80B0438F329F890DAA3C1D4759D3380DDC1D84
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249927.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249927.jpg" />
 </div>
 
 
@@ -203,7 +324,7 @@ Pablo Munoz Gomez | A Guide To: ZBrush Comic Style Render / Руководств
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250036.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250036.jpg" />
 </div>
 
 
@@ -229,7 +350,7 @@ Takashi Iijima | Action Anatomy: For Gamers, Animators, and Digital Artists / А
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250047.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250047.jpg" />
 </div>
 
 
@@ -253,7 +374,7 @@ Dane Hillard | Publishing Python Packages (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250220.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250220.jpg" />
 </div>
 
 
@@ -277,7 +398,7 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250300.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250300.jpg" />
 </div>
 
 
@@ -301,7 +422,7 @@ magnet:?xt=urn:btih:62A7DC6E13EDB876F0C5FCBF1B24AC857444C048
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250418.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250418.jpg" />
 </div>
 
 
@@ -327,7 +448,7 @@ magnet:?xt=urn:btih:4BE198B6DBAAD395F379D027E4EFF4FC5AB4562A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250423.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250423.jpg" />
 </div>
 
 
@@ -352,7 +473,7 @@ magnet:?xt=urn:btih:997E29637E242DA72705AA79A87C3691856B620E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250427.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250427.jpg" />
 </div>
 
 
@@ -376,7 +497,7 @@ Logan S. Helmes | Python Cheat Sheet Encyclopedia (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250611.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250611.jpg" />
 </div>
 
 
@@ -403,7 +524,7 @@ Robert M. Koretsky | Raspberry Pi 5 System Administration Basics (2026) [EPUB] [
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250721.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250721.jpg" />
 </div>
 
 
@@ -427,7 +548,7 @@ This book covers Raspberry Pi 5 OS concepts and commands that allow a beginner t
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250941.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250941.jpg" />
 </div>
 
 
@@ -452,7 +573,7 @@ magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250991.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250991.jpg" />
 </div>
 
 
@@ -477,7 +598,7 @@ magnet:?xt=urn:btih:4558FD95B94A6AD912B2EFBB0C04D93A9ABF9E86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251312.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251312.jpg" />
 </div>
 
 
@@ -502,7 +623,7 @@ magnet:?xt=urn:btih:64A6C4A2BC7D889B43A3603B5AC6A595ADFF95EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251323.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251323.jpg" />
 </div>
 
 
@@ -513,126 +634,6 @@ magnet:?xt=urn:btih:64A6C4A2BC7D889B43A3603B5AC6A595ADFF95EF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C37AEA3664C12AC5B983F0943E527D8DF271B2F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495824   (251567) от 12.05.2012
-
-Кевин Р. Фолл | TCP/IP Illustrated, Volume 1 The Protocols [2012] [PDF, epub] [Eng]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга предназначена для тех, кто желает понять, как работают TCP/ IP протоколы: программистов, пишущих сетевые приложения, системных администраторов, ответственных за компьютерные системы и сети.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDE59EE48984A0305AA5DABCE60B54077E42C39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495679   (251571) от 12.05.2012
-
-Ч. Петцольд | Код. Тайный язык информатики [2001] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251571.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге Ч. Петцольда "Код" Вы не найдете ни подробных описаний операционных систем, ни указаний по работе со сложными компьютерными приложениями, ни тонкостей настройки оборудования, ни практического руководства по программированию. Эта книга - азбука компьютерных технологий. Шаг за шагом автор знакомит читателя с самой концепцией кодирования информации, рассказывает об истории возникновения компьютеров, на практических примерах помогает освоить основные концепции информационных технологий, подробно излагает принципы работы центрального процессора и некоторых других устройств компьютера. Книга написана живым, понятным, иногда ироничным языком, богато иллюстрирована, состоит из 25 глав, оглавления и предметного указателя. Книга адресована в первую очередь студентам вузов (как гуманитарных, так и технических), а также всем, кто интересуется концепциями создания и функционирования компьютеров.2001Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928AA9AC6346E0B4317EE3A600BB35D6150EC758
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637094   (251838) от 02.06.2023
-
-В.В. Зиборов | Visual C# 2012 на примерах (2013) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрено более 140 типичных примеров, встречающихся в практике реального программирования для платформы .NET Framework в среде Microsoft Visual C# 2012: обработка событий мыши и клавиатуры, чтение/запись файлов, редактирование графических данных, управление буфером обмена, ввод/вывод данных, использование функций MS Word, MS Excel, AutoCAD и MATLAB, а также создание (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD030D8E7CA168825511F6FEFA9E52C0525FD5BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835732   (251922) от 07.11.2025
-
-Тим Питерс | Программирование бэкенда на Python. Практическое руководство (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена современным технологиям для программирования и поддержки серверной части (бэкенда) на Python. Рассказано о программировании на Python в облачной среде, управляемой через Docker и Kubernetes, о фреймворке Flask для веб-разработки на Python, о поглощении и преобразовании данных через FastAPI, об интеграции новых приложений и модулей Python с устоявшимися (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EED9684EB1EE622D58E46DFB3CE9ED6C57C4C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636382   (251938) от 30.05.2023
-
-Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга показывает, как создавать автоматизированные сценарии PowerShell для локальных и облачных систем. В нем вы найдете советы по определению автоматизируемых задач, методы структурирования и управления сценариями, а также множество хорошо объясненных примеров кода. Вы также узнаете, как адаптировать существующие сценарии к новым условиям использования и расширить (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
 ```
 
 

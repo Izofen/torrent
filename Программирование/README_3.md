@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48826.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:58161BD804210D1A166D06B573D0E532DB1F0ADF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48844.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:348A090163C2CD3070363800C72D213D88289A9B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48855.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ S.L. Nita, M.J. Mihailescu | Cryptography and Cryptanalysis in Java. Second edit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49280.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ T. Edet | Database Fundamentals (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49287.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Neil Smyth | SwiftUI Essentials- iOS 15 Edition: Learn to Develop iOS Apps Using
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49737.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Nimish Sanghi | Deep Reinforcement Learning with Python: RLHF for Chatbots and L
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49956.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49968.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:2D7921C46EE0FA3ADF8B670025CEC0CA60A6D7DF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50057.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2620E2C04DE0CE157281A455C00DCB3649B62266
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50089.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:33286AFB18646BD4DF1FC8A4A8A7A28811E17D0C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51578.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FEA1A209B3F7D6051CD0842B8B9B1FA6F7FF0C33
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51870.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:32AEA08763BDF3D8A99737E4BAA3F0381C20F049
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51879.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52067.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53277.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53805.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54220.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54368.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54447.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54471.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Kyran Dale | Data Visualization with Python and JavaScript (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54714.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:C78DD0A4275FE46BBCB287FA2449EA1F99B1702B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54719.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:63BB62574811E3404624994E2EC77821543D502E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54723.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:2D5EFE6B28E48227482736A593512A0F30044151
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54741.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Zed A. Shaw | Learn More Python 3 the Hard Way: The Next Step for New Python Pro
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54903.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Robert C. Martin | Clean Code Collection (2012) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55450.jpg" />
 </div>
 
 

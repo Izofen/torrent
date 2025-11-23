@@ -1,3 +1,184 @@
+###  Публикация: 1516553   (165322) от 12.12.2021
+
+Little Violet - Code Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz /Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good on Me (3:23)
+02. Silent Movie (3:17)
+03. Code Red (3:49)
+04. Other Side (3:18)(   Читать дальше...   )Жанр: Nu-Jazz /SwingПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59AAB4F3E797AF1B51674AA27EEA249BFB698FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432262   (165323) от 16.12.2020
+
+Bartender 4 v4.0.33 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD417411807D3293DD665790B2A74CF488455AD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673276   (165324) от 01.11.2023
+
+Александр Тамоников | Тамоников. Честь имею. Обет на крови (2022) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудники спецназа ГРУ майор Гончаров и прапорщик Власенко выясняют обстоятельства убийства своего сослуживца. Становится известно следующее: в преступлении замешаны те же люди, которые, скрывая лица под масками, совершили несколько кровавых погромов на рынке. Очевидцы утверждают, что хулиганы бравировали нашивками с логотипом местной патриотической организации, (   Читать дальше...   )Жанр: БоевикиИздательство: Нигде не КупишьПродолжительность: 11:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFE913D2B8531C37ECE80B8737160FA31BB4322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673351   (165325) от 01.11.2023
+
+uBar 4 v.4.2.2  [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165325.jpg" />
+</div>
+
+
+###  Подробнее
+
+uBar — это полнофункциональная замена стандартному Доку в OS X. Внешний вид, работа приложения и его возможности сильно приближены к таковым из Windows. При первом запуске программы необходимо разрешить ей доступ к меню настроек «Конфиденциальность» в параметрах Защиты и безопасности. После этого нужно перезапустить само приложение. Теперь обратите внимание на самый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2023Разработчик: © 2009-2022 Brawer Canada IncПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9261733A4DA37D958458DBBF8AACB790604B5946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597758   (165326) от 16.12.2022
+
+Vreid - Solverv (2015) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haust 06:27
+02. Sólverv 06:01
+03. Geitaskadl 08:24
+04. ?tti Sitt Fjedl 07:01(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605DDFC05FB26F1A7C34E6E96B509FFA801043A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432170   (165327) от 16.12.2020
+
+Прыжки с трамплина. Чемпионат мира по полётам на лыжах 2020. Планица (Словения). Индивидуальные соревнования. Квалификация (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по полётам на лыжах 2020. Планица (Словения)
+10 декабря 2020 года
+Трамплин HS 240.
+Индивидуальные соревнования. Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B34CFE6067EEE57A98F8E0610B3E797811E166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516615   (165328) от 12.12.2021
+
+VA - Nu Cool Covers 1: Pop Classics ReStyled (2017) [AAC|~337 Kbps] <Lounge, Nu Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik, Alan Scaffardi - Crazy (4:32)
+02. Sugarpie And The Candymen - Toxic (4:00)
+03. Melania - Killing Me Softly (3:31)
+04. Papik, Sarah Jane Morris - Let The Music Play (4:03)(   Читать дальше...   )Жанр: Lounge, Nu Jazz, DowntempoПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654B099412190DD094D918AB0CBEC8293CD179AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333507   (165329) от 16.12.2019
 
 The Outer Worlds (2019) [Ru/Multi] (1.2.0.418) Repack xatab
@@ -6,7 +187,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.2.0.418) Repack xatab
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165329.jpg" />
 </div>
 
 
@@ -30,7 +211,7 @@ magnet:?xt=urn:btih:326FBB0D7EE796DC0EC1BEFEC55D01DAE2264B18
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165330.jpg" />
 </div>
 
 
@@ -54,7 +235,7 @@ SiteSucker 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165331.jpg" />
 </div>
 
 
@@ -79,7 +260,7 @@ magnet:?xt=urn:btih:3DC196076AAA83DD6DE0591ECEEA079D380146D7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165332.jpg" />
 </div>
 
 
@@ -103,7 +284,7 @@ n-Track Studio Suite 10.0.0.8158 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165333.jpg" />
 </div>
 
 
@@ -127,7 +308,7 @@ magnet:?xt=urn:btih:1A7BDAEB17C5B2E50329267884334A79EDC1A0EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165334.jpg" />
 </div>
 
 
@@ -151,7 +332,7 @@ Belsemora - Belsemora (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165335.jpg" />
 </div>
 
 
@@ -178,7 +359,7 @@ magnet:?xt=urn:btih:1287E9C02B2DB95EA8C8F1AC8E0F561BA66E3C73
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165336.jpg" />
 </div>
 
 
@@ -205,7 +386,7 @@ magnet:?xt=urn:btih:6C7F55DE64D3FF7D42C3463BB76424FDC840C693
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165337.jpg" />
 </div>
 
 
@@ -232,7 +413,7 @@ magnet:?xt=urn:btih:2AF60428F6F1924395967DC9DC2FBDFD35690E41
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165338.jpg" />
 </div>
 
 
@@ -256,7 +437,7 @@ magnet:?xt=urn:btih:19D44331A0464397CFEA2D2EDD029B6E37868708
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165339.jpg" />
 </div>
 
 
@@ -280,7 +461,7 @@ magnet:?xt=urn:btih:83106F78611F2432C649474820908AB073342DD0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165340.jpg" />
 </div>
 
 
@@ -304,7 +485,7 @@ Larry Coryell & Philip Catherine - Jazz at Berlin Philharmonic XI: The Last Call
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165341.jpg" />
 </div>
 
 
@@ -331,7 +512,7 @@ magnet:?xt=urn:btih:4C79BC16F471B4C7F3870F950964557E85AF8C60
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165342.jpg" />
 </div>
 
 
@@ -356,7 +537,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.1.47 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165343.jpg" />
 </div>
 
 
@@ -382,7 +563,7 @@ Dr. Stone / Доктор Стоун [2019, TV, 24 ep] WEB-DL 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165344.jpg" />
 </div>
 
 
@@ -406,7 +587,7 @@ Kelly Marie - 2 Albums (1976-1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165345.jpg" />
 </div>
 
 
@@ -433,7 +614,7 @@ VA - Deep Trance Showcase II (2023) [MP3|320 Kbps] <Trance, Progressive, Electro
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165346.jpg" />
 </div>
 
 
@@ -460,7 +641,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165347.jpg" />
 </div>
 
 
@@ -472,176 +653,6 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32A0D15809670B8E6D1B8CB5D6FBF28776197BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432197   (165348) от 16.12.2020
-
-Tweak and Tuneup 4.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tweak and Tuneup представляет собой набор мощных инструментов для повышения производительности вашего Mac. Эти инструменты включены в одно приложение и являются исключительными для обслуживания и повышения производительности.
-Вы не должны чистить вручную, чтобы сэкономить место на диске. Чтобы увидеть магию Tweak and Tuneup сделайте один клик кнопкой мыши на любом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB5C11310F29FC1224D371A71266D6B31C634B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345302   (165349) от 16.12.2019
-
-Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 12.2019
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165349.jpg" />
-</div>
-
-
-###  Подробнее
-
-32-х и 64-х битные ОС Windows® 7™ максимальная с интегрированными обновлениями и дополнительными программами, оформлением в светло-голубом стиле и стандартной ручной установкой, собранных в 1 установочный образ. Дополнительно в сборку интегрирована профессиональная 64-х битная редакция для установки системы на GPT диски. После установки в системе будут присутствовать (   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACED6D52A9D9DC8FC683A1591035324676B22DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345674   (165350) от 16.12.2019
-
-Текст (2019) WEBRip [H.264/720p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — 27-летний Илья Горюнов, семь лет отсидевший в тюрьме по ложному обвинению в распространении наркотиков. Когда Илья выходит на свободу, он понимает, что прежняя жизнь, по которой он тосковал, разрушена, и вернуться к ней он больше не сможет. Хотя он не собирался мстить человеку, который отправил его в тюрьму, другого выхода теперь нет. Встретившись (   Читать дальше...   )Производство: Россия / Central Partnership Productions, StartFilmЖанр: Драма, триллерРежиссер: Клим ШипенкоАктеры: Александр Петров, Кристина Асмус, Иван Янковский, Софья Озерова, Максим Виноградов, Виталий Хаев, Дмитрий Глуховский, Кирилл Нагиев, Елена ФиногееваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBAFE25919C951DC41BBB22D7DEF32E2203F99A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516662   (165351) от 12.12.2021
-
-Первая передача на НТВ. Автомобильная передача (12.12.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165351.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тотал»: методика расчета или страховая афера? И кто продает машины несговорчивых клиентов? Свидетель ДТП – видеокамера: как уличить виновника-хитреца? Детский автобизнес: что за терки у пацанов с людьми из белого Mercedes-Benz? Что делать, если одолжили деньги под залог авто, а его владелец умер и машину сняли с учета?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AAD596E93815949363599CB203D2972E391A25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432124   (165352) от 16.12.2020
-
-Disk Clean Pro 5.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Clean Pro - это приложение с высоким рейтингом, которое удаляет ненужные файлы и данные с вашего Mac. Он надежно очищает избыточные файлы и гарантирует, что ваши важные данные никогда не окажутся под угрозой.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Systweak SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1AE86E0C92012D51895274C691D70ED42EE1B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673513   (165353) от 01.11.2023
-
-PlistEdit Pro 1.9.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165353.jpg" />
-</div>
-
-
-###  Подробнее
-
-PlistEdit Pro - продвинутый редактор для файлов настроек plist и JSON файлов.
-С PlistEdit Pro, пользователи могут легко изменять эти файлы и оказывать более полный контроль над своими системами. Вы можете использовать PlistEdit Pro в ваших разработках, а также использовать встроенный файловый браузер, который позволяет исследовать и изменять настройки параметров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: © 2023 Fat Cat SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769C798639FC1EDC26358FB60701E8E16A43A55D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345601   (165354) от 16.12.2019
-
-Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подними Родину с колен! Любишь Россию и Владимира Путина? Безумно восхищаешься его грациозной походкой?  Тогда эта игра создана для тебя! Владимир Владимирович Одобряет.Тип издания: RepackРазработчик: USSR, Babushka ProductionЖанр: Puzzle, CasualЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9E9535D2C39CE5D3FDE5C943FBAAEA9142F177
 ```
 
 

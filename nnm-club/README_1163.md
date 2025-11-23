@@ -6,7 +6,7 @@ StartAllBack 3.9.1 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30591.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30591.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38C73A7B26AA8F28EF759B7922E990094ABF0783
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30592.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30592.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E22A85DCA19440957FDA695E42E0AE28C3EBC293
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30593.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30593.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F72469B859F77397B45391E6682123CE6AA8F759
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30594.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8C6EC5F0214F8F6627F684F53C4DF8B2A3865164
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30595.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Windows 11 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2025.01.15 [Ru/E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30596.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30596.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1CCF5D07E6A697F43039C83496B71C516A083182
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30597.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30597.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.13.2.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30598.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.01.
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30599.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30599.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:3FBBFF99AFE69CC26E6A97692D3DF3D277BA09C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30600.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:D964D7F42104FF023B69CC44539A458BB1B3F183
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30601.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Ex Machina (2005) [Ru] (1.2) Repack/Mod Финиган
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30602.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:CB9D36AB473A11B9B7E3ECB5F29D730099B1B931
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30603.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:1221FCC67EA64A4C3D06D71C95803E802BEE148A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30604.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:99C08F31CFD4B09E255EDED952F6A1CFB1555B40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30605.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:210C413C98D804A61DB96657A06801AAF9470230
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30606.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1551867A8F640DE6600CD2382B145C2101C1D36A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30607.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:8AF21E6FE1A570CD50438D02D7E0C439DD684A56
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30608.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E198E6737DABC8A3CE2D7AC39890927CA7E71376
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30609.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:52C858C8DF33B4E69DA9150E38EC8CF84058E059
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30610.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Windows 7 SP1 7601.27520 x64 3in1 by OneSmiLe [18.01.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30611.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30611.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:362D3471A75FA9885EDFCCF415B133297A65C95C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30612.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30612.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C2CA21971699CED380ADF4C0D5336D0A3B46A323
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30613.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30613.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:C2CA21971699CED380ADF4C0D5336D0A3B46A323
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30614.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30614.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:ED11F343466BA6D8DDC4FE42CCAA092047916F32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30615.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30615.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Haunting of Joni Evers (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30616.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30616.jpg" />
 </div>
 
 

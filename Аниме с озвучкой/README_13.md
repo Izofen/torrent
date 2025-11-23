@@ -6,7 +6,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114374.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114688.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Akiba Meido Sensou | Akiba Maid War | Война горничных Акибы [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114714.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DB5CEACE0CF047666C7FA11FA489610849ADFC1C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114853.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A7B6268EBDE3D165DDC2D0AC858F1DFF4AD4007B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114866.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2039D8AF742EC79841AB2557F40974E0FC6C59E7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115090.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Kakutou Bijin Wulong Rebirth | Fighting Beauty Wulong Rebirth | Боевая к�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115203.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Kakutou Bijin Wulong | Fighting Beauty Wulong | Боевая красавица 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115206.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B70933E974577C33C584FC2089B9C53D6544D2BF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115208.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115547.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Street Fighter II: The Animated Movie | Уличный боец II [1994, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115564.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116040.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Hyoujin: Blades of the Guardians | Biao Ren: Blades of the Guardians | Клин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116057.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Idol Densetsu Eriko | Легендарный айдол Эрико [1989-1990, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117222.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Shuumatsu no Walkure II | Shuumatsu no Walkure II | Повесть о конце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117726.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Go-Toubun no Hanayome~ | The Quintessential Quintuplets | Пять невест:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117824.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118353.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Buta no Liver wa Kanetsu Shiro | Свинину надо было жарить |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118717.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118785.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta | Моя 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118804.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118991.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119131.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация безр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119239.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119846.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120171.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:929AAA8277D89AFA8D873AFFB2E535381146535E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120286.jpg" />
 </div>
 
 

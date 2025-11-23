@@ -6,7 +6,7 @@ Sakamoto Days | Дни Сакамото [2025, TV, 11 из 11 эп.] WEBRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23711.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:506DB10684C1EDF8388023E53D873152E8B695F1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E937D77365520E2898851B866417943E0755821E
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23713.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BFE6C00D2EC14D8B3489504280E99F255F45A2CA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23714.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chris Norman - Junction 55 (2024) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23715.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ WinRAR 7.11 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23716.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.7.60 Мод by Applicazioni
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23717.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:635C01735E4415B8108D52D32BBE56A2A5B23062
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23718.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23718.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C7D9BE5E25CF293AE55CC1D52B4F14E11B2C5808
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23719.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23719.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:5ED33D966F42A2D822B2226938560091C8F0B203
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23720.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:45D9AF9D9BB25ECAE7459E84082A0D41368B14A7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23721.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23721.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:84202A3BEBEE65866F975CD14DCB62506A17AC45
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23722.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23722.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:5A809CECD3E29EC73EF729368B382AC97D6BCEFF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23723.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Wonder Ball (2024) [Ru/Multi] (1.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23724.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23724.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Starground (2024) [Ru/Multi] (0.11.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23725.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MediaInfo 25.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23726.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23726.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Google Chrome 134.0.6998.166 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23727.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:46E4C8E3269898BDCD1BE1C1A822215222BD0EFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23728.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Adriano Celentano - Mr. Celentano (2025) Remaster [FLAC 24/44.1|Lossless|image +
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23729.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23729.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:B3F54A75A9BD619CE51C2BDC1C27307CA56F00A0
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23730.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Google Chrome 134.0.6998.166 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23731.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:FE3C1DD0C406F1D0A6321823F91A76B8674EFAB0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23732.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ CherryTree 1.4.0.0 (x64) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23733.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23733.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Passwords & Passkeys－Safe v25.0.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23734.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23734.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ FanControl V218 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23735.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Freddie Hubbard - Gleam (1975) 2CD, 2012, Wounded Bird Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23736.jpg" />
 </div>
 
 

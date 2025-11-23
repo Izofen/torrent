@@ -6,7 +6,7 @@ Rectangle Pro 3.0.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FFD021A64AC9C8DDE8F4E0D942AEDFF7E1CD187F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138211.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DVDFab 9.2.2.4 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138236.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:91F10EA51357991D515EB439AB02BF960FC48D63
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138237.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:13917DDC92084CE8B9175CF1E08B5BB3A6826807
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138240.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D35CF5C7E1D8809634069D3914E021647B5F5DAC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138261.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CE0A68F22A3F4F482AD9E9B8104CBB0E08E17769
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138269.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:08DEB9E6AC645D9C69E1574B685B1E61BDA510E2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138276.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:114AB2CADEAB94896CB40B3332B5B7E54E84D851
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138285.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ FreeFileSync 9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138299.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SPINNIN' - Best Of 2019 Year Mix (2019-12-23) [MP3|320 Kbps] <House, Electro Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138300.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:B05FA090B6DB8B9202AE630AEED3952BA8B1CCE6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138311.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ LogMeIn Hamachi 2.1.0.296 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138314.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ A New Beginning - Final Cut [Ru/En/De] (Steam-Rip/1.4.4.0392) 2012 | R.G. Игр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138334.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Process Lasso Pro 8.9.1.6 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138357.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:F2BFEC6E85C02F03C8C3DACAD67F5B1D76EE75E4
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138358.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:32E66E0145B13B8D9EB8B84C5BD9A273001BAE95
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138365.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Skype 7.17.32.106 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138368.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Comedy Woman. Новогодний выпуск (2016.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138371.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138383.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Daum PotPlayer 1.6.57875 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138384.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Anvir Task Manager 9.1.12 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138390.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7E527F08D94AD37783DB8FAA8D2A128D5561CDFD
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138392.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Stellarium 0.17.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138395.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Skype 7.17.0.106 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138408.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:3A7F8C03520E68B10659CC065AB4C2E25C7AAA0C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138410.jpg" />
 </div>
 
 

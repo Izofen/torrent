@@ -6,7 +6,7 @@ Omar Khorshid - Belly Dance Volumes 1 & 2 (1992) 2CD [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113163.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113453.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ariana Grande - eternal sunshine (2024) slightly deluxe, 2024, Republic Records 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113579.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113664.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113759.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113885.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Cover Sanremo 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113913.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113979.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Steve Lawrence & Eydie Gorme - The Original Hits (2024) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114488.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|image + .cue] <El
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114517.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Chris Norman - Junction 55 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114532.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ledisi - Good Life (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114795.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Beatrice Egli - Alles in Balance - Leise (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114814.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115018.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ornella Vanoni - Collection (1961-1973) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115030.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115164.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Al Corley - Riot of Color (1986) Expanded Edition, 2023, Mercury [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115167.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Celine Dion - Courage (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115726.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116005.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116016.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116018.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Chromeo - Adult Contemporary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116183.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nada (Nada Malanima) - Collection (1969-2022) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116209.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Weeknd - The Highlights (2021) Deluxe, 2024, Universal Republic Records [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116235.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Spandau Ballet - The Twelve Inch Mixes (1986) Compilation, Reissue, Disky [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116546.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - 70s & 80s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ot
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117309.jpg" />
 </div>
 
 

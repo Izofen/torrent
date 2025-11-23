@@ -1,3 +1,27 @@
+###  Публикация: 1553425   (233183) от 25.05.2022
+
+Бедствие ли это? | Sounan Desuka? | Are You Lost? [2019, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_233183.jpg" />
+</div>
+
+
+###  Подробнее
+
+После авиакатастрофы четыре старшеклассницы оказываются на необитаемом острове. Здесь нет ничего, поэтому они сами должны делать всё! И поедать всё (бе-е-е)! Хоть это и история выживания, но на самом деле у девушек всё хорошо. Пускай жизнь на необитаемом острове и включает в себя поедание цикад, создание солнцезащитного крема, изготовление ножей, охоту на кроликов (   Читать дальше...   )Производство: Студия Ezola, Студия Studio BlancЖанр: Комедия, приключения, этти, сэйнэнРежиссер: Нагаяма НобуёсиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (AniDub), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV), (Crunchyroll)Продолжительность: 12 серий по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A705E3711E23AE25EB0F8D548EF7C9050F921E89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634646   (233198) от 21.05.2023
 
 Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi | Reborn to Master the Blade: From Hero-King to Extraordinary Squire | Из великого короля в ученицу рыцаря [2023, TV,  ...
@@ -6,7 +30,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233198.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_233198.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:5A949FFDD6C0D6889ADF2FBD9E5FB902850F2FD2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233259.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233259.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233265.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233265.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234671.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234976.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234976.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ magnet:?xt=urn:btih:3F3E9D730C1E65FC0F3BE7B3D7E502174B2E20D7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235763.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235763.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ Neko no Ongaeshi | The Cat Returns | Возвращение кота (2002) BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237411.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237411.jpg" />
 </div>
 
 
@@ -178,7 +202,7 @@ Hula Fulla Dance | Танец хула-хула [2021, Movie] WEBRip 1080p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237615.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237615.jpg" />
 </div>
 
 
@@ -202,7 +226,7 @@ Majuu Sensen | The Demonic Beast Front | Битва с демонами [1990, O
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237663.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237663.jpg" />
 </div>
 
 
@@ -226,7 +250,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238789.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238789.jpg" />
 </div>
 
 
@@ -250,7 +274,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238952.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238952.jpg" />
 </div>
 
 
@@ -274,7 +298,7 @@ Fuufu Ijou, Koibito Miman | More Than a Married Couple, But Not Lovers | Бол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239934.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239934.jpg" />
 </div>
 
 
@@ -299,7 +323,7 @@ magnet:?xt=urn:btih:DCC7893867D79E4E674535B7219F97117958F22B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240035.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240035.jpg" />
 </div>
 
 
@@ -323,7 +347,7 @@ Shikizakura | Вечноцветущая сакура [2021, TV, 12] WEBRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240554.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240554.jpg" />
 </div>
 
 
@@ -347,7 +371,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240599.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240599.jpg" />
 </div>
 
 
@@ -371,7 +395,7 @@ Masamune-kun no Revenge (2018) | Месть Масамунэ OVA [2018, OVA] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240623.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240623.jpg" />
 </div>
 
 
@@ -395,7 +419,7 @@ magnet:?xt=urn:btih:E77A3EB9BBFD6CEFE27649A66398D57C3F6A54CE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240888.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240888.jpg" />
 </div>
 
 
@@ -419,7 +443,7 @@ magnet:?xt=urn:btih:17368E2C66E5EF372AFCA1028100BEEB0C331AAE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241372.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241372.jpg" />
 </div>
 
 
@@ -443,7 +467,7 @@ Yakitori | Yakitori: Soldiers of Misfortune | Якитори [2023, Web, 6] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_241403.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_241403.jpg" />
 </div>
 
 
@@ -467,7 +491,7 @@ magnet:?xt=urn:btih:EACE7D80630F45786847CD0B37E8453D281BB6F0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241821.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241821.jpg" />
 </div>
 
 
@@ -491,7 +515,7 @@ magnet:?xt=urn:btih:6FB170CC1040917F5EAB71008B0EFC444B8799F6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242285.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242285.jpg" />
 </div>
 
 
@@ -515,7 +539,7 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244866.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244866.jpg" />
 </div>
 
 
@@ -539,7 +563,7 @@ magnet:?xt=urn:btih:E7E5EAE901F18C3E6911D9D015D6B88E7D08BD1F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244887.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244887.jpg" />
 </div>
 
 
@@ -563,7 +587,7 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245058.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245058.jpg" />
 </div>
 
 
@@ -587,7 +611,7 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245201.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245201.jpg" />
 </div>
 
 
@@ -598,30 +622,6 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149CE1C81DAE7863BB5F1A38B7F42568A06BF9FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491522   (246706) от 04.05.2012
-
-Perfect blue / Истинная грусть [1998] BDRip 1080p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая поп-певица Киригоэ Мима, пытается перейти из мира музыки в индустрию ТВ-сериалов и прославиться как актриса, но, похоже, не всем ее поклонникам понравилось такое решение, и - началось: странный телефонный звонок, факс, конверт со взрывчаткой. А плюс к тому в интернете обнаружилась страничка с якобы ее дневником...Жанр: аниме, мультфильм, ужасы, триллер, драмаРежиссер: Кон Сатоси / Kon Satoshi / 今敏Актеры: Джанко Ивао, Рика Матсумото, Shinpachi Tsuji, Masaaki Фkura, Ёсуке Акимото, Ёку Шиоя, Хидеуки Хори, Еми Синохара, Масаши Эбара, Киёюки ЯнадаПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 01:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA75B8EA424D7AE1A82F269B05EE15017DA7922F
 ```
 
 

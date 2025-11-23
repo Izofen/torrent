@@ -6,7 +6,7 @@ DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8231.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D572DBFA481300F2FE41402915B0312E65DD530D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8232.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BFEF621D32BB498B171844ECED08B153E9DC06FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8233.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:E353E17286EB30D462C5AEC86586BF260C956642
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8234.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:85E897C2353481843026E2EFE99D9EE9E6FB3F1A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8235.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:15F7D10EB58C11A3AE67DAE10B80B603540466AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8236.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:A1BBAB96A6FCF334BFCC5882BAF7FD3B9710A83F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8237.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A0A151648628728B734C7D689D7AD65593002176
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8238.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:0758576ED89A5A348D3C720F02F93DB48EC474EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8239.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:75497A2EBDDD345E079A8379A22E0669E6EA88AB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8240.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:6810E26D3BD682E858693C0905684E8196D289D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8241.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:FB8FCFDFF946026478CA316FFA775E4B646AC8D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8242.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:1B49EEF70C5696A2C2C8E21F9A36963B8EB4B7C5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8243.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Clark Terry & Chico O'Farrill - Spanish Rice (1966) 2004, Verve [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8244.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:89FB999387F86AD17356E69A8785848D16107CB9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8245.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:969106F919AAA26D56B0BC0C766A6AAA0931205A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8246.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A23F37314C7878A734A50E606D9F64C545D6C2FE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8247.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8248.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Ohmforce - Ohmicide[s] 1.0.1 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8249.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:611DC4FB2F177B72FE0BB5F356C499B264A10306
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8250.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:CFB6005FE65E05CF174880CADD8A58038BECB1BE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8251.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:82AE6C85FFBE85A7DE252B43E9BB4A4CF223ABB0
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8252.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:357BEB84B91815027D730326211816B07F49EB14
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8253.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:D961FD2B3F848EC4146FBFB0B384D04C7275431F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8254.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:2F0E6F89CFA07304E4F21C8AF268BA767C0076DC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8255.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:2D8527D40A8D72160EF9288647C92001A6C9E2F9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8256.jpg" />
 </div>
 
 

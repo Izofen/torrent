@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142035.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Psycroptic - Symbols of Failure (2006) [WavPack|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142084.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dungortheb - Intended To... (2003) [WavPack|Lossless|image + .cue] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142098.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Prostoband - Гештальт (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142177.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gorgoroth - Дискография (8 альбомов + Bootleg) (1994-2009) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142227.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ I. A Sorcery Written in Blood Demo 1993
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142258.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Joker's IV - Pink World (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142260.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Heretic Brazil - Gilgamesh (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142268.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:EF9C61DB0A4FF8CEF32465DBC118099459465AB7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142411.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Burning Witches - Burning Witches (2017) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142416.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142450.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:0E85E75E102D899A634BD32631B622AEDD454C29
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142456.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Imparity - Tales Of Rust And Bones (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142524.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Virgil & Steve Howe - Nexus (2017) [FLAC|Lossless|tracks + .cue] <Ethereal, Art 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142526.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Kaunis Kuolematon - Mielenvalta (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142528.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Clouds - Clouds Acoustic (2020) Compilation [FLAC|Lossless|Web-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142531.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142557.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Story of the Year - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142566.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Midnight Dreams - Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142572.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Sieges Even - The Art Of Navigating By The Stars (2005) [MP3|320kbps] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142575.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Legacy - Stand And Conquer (2003) [MP3|320 Kbps] <Progressive, Power Metal, Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142581.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Dwell in Doom - 5 CD (2019-2020) [MP3|320 Kbps] <Doom Metal, Gothic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142592.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:75D91511CE0595D4B70AA9D589D0B694E53A8635
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142600.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ The Sixth Chamber - Beyond the Night Veil (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142630.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Udo Lindenberg - Stärker als die Zeit Live (2016) Deluxe Edition 3CD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142669.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Black Pyre - Fall Of The Northern Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142675.jpg" />
 </div>
 
 

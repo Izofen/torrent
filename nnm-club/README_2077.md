@@ -6,7 +6,7 @@ Rob Houston (editor) | How Food Works (2017) [PDF] [EN]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54367.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54368.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CoolUtils Total Audio Converter 6.1.0.272 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54369.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ iZotope - Neutron 4 v4.6.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54370.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:323B33F87A3E67E889D6D2DDD352A5F2AADEE064
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54371.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ O&O Defrag Professional + Server 28.2 Build 10017 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54372.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:37EFB8E724DB8EA286892D95BF154509707E191A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54373.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4BC7810C0F5EE39BE9642FC2A940C0DD2CE79AFB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54374.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Rainbow Cotton (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54375.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ IObit Driver Booster Pro 11.5.0.83 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54376.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ IObit Driver Booster Pro 11.5.0.83 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54377.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AVS Image Converter 6.0.3.336 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54378.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8A3B3C0126BC02864B914CDEDCBB5314B08199AF
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54379.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:06A25B1F5851DDCC09099AA4A62C23095DFB2096
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54380.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:5124D1DE1ABBFDDFF80503EDB546875DBF2498F4
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54381.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kathryn Hennessy (editor) | How Money Works (2017) [PDF] [EN]
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54382.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:27896D227C7A809A08A991FCBF4C52CA37FE5464
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54383.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:BFE2E93924173C20AB3062990FD7D27D3E0E85D3
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54384.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54385.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:66F7DF9E069A66F2EB398D809622CF3343B46B99
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54386.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:9BDD81747A05BE519B308B813A365D9F993AA5CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54387.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E48586E748BA94B0802FE0E1EDCDAAF05413CA70
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54388.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:477F4A42276CE8A916AF3F2D9F2CA35B4376CC3F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54389.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:E09ACB638E15C9959652845641D29C6F78E93B6A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54390.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:341DF780E866E961AF64C7A516DDDE6213369894
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54391.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:561AE8CE98BD980738050BB4BD01027F4EC5509C
 >>Приколы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54392.jpg" />
 </div>
 
 

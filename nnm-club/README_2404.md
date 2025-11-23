@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62869.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Qubes OS 4.2.0 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62870.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Topaz Photo AI 2.4.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62871.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A701C72B6A5C2BD9AC5B32B4075C3DDD7EBA4A90
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62872.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:C4E55072F5C57CEB7CE1829EBCB2754AC77E34AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62873.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C4E55072F5C57CEB7CE1829EBCB2754AC77E34AF
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62874.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ WinNc 10.7.0.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62875.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BFD1BE46CE10C8E8988C8C512AF5198875B78360
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62876.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:CBBAC8AB5C52BD19026FF4A2C927E78919AADA86
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62877.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Allavsoft Video Downloader Converter 3.26.2.8837 RePack (& Portable) by TryRooM 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62878.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:474E2F6E2B2C19BEE34DF1DD7E82EFD657A58AE9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62879.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:02B47EEB150F8B29FBB7A4C13A2C99C551D18708
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62880.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:890568BB265ADDCF45D63B24DBACF18DAC5FBAD6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62881.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D2052ABCA6486B978B20B7AA0D84B82E5DA2D865
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62882.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:83EF468FF5E1860E40E5FDC928DEA184BA0A60F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62883.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:6E6E45087D41BFB19992A91C1A7431C28667DCAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62884.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Wondershare PDFelement 10.3.0.2672 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62885.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Topaz Photo AI 2.4.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62886.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ WinToHDD 6.3 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62887.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Psiphon 3 build 181 (14.03.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62888.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.21) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62889.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:1CC05C371251799D40110533A27BEA1B5039EDE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62890.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62891.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:A8BFBE7F163C1FBBDF51C4B451BC86BB0C53676C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62892.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:0ECC9A2845C247469DDED04BB459EE2A02A60734
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62893.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:0ECC9A2845C247469DDED04BB459EE2A02A60734
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62894.jpg" />
 </div>
 
 

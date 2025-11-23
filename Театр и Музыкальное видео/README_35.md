@@ -6,7 +6,7 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143253.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:79A65E2F3D0B3922C294693C9C45B47A3180C839
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143263.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143266.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143520.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143532.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:3437F9C7445E9F3E013F2C9885FB51CAC8A86528
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144146.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:7B36E1F78DA6BA478F90F98F18F2531C414C0BC1
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144397.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:AD30487A9DD2F54E7BB260E7B292F4E52DF81328
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144735.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:E503078811F5671D0082FADB5E34E1BF945EECB7
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144862.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AC/DC - Live At Donington (1992) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145106.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7055E6A6B06EC0D30807316B0EB70320FB738FA8
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145237.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:58F012A1A44CF4194A0EB145FC88C0C40D57AC19
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145464.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:72B6E640AE19D763BABF0F6AFF7D15B461C9CC22
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145497.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:6ECCF90D1C15FDE212E5F41F324149BAAD41FA80
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145512.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:8F8A3FCA54E9FE27FBF8992A870236C4746905CA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145624.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:45E568D91A00D6B0C7B75019BBFE23C27EB2A772
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145704.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:269BA38C8109279E715BD0DF28FD7034C01F65DF
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145892.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:154A79AD1F143691063AB1F3FFCE55EA038732FA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145905.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145936.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146044.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Metallica - Live at Maida Vale Studio (Nov.17 2016) WEB-DL [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146232.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:364B04D59BFD06A41931B3DD010D4DD7A8A133C7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146338.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Metallica - 40th Anniversary Shows (2021) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146406.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:7D2DEDCF5160185F79EA15DD728AA748728E9F1F
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146490.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146589.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:6916D6747F4742D11D69A15F6DF5D67A2A791097
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146767.jpg" />
 </div>
 
 

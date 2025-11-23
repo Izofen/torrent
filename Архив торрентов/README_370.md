@@ -6,7 +6,7 @@ Game - California Republic (Hosted By DJ Skee) (2012) [MP3|320 кб/с]<Rap, Hip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87318.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:9D619909760ABD7358707B602D8E56AED9EBFF76
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87319.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Musicmanuals | Руководство пользователя - Ueberschall Ela
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87323.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:543E952E27099BA229EE5A9ADA680BF9D6AD2F1F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87324.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:543E952E27099BA229EE5A9ADA680BF9D6AD2F1F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87326.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:543E952E27099BA229EE5A9ADA680BF9D6AD2F1F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87332.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:CA8D12070E372AACB95A5C657A8904E18CC63BD1
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87339.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:1FB4B409AA79B53032537092061824478F7ED33E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87340.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:6A19CBD6BFB1C667993EFFBE929E9FC77DC61683
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87341.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:321B390F3C792A9A1B2B4C9679935A5FC606A860
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87346.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:947C45835AC8E354F29F4172B12872B73694DFB5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87348.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87349.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:277D37D55F293B3E8C3B0FC0DC9EA7B27D420875
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87352.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Robert Palmer - The Ultimate Collection 3CD (2003) Digitally Remastered [FLAC|Lo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87356.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Robert Palmer - The Ultimate Collection 3CD (2003) Digitally Remastered [FLAC|Lo
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87366.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Robert Palmer - The Ultimate Collection 3CD (2003) Digitally Remastered [FLAC|Lo
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87375.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:38EAF69F15798CFBA789C88A9BAE4F937C00F54F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87389.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:38EAF69F15798CFBA789C88A9BAE4F937C00F54F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87390.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:38EAF69F15798CFBA789C88A9BAE4F937C00F54F
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87397.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:49E57E82D050112DEB716C3A6ADD682C25E94491
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87398.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:7375952E69C98FB3AA58F2046363124D113188DF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87401.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:7375952E69C98FB3AA58F2046363124D113188DF
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87405.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:855AE382ECCB45DCFD4926779D2D555C2B6C0061
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87408.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Comfort On-Screen Keyboard Pro 5.1.4.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87411.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Comfort On-Screen Keyboard - приложение, отображающее ун
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87442.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:0F7D7E2F0CCECA66BDAAAA0EC2BF9AB1B7254CC6
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87444.jpg" />
 </div>
 
 

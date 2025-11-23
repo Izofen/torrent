@@ -6,7 +6,7 @@ Alfa eBooks Manager 9.1.46 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20996.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20996.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FileZilla 3.69.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20997.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20997.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eagles - Hotel California (1976) Japanese Edition, Reissue, 1988, Asylum Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20998.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F9073CE11D02C35D63740EA04DBFD3D86896D002
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20999.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:90084B497E7883406B5D5DA9E6100F7A303C9EA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21000.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:8851C278A5BE557528B61F46907253E8D7EAB459
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21001.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:215E001FD50EC4EB8D8DAB3E7434A4D01E05EE62
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21002.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:7507966A53BDB38254995972173B8B057CC32006
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21003.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Tibetania Gold 2022 (Selected by Salvo Migliorini) (Tibetania Records) [FLA
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21004.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ StaxRip 2.46.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21005.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ GeoGebra 6.0.883 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21006.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:791368879DCAE63A07A3A7DCF9E8FCD334F92585
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21007.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21007.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:FDD6991383E259F5AA3C0D9513C1F11A61053DA7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21008.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21008.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:8F86327943F22D0936B05CD57FA300C1470637ED
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21009.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:DEC536D94E5C6CCE86269E785F9FBA5D03E6CA8F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21010.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21010.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Psyclon Nine - And Then Oblivion (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark-Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21011.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21011.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:D11F26792982F170B3E4FED286A6D6043FFBA0A2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21012.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21012.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Armin van Buuren - A State Of Trance 1221 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21013.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:DAFAC31F32AC6A8E7B4B51FAB46E624481D249F9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21014.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21014.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:F4F4B820D1B5F21E6712EBCF00ABF7B1581509B5
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21015.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21015.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ PDFsam Basic 5.3.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21016.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21016.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A0EB4C6BECDD0CA39E822834369C88BFD89BAF0E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21017.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21017.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21018.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21018.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21019.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21019.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - The Official UK Top 100 Singles Chart (2025) [MP3|320 Kbps] <Pop, Dance, Ro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21020.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21020.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:FE0E168687E9783565E2D7733C96C47E60FE3C8E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21021.jpg" />
 </div>
 
 

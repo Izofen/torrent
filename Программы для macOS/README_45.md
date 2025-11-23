@@ -6,7 +6,7 @@ ConceptDraw DIAGRAM 17 v.17.0.0.468 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171204.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ConceptDraw PROJECT 14 v.14.0.0.302 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171237.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NetWorker Pro 9.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171238.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PDF Squeezer 4 v.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171245.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Color Wheel 8.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171250.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Web Confidential for Mac 5.4.1 U2B [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171253.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Deliver 2.7.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171272.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171328.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Adobe Animate 2024 v.24.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171332.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Adobe Character Animator 2024 v.24.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171336.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DoYourData Start Menu Pro 5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171348.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Apple Remote Desktop 3.9.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171354.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MacX Video Converter Pro 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171404.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ iStatistica 6.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171409.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ iStatistica Pro 5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171413.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Disk Clean Pro 6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171422.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Donemax DMmenu 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171424.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Permute 3 v.3.11.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171437.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ NCH Doxillion Plus 7.22 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171441.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Adobe Audition 2024 v.24.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171470.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ ACDSee Photo Studio 9 v.9.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171497.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ MediaHuman Youtube Downloader for Mac 3.9.9.86 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171500.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Renamer 6.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171564.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ WiFiRadar Pro 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171570.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Softorino YouTube Converter PRO for Mac 5.1.9 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171573.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ DxO FilmPack 6 ELITE Edition v.6.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171578.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34517.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C4FEF441D48F73B11CE6A0702A7B4AA1C8C3F746
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B3D3AE5529432AE2F8B00388D7AAB474B46C2957
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34520.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Firefox Browser 133.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34521.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ FileSeek Pro  + Portable + MSI 7.0.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34522.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mirai Shounen Conan | Future Boy Conan | Conan, The Boy in Future | Конан -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34523.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:77B305D0EEB7D00BFF8AB7A4139BA5AF49AA5A98
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34524.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:DCB22AFF0E16266E7493F0CC3AEC159CDA1E146F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34525.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Auslogics Disk Defrag Pro 12.0.0.1 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34526.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Monument Valley 3 v1.0.14999 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34527.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:6711DABF7332F3C0E81015C2880DF40A7756EB7E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34528.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Gospod - 5 Albums (2021-2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34529.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ PotPlayer 241211 (1.7.22395) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34530.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:032EB9DA5103D35C6CF0759E17DCDC7F3FEFCEB5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34531.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (0912) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34532.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:BD4C76809276563C3B9B3BBB18748D1A6C36AFC3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34533.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:AA1E9F959E718B1B6B1ED0CA352CFA26B0C0C786
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34534.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Allavsoft Video Downloader Converter 3.27.7.9106 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34535.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:09AB500DE3376256C848446EFB63F9229FEFD21A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34536.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:C337772D3C45762C4BF66C371053C9D490C46C6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34537.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:3F58EA7AC1A288735E9E2ADD62C25943F298D1B6
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34538.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ FurMark 2.4.3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34539.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Clipboard Fusion Pro + Portable + MSI 6.2.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34540.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:F5AF80DA5ACDFCD9BAB5D3BFEDC054D7FE595649
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34541.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:FD67FCF219BB67AD98220AC8B69F789DE8AB67E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34542.jpg" />
 </div>
 
 

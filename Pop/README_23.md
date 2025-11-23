@@ -6,7 +6,7 @@ Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65010.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65030.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65034.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65045.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65060.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65072.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65073.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65080.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sirena (ex-Sister Siren) - Innocent Killah (2011) [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65156.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E02074956A329893BC99A4216BB0068846797877
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65198.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:024C9948437B702584B33974F1B93826858F51C9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65350.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ MY-RO - Краса Руси (2025) [MP3|320kbps] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65366.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:A965679515BCE70803A9CBEE49D6EA0314F7C5E4
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65368.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:588CE6116A31473E0A684582A36C5FC76A760015
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65369.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Kohl's Cares For Kids: Songs Of The Season 2001 (2001) CD, Compilation [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65407.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:85AC6B997CF4B06B01903538053595AEFDC68F4C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65460.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:90FC0A5718226BD65695AEBC9AAED0D597A55A04
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65470.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Marc De Loutchek - Chansons russes et Tsiganes russes. Vol 2 (2007) [MP3|320 Kbp
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65474.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Grupo Bryndis - Tu Amor Secreto (1995) [FLAC|Lossless|WEB-DL|tracks] <Latin, Cum
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65614.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:362D6876A67CFA17F709D188DDEE03A8BB07325C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65634.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Global Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65667.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0A8C900CE45BE8CC10F1A378E2D52466711AA148
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65687.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:D7806685C1583283D3971AFF117E13070C506F02
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65743.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:66F4D340FECCA05C0A349754079986CE256815E9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65748.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:7762C833403EA2D06809E298713EB105F069EF0A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65807.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65854.jpg" />
 </div>
 
 

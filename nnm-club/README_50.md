@@ -6,7 +6,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1337.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:49CDAA23083FFECBB33212DDCDFE49BC8D0B76C8
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1338.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Garmin: Дороги России Топо 6.49 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1339.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3E49365ABDB0ECA9BE54E3CD9FB14F86BA6AB5E1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1340.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:3982B9E3C1A540FEB960962F7466C5DF5D86542C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1341.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PotPlayer 250915 (1.7.22619) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1342.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Vanced Tube v5.4.80.365 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1343.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:FBFD016E4EC5205C3BC1143E6514FA245C070437
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1344.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A78E108A35555C1215CA2055D6663517AD905850
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1345.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Audacious 4.5.1 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1346.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:6BA18491CE58188AEC7F01D89ADF017CE2FCCDF7
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1347.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:9BD29C18D1100436882F30527298F1467938D34D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1348.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1349.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:E0E12A9E27A5FB17F23DF0AB5D4615C5508F3BE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1350.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:CD0FF01A5A1948896ADC434A9032C247EDFA5501
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1351.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Dying Light The Beast (2025) [Ru/Multi] (1.2.1/dlc) Repack Wanterlude [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1352.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:40BBBE2518BE7122359F23F816C9262623775E54
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1353.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:E66A4A5741E3870E1CBD6910DAAD0432B014B7BE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1354.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Wanterlude [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1355.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:D2EE55D3D1A45B4FF7E4835D7445EAE21C4CB977
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1356.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Shin Samurai-den Yaiba | Yaiba: Samurai Legend | Яйба [2025, TV, 23 из 24]
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1357.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:89576C2E618DF650A4F808BABC40B2AE7278B3F3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1358.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:27D2E693F8C7E76E38A0960116FE6348667DB17D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1359.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ DOOM запустили на вейпе и на калькуляторе
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1360.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ DOOM запустили на вейпе и на калькуляторе
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1361.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:B84063EFB9299EDAEDC9F64A67243B7084B91325
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1362.jpg" />
 </div>
 
 

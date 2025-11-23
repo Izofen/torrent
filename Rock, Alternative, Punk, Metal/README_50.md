@@ -6,7 +6,7 @@ Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63715.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (2025) 3 x CD, Deluxe Edition, L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63910.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Warmen - Band Of Brothers (2025) [FLAC|Lossless|image + .cue] <Melodic Death, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63926.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64013.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nighthawk - Six Three O (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64540.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hemelbestormer - The Radiant Veil (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64553.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Paul McCartney - Flaming Pie (1997) Japanese Edition, SHM-CD, Reissue, 2025, Cap
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64556.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bengal Tigers - Cry Havoc (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64630.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Heavens Gate - Menergy (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64632.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Metallica - ...And Justice for All (1988) [APE|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64663.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Paul McCartney - Paul Is Live (1993) SHM-CD, Japanese Edition, Reissue, Remaster
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64665.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Nightingale - I (2000) Reissue, Remastered, 2024, Inside Out Music [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64675.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Kadaverficker - Exploitation Nekronation (2012) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64687.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Silent Deep Ocean - 2 Albums (2025) [MP3|320 Kbps] <Atmospheric Doom, Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64705.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Enuff Z'Nuff - Xtra - Cherries (2025) [FLAC|Lossless|image + .cue] <Pop Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64731.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bloody Dice - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64754.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lights of Vimana - Neopolis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64758.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mass Deception - Resurrections (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64759.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Gloombound - Dreaming Delusion (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64761.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Baroness - Purple (2015) [FLAC|Lossless|image + .cue] <Stoner Rock, Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64763.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Robin Trower - Come And Find Me (2025) [FLAC|Lossless|tracks + .cue] <Rock, Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64774.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Green Lung - Woodland Rites (2019) 2020, Limited Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64783.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64787.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ In Theory - Retribution (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64795.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mastodon - Crack The Skye (2009) Reissue, Remastered, 2024, Reprise Records, Del
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64804.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Fallen Empire - Сожаление (2025) [MP3|320 Kbps] <Gothic Metal, Industri
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64815.jpg" />
 </div>
 
 

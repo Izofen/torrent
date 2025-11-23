@@ -1,3 +1,102 @@
+###  Публикация: 1596159   (170711) от 08.12.2022
+
+uTorrent Pro 3.6.0 Build 46612 Stable Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170711.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABDCB98511694529A071C8CD5FE7B72FBC0F7E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661979   (170713) от 26.10.2023
+
+МТС Music v9.18.1 Mod by Alex.Strannik [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернатива классической Яндекс Музыке с точно такой же базой музыки, но с немного другим интерфейсом и поддержкой устаревающих устройств. В наличии обширный каталог списков под ваше настроение и разнообразных хитпарадов. Работает хорошо. МТС Music — это 65 миллионов треков, подкасты и радио для абонентов любых операторов.
+
+МТС Music без подписки это:
+• радио и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 22.10.2023Разработчик: MTS PJSCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282CE842CAFE71B949E97583881395DC48971D33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514867   (170714) от 05.12.2021
+
+Defender Tools 1.11 Portable by Ratiborus [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Defender Tools — это небольшая утилита от Ratiborus, которая позволяет быстро и полностью отключить Защитник Windows, а так же программа даёт возможность добавить или удалить папку или файл в исключения Windows Defender.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E0D24DA99ABB097FFF4809C501E4EA431FDF4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430496   (170717) от 10.12.2020
+
+Avast Clear 20.10.5824.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avast Clear (утилита для удаления Avast) - инструмент для ручного полного удаления антивирусных программ Avast в Безопасном режиме. Иногда не представляется возможным удалить Avast стандартным способом, с помощью компонента панели управления «Установка и удаление программ». В этом случае вы можете воспользоваться утилитой для удаления Avast Clear.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59576FA7FD24D71BC9078E6FCE780323166F3594
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671977   (170718) от 26.10.2023
 
 macOS 14 Sonoma 14.1 (Installer) [Multi/Ru]
@@ -6,7 +105,7 @@ macOS 14 Sonoma 14.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170718.jpg" />
 </div>
 
 
@@ -30,7 +129,7 @@ AVG Clear (AVG Remover) 20.10.5824.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170725.jpg" />
 </div>
 
 
@@ -57,7 +156,7 @@ Tor Browser Bundle 12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170729.jpg" />
 </div>
 
 
@@ -81,7 +180,7 @@ CrossOver Linux 18.5.0 [x86-x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170736.jpg" />
 </div>
 
 
@@ -106,7 +205,7 @@ StartAllBack 3.6.15 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170739.jpg" />
 </div>
 
 
@@ -130,7 +229,7 @@ RollBack Rx Professional 12.5 Build 2708963368 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170745.jpg" />
 </div>
 
 
@@ -154,7 +253,7 @@ Wondershare Filmora Х v10.1.5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170758.jpg" />
 </div>
 
 
@@ -178,7 +277,7 @@ AOMEI Partition Assistant Pro 9.13.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170770.jpg" />
 </div>
 
 
@@ -203,7 +302,7 @@ Skype 8.67.0.87 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170771.jpg" />
 </div>
 
 
@@ -227,7 +326,7 @@ PDF-XChange Editor Plus 10.1.2.382 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170776.jpg" />
 </div>
 
 
@@ -251,7 +350,7 @@ NVIDIA GeForce Desktop Game Ready 527.56 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170784.jpg" />
 </div>
 
 
@@ -275,7 +374,7 @@ Mullvad Browser 13.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170786.jpg" />
 </div>
 
 
@@ -300,7 +399,7 @@ CCleaner 6.06.10144 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170798.jpg" />
 </div>
 
 
@@ -324,7 +423,7 @@ GFI Kerio Control 9.4.2 build 7290 [i386] 1xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170803.jpg" />
 </div>
 
 
@@ -348,7 +447,7 @@ magnet:?xt=urn:btih:83F4636AB5BA263ABC1B3E427EC42FE232044213
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170804.jpg" />
 </div>
 
 
@@ -373,7 +472,7 @@ vpnify - Безлимитный VPN 2.1.5 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170813.jpg" />
 </div>
 
 
@@ -397,7 +496,7 @@ Adobe Media Encoder 2020 (14.0.0.556) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170817.jpg" />
 </div>
 
 
@@ -421,7 +520,7 @@ StartAllBack 3.6.15 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170819.jpg" />
 </div>
 
 
@@ -445,7 +544,7 @@ qBittorrent 4.6.0 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170824.jpg" />
 </div>
 
 
@@ -470,7 +569,7 @@ KMPlayer 2023.9.26.17 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170832.jpg" />
 </div>
 
 
@@ -494,7 +593,7 @@ R-Studio Network 9.3 Build 191251 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170838.jpg" />
 </div>
 
 
@@ -518,7 +617,7 @@ FurMark 1.32.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170842.jpg" />
 </div>
 
 
@@ -529,104 +628,6 @@ FurMark - полезная утилита, позволяющая проводи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51CC4E8C3473D3B22493F01E2EB088FD2CC51B37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671792   (170843) от 26.10.2023
-
-Ultimaker Cura 5.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ultimaker Cura - популярный слайсер для 3d-печати. Отлично подходит как для начинающих домашних пользователей, так и для небольших офисных работ. Имеет готовые шаблоны для печати и дружелюбный интерфейс.Язык интерфейса: Русский, Английский и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F019376E8050631369E7A2AA004622AC67EC027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430563   (170851) от 10.12.2020
-
-GeoGebra 6.0.620.0 Classic + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170851.jpg" />
-</div>
-
-
-###  Подробнее
-
-GeoGebra — мультиплатформенное программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705473FBB57C852E74FD1F90E59B6B80AECFC35F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596026   (170854) от 08.12.2022
-
-Far Manager 3.0.6060 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Far manager — бесплатный файловый менеджер с поддержкой UNICODE. Имеющий удобный интерфейс для работы с файловыми системами (реальными и эмулированными) и файлами. FAR Manager понимает длинные имена, корректно работает с русскими буквами (есть и перекодировщик WIN-KOI-ISO). Вмонтированный FTP-клиент, также настройка панелей по своему вкусу. Раскраска файлов, просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B63B961BB2B106B941C00E8C80394496638B8E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430665   (170856) от 10.12.2020
-
-Opera GX 71.0.3770.456 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она ещё может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37712C84A362F14639077A7E05406CCD26AB676D
 ```
 
 

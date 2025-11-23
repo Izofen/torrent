@@ -6,7 +6,7 @@ SanMinor - Изоляция (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65922.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SanMinor - Шаг вперед (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65945.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Me'Shell NdegеOcello - Cookie: The Anthropological Mixtape (2002) [FLAC|Lossles
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65949.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SanMinor - Дивный Новый Мир (2024) [MP3|320 Kbps] <Rap, Hip-Hop, P
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65965.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66010.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SanMinor - The Remix (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Rap, Hip Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66054.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ SanMinor - Ночь декабря (2015) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66061.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Chillhop Essentials Summer (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66168.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Aesop Rock - Black Hole Superette (2025) [FLAC|Lossless|tracks + .cue] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66542.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Red Snapper - Barb and Feather (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, F
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67761.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Coolio - Greatest Hits (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69368.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Apathy - Connecticut Casual: Chapter 2 (2024) [FLAC|Lossless|Web-DL|tracks] <Hip
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71820.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Joell Ortiz & L'Orange - Signature (2023) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71822.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1059B9F4AB18CDF9DFDB40437FF318C8E04A60B4
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75516.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cephei MC - Beat and Piano (Сборник красивой и чувствен�
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77161.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Bob Marley - Greatest Hits (2007) [MP3|320 кб/с]<Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77606.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:94D0584F582A444D4C1D52F9822EB09F7FF2EA0A
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78871.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Noize MC - 5 альбомов (2008-2012) [MP3|320 kbps]<Rap, Hip-Hop, Alternati
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86241.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87261.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:6F669E1F60DCDA098FA2876565B95DD7274522DB
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99637.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Snoop Dogg & Dr. Dre - Missionary (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101373.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Apollo Brown & CRIMEAPPLE - This, Is Not That (2024) [FLAC|Lossless|Web-DL|track
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101492.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Inst
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101503.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101504.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101505.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101506.jpg" />
 </div>
 
 

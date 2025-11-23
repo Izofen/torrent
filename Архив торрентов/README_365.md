@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86655.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C9207DC69CCC0CB0BF659F5CF62B9C704B9F564B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86659.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Confrontation [En] (L/Steam-Rip) 2012 | МалышШок [Без таблетк�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86668.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Confrontation [En] (L/Steam-Rip) 2012 | МалышШок [Без таблетк�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86683.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Confrontation [En] (L/Steam-Rip) 2012 | МалышШок [Без таблетк�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86693.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ uTorrent 3.1.3 Stable (build 26994) [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86703.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Wise Disk Cleaner v7.18 build 475 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86704.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Fugu the Blowfish (P) [En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86707.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:D05042CB879D0CD6D9747D9E4CD8FFA88764F6CF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86711.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:9E6114CD44482E7550F14C793BD754A106BB772A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86716.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:6D8CC86B292A26D1723878B0AAD370BEC323BF0F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86725.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Marc Bolan & T. Rex - The Essential Collection (2002) [FLAC|Lossless]<Glam Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86736.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Marc Bolan & T. Rex - The Essential Collection (2002) [FLAC|Lossless]<Glam Rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86739.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Marc Bolan & T. Rex - The Essential Collection (2002) [FLAC|Lossless]<Glam Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86741.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:4C0EF35C8DB6C8A651B364F36A204F55CE814646
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86742.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:56A2B2B31E78592E56092F01033A7119FACFDDCC
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86745.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:D0BEF9938A77D74B9573DE2CC41987031B78BA86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86753.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:3D5703BF5BB1C092EA6A95A3E83A8C1A8BE42C6F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86755.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:8D347C0645BA240140A3AF0354326D4710E03420
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86759.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:B5027F333978E384CE8148376F7BB28D24560B5C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86765.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:7261A634CFF49927D522B2364E955C06B1CB9289
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86767.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:110507ED3B2220DBDB80BBAE1B07A712D0962ED7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86770.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Kaspersky World 1.3.4.98 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86773.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86779.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Salfeld Child Control 2012 12.401.0.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86781.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Salfeld Child Control - программа ограничивает время, 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86793.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1685732   (127041) от 19.12.2023
+
+Вальтер Скотт | Чёрный Карлик (2022) [MP3, Наталья Домерецкая]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+Вальтер Скотт (1771–1832) – шотландский поэт, прозаик, историк, адвокат. Стоял у истоков зарождения нового жанра в литературе – исторического романа.
+Предлагаем вашему вниманию один из ранних романов знаменитого английского писателя Вальтера Скотта «Чёрный карлик» (1816), входящий в цикл «Рассказы трактирщика». Действие романа происходит (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: Студия «АРДИС»Продолжительность: 06:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC20A5121027AFAA8048D9D92D0F79854BDB6D16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685657   (127042) от 19.12.2023
+
+Вальтер Скотт | Пират (2014) [MP3, Юрий Заборовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вальтер Скотт (1771–1832) – шотландский поэт, прозаик, историк, адвокат. Стоял у истоков зарождения нового жанра в литературе – исторического романа.
+Действие романа «Пират», происходит на полудиких скалистых Шетлендских островах конца XVII века. Жизнь местных жителей протекала относительно мирно и спокойно, но однажды во время шторма у шетлендских берегов терпит (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Нигде не купишьПродолжительность: 23:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A2A0BB862ABE00E5A9662A3E15EA4744BEAF1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685688   (127043) от 19.12.2023
+
+Журнал | Делаем сами №24 (549) (декабрь 2023) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127043.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6143E3A6F5B9C00B9A18370F786DD67439580C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685666   (127044) от 19.12.2023
 
 Вальтер Скотт | Айвенго (2006) [MP3, Ростислав Плятт, Евгений Леонов, Георгий Менглет и др.]
@@ -6,7 +81,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127044.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ magnet:?xt=urn:btih:80B80E2CA7B42FF13CDBD3E4F30743F439925CE9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127045.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:028EE68EA65B551D1CAF8F3526C79A7751395A97
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127046.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:CB0D4E99FE97229789E2ED24B3A0B8B6FB3E61DD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127047.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:355306F364B07CFFA52FED5A3DE683F7EC3CDE70
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127048.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ magnet:?xt=urn:btih:2FC86CDC2DF78EB6639C095EFAAD15CD8BA50705
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127049.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ magnet:?xt=urn:btih:8FB952D74B99334DE3012ECC30A9894455CF335D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127050.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:B26AD6D3292471F08593952C153FB47847CBE3FB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127051.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:AB918395300B3DD69E54E0B14295E5C685474F7A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127052.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ Niovel - Never Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127053.jpg" />
 </div>
 
 
@@ -256,7 +331,7 @@ magnet:?xt=urn:btih:57023A56A6532511D6FAA0AF71EE7FDF7F5AC461
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127054.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ Dusk - Dissolve into Ash (2023) [MP3|320 Kbps] <Doom Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127055.jpg" />
 </div>
 
 
@@ -307,7 +382,7 @@ magnet:?xt=urn:btih:2F160DCEA9EEF032D7574B9F42A8F1168A3E85B5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127056.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ magnet:?xt=urn:btih:189BBE76E6F3E3D77227F3A0E175F4D22B9D4B8D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127057.jpg" />
 </div>
 
 
@@ -355,7 +430,7 @@ Demon - The Unexpected Guest (1982) Japanese Edition, Reissue, Remastered, 2020,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127058.jpg" />
 </div>
 
 
@@ -382,7 +457,7 @@ Dusk - Epoka (2018) [MP3|320 Kbps] <Industrial Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127059.jpg" />
 </div>
 
 
@@ -409,7 +484,7 @@ magnet:?xt=urn:btih:3B7DFF0B65212922135E87DDD8642532B78A6FEF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127060.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ magnet:?xt=urn:btih:B72617D295430DD1096010C5E7EAE22398E45D1F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127061.jpg" />
 </div>
 
 
@@ -457,7 +532,7 @@ magnet:?xt=urn:btih:5715DCD4E6C1FFF6D7A8E98E90AF3BA6B2030970
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127062.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ CudaText 1.205.5.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127063.jpg" />
 </div>
 
 
@@ -506,7 +581,7 @@ magnet:?xt=urn:btih:ACAC4DCB50B3E8A561FA87E17E4D05BB4A0AD8A5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127064.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ RTG. Животный мир Командорского архипелага (20
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127065.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ magnet:?xt=urn:btih:87E26752D547AE19EC8B338C5ADC42977719FA72
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127066.jpg" />
 </div>
 
 
@@ -566,78 +641,6 @@ magnet:?xt=urn:btih:87E26752D547AE19EC8B338C5ADC42977719FA72
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00B66899682A845421D9497C50AD0A2E680C1754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685723   (127067) от 19.12.2023
-
-FreeFileSync 13.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127067.jpg" />
-</div>
-
-
-###  Подробнее
-
-FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6230A72B3001C02D8470269263C527B6653A4DA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672053   (127068) от 19.12.2023
-
-Дрю: Человек за плакатом / Drew: The Man Behind the Poster (2013) WEB-DL [H.264/1080p] [DVO] (Pazl Voice)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм освещает карьеру художника и иллюстратора Дрю Струзана, среди наиболее популярных работ которого – плакаты к фильмам об Индиане Джонсе, трилогии «Назад в будущее» и «Звёздным войнам». Картина включает в себя эксклюзивные интервью с Джорджем Лукасом, Стивеном Спилбергом, Харрисоном Фордом, Майклом Дж. Фоксом, Томасом Джейном, Фрэнком Дарабонтом, (   Читать дальше...   )Производство: США, Torino Pictures, Hefty, Sharkey ProductionsЖанр: документальный, история, биографияРежиссер: Эрик ШаркиУчастники: Грег Ароновиц, Тимоти Брэдстрит, Джоанна КэссидиПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские, английскиеПродолжительность: 01:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13540DC20A4CECB9C4DED4B247A6161E2A63AC90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685711   (127069) от 19.12.2023
-
-Chasys Draw IES 5.29.01 include Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chasys Draw IES — бесплатная программа, представляет собой набор приложений, среди которых работа со слоями в основе графического редактора с анимацией, с супер-разрешением изображения по технологии Chasys Draw IES Artist, многопоточный конвертер файлов изображений Chasys Draw IES Converter, достаточно быстрый просмотрщик изображений Chasys Draw IES Viewer и работа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E147F17C327A49E8F8803C8F32298C1117A33AC
 ```
 
 

@@ -6,7 +6,7 @@ Aiarty Image Enhancer 3.2 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29732.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Aiarty Image Enhancer 3.2 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29939.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Digiarty AIArty Image Matting 2.3 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30068.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30068.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ FliFlik KlearMax for Photo 3.0.0 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30259.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Jixipix Premium Pack 1.2.16 Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31107.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Franzis FOCUS 6 Pro 6.13.04017 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31796.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Franzis SHARPEN #5 Pro 5.41.03926 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31937.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Franzis ANALOG Pro 5.21.04078 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32207.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Chasys Draw IES 5.33.01 include Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32430.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Franzis EMOTION #2 Pro 2.27.04017 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32514.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Franzis COLOR Pro 8.23.04078 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33489.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Franzis BLACK & WHITE Pro 8.25.04078 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33671.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ FliFlik KleanOut for Photo 6.4.0 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33900.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Movavi Photo Editor 24.3.0 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34030.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Movavi Photo Editor 24.3.0 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34452.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Movavi Slideshow Maker 25.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34637.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PTE AV Studio Pro 11.0.15.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34705.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Xara Photo & Graphic Designer+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34910.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Xara Web Designer+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34913.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Xara Designer Pro+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34938.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Aiarty Image Matting 2.0 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35274.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Icecream Photo Editor Pro 1.52 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35776.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Serif Affinity Designer 2.5.6.2887 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35862.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Serif Affinity Publisher 2.5.6.2887 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35867.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ON1 NoNoise AI 2024 18.3.0.15302 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35891.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Adobe Photoshop 2025 26.1.0.121 (x64) RePack by SanLex [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35909.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1525725   (129226) от 21.01.2022
+
+VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thakzin, Kitty Amor - Khoisan (4:24)
+02. Dawgpound - Egypt (6:40)
+03. Un_Nown, Zikhona - Sikelela (7:38)
+04. Drega, Maline Aura - Mama Dear (6:32)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 02:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D054A817DB6BDF2C0EF063B6C11CE00C28EE3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525752   (129227) от 21.01.2022
+
+В сетях Каморры / Il Pastore / Im Netz der Camorra (2021) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винодел Маттео живет со своей женой Стефанией и дочерью Лаурой в окружении живописных виноградников Южного Тироля. Семья известна своим хорошим вином и пользуется уважением в деревне. Затем однажды на его винодельне появляется Нино Соррентино, очевидно, является старым знакомым Маттео. С появлением незнакомца отец семейства сталкивается со своим тёмным прошлым, которое (   Читать дальше...   )Производство: Германия / good friends FilmproduktionЖанр: криминал, триллерРежиссер: Андреас ПрохаскаАктеры: Тобиас Моретти, Урсина Ларди, Фабрицио Романьоли, Харольд Виндиш, Антония Моретти, Mariam Sanusi, Мелика Форутан, Теа Фалько, Lukas Thomas Watzl, Герхард Либманн и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео (2 бегущих строки), аудио вставки (2 короткие) рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0362725CE6E865AB31F3D196F5CA05E7EF8A63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525574   (129229) от 21.01.2022
+
+VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Candys, Jack Holiday - Insomnia (Rework) (3:00)
+02. W&W, Blasterjaxx - Dynamite (Bigroom Nation) (2:50)
+03. Timmy Trumpet, Azteck, Darren Styles - Dance Tonight (2:57)
+04. Sam Feldt, Justus, Georgia Ku - Call On Me (3:27)(   Читать дальше...   )Жанр: Big Room, Dance, Hands UpПродолжительность: 04:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489285   (129230) от 28.04.2012
 
 Журнал | Дом №5 [май 2012] [PDF]
@@ -6,7 +84,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129230.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:EEBD98FF9D42A0F6B634DBE80E47012E8216C5C0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129231.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ VA - 50 Trance Tunes Vol.29 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129232.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Audio Damage - Other Desert Cities 1.0.9 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129233.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129234.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129235.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ ISO Workshop Free 10.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129238.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129239.jpg" />
 </div>
 
 
@@ -225,7 +303,7 @@ VA - 60 Minutes. Old School Dance Music vol.6 (2021) mixed by Dj V [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129240.jpg" />
 </div>
 
 
@@ -252,7 +330,7 @@ VA - Africa Gets Physical, Vol. 3 (2020) [AAC|~331 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129242.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129244.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ VA - Trance Symphony Volume 10 (2012) [MP3|320 кб/с]<Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129245.jpg" />
 </div>
 
 
@@ -339,7 +417,7 @@ magnet:?xt=urn:btih:885390C0F768DDAA5B740EDBDDB24F7810DE4C93
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129246.jpg" />
 </div>
 
 
@@ -366,7 +444,7 @@ VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129247.jpg" />
 </div>
 
 
@@ -393,7 +471,7 @@ Dezperadoz - Dead Man's Hand (2012) [MP3|320 кб/с]<Thrash Metal (Western Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129248.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ VA - Africa Gets Physical, Vol. 1 (2017) [AAC|~335 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129249.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129252.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129254.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ iMusic 2.2.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129255.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ magnet:?xt=urn:btih:C420AFDC376FCFA2BDD3857215BDB4AE2979204D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129256.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ Sound Studio 4 v4.10.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129257.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ VA - Africa Gets Physical, Vol. 2 (2019) [AAC|~331 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129260.jpg" />
 </div>
 
 
@@ -610,7 +688,7 @@ Strogoorganic | Органическое Садоводство - Междуна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129262.jpg" />
 </div>
 
 
@@ -624,78 +702,6 @@ Strogoorganic | Органическое Садоводство - Междуна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9A1F947D9D4F570EB01A0E7F72848A8B23BE950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525755   (129263) от 21.01.2022
-
-Последний аксель (2021) WEBRip (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катя — молодая талантливая фигуристка. Скоро ей предстоит пройти через одно из самых сложных карьерных испытаний — совершить прыжок, который определит всю ее дальнейшую судьбу. Очень долго главная героиня находилась под влиянием отца-тирана. Его смерть дала Кате возможность приехать столицу и там попытаться "покорить лед". Девушка хочет совершить сложный (   Читать дальше...   )Производство: Россия | "SPACE Production"Жанр: Драма, спортРежиссер: Анарио МамедовАктеры: Елена Подкаминская, Ангелина Загребина, Михаил Трухин, Федор Федотов, Карина Разумовская, Александр Семчев, Алексей Ягудин, Иван Ивашов, Геннадий Блинов, Никита ЕленевПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B35A255EFEC40ABD016F8765367E00E7FF3AE2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525602   (129266) от 21.01.2022
-
-А.А. Мосалов, П.М. Волцит | Птицы России. Лучший определитель (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга пригодится школьникам, родителям, любителям природы, ведь наш справочник включает все самые распространённые виды птиц, которые встречаются в российских лесах и садах, на улицах городов и в парках. В нем вы найдете много полезной и интересной информации и яркие анималистические иллюстрации. А замечательная подача материала позволит даже самому неопытному любителю (   Читать дальше...   )Жанр: Энциклопедии, Справочные изданияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCB7CA94C386F1B4E1DA32216F514CCB23F0BB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489192   (129267) от 28.04.2012
-
-Журнал | 4x4 Club №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобильный журнал 4x4 Club – старейшее российское издание, посвященное внедорожникам и связанному с ними стилю жизни. Журнал проводит тесты внедорожников, выявляет оттенки тюнинга внедорожников и секреты постройки автомобилей, излагает о путешествиях и снаряжении для них.апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F6F9005649D048B55356A80E59C268E78EF672
 ```
 
 

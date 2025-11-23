@@ -6,7 +6,7 @@ Reus 2 (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54966.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55034.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Withering Rooms (2024) [Multi] (1.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55036.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SpellForce 3 Reforced (2017-2021) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55054.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55056.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ozymandias: Bronze Age Empire Sim (2022) [Ru/Multi] (1.6.0.10) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55058.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.9.10756/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55061.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Vox Machinae (2022) [En] (1.4.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55065.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55070.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sucker for Love: Date to Die For (2024) [En] (1.30) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55071.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55072.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Magic City Detective 5: The Carnival Begins (2024) [Multi] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55092.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CyberHoney (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55121.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pre Dusk (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55135.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55136.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Cuphead (2017) [Ru/Multi] (1.3.2/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55142.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55149.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack FitGirl [Platinum E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55157.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Scene Tenoke [Legate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55169.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55171.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Galacticare (2024) [Ru/Multi] (1.0.3b/dlc) License GOG [Placebo Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55175.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ TasteMaker: Restaurant Simulator (2021) [Multi] (1.0.3) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55177.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Imaginary Friend Asylum (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55210.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ City Legends 4: The Witness in the Rye / Городские легенды 4: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55220.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ THE KING OF FIGHTERS XV (15) (2022) [Ru/Multi] (2.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55229.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.544) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55248.jpg" />
 </div>
 
 

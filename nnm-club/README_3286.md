@@ -1,3 +1,78 @@
+###  Публикация: 1745265   (105118) от 25.08.2024
+
+Carter the Unstoppable Sex Machine - Post Historic Monsters (1983) Remaster, 2024, Chrysalis Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Indie Rock, Alternative Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Million Years B.C. (Live in Portsmouth 19/10/1993) [00:00:59]
+02. Spoilsports Personality Of The Year (Live in Portsmouth 19/10/1993) [00:03:59]
+03. Mid Day Crisis (Live in Portsmouth 19/10/1993) [00:03:15]
+04. My Second To Last Will And Testament (Live in Portsmouth 19/10/1993) [00:02:51](   Читать дальше...   )Жанр: Synth-pop, Indie Rock, Alternative RockПродолжительность: 3 CD, 02:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2D247F68934EE82689556B88FC37940EB76738
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745328   (105119) от 25.08.2024
+
+Сообщение от мамы / Nachricht von Mama (2022) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмисерийная драма «Сообщение от мамы» рассказывает историю молодого вдовца, потерявшего жену из-за рака. Перед смертью жена оставила ему и их детям сотни видеообращений. «Я смирилась с тем, что умираю. Но не с тем, что оставляю вас одних. Благодаря этим видео я все ещё немного с вами, если хотите», — это одно из многих видеопосланий, которые Элли записала для (   Читать дальше...   )Производство: Германия / Pyjama PicturesЖанр: драмаРежиссер: Феликс Биндер, Sabrina RösselАктеры: Джессика Гинкель, Голо Ойлер, Матильда Смидт, Клаудиа Решель, Юлия Голдберг, Marlene Morreis, Тим Оливер Шульц, Карла Ньине, Люк Мэтт Рёнтген, Matteo Hilterscheid и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1A9F757C197D4A9775EDCFE91257157DD30E28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745313   (105120) от 25.08.2024
+
+Vivaldi 6.8.3381.57 include standalone [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37EA1B7977F88C023A9318753FB87BA516F968B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745380   (105121) от 25.08.2024
 
 WinTools.net Premium 24.8.1 Classic / Professional / Premium RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -6,7 +81,7 @@ WinTools.net Premium 24.8.1 Classic / Professional / Premium RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105121.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:7CA16C00E311D227214578BB5F54561814F42256
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105122.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Wondershare PDFelement Pro 11.0.5.3099 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105123.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ WinTools.net Premium 24.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105124.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Double Commander 1.1.17 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105125.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ R-Studio Network / Technician 9.4 Build 191349 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105126.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:5ADC3E4DB2791BC5B4A2BA1D8E39E2481F77184D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105127.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:C4D8DFC99D785FBA3C3A2E5B5EE7FDDADDAEF688
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105128.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 6 (2024) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105129.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ Ventusky: Прогноз погоды v36.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105130.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ Vanessa Williams - Survivor (2024) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105131.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ Sugar Bytes - DrumComputer 1.3.5 Standalone, VSTi, VSTi 3, AAX (x64) RePack by T
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105132.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ magnet:?xt=urn:btih:715A1D27B8EF15F9AC292002B6611A40510ECF94
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105133.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ CareUEyes 2.4.3.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105134.jpg" />
 </div>
 
 
@@ -349,7 +424,7 @@ magnet:?xt=urn:btih:84894B1EC4BF82DCA150E449A6D9BE970D537151
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105135.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ magnet:?xt=urn:btih:F238308496D90168EBF3AA4A6F57F11EDA51B81A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105136.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ PrivaZer Pro 4.0.92 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105137.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ magnet:?xt=urn:btih:BFCCDE664046B1B36A11F8F7D2A2F5874DD1A542
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105138.jpg" />
 </div>
 
 
@@ -445,7 +520,7 @@ Ashampoo UnInstaller 15.00.00 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105139.jpg" />
 </div>
 
 
@@ -469,7 +544,7 @@ magnet:?xt=urn:btih:0D5B77FF19D25284C07AABFB2305DF476FE5A584
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105140.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ magnet:?xt=urn:btih:73CAC5AAF235530D3AEF11EC0FC1635C465F6F1D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105141.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ Aiseesoft Video Converter Ultimate 10.8.68 RePack (& Portable) by TryRooM [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105142.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:1E9BC96957FEE953FEE51A24671E8A0E58AEA4F0
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105143.jpg" />
 </div>
 
 
@@ -553,79 +628,6 @@ magnet:?xt=urn:btih:1E9BC96957FEE953FEE51A24671E8A0E58AEA4F0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F31E03ECDFEDC8B10614F05AD3B5CADAF5E1B7DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745399   (105144) от 25.08.2024
-
-Balabolka 2.15.0.878 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Балаболка (Balabolka) - программа предназначена для чтения вслух текстовых файлов. Для воспроизведения звуков человеческого голоса могут использоваться любые речевые синтезаторы, установленные на компьютере.
-Воспроизведение речи можно контролировать при помощи стандартных кнопок, подобных тем, что присутствуют в любой мультимедийной программе ("воспроизвести/приостановить/остановить"). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260909533B0B591ECC9FD8BD2A33ADE2FE820ECA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745212   (105145) от 25.08.2024
-
-AR Plan 3D: Линейка, Рулетка v4.8.13 Mod by srajawwal09 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105145.jpg" />
-</div>
-
-
-###  Подробнее
-
-AR Plan 3D – инновационное приложение, использующее дополненную реальность (AR) для быстрого измерения комнаты. Технология дополненной реальности AR позволяет использовать виртуальную линейку вместо обычной измерительной ленты-рулетки, делая процесс измерения и составления 3D плана помещения намного более удобным и быстрым.Тип издания: PremiumРелиз состоялся: 25.08.2024Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52383FFDAAEC2654F17791530D7528054677DB00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745309   (105146) от 25.08.2024
-
-Ба / The G (2023) WEB-DLRip [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочная пожилая женщина строит план мести для коррумпированного опекуна, который разрушил ее жизнь.Производство: Канада / 3Buck ProductionsЖанр: криминал, триллерРежиссер: Karl R. HearneАктеры: Dale Dickey, Romane Denis, Daniel Brochu, Richard Chevolleau, Greg Ellwand, Kathleen Fee, Jonathan Koensgen, Roc Lafortune, Anthony Jones Nestoras, Bruce Ramsay, Joe Scarpellino, Tanya van BloklandПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:46:25Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
 ```
 
 

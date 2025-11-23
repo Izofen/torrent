@@ -1,3 +1,175 @@
+###  Публикация: 1597948   (164427) от 17.12.2022
+
+EdgeView 3 v.3.8.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164427.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E244769AC99F184C19DFD14F980261ECF2D2EF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517040   (164428) от 13.12.2021
+
+Софья Прокофьева | Сказка о жадном мальчишке (1965) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как легко сделать человека жадным: вазочка конфет да кошелёк звонких монет. Но пересилит ли всё это, когда твоему другу требуется помощь?Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB706694D8D1F7C9B51F5B84301964996907106A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346315   (164429) от 18.12.2019
+
+Светлана Шишкова | Буквограмма от 2 до 7. Развиваем речь, играя (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164429.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Буквограмма» – уникальная комплексная программа развития ребенка. Она активно используется родителями и педагогами в России, Германии, Израиле, Испании, Новой Зеландии, Казахстане, Корее, Киргизии, Беларуси, ОАЭ, Италии, на Украине и в других странах. Но «Буквограмма» была бы невозможна без игр. Именно игра в простой ненавязчивой форме помогает гармонично развивать (   Читать дальше...   )Жанр: Воспитание детей, педагогикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020320680805247A9FF19B64617D654CBB1E7482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597830   (164430) от 17.12.2022
+
+Bow - City Race (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Race [00:04:03]
+02. Insomniac [00:04:23]
+03. Black Dog Liberation [00:03:44]
+04. Trader [00:03:47](   Читать дальше...   )Жанр: Groove Metal, Heavy MetalПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC5F993E2C7DAD00B422A2878F44F92DA7AACE38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432325   (164431) от 17.12.2020
+
+А.А. Маркова (сост.) | Святые великомученицы Екатерина и Варвара (2013) [DJVU, PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представленная книга-сборник содержит жизнеописание святых великомучениц Екатерины и Варвары, историю их почитания, рассказ об их иконографии, даны и акафисты святым. Также в данный сборник входит несколько приложений: свидетельства о чудесах великомучениц Екатерины и Варвары, рассказ о храмах и обителях, посвящённых святым, и похвала великомученицам.Жанр: ПравославиеФормат: DJVU, PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1DC3091A1C81A0CED71CEABBE7AE294C4D1F6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597951   (164432) от 17.12.2022
+
+Feeder 4 v.4.4.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
+С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2004 - 2022 Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5023C6219B7670A69447F1619510E4A8AB6D4ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346240   (164433) от 18.12.2019
+
+Города у моря. Как живут в Мельбурне / Cities by the Sea. Melbourne (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мельбурн - мегаполис на юго-востоке Австралии, который уже не раз был включен в список лучших городов для жизни. Здесь живёт более четырех миллионов человек, многие из которых яркие представители творческой молодежи, формирующей стиль города. Далекий от общепринятых стандартов, Мельбурн создал свой собственный стиль: расслабленный, космополитичный и устремленный (   Читать дальше...   )Производство: ЕС, ARTE G.E.I.EЖанр: Документальный, познавательный, путешествияРежиссер: Кристиан СтефенховерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884BE30838E4E6A8439F31B4ECF6E946F04C40A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432240   (164434) от 17.12.2020
 
 Мистер Гро… - Не бойся огня (2020) [MP3|320 Kbps] <Heavy Metal>
@@ -6,7 +178,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164434.jpg" />
 </div>
 
 
@@ -33,7 +205,7 @@ VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164435.jpg" />
 </div>
 
 
@@ -60,7 +232,7 @@ VA - Chillout King Ibiza: Welcome 2 My Island (2014) [AAC|~343 Kbps] <Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164436.jpg" />
 </div>
 
 
@@ -87,7 +259,7 @@ magnet:?xt=urn:btih:9681B2AB40FDC45DA5AF4F3FE403CD377696701D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164437.jpg" />
 </div>
 
 
@@ -111,7 +283,7 @@ Crimson Cry - Playing Gods (2020) [MP3|320 Kbps] <Progressive Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164438.jpg" />
 </div>
 
 
@@ -138,7 +310,7 @@ Empyrios - Zion (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164439.jpg" />
 </div>
 
 
@@ -165,7 +337,7 @@ magnet:?xt=urn:btih:A21C2E1EA8E37FFFD314017DC57AFF651A015E05
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164440.jpg" />
 </div>
 
 
@@ -189,7 +361,7 @@ Chicane - Everything We Had To Leave Behind (Back Pedal Brakes Remixes) (2021) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164441.jpg" />
 </div>
 
 
@@ -216,7 +388,7 @@ magnet:?xt=urn:btih:0D1D5157406B0C95346B0A16DD84D4CD4A731E4F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164442.jpg" />
 </div>
 
 
@@ -243,7 +415,7 @@ Wondershare Filmora 9 v9.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164443.jpg" />
 </div>
 
 
@@ -267,7 +439,7 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) [FLAC|Lossless|tracks + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164444.jpg" />
 </div>
 
 
@@ -294,7 +466,7 @@ VA - Beatport Electro House: Sound Pack #211 (2020) [MP3|320 Kbps] <Club, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164445.jpg" />
 </div>
 
 
@@ -321,7 +493,7 @@ ELEX II (2022) [Ru/Multi] (1.05c) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164446.jpg" />
 </div>
 
 
@@ -345,7 +517,7 @@ VA - Apres Ski Party Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164447.jpg" />
 </div>
 
 
@@ -372,7 +544,7 @@ Riccardo Cocciante - - ... Je Chante (1999) [FLAC|Lossless|image + .cue] <Pop, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164448.jpg" />
 </div>
 
 
@@ -399,7 +571,7 @@ magnet:?xt=urn:btih:BE099C261E7A3BDFEB7A485AF0F1A468DFBED55B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164449.jpg" />
 </div>
 
 
@@ -423,7 +595,7 @@ magnet:?xt=urn:btih:7D27A0035368CF506EDFCCE56A01A2BA2028ED1B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164450.jpg" />
 </div>
 
 
@@ -448,7 +620,7 @@ magnet:?xt=urn:btih:FA2C2CB880C85E32CDEE5A732EC56E9D646744CE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164451.jpg" />
 </div>
 
 
@@ -472,7 +644,7 @@ Seal 1.11.0-rc.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164452.jpg" />
 </div>
 
 
@@ -483,182 +655,6 @@ Seal 1.11.0-rc.1 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01FD7B7EB7AB7FDE7BBB7BAFE090F50EEEE79427
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673748   (164453) от 02.11.2023
-
-Skype 8.107.0.215 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883BBF601D84723BB1B00CAFB7C56545F0C3C5F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591626   (164454) от 16.12.2022
-
-1899 / 1899 (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) LostFilm, HDRezka, RuDub, NewComers (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа европейских мигрантов покидает Лондон на пароходе, чтобы начать новую жизнь в Нью-Йорке. Когда они сталкиваются с другим судном, плывущим по течению в открытом море, их путешествие превращается в кошмар.Производство: Германия, США, Dark Ways, NetflixЖанр: триллер, драма, ужасы, мистикаРежиссер: Баран бо ОдарАктеры: Эмили Бичем, Анайрин Барнард, Андреас Пичман, Мигель Бернардо, Жозе Пиментан, Изабелла Вэй, Гэбби Вонг, Янн Гаэль, Матильда Олливье, Йонас БлокеПеревод: Многоголосый профессиональный (LostFilm, HDRezka Studio, RuDub, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0F34BFEFF7DB9CB5D76F123FA8403D337557DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428585   (164455) от 16.12.2022
-
-Borland Delphi 7 Science Edition 2020 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Delphi 7 - всеми известная программа от компании Borland, а именно средство разработки для программирования как на начальном, так и на профессиональном уровне. Один из самых лучших и популярных продуктов от компании Borland.
-В состав пакета входит расширенный комплект разрабочика - более сотни сторонних компонент и исправлений, корректно настроенных для исключения (   Читать дальше...   )Язык интерфейса: установщик русский/среда IDE  - английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FF447F6AC1DBEAFCAA5D8AF41010AC4AF1591B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673548   (164456) от 02.11.2023
-
-Araxis Merge Pro Edition 2023.5976 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
-Araxis Merge – это обязательное приложение для разработчиков (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 1993–2022 ARAXIS LTD.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8A18464828BFFE89A1E1A61CCFC2355028135D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673779   (164457) от 02.11.2023
-
-Sacred Reich - Awakening (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening
-02. Divide & Conquer
-03. Salvation
-04. Manifest Reality(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D12B271FB0F02D007413D705BC430236E727DBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628128   (164458) от 16.12.2022
-
-Жизнь Пи / Life of Pi (2012) BDRip [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма оказывается на шлюпке посреди океана в компании неожиданного попутчика — грозного бенгальского тигра.Производство: Fox 2000 Pictures / Haishang FilmsЖанр: Драма, приключенияРежиссер: Энг ЛиАктеры: Сурадж Шарма, Ирфан Кхан, Рейф Сполл, Табу, Адиль Хуссэйн, Жерар Депардье, Аюш Тандон, Гаутам Белур, Аян Кхан, Мохд Аббас ХалилиПеревод: Дублированный (лицензия) / Авторский одноголосый, закадровый (А. Дасевич)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (форсированные, полные - 2 вида), украинский (форсированные, полные), английский (форсированные, полные), арабский, болгарский, хорватский, чешский, немецкий, греческий, иврит, венгерский, индонезийский, польский, португальский, румынский, сербский, словенский, испанский, турецкий, вьетнамскийПродолжительность: 02:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B5060D4837C98926767BC82DF3011E139E1DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516852   (164459) от 13.12.2021
-
-VA - Strong Women of Country (2021) [AAC|~333 Kbps] <Country>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmylou Harris - Queen of the Silver Dollar (Remastered Version) (4:59)
-02. Deana Carter - Ordinary (4:15)
-03. The Wreckers - Different Truck, Same Loser (Live) (3:23)
-04. Carlene Carter - I'm So Cool (2:34)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E441C54C320A549647EC42D29DCF2C9AEB46F1
 ```
 
 

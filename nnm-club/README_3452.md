@@ -1,3 +1,81 @@
+###  Публикация: 1723563   (109434) от 16.05.2024
+
+Kalac - Odyssee (2024) [FLAC|Lossless|WEB-DL|tracks] <space rock, fuzz, kraut>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arguenon [00:06:53]
+02. Céleste [00:06:54]
+03. Conscience [00:04:47]
+04. II [00:07:15](   Читать дальше...   )Жанр: space rock, fuzz, krautПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E8F9F2B741EEAE7772F6F7C84DCA098BDBDED5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723651   (109435) от 16.05.2024
+
+George Shearing - Mellow Moods (1989) Pair Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have You Met Miss Jones? [2:09]
+02. Laura [2:56]
+03. I Could Write a Book [2:09]
+04. I'll Take Romance [2:42](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1FA6A398B3C8594F87AF315C0A78D83837A848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723687   (109436) от 16.05.2024
+
+QuickEdit Text Editor Pro 1.11.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109436.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickEdit Text Editor Pro - полноценный и многофункциональный текстовый редактор в котором вы сможете хранить свои записи. Так же он поддерживает функцию автозаполнения, и будет предлагать варианты для вставки. Его скорость работы и время реакции гораздо лучше, чем у имеющихся в настоящее время в Google Play приложений для редактирования текстов. Он может использоваться (   Читать дальше...   )Тип издания: Pro (Patched)Релиз состоялся: 14.05.2024Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB20C08DD28E95456F5B350CB8E4A40A00BB0AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723521   (109437) от 16.05.2024
 
 GForce - impOSCar 3 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
@@ -6,7 +84,7 @@ GForce - impOSCar 3 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109437.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ magnet:?xt=urn:btih:74CFC4C88C88DA50BCD4C07578ADFB19A06AE123
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109438.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ Jazz Guitar Club, Background Instrumental Music Collective, Romantic Love Songs 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109439.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ Demon - Invincible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109440.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ magnet:?xt=urn:btih:763A47989109B044945457FC24669BB32799624F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109441.jpg" />
 </div>
 
 
@@ -134,7 +212,7 @@ Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109442.jpg" />
 </div>
 
 
@@ -161,7 +239,7 @@ Elvellon - Ascending in Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109443.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ magnet:?xt=urn:btih:55EA452F12EA3B563E2CD0E8E790BDE11490C0E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109444.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ VA - Deep Trance Showcase III (2024) [MP3|320 Kbps] <Trance, Progressive, Electr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109445.jpg" />
 </div>
 
 
@@ -239,7 +317,7 @@ magnet:?xt=urn:btih:4D6EC71CE47529933B600B18B023E8F4BB797C12
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109446.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109447.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ VA - Levitated - Trance Essentials Vol. 4 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109448.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ Demon - Invincible (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109449.jpg" />
 </div>
 
 
@@ -343,7 +421,7 @@ Jonathan Young - Sea Shanty Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109450.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Universe III - Universe III (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109451.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ PhotoRoom v4.9.6 b1399 Mod by RBMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109452.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ Collective Soul - Here To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109453.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ magnet:?xt=urn:btih:FAFD65C8A9846E060B41713EE40DD1F23645192F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109454.jpg" />
 </div>
 
 
@@ -472,7 +550,7 @@ Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109455.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ magnet:?xt=urn:btih:D9B9F7FC7F5E4D94440627A31CC3B7FD38F2CAC0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109456.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ magnet:?xt=urn:btih:01EDA222FC9A5A8AA3FED819275ABE146322E2F3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109457.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ Slash - Orgy of the Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109458.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ magnet:?xt=urn:btih:ECE423C7AC82AF293F3375F76030F326B5082001
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109459.jpg" />
 </div>
 
 
@@ -585,85 +663,6 @@ magnet:?xt=urn:btih:ECE423C7AC82AF293F3375F76030F326B5082001
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C3C42189D643004E00FA08E355026108CE26A5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723561   (109460) от 16.05.2024
-
-Kris Baha - Cyber Body Music Vol.1 (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Shadows [00:05:58]
-02. Idorus Grid [00:05:38]
-03. Double Helix Overdrive [00:06:31]
-04. Hypercortex [00:04:51](   Читать дальше...   )Жанр: EBM, TechnoПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF016A4589666144D361E41B42CB4A30BCC1BD93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723703   (109461) от 16.05.2024
-
-Враг на пути (1930) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Годы индустриализации и коллективизации. Однако враги внутри страны продолжают вести подрывную работу. В стане врагов — специалисты, выходцы из старой интеллигенции, саботирующие планы строительства, кулаки и подкулачники, уничтожающие колхозное добро.
-Безопасности СССР угрожают и внешние враги — капиталисты, покровительствующие белоэмигрантам. Воспитывая в своих (   Читать дальше...   )Производство: СССР / Государственный техникум кинематографии (ГТК)Жанр: агитфильм, драма, немое киноРежиссер: А. СинявскийАктеры: нет сведенийСубтитры: русские (интертитры)Продолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC5DEE2BDC5FA7926C36EC56F173A2130885E61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723781   (109462) от 16.05.2024
-
-Ayreon - 01011001 - Live Beneath The Waves (2024) 2 x CD [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109462.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
- 01 - March Of The Machines (Live) (02:46)
- 02 - Age of Shadows (Live) (10:27)
- 03 - Comatose (Live) (04:23)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 02:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18FA5FF4B5D7FF3186142BD10217C73706C44D7
 ```
 
 

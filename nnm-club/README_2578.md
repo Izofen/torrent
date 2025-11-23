@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67776.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mentalist - Earthbreaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67777.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Oscar Peterson Quartet - City Lights: Live in Munich (1994) 2024, Mack Avenu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67778.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sacrifice - Volume Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67779.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Theocracy - Mirror Of Souls (2008) [FLAC|Lossless|image + .cue] <Progressive Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67780.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:963C75686C70BAA2C785FBC71239C095DC660400
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67781.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Slayer - Seasons In The Abyss (1990) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67782.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Don Amore - One More Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ital
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67783.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:CE82F909AFC5734E2AA3C1CD802716AED4C71128
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67784.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:CFCF76CDB8D269CFD03455B1670388FABC90489B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67785.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Now That's What I Call Music! 29 (1994) 2 CD [OGG Vorbis|480 Kbps] <Pop, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67786.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:DFB7074DCF3516294C9FA0172122227170D68011
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67787.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:9CB56781F1F5D6E3A626FF1784A35401FD9FB9FF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67788.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:E0CDF8D87A769D363151D97C2B96ACE59FCD092E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67789.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Trevor Something - The Shadow (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67790.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Satori (Satøri) - Pillars Of Salt (2025) [FLAC|Lossless|WEB-DL|tracks] <Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67791.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:89D4DB5B0ADC61D610BA0C9DE0FA52C406D6AA0C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67792.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:5928E508C7459B4B71665BA8C8D1115AAC5C0385
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67793.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:E65215BC9DDF615D353B90BB6342C666F2B40A96
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67794.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:A2E6BB2EF1C56CBA4862B7BB9B02F01FB5801625
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67795.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:0D3E50EB73EBAF1271F58CE8AF243423C6789710
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67796.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:49F2A0A695ACAEFB136BD4FF62B0CF1E70DF890D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67797.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:C2832A11E50DB01089BA4DF8B7BA19D610EA9B5A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67798.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Erasure - Freedom (2000) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67799.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:2A57ABE86DFBAC24234C47642E7BD4B75207DEE8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67800.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Michel Legrand - Michel Legrand By Michel Legrand (2002) Decca [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67801.jpg" />
 </div>
 
 

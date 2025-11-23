@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59047.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JavaScript.Ninja | Учись реальности, Crash Course (Пакет Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59048.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:3AEF7161DC0EA4711F24561E227BFBC354DE728D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59049.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:6E6AC717C24B06D65236F48D6F17D6F3DF12473E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59050.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1785326E97D966C6FD4C0786D20D0F35BEE5DFD0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59051.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C008CB2A36F5112497426654EEC77F91431BA7A2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59052.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:9F3E42A141E12EFB7C6A0AA6BEA1D81B12F91AE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59053.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:9F3E42A141E12EFB7C6A0AA6BEA1D81B12F91AE7
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59054.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:F870B6BBB6134406A3BD66138EA3D217F6A8579A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59055.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:25946B7995D7A318D89E61E1D438874B87A74DF3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59056.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:11C6FF8423745668A24A6C28DECEFC2FAEC8E785
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59057.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:11C6FF8423745668A24A6C28DECEFC2FAEC8E785
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59058.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ javascript.ru, Егор Сидоров | Интенсив по "продвину
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59059.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Modern Talking - Collection (2024) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59060.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:E542DC57151BF372887CCE54ECFBBAC95DE60232
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59061.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A4551DEB169893809B8C646D7370939D963CD8C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59062.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:C404B7EAF34C0B17CD278B670C557FD1D0A26F8D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59063.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Display Driver Uninstaller 18.0.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59064.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Vit Registry Fix Pro 14.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59065.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:1573B651105310EDB6BD82C874BE504AA6DB5A0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59066.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D498F7FD3698ED50CED310E88EB9DCC107AF5656
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59067.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:70BE7A1FA949EA199EC884F80E5C8C683A8CD937
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59068.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:CC92F5CFC843FC68BBC530DB1F4B65D49331AA3B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59069.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Our Adventurer Guild (2024) [En] (1.071) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59070.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:D6DCB80BCA149D85D13C02B5E1F2C3C62FFA6BFA
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59071.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Turbo Studio 24.4.12.0 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59072.jpg" />
 </div>
 
 

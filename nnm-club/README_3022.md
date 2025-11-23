@@ -1,3 +1,87 @@
+###  Публикация: 453277   (93524) от 16.02.2012
+
+Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't See For Lookin' (9:29)
+02. Soon (6:57)
+03. Blackout (8:56)
+04. Castle Rock (9:45)1996Жанр: JazzПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452798   (93531) от 16.02.2012
+
+VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cal Tjader - Morning (2:59)
+02.Dusty Springfield - Breakfast In Bed (2:54)
+03.Astrud Gilberto - Champagne And Caviar (3:23)
+04.John Scofield - Green Tea (5:12)
+05.Incognito - Smiling Faces (5:10)
+06.Curtis Stigers - My Babe (4:48)
+07.Stan Getz & Joao Gilberto - Doralice (2:47)
+08.Stephane Grapelli - Hot Lips (2:51)
+09.Hildegard Knef - Coffee Song (1:59)
+10.De-Phazz - Rise And Shine (5:00)(   Читать дальше...   )2009Жанр: Vocal Jazz, BopПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453355   (93537) от 16.02.2012
+
+Газета | Сад, огород – кормилец и лекарь №2 (январь 2012) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93537.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1DC4D14F78E6ADF682CF3A7AC92C263A7C7806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453359   (93538) от 16.02.2012
 
 Газета | Сад, огород – кормилец и лекарь №3 (январь 2012) [PDF]
@@ -6,7 +90,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93538.jpg" />
 </div>
 
 
@@ -30,7 +114,7 @@ Meander - Time Machine (2012) [MP3|320 kbps]<Psychedelic / Full On, Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93540.jpg" />
 </div>
 
 
@@ -62,7 +146,7 @@ Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93550.jpg" />
 </div>
 
 
@@ -95,7 +179,7 @@ Twina - Out As A Signal (2012) [MP3|192-320 kbps]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93552.jpg" />
 </div>
 
 
@@ -128,7 +212,7 @@ Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93555.jpg" />
 </div>
 
 
@@ -161,7 +245,7 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93559.jpg" />
 </div>
 
 
@@ -194,7 +278,7 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93562.jpg" />
 </div>
 
 
@@ -220,7 +304,7 @@ Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93569.jpg" />
 </div>
 
 
@@ -253,7 +337,7 @@ Frank Popp Ensemble - Touch And Go (2005) [FLAC|Lossless]<Acid Jazz, Synth-pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93578.jpg" />
 </div>
 
 
@@ -286,7 +370,7 @@ Frank Popp Ensemble - Touch And Go (2005) [FLAC|Lossless]<Acid Jazz, Synth-pop>
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93581.jpg" />
 </div>
 
 
@@ -310,7 +394,7 @@ Corby Yates - Back From Yesterday (2005) [APE|Lossless]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93601.jpg" />
 </div>
 
 
@@ -343,7 +427,7 @@ VA - Operatic Metal Voices (2011) [MP3|320 kbps]<Symphonic Metal, Power Metal, G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93604.jpg" />
 </div>
 
 
@@ -376,7 +460,7 @@ VA - Blacklite Tubes (2011) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93624.jpg" />
 </div>
 
 
@@ -408,7 +492,7 @@ Astartica - Error Sapiens (2011) [MP3|320 kbps]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93635.jpg" />
 </div>
 
 
@@ -440,7 +524,7 @@ Dollar Co. - Country Beatles (1981) [MP3|320 kbps]<Сountry, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93646.jpg" />
 </div>
 
 
@@ -473,7 +557,7 @@ Bap Kennedy - The Sailor's Revenge (2012) [MP3|320 kbps]<Rock / Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93650.jpg" />
 </div>
 
 
@@ -506,7 +590,7 @@ Armin van Buuren - A State of Trance 548 (16.02.2012) [MP3|256 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93661.jpg" />
 </div>
 
 
@@ -539,7 +623,7 @@ magnet:?xt=urn:btih:4E061A853AD1016A338737AAED0F8C610B3AFCFC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93663.jpg" />
 </div>
 
 
@@ -565,7 +649,7 @@ Simon Kirke - Filling the Void (2011) [APE|Lossless]<Classic rock / Soft rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93687.jpg" />
 </div>
 
 
@@ -598,7 +682,7 @@ Headlock - The Lasting Eternity EP (2012) [MP3|320 kbps]<moshcore, hardcore, dea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93694.jpg" />
 </div>
 
 
@@ -629,7 +713,7 @@ VA - The Dance Cube XXXII 2CD (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93697.jpg" />
 </div>
 
 
@@ -662,7 +746,7 @@ VA - Ultimate Drum & Bass Vol 3 (09/02/2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93704.jpg" />
 </div>
 
 
@@ -695,7 +779,7 @@ Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93707.jpg" />
 </div>
 
 
@@ -711,104 +795,6 @@ Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
 08. This Time The Dream's On Me (5:17)
 09. My Ideal (6:25)
 10. Long Ago And Far Away (5:08)(   Читать дальше...   )1993Жанр: Guitar JazzПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453720   (93708) от 18.02.2012
-
-Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Love (2:16)
-02. Love Me Or Leave Me (3:13)
-03. The Man I Love (3:21)
-04. You're The One (3:35)
-05. People Will Say We're In Love (3:25)
-06. Don't Take Your Love From Me (3:09)
-07. Love Is The Thing (3:21)
-08. Someone To Watch Over Me (3:15)
-09. At Long Last Love (2:41)
-10. I'm Confessin' (That I Love You) (3:28)(   Читать дальше...   )1999Жанр: Vocal JazzПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453905   (93712) от 18.02.2012
-
-Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues For Shai (4:43)
-02. Moment We Touch (4:21)
-03. Ahava (5:07)
-04. Borbala (6:13)
-05. Home By Five (5:00)
-06. Ease My Mind (3:56)
-07. Midnight Walk (5:31)
-08. City Lights (4:59)
-09. Memories of You (5:20)
-10. Roughly Smooth (5:26)2011Жанр: Smooth Jazz, BluesПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453811   (93714) от 18.02.2012
-
-Caribbean Jazz Project - Mosaic (2006) [FLAC|Lossless]<Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nardis (7:00)
-02. St. Ogredol (5:00)
-03. Portraits Of Cuba (7:52)
-04. Afro Green (5:41)
-05. Wazo Dayzeel (8:51)
-06. Slow Dance (4:45)
-07. Spinnaker (4:40)
-08. Mambo De Luna (Para Cachao) (6:56)
-09. Dusk (7:59)2006Жанр: Latin JazzПродолжительность: 00:58:44
 
 ## Скачать торент
 ```bash

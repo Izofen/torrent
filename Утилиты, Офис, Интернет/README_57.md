@@ -1,3 +1,75 @@
+###  Публикация: 1830003   (201755) от 26.10.2025
+
+ScrollNavigator 5.16.1 RePack by KpoJIuK [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201755.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScrollNavigator - программа, которая поможет вам прокручивать по вертикали и по горизонтали ваши документы. С помощью этой утилиты достаточно зажать правую кнопку мыши в любом месте страницы и протянуть курсор в нужном направлении. Это поможет вам избежать позиционирование мыши над полосой прокрутки и позволит перемещаться в обоих направлениях одновременно. Программа (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A249811CBECA37D33FD72388EF91BE2C2D1C1B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829997   (201756) от 26.10.2025
+
+Any Video Downloader Pro 9.6.5 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFB0449106CF4C4E4B631FFABB17EB6D75B1ED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829995   (201757) от 26.10.2025
+
+By Click Downloader Premium 2.4.27 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201757.jpg" />
+</div>
+
+
+###  Подробнее
+
+ByClick Downloader (бывший YouTube By Click) - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC405BCF88FD29E328982A96A01BB44AA1AD5515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829992   (201758) от 26.10.2025
 
 R-Drive Image Technician 7.3 Build 7312 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +78,7 @@ R-Drive Image Technician 7.3 Build 7312 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201758.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201758.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ O&O Defrag Professional + Server 30.0 Build 1073 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201759.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201759.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ YT Downloader 9.17.15 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201824.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201824.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:F329F220106DB31A32F0A7A93A23DCC5E7DE61B9
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201828.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201828.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ WindowManager 10.23.1 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201856.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201856.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ NirLauncher Package 1.30.21 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201871.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201871.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ AnyDesk 9.6.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202028.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202028.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ RedCrab Calculator 8.3.1 Portable [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_202035.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_202035.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Screenpic 0.15.2 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202131.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202131.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ Deluge 2.1.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202145.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202145.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:727C9753605D8DCCBD9376BDC315874D92CFC482
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202194.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202194.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Internet Download Manager 6.42 Build 52 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202209.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202209.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Reg Organizer 9.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202215.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202215.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ ABBYY Screenshot Reader 16.0.14.7295 Portable by Conservator (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202229.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202229.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Floorp Browser 12.3.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202410.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202410.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:00C4F3999DAB08047FF9A2D4CF79EB5624865DA9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202445.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202445.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Hetman Partition Recovery 4.6 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202508.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202508.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ Screen Translator 3.3.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202538.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202538.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ Scrivener 3.1.4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202544.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202544.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ Nekonverter 1.3.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202552.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202552.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ GenoPro 2020 3.1.0.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202574.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202574.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ Total Uninstall 7.3.1 Professional Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202655.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202655.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ Total Uninstall 7.3.1 Professional Edition [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202702.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202702.jpg" />
 </div>
 
 
@@ -556,79 +628,6 @@ Total Uninstall - утилита, предназначенная для корр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FB9DBC97CCDE2E103651C47FA2F9F54BB2D6EDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611991   (202704) от 14.02.2023
-
-WinExt Pro 30.0 (ключ COMSS) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202704.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinExt - это набор бесплатных утилит для Windows. С его помощью вы можете сделать следующее:
-Быстрый поиск дубликатов файлов по содержимому. Ключевая особенность: при сравнении содержимого файлов – 100% точность. Высокоскоростной алгоритм сравнения, нужен всего 1 щелчок, чтобы получить результат. Многократное использование результата: сохранение и загрузка списка (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A8AEEBD5D86D34D90BE23ADD8806900B88E260
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611977   (202716) от 13.02.2023
-
-USB Oblivion 1.17.0.0 Portable [Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портативная утилита USBOblivion предназначена для стирания следов (неудачного) подключения USB-устройств - флешек, дисков и CD-ROM'ов из реестра компьютера в Windows XP, Windows 2003, Windows Vista, Windows 7, Windows 8, Windows 10 (32/64-битных версий). Утилита имеет тестовый режим работы, т.е. без фактического удаления данных из реестра, и, на всякий случай, создаёт (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9941EF2CFA2AA61C72C08632B04FB5975AC4BDFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611950   (202725) от 13.02.2023
-
-R-Studio Network 9.2 Build 191126 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5980246C72F7FAF3E2471D05692B76B42D6F7423
 ```
 
 

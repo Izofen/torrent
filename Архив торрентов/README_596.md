@@ -6,7 +6,7 @@ Bonde Do Role - With Lasers (2007) [FLAC|Lossless|image + .cue] <Breakbeat, Hip 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129532.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Zillo Vol. 4 (2012) [MP3|320 кб/с]<Electro, EBM, Industrial, Gothic Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129533.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Bootstrap Studio 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129534.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ magnet:?xt=urn:btih:C763D0353B7DE812D45D43F574DE52BCCB88EC5F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129547.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Disk Space Analyzer Pro 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129549.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Duplicate File Finder Pro 6 v6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129551.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:FE201A19B08491E1B48010085CF727A5010C19BD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129557.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ DefenderKiller 11.0.7 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129561.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Planet VPN 2.3.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129584.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SRWare Iron 97.0.4950.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129585.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ App Cleaner & Uninstaller Pro 7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129591.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ IPTV Pro v7.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129592.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Java SE Development Kit 11.0.14 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129595.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:C5B197227DA20B4364EE918DC0CAADB0532B82EA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129601.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ PDF Reader Pro Edition 2.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129602.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Mirror for Android TV 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129608.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Angelus Apatrida - The Call (Limited Edition) Scene (2012) [FLAC|Lossless]<Thras
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129611.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Human Blue - MisStArRyAs Xperience (2006) [FLAC|Lossless]<Psychedelic / Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129626.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Firefox Browser 96.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129627.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:3D5EC746A1CA001DA7D3630C941BA3BBD816B491
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129630.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ K-Lite Codec Pack Update 16.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129632.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Aiseesoft Video Converter Ultimate 10.3.28 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129635.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:33F3326F3B5EE8DBEF56B39D211101A6A56A0FF9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129639.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:DC178DDC531410B6CCBEC031328796B89D444807
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129641.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Telegram Desktop 3.4.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129647.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Vikings Fields Conquest (RePack) [En] 1993 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129663.jpg" />
 </div>
 
 

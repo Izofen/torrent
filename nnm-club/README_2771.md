@@ -1,3 +1,77 @@
+###  Публикация: 454443   (77003) от 18.02.2012
+
+NetBSD 5.1.2 [i386 + amd64] (2xCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77003.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetBSD представляет собой бесплатную чрезвычайно надежную операционную систему, которая применима для многих платформ от мощных серверов до карманных устройств. Хорошо зарекомендовавала себя в различных сетевых системах, является одной из самых стабильных систем и не требует больших ресурсов памяти.
+
+NetBSD 5.1.2 - содержит исправления критических ошибок и проблем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE580D2D0BD0C8FAD1E31CB1B8A0D308BC032C51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454502   (77008) от 18.02.2012
+
+Scientific Linux 6.2 (LiveCD, LiveMiniCD, LiveDVD) [i386 + x86_64] (4xCD + 2xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анонсирован релиз дистрибутива Scientific Linux 6.2, построенного на пакетной базе Red Hat Enterprise Linux 6.2 и дополненного средствами, ориентированными на использование в научных учреждениях.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D1C03E930A2AD7992ADF481F7FF8DCD551BB32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454579   (77010) от 18.02.2012
+
+Камень (2011) BDRip [H.264/720p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда у известного бизнесмена похищают 7-летнего сына, он еще не представляет, какое испытание его ждет! Оказывается, таинственному похитителю не нужен никакой выкуп и у него единственное требование к отцу. В течение следующих суток тот должен решить, кто умрет из них двоих: его ребенок или он сам…Производство: РоссияЖанр: ТриллерРежиссер: Вячеслав КаминскийАктеры: Сергей Светлаков, Олеся Судзиловская, Николай Козак, Елена Коренева, Валда Бичкуте, Александр КолесниковПеревод: Оригинальный (русский)Субтитры: нетПродолжительность: 01:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4F3F89BD60010434ECDB54C22142D3EA800F6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454313   (77012) от 18.02.2012
 
 Lubuntu 11.10 UALinux OEM (февраль 2012) [i386 + amd64] (2xDVD)
@@ -6,7 +80,7 @@ Lubuntu 11.10 UALinux OEM (февраль 2012) [i386 + amd64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77012.jpg" />
 </div>
 
 
@@ -39,7 +113,7 @@ magnet:?xt=urn:btih:9742509C32253889A062B2C43461440F24B30201
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77015.jpg" />
 </div>
 
 
@@ -63,7 +137,7 @@ magnet:?xt=urn:btih:9742509C32253889A062B2C43461440F24B30201
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77021.jpg" />
 </div>
 
 
@@ -87,7 +161,7 @@ magnet:?xt=urn:btih:1C8C24545657B97348E07407BA748ED18C6E009B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77025.jpg" />
 </div>
 
 
@@ -111,7 +185,7 @@ magnet:?xt=urn:btih:1C8C24545657B97348E07407BA748ED18C6E009B
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77026.jpg" />
 </div>
 
 
@@ -135,7 +209,7 @@ magnet:?xt=urn:btih:3090DA7E70720DC254D4ADBFD2C7C861EB4A2C6E
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77034.jpg" />
 </div>
 
 
@@ -160,7 +234,7 @@ Kanokon - The Girl Who Cried Fox / Kanokon / Канокон [2008, TV, 12+12+2] 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77036.jpg" />
 </div>
 
 
@@ -186,7 +260,7 @@ FlatOut 2 [Native] [Eng]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77038.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ magnet:?xt=urn:btih:D00E9EED9B6912015187B99479B968BDB40A4212
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77042.jpg" />
 </div>
 
 
@@ -235,7 +309,7 @@ magnet:?xt=urn:btih:3977E7799815824CA68538966933DCD2D98449A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77048.jpg" />
 </div>
 
 
@@ -259,7 +333,7 @@ magnet:?xt=urn:btih:27C19A7283F587D8C44BF9F133F91BFE83A89F19
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77054.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ UFO - Seven Deadly (2012), Too Hot To Handle: The Very Best Of UFO (2012) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77055.jpg" />
 </div>
 
 
@@ -317,7 +391,7 @@ magnet:?xt=urn:btih:A5B8D185332294957DC173FF4979148687CEC4F6
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77057.jpg" />
 </div>
 
 
@@ -341,7 +415,7 @@ magnet:?xt=urn:btih:F87788B345D2D8219EFFC60EFBE5C7865704E50D
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77079.jpg" />
 </div>
 
 
@@ -366,7 +440,7 @@ Google Chrome 17.0.963.56 Stable 17.0.963.56 Stable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77091.jpg" />
 </div>
 
 
@@ -390,7 +464,7 @@ Google Chrome - новейший бесплатный браузер, позво
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77093.jpg" />
 </div>
 
 
@@ -414,7 +488,7 @@ Google Chrome - новейший бесплатный браузер, позво
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77101.jpg" />
 </div>
 
 
@@ -438,7 +512,7 @@ magnet:?xt=urn:btih:5591A312E1DFA63F0E38AFEBD9ABA9A6E24DEFB6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77108.jpg" />
 </div>
 
 
@@ -462,7 +536,7 @@ magnet:?xt=urn:btih:5DC17DC197E05B099790ACF45404E9D199B84F86
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77114.jpg" />
 </div>
 
 
@@ -487,7 +561,7 @@ magnet:?xt=urn:btih:3A847466361DFD75BC99946609B5CB1E4F42C3A7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77122.jpg" />
 </div>
 
 
@@ -511,7 +585,7 @@ magnet:?xt=urn:btih:532F204E85338D3B8E7D2BDFD8D6CE8BE9CE35C6
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77124.jpg" />
 </div>
 
 
@@ -535,7 +609,7 @@ magnet:?xt=urn:btih:D5F934DA0AF5A81B2DD1454F1178191B4AB04E1C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77131.jpg" />
 </div>
 
 
@@ -559,7 +633,7 @@ magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77133.jpg" />
 </div>
 
 
@@ -570,81 +644,6 @@ magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1783B1DDC7747989BAEB3FD801F1598C8C807C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454881   (77134) от 19.02.2012
-
-Лапочка 2: Город танца / Honey 2 (2011) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77134.jpg" />
-</div>
-
-
-###  Подробнее
-
-В танцевальном фильме на плечи легендарной танцовщицы и хореографа Хани Дэниэлс ложится ответственность за оживленную Марию Беннетт. После проблем с законом Мария возвращается в свой неприглядный родной Бронкс, чтобы начать жизнь сначала, используя свой талант уличной танцовщицы и большие амбиции показать себя. Вести спокойную жизнь для Марии означает жить с матерью (   Читать дальше...   )Жанр: драма, комедия, музыкаРежиссер: Билле ВудраффАктеры: Катерина Грэхэм, Рэнди Вейн, Сейшелл Гэбриел, Марио Лопез, Одрина Пэтридж, Брэндон Молале, Джерри Бедноб, Лонетт МакКи, Мелисса Смит, Лори Энн ГибсонПеревод: ДублированноеСубтитры: Русские
-Украинские
-АнглийскиеФормат: MKVПродолжительность: 01:50:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454890   (77136) от 19.02.2012
-
-Доброе утро, Вьетнам / Good Morning, Vietnam (1987) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вьетнам 1965 года — пока еще безмятежный курорт с жарким солнцем, красивыми девушками и привольной службой. Но однажды утром раздался оглушительный взрыв… хохота, когда в эфир армейской радиостанции впервые вышел новый ведущий Эдриан Кронауэр.
-Он сразу стал любимцем публики и врагом высокого начальства. И действительно, этот юморист своими шутками и непредсказуемым поведением представляет настоящую угрозу для воинской дисциплины. Но когда в радиоприемниках раздается его знаменитое приветствие «Доброе утро, Вьетнам!», (   Читать дальше...   )Жанр: Драма, Комедия, ВоенныйРежиссер: Барри ЛевинсонАктеры: Робин Уильямс, Форест Уитакер, Тунг Тхань Чан, Чинтара Сукапатана, Бруно Кёрби, Роберт Вул, Дж.Т. Уолш, Ноубл Уиллингэм, Ричард Эдсон, Джуни СмитПеревод: Дублированный, Многоголосый закадровый, ОригиналПродолжительность: 02:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1BAC075324E6CA4B7DC54E23122150BB7AB601
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454920   (77138) от 19.02.2012
-
-Схватка / The Grey (2011) Screener *PROPER* [звук с CAMRip]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77138.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Аляске потерпел крушение самолет, и оставшиеся в живых пассажиры оказались в плену безлюдной снежной пустыни, где только стая волков скрашивает пейзаж. Люди хотят выжить любой ценой, и теперь им предстоит смертельная схватка…Производство: США | 1984 Private Defense ContractorsЖанр: Боевик, Триллер, ДрамаРежиссер: Джо КарнаханАктеры: Лиам Нисон, Фрэнк Грилло, Дермот Малруни, Даллас Робертс, Джо Андерсон, Нонсо Анози, Джеймс Бэдж Дэйл, Бен Брэй, Энн Опеншоу, Питер Гиргес и др.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:56:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 

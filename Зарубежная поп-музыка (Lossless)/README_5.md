@@ -6,7 +6,7 @@ Anastacia - 10 альбомов (2000-2023) 11CD [FLAC|Lossless|image + .cue | t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61054.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ V.A. - 80's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61186.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sandy Marton - Maxi And Singles Collection (2023) Compilation [FLAC|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61808.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Workout Gym Motivation 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61915.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Army Of Lovers - Sexodus (2023) [FLAC|Lossless|image + .cue] <Pop,	Europop, Synt
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61941.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Bravo Hits 13 (1996) 2CD, Compilation  [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62218.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cutting Crew - All For You - The Virgin Years 1986-1992 (2024) 3xCD, Compilation
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63161.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Various Artists - 2010s Best of by uDiscover (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63381.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bananarama - Glorious - The Ultimate Collection (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63490.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sinead O'Connor - Nothing Compares 2 U (CDM) (1990) 1st German Press [APE|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64561.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Shakespears Sister - Stay (CDM) (1991) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64565.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Chris Isaak - Wicked Game (CDM) (1991) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64567.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ A-HA - Crying In The Rain (CDM) (1990) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64588.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Roxette - It Must Have Been Love (CDM) (1990) 1st German Press [APE|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64608.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64672.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Nick Kamen - Whatever, Wherever (1992) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64678.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Nick Kamen - Move Until We Fly (1990) 1st German Press [APE|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64681.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Ten Sharp - Under The Water-Line (1991) 1st Holland Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64772.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65010.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65030.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65034.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65045.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65060.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65072.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65073.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Sirena (ex-Sister Siren) - Innocent Killah (2011) [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65156.jpg" />
 </div>
 
 

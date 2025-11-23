@@ -1,3 +1,57 @@
+###  Публикация: 1428996   (178261) от 04.12.2020
+
+Sade - Promise (1985) Portrait RK40263 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is It a Crime (6:22)
+ 02. The Sweetest Taboo (4:38)
+ 03. War of the Hearts (6:48)
+ 04. You're Not the Man (5:11)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007953AD302DEDA08CFD39EAA9B6A309A8EF70F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666159   (180161) от 03.10.2023
+
+Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham Rap! (Enjoy What You Do?) (3:32)
+02. Wham Rap! (Enjoy What You Do?) (Club Mix) (4:20)
+03. Wham Rap! (Enjoy What You Do?) (Social Mix) (6:45)
+04. Wham Rap! (Enjoy What You Do?) (Unsocial Mix) (6:38)(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5EE587B10702756A82C1C378FE9F6FBD039009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666079   (180210) от 03.10.2023
 
 Kylie Minogue - Tension (2023) Deluxe [FLAC|Lossless|image + .cue] <Pop, Dance>
@@ -6,7 +60,7 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC|Lossless|image + .cue] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_180210.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Mae Muller - Sorry I’m Late... Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180281.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180281.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Michael Bublé - Michael Bublé's Cozy Christmas (2022) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181121.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181121.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Mylene Farmer - 1 Album, 1 Single (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181535.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181535.jpg" />
 </div>
 
 
@@ -106,6 +160,33 @@ magnet:?xt=urn:btih:DB0086024FE06E1F222721C76D4600DF15FB4BA8
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427734   (182203) от 29.11.2020
+
+Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_182203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Of Love (3:44)
+ 02. New Day Ahead (3:41)
+ 03. Love the Light (3:24)
+ 04. Greater Good (3:16)(   Читать дальше...   )Жанр: Electronic, Pop, New WaveПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A176F5F8EC0EF50C96405AB4C7CA91094E648E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427613   (182384) от 29.11.2020
 
 VA - Winter Mix 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -114,7 +195,7 @@ VA - Winter Mix 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182384.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_182384.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Sade - Diamond Life (1984) Epic CD 26044 [FLAC|Lossless|image + .cue]< Sophisti-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183102.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183102.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Thomas Anders - Christmas For You (Remastered 2020) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183223.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183223.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ VA - Electrónica Para Fiestas 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, H
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183241.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183241.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Supermax - The Lovemachine-Collection (1994) [FLAC|Lossless|tracks + .cue]<Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183320.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183320.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ VA - Pop 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183398.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183398.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ George Michael - Rock In Rio 2 (2021) Remaster, 2023, Gossip[FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183760.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183760.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Ed Sheeran - Autumn Variations (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183845.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183845.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ VA - Pop Legends (All Time Pop Classics) (2020) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184212.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184212.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ VA - Relax Fall 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185304.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_185304.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ The Common Linnets - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185354.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_185354.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ Tokio Hotel - 2001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185417.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185417.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186434.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186434.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ Kylie Minogue - Tension (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186548.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186548.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ Secret Service - Secret Mission (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186744.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186744.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ Michael Jackson - Thriller 40 (2022) 40th Anniversary [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186761.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186761.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Mitski - The Land Is Inhospitable And So Are We (2023) [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186869.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186869.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ Laura Marano - i may be an actress, but i can’t fake how i feel (2023) [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_187182.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188552.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188552.jpg" />
 </div>
 
 
@@ -614,82 +695,6 @@ Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D773C40C9E2ADA422DC40E6C00C4168E02C4C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590408   (189046) от 13.11.2022
-
-Roxette - The Very Best of Roxette (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roxette - Joyride (04:24)
-02. Roxette - The LookЖанр: Pop RockПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590460   (189151) от 13.11.2022
-
-Living in a Box - Blow the House Down (1989) Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living in a Box - Blow the House DownЖанр: PopПродолжительность: 00:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871CFF66D334BCE754E4004E0AF01CD9BE093BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660693   (189299) от 13.09.2023
-
-Mariah Carey - Music Box (1993) 2023, 3CD, 30th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189299.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dreamlover
-02. Hero
-03. Anytime You Need A Friend(   Читать дальше...   )Жанр: Pop |Продолжительность: 02:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDFEE12ECAF27D63705047F771872F53BA66A08
 ```
 
 

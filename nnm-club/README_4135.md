@@ -1,3 +1,77 @@
+###  Публикация: 1685627   (127197) от 19.12.2023
+
+Голодные игры: Баллада о змеях и певчих птицах / The Hunger Games: The Ballad of Songbirds & Snakes (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127197.jpg" />
+</div>
+
+
+###  Подробнее
+
+До того как стать деспотичным президентом Панэма, молодой Кориолан Сноу был последней надеждой своего увядающего рода — некогда великой династии, впавшей в немилость послевоенного Капитолия. Накануне десятых ежегодных Голодных игр Сноу назначают наставником Люси Грей Бэйрд — трибута дистрикта 12. Постепенно девушка привлекает все больше внимание Панэма, становясь (   Читать дальше...   )Производство: США, Канада, Color Force, Good Universe, Lions Gate Films Inc.Жанр: фантастика, боевик, триллер, драма, приключения, военныйРежиссер: Фрэнсис ЛоуренсАктеры: Том Блит, Рэйчел Зеглер, Питер Динклэйдж, Хантер Шафер, Джош Андрес Ривера, Джейсон Шварцман, Виола Дэвис, Финола Флэнаган, Берн Горман, Эшли ЛяоПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D980DB95A85F2638C3B07BB7E93332886E0A0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685454   (127198) от 19.12.2023
+
+Присцилла: Элвис и я / Priscilla (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какая девушка не мечтает о романе со знаменитостью? У молодой Присциллы такое желание сбылось, и судьба уготовила ей встречу с самим Элвисом Пресли. Теперь они официально — главная пара Америки, но что скрывается за фасадом счастливой жизни с кумиром всей страны?Производство: Италия, США / American Zoetrope, Fremantle Media North America, The ApartmentЖанр: биография, драмаРежиссер: София КопполаАктеры: Кейли Спейни, Джейкоб Элорди, Эри Коэн, Дагмара Доминчик, Тим Пост, Линн Гриффин, Дэн Бирн, Родриго Фернандес-Столл, Дэн Абрамовичи, Мэттью ШоуПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанскиеПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3E64869623CA336E3089847AE5C09D5F8870B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459047   (127199) от 19.12.2023
+
+Интервенция (1968) DVDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127199.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе Льва Славина. Тексты песен - Владимир Высоцкий.
+1919 год. Одесса. Большевики-подпольщики агитируют французских солдат за советское, за «правое дело». Цветочница Санька готова все отдать, лишь бы сыграть в опасном спектакле на театре военных действий. Сын банкирши и картёжник мечтает стать пламенеющим революционером...
+Это единственная в советском (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: драма, комедия, приключения, история, музыкаРежиссер: Геннадий ПолокаАктеры: Владимир Высоцкий, Юлия Бурыгина, Юрий Толубеев, Ефим Копелян, Сергей Юрский, Ольга Аросева, Валерий Золотухин, Руфина Нифонтова, Гелена Ивлиева, Владимир ТатосовСубтитры: Русские, Английские, НемецкиеПродолжительность: 01:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281C452900915CDAC3D63341A91989E5FE16FD73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684956   (127200) от 18.12.2023
 
 Титович - Богатый внутренний мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +80,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127200.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ Salome - Salome (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, atmospheric bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127201.jpg" />
 </div>
 
 
@@ -60,7 +134,7 @@ Seawalker - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127202.jpg" />
 </div>
 
 
@@ -87,7 +161,7 @@ magnet:?xt=urn:btih:26AFFD17D0A72D01B2D98A1C1A94A6D092733F04
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127203.jpg" />
 </div>
 
 
@@ -111,7 +185,7 @@ Liturgy - 93696 (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127204.jpg" />
 </div>
 
 
@@ -138,7 +212,7 @@ Vore - Lord of Storms & Dead Kings Eyes (2009) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127205.jpg" />
 </div>
 
 
@@ -165,7 +239,7 @@ Vox Interium - Yearning (2004) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127206.jpg" />
 </div>
 
 
@@ -192,7 +266,7 @@ Vore - Gravehammer (2011) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127207.jpg" />
 </div>
 
 
@@ -219,7 +293,7 @@ VA - The Best Of Trancemission 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127208.jpg" />
 </div>
 
 
@@ -246,7 +320,7 @@ Demon - Night of the Demon (1981) Japanese Edition, Reissue, Remastered, 2020, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127209.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ Chet Baker - Chet Baker Sings: It Could Happen To You (1958) 2006, Victor Entert
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127210.jpg" />
 </div>
 
 
@@ -300,7 +374,7 @@ magnet:?xt=urn:btih:4D29C09F8AE67EA8ADCCB19F00B47B5E28E0E36A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127211.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127212.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ Back Road Bourbon - The Other Side of Midnight (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127213.jpg" />
 </div>
 
 
@@ -378,7 +452,7 @@ magnet:?xt=urn:btih:354C4E771F7F8592D563E68D79D4CECACA71B23E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127214.jpg" />
 </div>
 
 
@@ -402,7 +476,7 @@ magnet:?xt=urn:btih:066F41038BF73FA2E812FA501EEFCF2E7EE73ABC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127215.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ magnet:?xt=urn:btih:47DB60BE72A279CFAA87677C5825DF4B639EE74F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127216.jpg" />
 </div>
 
 
@@ -452,7 +526,7 @@ magnet:?xt=urn:btih:1EC3B9BF1A9C451CAB39A067F7AC7184187F98E9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127217.jpg" />
 </div>
 
 
@@ -476,7 +550,7 @@ magnet:?xt=urn:btih:7283CFC721DF2F25E0B1DFE19ED9EBBCD81B2476
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127218.jpg" />
 </div>
 
 
@@ -501,7 +575,7 @@ VA - The Best Of Full On 140 Records 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127219.jpg" />
 </div>
 
 
@@ -528,7 +602,7 @@ Checkerboard Lounge - Roller Coaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127220.jpg" />
 </div>
 
 
@@ -555,7 +629,7 @@ VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127221.jpg" />
 </div>
 
 
@@ -582,7 +656,7 @@ Blue Deal - Can't Kill Me Twice (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127222.jpg" />
 </div>
 
 
@@ -596,87 +670,6 @@ Blue Deal - Can't Kill Me Twice (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8663678A9A9B7D908D130FB02426988211260DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685292   (127223) от 18.12.2023
-
-Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks + .cue] <CCD32122>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love? [6:22]
-02. La Bonita [5:32]
-03. Seven Steps to Heaven [5:50]
-04. St. Thomas [7:17](   Читать дальше...   )Жанр: CCD32122Продолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685289   (127224) от 18.12.2023
-
-Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [2:25]
-02. Santa Claus Is Coming to Town [2:21]
-03. Have Yourself a Merry Little Christmas [2:58]
-04. What Are You Doing New Year's Eve? [3:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBE6042A32E4D6A2A676FA5DBAC4F172393F17D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685327   (127225) от 18.12.2023
-
-Blackwater - Blues Chemistry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep on Moving (4:45)
-02. Blues Chemistry (3:31)
-03. Things You Say (4:11)
-04. Empty Horizon (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EEA1BBFC2DD2864DE4735656907764D8CFAFFC
 ```
 
 

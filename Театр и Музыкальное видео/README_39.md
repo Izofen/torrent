@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159843.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C1622A9D1FCE6268621FCA91AFCCD6D4DF1A45E1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159847.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:A32E21912355169777EB94CA11CFD04DBD752759
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159851.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F7DA21CD3E804BC1B7EC1D5A7A0C5B029418A087
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159853.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:94F8A6FF745BD0093AE982D2366A2E9A74BAC688
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159863.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Helloween - Live at Budokan (2023) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160146.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:109DEFF0517A3BA4DD34AB725029A31B742489B2
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160226.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Lulu & the Luvvers - Shout (1964) TVRip [H.264/2160p] [Handmade Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160400.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:471D6E096D087E8985A2529A80B2D62B06623166
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160437.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:AFE6348B0C6085C4355B1C0325CBA168DCAAEB01
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160545.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Def Leppard: Hits Vegas - Live at the Planet Hollywood (2020) BDRip [H.265/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160813.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:64C97F9EF52FBE2A56590937179F8F990AFDA3CB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161134.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:9AEF7146684C3DEDBCB1E80E212C9D6F4488E9C5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161960.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:3B59F1F4D793EDA5A71233E0355818406E765BC8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162224.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:2BAE1DFFEE8E4E0068357E99D1255E8C60B80E63
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162233.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162579.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:32248B8601BE2C56E830979D84BE853DCF392DBD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162963.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:7C71BBD7D18CBFF6180ADF6D951B1D0DA322CD98
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163239.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:37B04FD47CFE341E894C100229C8290EB901EFCC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164283.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:BCAD5C7C2D032B8D3902C53E31821E3347528A2F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164319.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:C9D5325E29A1977A2350B55576FB89F950EE20E2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165059.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165481.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:F6B92D114A46C16DA189EC7CB615AE07EA6F6B2C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165491.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:35829D05AD16DDB972F40B009EC817DA4F382FE1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165522.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Roger Waters - The Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166113.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Muse - Simulation Theory Film (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166449.jpg" />
 </div>
 
 

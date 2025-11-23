@@ -1,3 +1,78 @@
+###  Публикация: 1722173   (109824) от 10.05.2024
+
+VA - Happy Charming Easy Lounge Tunes for Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Sunset Silhouettes (4:20)
+02. Kool&Klean - Sky's Our Limit (4:13)
+03. Love Suggestions - Life Is Love (4:44)
+04. Konstantin Klashtorni - On My Mind (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC434AA9BE6C08A2FAA68531130827482B94EC19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722299   (109825) от 10.05.2024
+
+Black Eyed Peas x El Alfa feat. Becky G - TONIGHT (Bad Boys: Ride Or Die) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109825.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:38] 01. Black Eyed Peas & El Alfa Feat. Becky G - TONIGHT (Bad Boys: Ride Or Die)Жанр: Pop, SoundtrackПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27FF9E3A5638C9486C055826EF54D1ED25805BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722108   (109826) от 10.05.2024
+
+Тревожный звонок / On the Line (2023) WEB-DLRip [H.264] [звук с TS]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рабочий день телефонистки Агнес идет не по плану, когда она случайно перехватывает звонок и узнает о похищении женщины. В панике Агнес сообщает полиции о происшествии, но не может отпустить ситуацию - тогда девушка начинает собственное расследование.Производство: Великобритания / QLALO FilmsЖанр: триллер, драма, детективРежиссер: Оливер ПирнАктеры: Виктория Люси, Ройс Пирресон, Харриет Уолтер, Джоанн Роджерс, Томас Блисс, Салли Гик, Ричард Хип, Крис Доннелли, Шинах Гован, Мелисса ТомПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: Английские (SDH)Продолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04DE86B30626A5D289712C01B931E818E460118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721524   (109827) от 10.05.2024
 
 Фантастическое путешествие / Fantastic Voyage (1966) DVDRip [MVO]
@@ -6,7 +81,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109827.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ DesktopSnowOK 6.26 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109828.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:20973901C9E7CABD76D994F109E1247DF0AC2AB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109829.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ Foxit PDF Editor Pro 13.1.0.22420 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109830.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ Pizza Possum (2023) [Ru/Multi] (1.4.16) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109831.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ magnet:?xt=urn:btih:B4FAF24044532275713B98CA6CFA5001BE3B6E8E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109832.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ magnet:?xt=urn:btih:28A47946E303A04A04ED849312C71011EB056C3A
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109833.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ VA - Hippie vibes Make Love... (2024) [MP3|320 Kbps] <Pop, Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109834.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ magnet:?xt=urn:btih:B3EAAEFBC64B40A564930CFE6D43001471D9FEE6
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109835.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109836.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:81370B6BCFBC6915586E9D6455F517856F62F200
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109837.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ Emma Shapplin - 8 Albums (1997-2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109838.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ magnet:?xt=urn:btih:2C11115D3F116DF4117383CCF78297BBE47CCBE4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109839.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ magnet:?xt=urn:btih:8A67987680452980CB6F6DCF725D25EB0D465786
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109840.jpg" />
 </div>
 
 
@@ -352,7 +427,7 @@ Notepad++ 8.6.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109841.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ Hank Marvin - Compilation (2024) [MP3|320 Kbps] <Instrumental Guitar>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109842.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ magnet:?xt=urn:btih:5CDBD03D6521BE03C39612F494E916EC73B68E21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109843.jpg" />
 </div>
 
 
@@ -427,7 +502,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109844.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ PotPlayer 240509 (1.7.22224) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109845.jpg" />
 </div>
 
 
@@ -475,7 +550,7 @@ Spotify 1.2.36.955 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109846.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ magnet:?xt=urn:btih:B3AE5AA49E59EABF25EE8DDC33AB6002E435A82E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109847.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ magnet:?xt=urn:btih:1CA2F051370BE2A6D81020CEA1F149DCC68B93E4
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109848.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ magnet:?xt=urn:btih:F62A90AA4EF2C07928D558A8581CE0D353FD9D18
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109849.jpg" />
 </div>
 
 
@@ -559,84 +634,6 @@ magnet:?xt=urn:btih:F62A90AA4EF2C07928D558A8581CE0D353FD9D18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DB723FB58AD8FB2CF1CA636355A35B3513FE1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722245   (109850) от 10.05.2024
-
-VA - Music News vol.374 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109850.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сола Монова - Миу Миу Мяу (03:11)
- 002. Adam Marcos feat. Foldes & Alessa - Worthy (02:36)
- 003. Akcent - Miracle Of Love (02:51)
- 004. Akris & Teddy - Растопи Мой Лёд (Tarzan Kurtizan Remix) (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614642DBF168825236991978C3D813E1192A7AED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722079   (109851) от 10.05.2024
-
-Ричард Ферт-Годбехер | Эмоции. Великолепная история человечества (2022) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масштабное и увлекательно написанное исследование того, как эмоции повлияли на ход человеческой истории и как наше восприятие эмоций эволюционировало вместе с нами.
-Нам, людям, нравится думать о себе как о разумных существах, которые как вид полагались на интеллект, чтобы выжить. Но многие из самых важных моментов в нашей истории не имели ничего общего с холодными (   Читать дальше...   )Жанр: Всемирная историяПеревод: О. БыковаИздательство: Манн, Иванов и Фербер (МИФ)Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7F3C7F5D85B6BE944519A5D737E7B68903DAC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722291   (109852) от 10.05.2024
-
-Кейт Хавари | Путеводитель ботаника по цветам и судьбам (2024) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон, 1923 год.
-Непростое время для женщины, страстно желающей продвинуться в академических кругах. Но Шафран — девушка необычная. Она уже раскрыла опасное дело о ядах и заодно спасла университет от банкротства, а теперь ей доверили вести собственное исследование! Кажется, все мечты сбылись, но стук в дверь меняет абсолютно все…
-В Лондоне объявился серийный убийца: (   Читать дальше...   )Жанр: Мистика, Зарубежный детективПеревод: Кристина Руснак, Елена ТеплоуховаИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B208DE8E16EDACF8C5DA04D23583B102091370BF
 ```
 
 

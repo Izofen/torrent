@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123867.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Stepik, Renat Lotfullin | Excel VBA – Программирование мак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123893.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:35723365C0E692DF781B9EF4E82CD4975BE8B30D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123894.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Udemy, Creativity Unleashed | Complete Adobe After Effects Megacourse: Beginner 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124017.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Skillshare, Dawid Tuminski | How To Create A Flat Design Night Camping in Affini
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124060.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Udemy, Emma Grimberg | Искусство создания текстов с ч�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124094.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:36D2AF43E7DA52D32212C08F86A7258A14144926
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124104.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:9F88DB3E522D0E2052AFCAED72B5EC36B24920FB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124114.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Stepik, Renat Lotfullin | Microsoft Excel - Продвинутый пользо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124119.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:80FD9E9AD5C36EF161C3628E097F7946E24164A1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124125.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Udemy, Valeri Visuals | Premium Logo Animation in Adobe After Effects (2023) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124126.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Udemy, Stone River eLearning | Affinity Designer For Beginners (2018) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124201.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Skillshare, Isabel Aracama | Learn to Use the Pen Tool in Affinity Designer (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124208.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Enterclass, Анастасия Беседина | В осеннем парке (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124220.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Mashafotoblog, Маша | Мобильная фотосъемка и обраб�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124266.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ FastTrackTutorials, Tilmann Milde | Ultimate Lighting Course - In-Depth Tutorial
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124418.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:3A0471C84D88AC87DAC197C31F9506943E1AC96E
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124428.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Artstation, Michael Gerard | Unreal Complete Scene - Forest Environment (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124443.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ SMD pro, Андрей Нифедов | VirtualDj и Подкастинг (2010) 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124571.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Enterclass, Владислав Татаринов | Такая разная во
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124576.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Introduction To Niagara (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124593.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:2BFA8678E3D760F70866FFA15967C6BF067C7B5B
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124618.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Udemy, Jestoni Esteban | Affinity Designer: A Comprehensive Guide for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124683.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Domestika, Nick Liefhebber | Illustrated pattern design: Eye catching vector ill
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124705.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Udemy, Virtual Pair Programmers, Richard Chesterwood, Prageeth Warnak | Kubernet
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124706.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:9E1CA8B4F57019093E42698C0DBF0D74C4D0DA45
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124797.jpg" />
 </div>
 
 

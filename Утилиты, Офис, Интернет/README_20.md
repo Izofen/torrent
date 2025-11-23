@@ -6,7 +6,7 @@ Wise Auto Shutdown 2.0.8.109 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28052.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WindowManager 10.21.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28059.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28059.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Movavi Screen Recorder 24.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28287.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28287.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ IsoBuster Pro 5.52 Build 5.5.2.00 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28291.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28315.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Movavi Screen Recorder 24.5.0 (x64) Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28340.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Movavi Screen Recorder 24.5.0 (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28378.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28378.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Driver Store Explorer 0.11.114 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28392.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28392.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Epic Pen Pro 3.12.161 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28395.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28395.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Min Browser 1.34.0 + standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28420.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ CoolUtils Total CSV Converter 4.1.1.60 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28458.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28458.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ WinTools.net Premium 25.2.1 Classic / Professional / Premium RePack (& Portable)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28591.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28591.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ DNS Changer 2.3.3 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28595.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28595.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ IM-Magic Partition Resizer 7.5.1 Professional |Server | Unlimited Edition RePack
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28697.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28697.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MemTest86 11.2 Build 1000 Free [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28701.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28701.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Memtest86+ 7.20 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28736.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28736.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ClipAngel 2.17 & portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28757.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28757.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ TweakNow WinSecret Plus! 6.1.5 Portable by FC Portables [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28761.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28761.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ EssentialPIM Pro 12.1.3.1030 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28788.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Windows Manager 2.1.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28800.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28800.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (2501) RePack (& Portable) by TryRooM [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28841.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28841.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ ASCOMP KeyCtrl Pro 2.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28901.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ SoftMaker Office Professional 2024 rev. S1222.1129 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28908.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28908.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Hetman Recovery Software 2024 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28942.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Screenpresso Pro 2.1.39 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29079.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Aiseesoft Screen Recorder 3.1.36 RePack (& Portable) by elchupacabra (x64) [Mult
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29081.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29081.jpg" />
 </div>
 
 

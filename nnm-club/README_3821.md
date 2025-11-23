@@ -1,3 +1,75 @@
+###  Публикация: 1696546   (119028) от 06.02.2024
+
+Левитирующий поезд достиг рекордной скорости в вакуумной трубе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китайские СМИ сообщили, что прототип поезда на магнитной подушке разогнался в трубе с вакуумом до рекордной скорости, преодолев опытный участок длиной 2 км со стабильной левитацией. В перспективе проект предусматривает движение поездов на магнитной подвеске со скоростью до 1000 км/ч — быстрее, чем гражданские самолёты.Разработкой проекта занимается отделение Китайской (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470128   (119029) от 06.02.2024
+
+Таблица Калорийности v3.9.19 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Функциональный дневник питания Таблица Калорийности - это счетчик калорий, где легко делать подсчет кбжу. Похудение теперь не проблема. Удобный калькулятор калорий позволит правильно худеть и произведет расчет ккал и бжу. Приложение Таблица Калорийности - это трекер питания и незаменимый помощник для любителей здорового образа жизни (ЗОЖ), кто предпочитает делать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 30.01.2024Разработчик: Dine4Fit, a.s.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EE81C678F75A15812BA99A93B54C6756F530E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697419   (119030) от 06.02.2024
+
+Капитан Марвел 2 / The Marvels (2023) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расследуя возникновение аномалии точки перехода, Кэрол Дэнверс и Моника Рамбо независимо друг от друга одновременно касаются её и тем самым спутывают свои силы с Камалой Хан. Теперь девушки меняются местами, когда кто-нибудь из них использует сверхспособности. А в это время предводительница кри с помощью одного из Квантовых наручей (точно такого же, какой достался (   Читать дальше...   )Производство: США, Marvel Studios, The Walt Disney CompanyЖанр: фантастика, боевик, приключенияРежиссер: Ниа ДаКостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (MovieDalen, Red Head Sound)Язык озвучки: русскийСубтитры: Русские (Forced, full), английские (full, SDH)Продолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7EDAB553FAC9B7B4E522009926EB422B73A726C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696797   (119031) от 06.02.2024
 
 Микрореволюция: производство чипов может стать дешевле в 10 раз
@@ -6,7 +78,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119031.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119032.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:4011367FDFD5545F84B5680739B2B0D2020E27D7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119033.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:9A170903F967919AAB67B52CAE1FA5F744344B59
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119034.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:6092D805E95A947F200BA8BBF7A85AE23D8A2874
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119035.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:94139D2EF5AA03CFD9243F8DA3ECFA43CABDC990
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119036.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:458C7D7899B888FE1EE52B76B63EF2AEF50F9B94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119037.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:A6943E756B4DF684CB747B0D0761228E1D1ECE5C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119038.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:E43D8E7D46C7A13F0BA363D8DDE7C0FF0B179195
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119039.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:F1368DD305BA3D8108D6AF3F1074550AC10FCF34
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119040.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ XRecode III 1.142 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119041.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:D88E9283C0C47BF817692EE9CD1B287C446870F4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119042.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:EF8D4ED65F1048AA7020DBF77B57B18545837FD8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119043.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:635A9C7D23A9CF8E956545120B99462D3B5581C4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119044.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:712273AE76FC22DCCC4378E7AAF92286A21AE468
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119045.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:1BF366739D829498789F367486F94F84F2E97296
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119046.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:59F5FF15ED2CB8C833D1A40A462AD3CB1EF34858
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119047.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:6F87D74B93BC553D4E8758F1ABD74BF4CE709F8B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119048.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ magnet:?xt=urn:btih:BC050EAF46A7407792D81411430146AA93ACA5D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119049.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:EE8B948EF2A808E9517F44367232393E3341088E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119050.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ magnet:?xt=urn:btih:6BDB1654A1A6BDD038AF4A2D45B256E36590AD0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119051.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119052.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:2644B1BDE9E7809231294851333BF54D127EA5B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119053.jpg" />
 </div>
 
 
@@ -553,81 +625,6 @@ magnet:?xt=urn:btih:2644B1BDE9E7809231294851333BF54D127EA5B0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D284FB331202E72BC8A6F3FCB5873B7B1B408C95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551871   (119054) от 06.02.2024
-
-Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аманэ - обычная женщина, живущая в одном из крупнейших городов Японии, который с каждым днем ​​становится все опаснее. Люди исчезают, особенно молодые женщины, и, прежде чем она узнает об этом, она обнаруживает причину: их похищают опасные монстры, называемые чудовищами. Монстры нападают на нее однажды ночью по дороге домой, и как только она вот-вот встретит (   Читать дальше...   )Тип издания: LicenseРазработчик: Shimobashira WorkshopЖанр: Ролевая игра, Приключение, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEE82F81DC490556F3B782866F05C464076F6F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697375   (119055) от 06.02.2024
-
-Тысяча и один / A Thousand and One (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк. Середина 1990-х годов. Мать-одиночка Инес скитается по хостелам, а её маленький сын Терри живёт в приюте. Однажды Инес принимает непростое решение - она похищает собственного сына и уезжает в другой город, чтобы там начать новую нелегальную жизнь...Производство: США / Sight Unseen Pictures, Focus Features, Hillman GradЖанр: драма, криминалРежиссер: А.В. РокуэллАктеры: Тейяна Тейлор, Аарон Кингсли Адетола, Авен Кортни, Джозайя Кросс, Уильям Кэтлетт, Терри Эбни, Делисса Рейнольдс, Амелия Уоркмэн, Адриан Ленокс, Гэвин Шлоссер, Вольде Саймон мл., Азза Ел, Алисиа Пилгрим, Женниан ПалмерПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (надписи и полные), английскиеПродолжительность: 01:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C729CDA4B98211E57FC87927F3AE3421E872882
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364076   (119056) от 06.02.2024
-
-Tesla - 22 Albums (1986 - 2023) 30 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tesla - американская хард-рок-группа. Команда сформировалась в 1984 году как City Kidd. На первых порах коллектив развлекался тем, что играл на разогреве у "Y and T", "Dokken", "Rail" и записывал демки, которые продюсировал Ронни Монтроуз. Когда группа немного повзрослела, к ней начали проявлять интерес различные лейблы, и вот в один (   Читать дальше...   )Список альбомов:
-1986 - Mechanical Resonance
-1989 - The Great Radio Controversy
-1990 - Five Man Acoustical JamЖанр: Hard RockПродолжительность: 30:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1660F5A48B75164FF630CC478712C89D810857B6
 ```
 
 

@@ -6,7 +6,7 @@ Returned To The Earth - Stalagmite Steeple (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107894.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Warlord - Free Spirit Soar (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107895.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Paradise In Flames - Blindness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107896.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fu Manchu - The Return of Tomorrowpic (2024) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107905.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Strange Fruit - Once So High (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107909.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dendera - Mask Of Lies (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107912.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ In Vain - Currents (2018) Limited Edition, Indie Recordings [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107913.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Caligula's Horse - Charcoal Grace (2024) 2 x CD, Deluxe Edition [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107941.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ New Horizon - Conquerors (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107944.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107945.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Azrael - Dimensión V (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed, Power, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107953.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Veil of Tears - Emo Diaries (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107954.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Xeneris - Eternal Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107957.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Константин Ступин. Трибьют, Часть 1 (2024) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107959.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Hour of Penance - Regicide (2014) [FLAC|Lossless|image + .cue] <Technical, Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107975.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hour of Penance - Sedition (2012) [FLAC|Lossless|image + .cue] <Technical, Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107982.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hour of Penance - Paradogma (2010) [FLAC|Lossless|image + .cue] <Technical, Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107983.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Grand Slam - Wheel Of Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107984.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hypersonic - Existentia (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107990.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hour of Penance - Misotheism (2019) [FLAC|Lossless|WEB-DL|tracks] <Technical, Br
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108010.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Hour of Penance - Disturbance (2003) [FLAC|Lossless|image + .cue] <Technical, Br
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108014.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Hour of Penance - Pageantry for Martyrs (2005) [FLAC|Lossless|image + .cue] <Tec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108015.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Hour of Penance - The Vile Conception (2008) [FLAC|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108016.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Hour of Penance - Cast the First Stone (2017) [FLAC|Lossless|image + .cue] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108017.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Black Diamonds - Destination Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108020.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Libra - Follow The Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108028.jpg" />
 </div>
 
 

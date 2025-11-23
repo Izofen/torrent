@@ -6,7 +6,7 @@ DVD-приложение к журналу Upgrade Special №3-4 [март-ап
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85501.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:B684EF3AF2BC10F842B23B0CA9550BB825F1BCF0
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85768.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ DVD приложение к специальному выпуску журнал
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87236.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ NoName | Защита флешки [2012] [EXE]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88004.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:139FC7F91C702ABFA6719EBFF1643CBE04212931
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88275.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:62291A93D4168A97CE37B494A5EEF15E5216F4DC
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89085.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:AFCA133E1E42F222F0425C784A955AACD7C78EB0
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89636.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:0EFAB8B0316E5E38DBC277F7F2C81D844FEE6084
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89923.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Stepik, Алексей Лобзов | Docs as Code: Пишем тексты ка
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115225.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:9D087702534D6D97082DCAC536E3091AC1C21642
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115259.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Stepik, Александр Шибаев | Многозадачность в Pyth
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115277.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4133BD41D7061E5A95B77D463AA97A24545BDB11
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115646.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Stepik, Аватар пользователя Руслан Клуб дедов-�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116151.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:EE3BC073BD0C3099BB668B6EF54C6957E09ECAC6
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116792.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C7CB8D40A70E455B72659BA2CEFF6E88484F7254
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121952.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:99F4014D1C8E72270E87D7CA6FCB7303111F29E2
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122226.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:BD75D19401136D35378D9F0121A109875ACC95E2
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122413.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:F0928E873279D623649F6FE60A88A8343F271146
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122587.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:37C037D8B8A72D072784EF5C2605DC00F17AAC58
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122593.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ DVD приложение к журналу "Хакер" №01 (168), 2013 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132476.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:174481250E8E488E32B7FFCD47BA721D49E3EE4E
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133405.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ English with Lucy | The Phrasal Verbs Challenge (2022) [unpacked] [AD] [EN]
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135095.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:D8E705556FC20440806CC9D8E86295515F19FD16
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135176.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:D62EE61BDAE2AB46CDC89720BB93F87EAB892CE4
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135514.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ English with Lucy | Аудирование. Восприятие речи на �
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137131.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ English with Lucy | The PDF Vault (2020) [unpacked] [AD] [EN]
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137241.jpg" />
 </div>
 
 

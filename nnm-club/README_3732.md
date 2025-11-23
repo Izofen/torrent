@@ -1,3 +1,75 @@
+###  Публикация: 1701108   (116714) от 19.02.2024
+
+Эдуард Хруцкий | Тени кафе «Домино» (2024) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116714.jpg" />
+</div>
+
+
+###  Подробнее
+
+1922 год. Москва. В знаменитом кафе «Домино» на Тверской улице собирается самая разношерстная публика: артистический бомонд, поэты и художники, бандиты и бывшие уголовники, новоиспеченные «генералы» Гражданской войны, а так же сотрудники милиции и ОГПУ, которые внимательно наблюдают за всеми посетителями и собирают информацию, помогающую в раскрытии многих преступлений, (   Читать дальше...   )Жанр: ДетективИздательство: СОЮЗПродолжительность: 08:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF7F9134467606E51BA38360F700A45892D7D1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701154   (116715) от 19.02.2024
+
+FastCopy Pro 5.7.0 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116715.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76345F419F63ED3B6A5AE6E928A2836FC974ECC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700910   (116716) от 19.02.2024
+
+Призраки: Чужая жизнь / Two Sisters (2019) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несчастье в семье по разному повлияло на сестер Мэй. Но время и доктора психиатрической клиники лечат больные души, так по крайне мере думала Уэ, когда забрала сестру к себе домой. После ее возвращения в доме стали происходить странные вещи.Производство: Малайзия / Kuman PicturesЖанр: ужасы, драмаРежиссер: Джеймс ЛиАктеры: Эмили Лим, Лим Мэй Фэнь, Уилльям Бу, Пейдж Чань, Адери Чинь, Майк Чуа, Джойс Харн, Анхелина Ху, Венис Нг, Джулианн ТаньПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97848E495236ACBED483A28FC91F9592BFAF1436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700982   (116717) от 19.02.2024
 
 V.A. - Buddha-Bar XXVI (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out, Trip Hop>
@@ -6,7 +78,7 @@ V.A. - Buddha-Bar XXVI (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116717.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:A5C56A23ECFF289F3E84DAA4E0FE4A42937D2572
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116718.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ VA - Music News vol.343 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116719.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:8E40F47A3E77EF6DBFAA11B43943C150319CE06F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116720.jpg" />
 </div>
 
 
@@ -110,7 +182,7 @@ magnet:?xt=urn:btih:4EA02CB29AAA3D63A8965BBB098E94A16862DBDB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116721.jpg" />
 </div>
 
 
@@ -137,7 +209,7 @@ Spotify 1.2.30.1135 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116722.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ DriveDX 1.11.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116723.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ magnet:?xt=urn:btih:8264CDC486341653DE00B3C336B155DFC3AAE337
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116724.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ Psiphon 3 build 181 (18.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116725.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ magnet:?xt=urn:btih:9C19277818FB6A217C9BA6E5BFCD636C7C788063
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116726.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ magnet:?xt=urn:btih:5A920AD359DBB73D0730CD933632D6A89C8D6358
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116727.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ magnet:?xt=urn:btih:D9ED152DBB1FE2B0972137C3B32331A1BAF40C70
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116728.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ StartAllBack 3.7.3 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116729.jpg" />
 </div>
 
 
@@ -333,7 +405,7 @@ magnet:?xt=urn:btih:2BE76D9D9BF3958AD5956062CF1E2EB1C37DDCFA
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116730.jpg" />
 </div>
 
 
@@ -359,7 +431,7 @@ magnet:?xt=urn:btih:0C739C78420B0704D9537BAAD4AA56D695F27F77
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116731.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Firefox Browser 123.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116732.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ VA (Armin Van Buuren) - A State of Trance 2024 - DESTINATION (The Official Album
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116733.jpg" />
 </div>
 
 
@@ -434,7 +506,7 @@ Total Commander 11.02 (19.02.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116734.jpg" />
 </div>
 
 
@@ -458,7 +530,7 @@ magnet:?xt=urn:btih:AA423E0D261F5B4F83B9589FE117581F737E6F1D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116735.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ magnet:?xt=urn:btih:212810873444D0E5443E43602751C892BF5824FA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116736.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ magnet:?xt=urn:btih:BE0A349C44C2D5EE8577EBC9044EDF7F28B1D50A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116737.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Topaz Video AI 4.2.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116738.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ Lacey Free Music & Video Downloader 2.95 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116739.jpg" />
 </div>
 
 
@@ -568,78 +640,6 @@ Lacey -  простой инструмент для поиска и скачив
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0A913D096E92FA121646BA6DA832A7BFBB73A0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701073   (116740) от 19.02.2024
-
-Дракула / Dracula (2020) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-3 из 3) Невафильм, NewStudio, Jaskier, AlexFilm, HDRezka Studio
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трансильвания, 1897 год. В женском монастыре нашёл приют обессиленный Джонатан Харкер, которому удалось сбежать из замка графа Дракулы. Большой интерес к произошедшему проявляет сестра Агата — тщательно изучив записи Джонатана, она просит рассказать его историю во всех подробностях. Некоторое время назад молодой британец прибыл в замок эксцентричного пожилого румынского (   Читать дальше...   )Производство: Великобритания / BBC Television Centre, Hartswood Films, NetflixЖанр: ужасы, фэнтези, боевик, триллер, драмаРежиссер: Джонни Кэмпбелл, Пол МакГиган, Дэймон ТомасАктеры: Клас Банг, Долли Уэллс, Морфидд Кларк, Джонатан Арис, Джон Хеффернан, Лидия Уэст, Мэттью Бирд, Саша Дхаван, Марк Гейтисс, Джоэнна СкэнлэнПеревод: Дублированный (Невафильм), Многоголосый профессиональный (NewStudio, Jaskier, AlexFilm, HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: ~01:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD21DEB4DAA68920E85E895DD936B91332336B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700531   (116741) от 19.02.2024
-
-Microsoft отучила браузер Edge перехватывать вкладки и данные Chrome
-
->>След.
->>Компьютерные новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft исправила ошибку, из-за которой её браузер Edge некорректно функционировал, автоматически импортируя данные и вкладки из Chrome без согласия пользователей. Проблема проявлялась после установки очередного обновления Windows 11 — браузер Microsoft Edge автоматически запускался с набором вкладок, которые до перезагрузки были открыты в Chrome.Пользователи неоднократно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701141   (116742) от 19.02.2024
-
-Windows 10 Debloater 2.6.10 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Debloater – небольшая утилита для тонкой настройки Windows 10. С ее помощью можно отключить различные службы (в том числе и телеметрию), удалить встроенные приложения, скрыть различные иконки, настроить контекстное меню и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD42A5547585B86A29346BE389A5CF5DB4D661E7
 ```
 
 

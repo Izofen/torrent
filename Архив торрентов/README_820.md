@@ -1,3 +1,77 @@
+###  Публикация: 1673471   (165450) от 01.11.2023
+
+Mimestream 1.1.5 Intel/ARM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mimestream сочетает в себе мощь macOS с расширенными функциями Gmail для нового типа почтового клиента, который позволяет вам легко перемещаться по электронной почте.
+Как собственное приложение, написанное на Swift, Mimestream использует всю силу macOS, чтобы обеспечить быстрый и мгновенно знакомый опыт. Вместо использования протокола IMAP Mimestream использует API (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 Mimestream, LLC.Поддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD865F22B9F78DB8CD80335DFB5BE54463FDCE58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345807   (165453) от 16.12.2019
+
+Nero Burning ROM 2020 22.0.1008 Final [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nero Burning ROM 2020 - позволяет записывать диски CD, DVD и Blu-Ray. Программа отличается надежностью и помогает копировать и записывать диски CD, DVD и Blu-Ray с сохранением высокого качества. В приложении Nero Burning ROM содержатся дополнительные возможности: с помощью технологии SecurDisc можно обеспечить надежную защиту и читаемость данных.
+Решение осуществляет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4FD5719FB55B7E1D9DD628A5801C6710033919
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673396   (165454) от 01.11.2023
+
+Icecream Screen Recorder Pro 7.31 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22ADE2D8F35B76A760CDF4234BBBD7C015334D46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432063   (165455) от 16.12.2020
 
 iTrash 5 v5.3.1 [Multi]
@@ -6,7 +80,7 @@ iTrash 5 v5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165455.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Scrutiny 9 v9.14.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165458.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ EazyDraw 10.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165462.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ magnet:?xt=urn:btih:6625BFF3A1786AF8829C029D6821E5755BD4DC83
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165465.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Wattagio 1.12 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165466.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ Winamp 5.9.1 RC4 Build 10027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165467.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ Smooze 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165470.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ ADB AppControl 1.7.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165472.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ PhotoDirector - Редактор фото 18.6.5 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165501.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ VMware Fusion Pro 11 v11.5.1 (build 15018442) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165514.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.32.5600 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165529.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ magnet:?xt=urn:btih:6084C11E1472D49B5BE53EB1ED02A2A6A33A613E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165544.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ AnyGo 6.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165565.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ Aiseesoft FoneLab for Android 3.1.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165575.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ magnet:?xt=urn:btih:95893375C74248B1B1D5CC95AFBC439CD5B57198
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165584.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165601.jpg" />
 </div>
 
 
@@ -393,7 +467,7 @@ Dropshare 5 v.5.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165605.jpg" />
 </div>
 
 
@@ -418,7 +492,7 @@ Boinx FotoMagico Pro 6 v.6.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165608.jpg" />
 </div>
 
 
@@ -443,7 +517,7 @@ Stardock Fences 4.0.0.3 (x64) RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165611.jpg" />
 </div>
 
 
@@ -467,7 +541,7 @@ Microsoft Visual Studio 2022 Enterprise 17.4.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165613.jpg" />
 </div>
 
 
@@ -491,7 +565,7 @@ Tenorshare iCareFone 5.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165617.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ Google Chrome 108.0.5359.125 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165624.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ Revo Uninstaller Pro 4.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165640.jpg" />
 </div>
 
 
@@ -550,81 +624,6 @@ Revo Uninstaller Pro 4.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F46F9ADEEE761665AA5F9B7015940D326FC8D30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431994   (165644) от 15.12.2020
-
-Movavi Video Converter 21.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FA900E1E4D0AB5FF119ADE9E8410BAEBC7336A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431930   (165646) от 15.12.2020
-
-FastStone Capture 9.4 (15.12.2020) Final RePack (& portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165646.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2817F24D8CFF91E9B77E7A2976343BDC337F1B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345728   (165655) от 16.12.2019
-
-Instinct - Still Life (2019) INSTINCT [FLAC|Lossless|WEB-DL|tracks] <UK Garage, Drum n Bass, Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen (04:28)
- 02. Can't Run Away From Yourself (07:12)
- 03. Passing Storms (03:40)
- 04. Home (05:20)(   Читать дальше...   )Жанр: UK Garage, Drum n Bass, Downtempo, AmbientПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068AE6DAAA4A09A95AADFC320E0E6ABD07E4B06C
 ```
 
 

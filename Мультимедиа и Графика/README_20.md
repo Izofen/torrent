@@ -6,7 +6,7 @@ Aiseesoft Blu-ray Player 6.7.70 Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44782.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WonderFox DVD Video Converter 30.6 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44811.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ MAGIX Samplitude Music Studio X8 19.2.0.24218 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44812.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Winxvideo AI 3.5 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44815.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ MAGIX Samplitude Pro X8 Suite 19.2.0.24218 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44828.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Serif Affinity Photo 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44834.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Serif Affinity Designer 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44843.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ LosslessCut 3.62.0 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44844.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Serif Affinity Publisher 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44848.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ MAGIX Samplitude Pro X8 Suite 19.2.0.24218 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44849.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Topaz Photo AI 3.2.0 (x64) + All Models Portable by FC Portables [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44869.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Screensaver Factory Enterprise 7.10.0 RePack (& Portable) by elchupacabra [Multi
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44913.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Radiant Photo 1.4.1.509 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44969.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Aiarty Image Enhancer 2.6 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45068.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Premiere Pro 2024 24.6.1.2 (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45108.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MAGIX Samplitude Music Studio X8 19.2.0.24218 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45161.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Luminar Neo 1.20.1.13681 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45198.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adobe Character Animator 2024 24.6.0.66 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45291.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45484.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Steinberg SpectraLayers Pro 11.0.20.378 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45544.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adobe Bridge 2024 14.1.2.300 (x64) Portable by 7997 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45574.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Adobe Dimension 2024 4.0.3 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45585.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Adobe Substance 3D Modeler 2024 1.13.0.53 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45587.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Adobe Substance 3D Stager 2024 3.0.3 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45590.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.0.12 (x64) Portable by 7997 [Multi/R
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45608.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Teorex Inpaint 11.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45647.jpg" />
 </div>
 
 

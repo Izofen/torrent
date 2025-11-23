@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37793.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:6BBF7BB78AF7CD19952391080EAC424F9B83618B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37794.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Plug And Mix - VIP Bundle V4 4.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37795.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C5169706C3F33313F0E4B31B0C8450B1C1861E06
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37796.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Delain - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37797.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Dust to the End (2020) [Ru/Multi] (1.0.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37798.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:50E5CFA059C104785EACF7CCC8FA3A8134CAC7D4
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37799.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:50E5CFA059C104785EACF7CCC8FA3A8134CAC7D4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37800.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:F3D63B3EFEBBCE35DCA803124EF3F02DDB1F7B80
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37801.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Pine Harbor (2024) [Ru/Multi] (0.17) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37802.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:948D2732BB94E4CCC84FFA68B1943E4094020BF8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37803.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:4683A5BFD0055A5BFBBDE2F1476A72794FE67FF5
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37804.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37805.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37806.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37807.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:31B052B44A80AC88715B723621B4D9F4761195C8
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37808.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Auslogics Disk Defrag Pro 12.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37809.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:15E9844EF0D3FC8E66E0431CE2C3F03B01EDEA03
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37810.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (1.37.15252.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37811.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:02F40C3EA2F2BB8EE37E2701AFE0B426F0DBDA3D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37812.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Morten Barklund | React in Depth (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37813.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:EDFD7686A79B207DDC154BF0009D10A0ADA5DD4A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37814.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ PicPick Free+Pro 7.2.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37815.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37816.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:3D54975929A3ABB51BB0FBD86A1C74780E4DF447
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37817.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:3F040E5A272EA67C44E8A8BD058819286A4AA638
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37818.jpg" />
 </div>
 
 

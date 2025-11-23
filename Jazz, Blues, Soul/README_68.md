@@ -6,7 +6,7 @@ Elvin Jones - Elvin! (1961, 1962) 1995, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105967.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Soul of John Black - Sweet Summer Love (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105978.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Ultimate Jazz Piano Collection, Vol.1 (1950 - 1960) 10CD, 2014, Fermata [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105982.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mike Sponza - Sounds Like Sunday (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105983.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chris Connor - A Portrait Of Chris (1960) 2012, Atlantic [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105992.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Idylic Exotic Perfection Cozy Getaway Tunes for an Enjoyable Vacation Envir
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106148.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Exotic Idylic Perfection Cozy Getaway Chilly Instrumentals for an Enjoyable
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106150.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bill Evans - New Conversations (1978) 2014, Warner [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106175.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Adventurous Moments Serenity and Charm Vacation Playlist (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106180.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Blues Vultures - You Can't Ruffle My Feathers (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106193.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sparrow Blue - No Lies, No Tricks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106194.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Christopher Wyze & the Tellers - Stuck in the Mud (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106196.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sam Joyner - COME WHAT MAY (I'll Always Love You) (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106197.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rusty Apollo - Apollo-III (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106198.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Conqueror Root - The Conqueror Root (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106199.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The B. Christopher Band - 106 Miles to Chicago (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106200.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sierra Green & the Giants - Here We Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106201.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Chatham Singers - Blues That Kills (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106202.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rodrigo Belloni - Like a Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106203.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Paul Bley - The Complete Remastered Recordings on Black Saint & Soul Note (1984 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106204.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bill Nadeau - Mutts and Mongrels (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106205.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pat Metheny - MoonDial (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Fusion, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106218.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Cosmic Trip Advisors - One for the road - Make it a double (2024) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106221.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Billy Barnett Band - Hey It's Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106223.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Nick Charles - Further Down the Line (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106242.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Romi Mayes - Small Victories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106243.jpg" />
 </div>
 
 

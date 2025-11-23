@@ -6,7 +6,7 @@ MeeSoft Diagram Designer 1.25 + Samples [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131942.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.2 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131955.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:23D924D6F193ECFC4396964B5D4299FB40114B9E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131966.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:23D924D6F193ECFC4396964B5D4299FB40114B9E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131968.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.1 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131969.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ K-Lite Codec Pack Update 9.6.7 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131970.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131973.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131983.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:8FE2823E39D42846231CEB79B24CC14388B5FAF0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131984.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ CrystalDiskInfo 9.2.1 + Portable (Shizuku Edition & Kurei Kei Edition) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131989.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C233182C8DCDF049E34528ECA4CF016BD5B5E922
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131996.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:103FC330841657C663B07C72FCD582DCB30A16CB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131998.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Pacifist 3.0.10 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132004.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AIMP 5.30 Build 2530 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132005.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ BBC: Секреты Супербрендов / Secrets of the Superbrands (2011)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132006.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AIMP 5.30 Build 2531 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132007.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8C292A166F5F4E66F30316E6E76AF6F8CD169A25
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132008.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AIMP 5.30 Build 2531 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132013.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132019.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132021.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ CyberLink AudioDirector Ultra 14.0.3523.11 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132023.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:01D16AA212986509AA48D32736AF3C6A903C73C5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132031.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Zentimo xStorage Manager 1.7.1.1224 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132032.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132033.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Cyberlink ColorDirector Ultra 12.0.3523.11 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132034.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Microsoft PowerToys 0.76.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132041.jpg" />
 </div>
 
 

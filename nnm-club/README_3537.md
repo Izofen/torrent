@@ -1,3 +1,78 @@
+###  Публикация: 1715309   (111644) от 11.04.2024
+
+С.П. Алексеев | Рассказы о Петре Первом (2014) [MP3, Вячеслав Герасимов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Аудиокнига «Рассказы о Петре Первом», созданная по произведениям знатока русской истории и замечательного детского писателя Сергея Петровича Алексеева (1922–2008) – живое и увлекательное путешествие в прошлое нашей Родины. Звучащие рассказы пробуждают у детей интерес к изучению истории Отечества, учат гордиться своими предками, воспитывают (   Читать дальше...   )Жанр: Русская историческая литература для детей, рассказИздательство: Студия «АРДИС»Продолжительность: 02:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA57A30A23D77A141A7EB81E4028045CA03E3575
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715004   (111645) от 11.04.2024
+
+Юрий Погуляй | Ледовые корсары (Книга 2). Месть Ледовой Гончей (2024) [MP3, Юрий Гуржий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111645.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Пустыне, среди торосов и вздыбленных льдин, под всепрощающим снегом хранится множество тайн. И кому, как не ледовому корсару, знать о них? Главные герои — юноша-эмпат и его друг, бывший воришка из блуждающих городов, — волею судьбы оказались на борту пиратского судна и теперь обречены на приключения. Их ждут падшие шаманы и демоны льдов, следы погибших цивилизаций (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Неофициальное изданиеПродолжительность: 09:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F991D318DC1CAB91B4D99182FBF23C9D632D2976
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715331   (111646) от 11.04.2024
+
+С.П. Алексеев | Рассказы о декабристах (2014) [MP3, Вячеслав Герасимов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Сергей Петрович Алексеев (1922–2008) – известный детский писатель, автор многочисленных произведений о русской истории, участник Великой Отечественной войны.
+Произведения С.П. Алексеева – живое и увлекательное путешествие в прошлое нашей Родины. Его рассказы пробуждают у детей интерес к изучению истории Отечества, учат гордиться своими (   Читать дальше...   )Жанр: Русская историческая литература для детей, рассказИздательство: Студия «АРДИС»Продолжительность: 06:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3CE9195A620780DDDA185BBBC40A62A35C3E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715348   (111647) от 11.04.2024
 
 Wondershare PDFelement 10.3.7.2718 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
@@ -6,7 +81,7 @@ Wondershare PDFelement 10.3.7.2718 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111647.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Ascold Flow | Божественность вызывает привыкание
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111648.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Charlie Parr - Little Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111649.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Hubert Dorigatti - The Nashville Sessions (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111650.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Jo Stafford - Jo + Jazz (1960) 2004, Corinthian [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111651.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ The Dirty Nil - Free Rein To Passions (2023) Deluxe, 2024, Dine Alone Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111652.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ The Mind Sweepers - All This Too Shall Pass (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111653.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ Harold Alexander - Are You Ready? (1971) 2018, Solid Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111654.jpg" />
 </div>
 
 
@@ -215,7 +290,7 @@ magnet:?xt=urn:btih:C8691ADCAB5FFC56C8A4BB0DE408D17C739CC830
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111655.jpg" />
 </div>
 
 
@@ -240,7 +315,7 @@ Brainslug - Brainslug (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111656.jpg" />
 </div>
 
 
@@ -267,7 +342,7 @@ magnet:?xt=urn:btih:09296E38F70639C0A4189215C1A6199905FAE3B8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111657.jpg" />
 </div>
 
 
@@ -293,7 +368,7 @@ RJ TextEd 16.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111658.jpg" />
 </div>
 
 
@@ -317,7 +392,7 @@ magnet:?xt=urn:btih:7FAB7495D36665DDEC7016FD9462E21B270A4655
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111659.jpg" />
 </div>
 
 
@@ -341,7 +416,7 @@ Soul Browser 1.4.14 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111660.jpg" />
 </div>
 
 
@@ -365,7 +440,7 @@ magnet:?xt=urn:btih:FCA05A3E301645C4CEE0B70FBCAD5EC856826D32
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111661.jpg" />
 </div>
 
 
@@ -389,7 +464,7 @@ Soul Browser 1.4.14 Mod by ateuffel [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111662.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111663.jpg" />
 </div>
 
 
@@ -440,7 +515,7 @@ magnet:?xt=urn:btih:803909040C1D0BD7241CE5C5CCE490680BBB9E53
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111664.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ magnet:?xt=urn:btih:EB8F11910E6F3140174A206D0A90BA81FC3DE0DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111665.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ Sam Morrow - On The Ride Here (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roots 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111666.jpg" />
 </div>
 
 
@@ -515,7 +590,7 @@ Skype 8.117.0.202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111667.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ magnet:?xt=urn:btih:3DE5330F2322746D2896A71407FBE675DE36B3CC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111668.jpg" />
 </div>
 
 
@@ -566,7 +641,7 @@ VA - Nothing But... Trancetopia Vol. 13 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111669.jpg" />
 </div>
 
 
@@ -580,87 +655,6 @@ VA - Nothing But... Trancetopia Vol. 13 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2BAEE31527EDBBE02F9F6D6EF9BD9D668D34B19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714672   (111670) от 10.04.2024
-
-Sebastian Hardie - Four Moments (1975) Reissue, Remastered, 2004, Polydor [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Moments, Part 1: Glories Shall Be Released
-02. Four Moments, Part 2: Dawn of Our Sun
-03. Four Moments, Part 3: Journey Through Our Dreams
-04. Four Moments, Part 4: Everything Is Real(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA82D5F9CEF230D7D153D89D809D5799C57B6CCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714817   (111671) от 10.04.2024
-
-Oceans of Night - Mindstorm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Servants of Shadow / New Dawn (4:53)
-02. Before the Fall (3:40)
-03. Siren (5:31)
-04. Vast and Infinite (6:11)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A29CFC1F08788F53A7D9997C2357CEFFD300216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714637   (111672) от 10.04.2024
-
-Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Reader
-02. Tears In Rain
-03. Rage
-04. The Year Beyond This Year(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36582EB44B2C5A2234A4166BD1770EAE70468C1
 ```
 
 

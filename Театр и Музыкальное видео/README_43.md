@@ -1,3 +1,79 @@
+###  Публикация: 1571433   (209961) от 22.08.2022
+
+Вячеслав Бутусов – Юбилейный концерт (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_209961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телеверсию концерта одного из самых известных представителей отечественной рок-сцены. В программе — лучшие хиты Nautilus Pompilius и презентация альбома «Аллилуйя»: «Эта музыка будет вечной», «Одинокая птица», «Тутанхамон», «Взгляд с экрана», «Люди», «Бриллиантовые дороги», «Элизобарра», «Чудное мгновенье», «Идиот», «Если я стану рыбой», (   Читать дальше...   )Производство: РоссияЖанр: Концерт, шоуСубтитры: ОтсутствуютПродолжительность: 01:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69140B865CD8ABF0C5E6458DC9FAFF8C226A416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642108   (210129) от 30.06.2023
+
+eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись дебютного концертного тура «The Live Experience» группы eRa, прошедшего в конце 2019 года под руководством автора проекта Эрика Леви.
+Музыкальная программа первых европейских гастролей включает пару десятков лучших композиций, накопившихся за четверть века существования eRa.
+Относительно студийных/альбомных версий, живое выступление имеет (   Читать дальше...   )01) Agnus Deorem
+02) Enae Volare (Remix)
+03) Nomen AdoreЖанр: Нью-эйдж, Симфоник-металПродолжительность: 01:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFD4B8E5C9FA7642C0097AAB37C52650CBF068C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603522   (210238) от 11.01.2023
+
+Bollywood: новогодний киноконцерт / Bollywood Mix Video (2023) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов из индийских фильмов таких как: PK (ПиКей), Dhoom-2, Dhoom-3, 3 Idiots (Три идиота), Bajirao Mastani, Bang Bang и другие известные кинокартины.Производство: ИндияЖанр: Pop, DanceРежиссер: Аамир КханАктеры: Аамир Кхан, Каджол, Варун Дхаван, Шах Рукх Кхан, Карина Капур, Приянка Чопра, Дипика Падуконе и др.Продолжительность: 01:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9A21E845A2FE8B8051CBE540DAC2CC174F6FE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582325   (210363) от 28.06.2023
 
 Квартирник у Маргулиса. Zero People (09.10.2022) WEBRip [H.264/1080p]
@@ -6,7 +82,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210363.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:E457D138C7D53D8D222AFB530BFE455CC74AD7D5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210453.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210453.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ magnet:?xt=urn:btih:C3D6A5D1040F3367C2DF2D4FB8EDDC965253A6C2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210477.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210477.jpg" />
 </div>
 
 
@@ -87,7 +163,7 @@ magnet:?xt=urn:btih:03B9B513EB0C5807406F60FE8CBFAF4BB55EC051
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210519.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210519.jpg" />
 </div>
 
 
@@ -114,7 +190,7 @@ Depeche Mode - Live at VOLT Festival, Sopron, Hungary (2018) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211328.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211328.jpg" />
 </div>
 
 
@@ -141,7 +217,7 @@ Blue Cheer: Rocks Europe (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212760.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212760.jpg" />
 </div>
 
 
@@ -168,7 +244,7 @@ Bonnie Tyler - Live In Germany (1993/2011) DVD5 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212763.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212763.jpg" />
 </div>
 
 
@@ -195,7 +271,7 @@ THE JEFF HEALEY BAND «SEE THE LIGHT» (1989) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212788.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212788.jpg" />
 </div>
 
 
@@ -219,7 +295,7 @@ Gary Moore. Live at Monsters of Rock (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212838.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212838.jpg" />
 </div>
 
 
@@ -246,7 +322,7 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212869.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212869.jpg" />
 </div>
 
 
@@ -271,7 +347,7 @@ magnet:?xt=urn:btih:620EA253FB3828E6FEC38DF5C3B0424DB883640C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213176.jpg" />
 </div>
 
 
@@ -298,7 +374,7 @@ magnet:?xt=urn:btih:9D7F4B229E32693CB2B022F85444A7137390727F
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213182.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213182.jpg" />
 </div>
 
 
@@ -325,7 +401,7 @@ magnet:?xt=urn:btih:C8AD6A6F81A5BCD8E14B4B93352C941A6BCB19AC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213351.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213351.jpg" />
 </div>
 
 
@@ -352,7 +428,7 @@ aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213439.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213439.jpg" />
 </div>
 
 
@@ -376,7 +452,7 @@ Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213440.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213440.jpg" />
 </div>
 
 
@@ -400,7 +476,7 @@ Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213441.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213441.jpg" />
 </div>
 
 
@@ -424,7 +500,7 @@ SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213442.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213442.jpg" />
 </div>
 
 
@@ -448,7 +524,7 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213443.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213443.jpg" />
 </div>
 
 
@@ -472,7 +548,7 @@ JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213444.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213444.jpg" />
 </div>
 
 
@@ -496,7 +572,7 @@ magnet:?xt=urn:btih:2DB95918EA5DA90DF0785AEFD2EB9463569F9F6B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213735.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213735.jpg" />
 </div>
 
 
@@ -520,7 +596,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214055.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214055.jpg" />
 </div>
 
 
@@ -544,7 +620,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214188.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214188.jpg" />
 </div>
 
 
@@ -571,7 +647,7 @@ magnet:?xt=urn:btih:943DBE19E8F7E1897C856A4D4F64429536631E44
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214309.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214309.jpg" />
 </div>
 
 
@@ -586,83 +662,6 @@ magnet:?xt=urn:btih:943DBE19E8F7E1897C856A4D4F64429536631E44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5B45BCB298389BCD9243359C28F02DF8CCC845A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371898   (214554) от 16.08.2023
-
-Солярис (1968) DVD5 [Custom]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214554.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименного романа известного польского писателя Станислава Лема.
-«Солярис» — телеспектакль в 2-х сериях.
-Малоизвестный ныне киноматериал, поскольку его полностью заслонил вышедший на несколько лет позже знаменитый фильм Андрея Тарковского (но как знать, не натолкнул ли Тарковского именно этот спектакль на мысль о своем фильме?). Однако, если не сравнивать (   Читать дальше...   )Производство: СССР / Iz Sobraniya Gosteleradio, Studio "Orlenok", Central Television USSRЖанр: фантастика, драмаРежиссер: Б.Ниренбург, Л.ИшимбаеваАктеры: Василий Лановой, Владимир Этуш, Антонина Пилюс, Владимир Зозулин, Вячеслав ДугинСубтитры: ОтсутствуютПродолжительность: 02:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614F0DE7E7884A15D546023B1B1C616D5162BF52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514545   (214661) от 04.12.2021
-
-Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'ame-stram-gram
-02. Je te rends ton amour
-03. Souviens-toi du jour...
-04. Optimistique-moi(   Читать дальше...   )Жанр: PopПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 02:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CDC377455F76BD9B2825BB519F3AD2E944595A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343889   (214707) от 08.12.2019
-
-Квартирник НТВ у Маргулиса. Zventa Sventana (07.12.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zventa Sventana — музыкальный проект российской певицы Тины Кузнецовой и продюсера Юрия Усачёва. Он разбивает стереотипы о народной музыке и сплетает танцевальную электронику с фольклором, инди-попом и даже неоклассикой. Музыканты стремятся показать современному миру, что народная музыка при правильной музыкальной подаче может быть интересна и за пределами конкурсов (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D008B3812B43E9CB7D38A8713338EAA42FFF26CD
 ```
 
 

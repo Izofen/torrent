@@ -1,3 +1,180 @@
+###  Публикация: 1600079   (159390) от 25.12.2022
+
+In And Out - In And Out (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting On You
+02. Turn To You
+03. Sally
+04. Silence Leaves(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62041EEF864B9222FF53801C1796CDE46B8657EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675609   (159391) от 10.11.2023
+
+Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5603.1000 (2023.11) RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6863D6586F29117FCD7DFB2D7EF1149B1F543072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599833   (159392) от 25.12.2022
+
+Wyrmwoods - Spirit & Teeth (2019) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Avant-Garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Sun Will Radiate Its Light Through the Scenes of Horror (02:00)
+02 - War Sublimating the Lycanthropic Death-Wave (04:00)
+03 - I Am All the Vermin in History (16:00)
+04 - Spirit & Teeth (32:00)Жанр: Atmospheric Avant-Garde Black MetalПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB976FDF34B6CDD957E3BF0738E5B5738DB65B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377611   (159393) от 10.11.2023
+
+Бесогон TV - Никита Михалков (2011-2023) WEBRip (выпуски 1-201 из ??) (Обновляемая)
+
+>>След.
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская программа известного кинорежиссера и актера Никиты Михалкова «Бесогон TV» выходит с 2011 года по настоящее время.
+Программа получила свое название в честь небесного покровителя Никиты Михалкова.
+Автор определил цель программы в реализации возможности оперативного, откровенного и правдивого реагирования от первого лица на злободневные события современности, (   Читать дальше...   )Производство: Россия 24Жанр: Телепередача, Политика, НовостиСубтитры: ОтсутствуютПродолжительность: выпуски по ~00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DADEFC6DC1928DBFBCBFF9AB6A413C50145001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599960   (159394) от 25.12.2022
+
+Professional Recorder & Editor 6.3.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Точность, простота и эффективность — вот три правила, реализованные в нашем профессиональном рекордере. Это приложение предлагает вам только самые необходимые функции, которых вполне достаточно для качественного редактирования. Элегантный интерфейс и мощные эффекты помогут вам открыть новые горизонты звука.
+Просто загрузите аудиофайл, и вы увидите его в виде волны. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2022Разработчик: © 2022 © Music TopiaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26AA8198B005FF716C7438CBDDD1C33747A8FAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599992   (159396) от 25.12.2022
+
+Caato Time Tracker Pro 1.1.18 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caato Time Tracker использует трехуровневую иерархию проектов, задач и подробных записей времени. Вы можете добавлять, удалять или редактировать записи на каждом уровне для максимальной гибкости. CSV-Export позволяет легко создавать отчеты с помощью вашего любимого приложения для работы с электронными таблицами.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2022Разработчик: © 2022 CS Software Consultancy LtdПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD1D8DE5C39BF31C90DF38583F1598BA3C2DBD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674616   (159397) от 10.11.2023
+
+Пейзаж с невидимой рукой / Landscape with Invisible Hand (2023) WEBRip [H.265/1080p] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159397.jpg" />
+</div>
+
+
+###  Подробнее
+
+События фильма разворачиваются в мире, захваченном сверхразумными инопланетянами. Они принесли на Землю удивительные технологии, но позволить их себе могут только очень богатые люди. Остальное большинство жителей планеты вынуждено работать на пришельцев. Подросток Адам и его девушка Хлоя занимаются тем, что транслируют свои отношения для инопланетянина Вувва, который (   Читать дальше...   )Производство: США / Annapurna Pictures, Metro-Goldwyn-Mayer (MGM), Plan B Entertainment, Studio ConciergeЖанр: фантастика, драма, комедияРежиссер: Кори ФинлиАктеры: Асанте Блэк, Тиффани Хэддиш, Кайли Роджерс, Бруклин Маккинзи, Джош Хэмилтон, Майкл Гандольфини, Джон Ньюберг, Dev H Patel, Geanna Funes, Кристиан АдамПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3F1489D109E05E5BFB9592150E4AF12B7B006D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599919   (159398) от 25.12.2022
 
 DRmare Audio Converter for Mac 2.7.1 [Multi]
@@ -6,7 +183,7 @@ DRmare Audio Converter for Mac 2.7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159398.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:3CBEFAA626B62934D7627D09BD26031CEE60D689
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159399.jpg" />
 </div>
 
 
@@ -55,7 +232,7 @@ magnet:?xt=urn:btih:288F1CF246875C7C1191CFBD6476FFF3975D781B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159400.jpg" />
 </div>
 
 
@@ -79,7 +256,7 @@ KMSAuto++ Portable 1.8.6 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159401.jpg" />
 </div>
 
 
@@ -106,7 +283,7 @@ Rest&Move - Break reminder 1.7 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159402.jpg" />
 </div>
 
 
@@ -130,7 +307,7 @@ Adobe Acrobat Pro DC 23.6.20380 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159403.jpg" />
 </div>
 
 
@@ -154,7 +331,7 @@ GrandTotal 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159404.jpg" />
 </div>
 
 
@@ -180,7 +357,7 @@ magnet:?xt=urn:btih:E33276DD4504EAE5564793DD1B928A94B191F26B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159405.jpg" />
 </div>
 
 
@@ -204,7 +381,7 @@ GIFfun - Video,Photos to GIF 9.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159406.jpg" />
 </div>
 
 
@@ -228,7 +405,7 @@ magnet:?xt=urn:btih:B9AC8FF2485F14AE2200D0F81C65E3841CBCCFCE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159407.jpg" />
 </div>
 
 
@@ -252,7 +429,7 @@ AudFree Auditior 2.7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159408.jpg" />
 </div>
 
 
@@ -277,7 +454,7 @@ magnet:?xt=urn:btih:525C12EC91381CE1499312ABDE376D95618CEEA2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_159409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_159409.jpg" />
 </div>
 
 
@@ -301,7 +478,7 @@ iCollections 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159410.jpg" />
 </div>
 
 
@@ -325,7 +502,7 @@ magnet:?xt=urn:btih:C40304A4870142ED8B1699E70E0628DF89E25893
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159411.jpg" />
 </div>
 
 
@@ -350,7 +527,7 @@ magnet:?xt=urn:btih:D9523A2B2D3230E01A64A8CBE9766CE13F80DBDF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159412.jpg" />
 </div>
 
 
@@ -374,7 +551,7 @@ Total Commander 11.02 LitePack & PowerPack + Portable 2023.11 by SamLab [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159413.jpg" />
 </div>
 
 
@@ -398,7 +575,7 @@ Ad Eternum - Dogma (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159414.jpg" />
 </div>
 
 
@@ -425,7 +602,7 @@ VA - Хиты Авторадио (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159415.jpg" />
 </div>
 
 
@@ -452,7 +629,7 @@ Ynk - Ynk (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159416.jpg" />
 </div>
 
 
@@ -466,174 +643,6 @@ Ynk - Ynk (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D753AC77D2398FB91406927B0B594F63A1605EF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675623   (159417) от 10.11.2023
-
-Total Commander 11.02 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B285F39C2483F4869D73BD36AE92E3245749BEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675659   (159418) от 10.11.2023
-
-Красное небо / Roter Himmel / Afire (2023) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жаркое лето, дом отдыха на берегу Балтийского моря. Вокруг пылают лесные пожары. Четверо молодых людей, оказавшихся в ловушке, постепенно начинают сближаться.Производство: Германия / Schramm Film Koerner & Weber, ZDF/Arte, Zweites Deutsches Fernsehen (ZDF)Жанр: драма, мелодрама, комедияРежиссер: Кристиан ПетцольдАктеры: Томас Шуберт, Паула Бер, Энно Требс, Лэнгстон Уйбель, Маттиас Брандт, Дженнифер Энтони, Ralph Barnebeck,  Esther Esche, Mario Fürstenberg, Assunta HammПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, немецкийСубтитры: русские, английские, немецкие (SDH)Продолжительность: 01:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEB0F8A06816EC1E1AB398B4F78D04941748E05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675754   (159419) от 10.11.2023
-
-Остаться в живых / The Boat (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три молодые пары решают провести незабываемые выходные на роскошной яхте. Но долгожданный круиз очень быстро оборачивается для них настоящим кошмаром. После вечеринки они просыпаются посреди моря и обнаруживают, что на яхте исчезла еда и вода. В это же время по рации они слышат неизвестный голос, который начинает леденящую кровь психологическую игру. Страх за свою (   Читать дальше...   )Производство: Италия / Lotus Productions, Rai CinemaЖанр: триллерРежиссер: Алессио ЛигуориАктеры: Марко Боччи, Диан Флери, Филиппо Нигро, Марина Рокко, Кацярына Шульга, Алессандро Тибери, Эдуардо ВальдарниниПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, итальянскийСубтитры: Русские (forced, full), немецкиеПродолжительность: 01:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE762C06B71B5D5BEC9D9871D5A353FB38CFEFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454643   (159420) от 10.11.2023
-
-Черная кошка (2016) BDRip [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жестокая, таинственная и неуловимая банда «Черная кошка» из культового советского фильма «Место встречи изменить нельзя», действительно, существовала. Более того, она была не одна. Их называли по-разному: «банда Митина», «Красногорские оборотни», «Черная кошка». Бандиты вышли на улицы Москвы прямо с Доски почёта оборонного завода Красногорска. Это были молодые парни (   Читать дальше...   )Производство: Россия / "Кинокомпания Русское"Жанр: История, криминалРежиссер: Антон СиверсАктеры: Игорь Петренко, Константин Лавроненко, Екатерина Гусева, Гела Месхи, Мария Андреева, Алексей Шевченков, Юрий Чурсин, Юлия Галкина, Александр Лобанов, Дмитрий Соломыкин.Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54DB72554756B98F9D54F1B30836D1FFE000BF79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675493   (159421) от 10.11.2023
-
-Он — это пуля / Бог — это пуля / God Is a Bullet (2023) BDRip [H.264/1080p] [UnCut version]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский Боб Хайтауэр узнаёт, что его бывшая жена убита, а дочь похищена сатанистами. Официальное расследование ведется медленно и бестолково, поэтому Боб увольняется из полиции и берётся за дело сам. Чтобы добраться до жестокого лидера культа Сайруса и спасти дочь, ему понадобится помощь девушки Кейс Хардин. Кейс прекрасно знает всех членов банды, ведь она единственная (   Читать дальше...   )Производство: Мексика, США / Patriot Pictures, Itaca FilmsЖанр: триллер, драма, боевик, криминалРежиссер: Ник КассаветисАктеры: Майка Монро, Николай Костер-Вальдау, Карл Глусман, Дженьюэри Джонс, Джейми Фокс, Пол Йоханссон, Дэвид Торнтон, Итан Сапли, Джонатан Такер, Брендан Секстон IIIПеревод: дублированный (Мосфильм-Мастер + MVO)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (full, SDH)Продолжительность: 02:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C61F0BAA61F8AF5180695291077F6F6630D73E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675676   (159422) от 10.11.2023
-
-Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая игра, которая пройдет на огромнейшем космическом корабле Проксима Центавра. Игра переносит в далекое будущее 2754 года. Главный герой родился на космостанции, когда люди давным-давно покинули Землю в поисках лучшей планеты для жизни. Поколение неоднократно сменялось и многие уже не знают, осуществится (   Читать дальше...   )Тип издания: SceneРазработчик: Iron Tower StudioЖанр: Ролевая игра, Пошаговая, ФантаcтикаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF8A8E056192111D6054F1F55162DC0F4C507AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599995   (159423) от 25.12.2022
-
-Rogue Amoeba Farrago 1.6.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Farrago предоставляет лучший способ быстрого воспроизведения звуковых фрагментов, звуковых эффектов и музыкальных клипов на вашем Mac. Подкастеры могут использовать Farrago для включения музыкального сопровождения и звуковых эффектов во время записи, в то время как театральные специалисты могут запускать аудио для живых выступлений. Farrago готов обеспечить быстрый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2022Разработчик: © 2022 Rogue AmoebaПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF6E80BAF406AA989EB938F028C87221A6A3BF7
 ```
 
 

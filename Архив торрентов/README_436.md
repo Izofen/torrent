@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98414.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:2E943DDFF4201EA5D28AA91B075A826B7C800BB2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98415.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:2BBB5CF4A19C01B36A6E9042F4B1722B9C6B0254
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98416.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Русский Шторм 56 (2012) [MP3|320 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98417.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:F5DFC15824853E276EF698ADCA3D99D3AF5A953C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98418.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:B7717DC23BFF8F148CBF4E62D21B5CA831998AA2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98420.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:C81D937B43233E9F9BE1B181F6098682FB9ECED3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98424.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:A0ED9DCAB399FC87B32C687C449406EAE18D6DFF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98427.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Made In The 80s (2012) [MP3|213-277 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98429.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Дискотека Новые Звезды 12 (2012) [MP3|320 kbps]<Pop | D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98431.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:961F1A3A73D55925BE23D95F0FD628EE666EDF00
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98433.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:868A23547F0AE56C1900869179DB9493800D9E23
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98435.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Modern Day Escape - Under The Gun (2012) [MP3|320 кб/с]<Alt. Rock / Post-Hard
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98437.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F0122C9277FADDD11A94FDE751ACD1341FCE6ED9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98438.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:5D4CB33858759551C3828662149C31CDA871DE54
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98441.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98441.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:5D4CB33858759551C3828662149C31CDA871DE54
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98446.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Wise Registry Cleaner 7.12 build 448 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98451.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Soul Snatchers - Scratch My Itch (2012) [MP3|320 кб/с]<Soul, Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98452.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98455.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98455.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Клубный АвтоЗвук Весна (2012) [MP3|256 kbps]<Club | Dan
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98459.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:5309237905F83348979D45ED302955D4B937FEA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98462.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Yes - Yesshows (1980) 2 CD Digitally Remastered [FLAC|Lossless]<Progressive rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98464.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98464.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Русские Новинки 9 (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98468.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98470.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Дискотека Бездна Original Шансон vol. 3 (2012) [MP3|12
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98471.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ magnet:?xt=urn:btih:4735EFD19D3C7BCC5AB53EE37CCECE7A4F2A83AE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98474.jpg" />
 </div>
 
 

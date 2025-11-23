@@ -1,3 +1,186 @@
+###  Публикация: 1435157   (146785) от 27.12.2020
+
+Хоккей. Молодёжный Чемпионат мира 2021. Группа A. Германия — Финляндия (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Хоккей. Чемпионаты мира
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146785.jpg" />
+</div>
+
+
+###  Подробнее
+
+45-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2021 года.
+26 декабря 2020, суббота. 02:00 МСК
+Предварительный раунд. Группа A.
+Германия — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF14630DD72C389A1016258BD94AB45029162D71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087019   (146786) от 27.12.2016
+
+Астрономы обнаружили звезду, "сожравшую" большую часть ее планетарной системы
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146786.jpg" />
+</div>
+
+
+###  Подробнее
+
+На расстоянии 300 световых лет от Земли находится звезда, во многом подобная нашему Солнцу. Однако, в отличие от Солнца, этой звезде уже удалось поглотить несколько планет, которым не посчастливилось оказаться поблизости. Группа ученых-астрономов наблюдала за звездой HIP68468 в течение нескольких лет, и им удалось собрать неопровержимые подтверждения об акте этого космического "каннибализма".(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519752   (146788) от 25.12.2021
+
+Ashampoo Burning Studio 23.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Burning Studio - это всё то, о чём Вы просили. Откройте простейший способ достичь профессиональных результатов с чрезвычайно интуитивной, компактной, ещё более мощной программой для записи. Видео DVD с полностью анимированными меню, музыкальные CD с собственными обложками, защищённые паролем резервные копии данных и многое другое всего в паре кликов от Вас. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFA1F5995CFAF09C3D551976081504C24F3F740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678023   (146789) от 20.11.2023
+
+TechSmith Camtasia 23.3.3 build 49804 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia Studio - утилита для записи изображения с экрана в видеофайлы различных форматов и мощным видеоредактором, есть встроенные Macromedia Flash (SWF) и видео проигрыватели. Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI. Сделанное при помощи программы видео можно экспортировать в один из поддерживаемых программой (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35B1FADBA5158FC75FCA54D82A75C6EFFD7DB5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345826   (146790) от 25.12.2019
+
+Клеопатра / Cleopatra (1963) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная Клеопатра, знаменитая царица Египта, готова на все ради сохранения величия своего народа. Соблазняя великих правителей Рима — Цезаря, Марка Антония — она мечтает об объединении Египта и Рима в одну большую империю.Производство: США, Великобритания, Швейцария / Twentieth Century Fox, MCL Films S.A., Walwa Films S.A.Жанр: драма, мелодрама, биография, историяРежиссер: Джозеф Лео МанкевичАктеры: Элизабет Тейлор, Ричард Бёртон, Рекс Харрисон, Памела Браун, Джордж Коул, Хьюм Кронин, Чезаре Данова, Кеннет Хейг, Эндрю Кир, Мартин Ландау, Родди МакДауэлл, Роберт Стивенс, Франческа Эннис, Грегуар Аслан, Мартин Бенсон, Херберт Бергхоф, Джон Кэйрни, Жак ЧанПеревод: Дублированный, многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:59:34 + 02:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276C7D9E90FABA4A4C5EC765F49DD6BA288597F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589561   (146791) от 16.12.2012
+
+Andrew Lu - Club Universe Radioshow 052 (13.12.2012) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146791.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dinka - Toes in the Sand (Original Mix) (Unreleased Digital)
+2. Final-x - Juice Anthem 2012 (Original Mix) (Fiolent Voice)
+3. C-Systems feat. Hanna Finsen - Save The Moment (Dub Mix) (Alter Ego Records)
+4. Sean Tyas & Julie Thompson - What I Am (Club Edit) (Tytanium Recordings (CH))
+5. Emma Hewitt - Rewind (Mikkas Remix) (Armada Music)
+6. Patrick Manresa - From Up Here (Original Mix) (Freefall)
+7. Moby - Extreme Ways (Bourne's Legacy) (Moguai Remix) (Little Idiot)
+8. W&W - Lift Off! (Original Mix) (Mainstage Music (Armada Music))
+9. DJ Feel feat. Loona - I'll Find Myself (Mike Danis Remix) (Alter Ego Records)
+10. Nianaro - Faith (Original Mix) (Melancholy Records/CD-R)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E4C5D3057D2FC71633C44C628BD7B9C4B476DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086924   (146792) от 27.12.2016
+
+The Neal Morse Band - The Similitude of a Dream (2016) 2CD [FLAC|Lossless|image + .cue] <Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Day (1:42)
+02. Overture (5:51)
+03. The Dream (2:28)
+04. City Of Destruction (5:11)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B049E26AF84AF0B468DC7B29565410B7E28159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435212   (146793) от 27.12.2020
 
 Dilmoon - What Lies Beyond (2020) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
@@ -6,7 +189,7 @@ Dilmoon - What Lies Beyond (2020) [MP3|320 Kbps] <Progressive Rock, Female Vocal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146793.jpg" />
 </div>
 
 
@@ -33,7 +216,7 @@ March of Shrooms (2023) [En] (m309e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146794.jpg" />
 </div>
 
 
@@ -57,7 +240,7 @@ magnet:?xt=urn:btih:026794B5D52F2EB71C0F2E67C93B9A1BAD5CBECF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146795.jpg" />
 </div>
 
 
@@ -81,7 +264,7 @@ magnet:?xt=urn:btih:11AD0637A5D8D8C9663AA5DD517E1997C7A4D8B4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146797.jpg" />
 </div>
 
 
@@ -105,7 +288,7 @@ Devil Doll - The Return of Eve (2007) [MP3|320 Kbps] <Country Blues, Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146798.jpg" />
 </div>
 
 
@@ -132,7 +315,7 @@ JRiver Media Center 31.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146800.jpg" />
 </div>
 
 
@@ -156,7 +339,7 @@ magnet:?xt=urn:btih:FD1C6C5C7715377795CB2F0DB2E44AC577F44C1B
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146802.jpg" />
 </div>
 
 
@@ -183,7 +366,7 @@ magnet:?xt=urn:btih:35EF03CA228CAEFD54A8F2D445AD523744C2F395
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146803.jpg" />
 </div>
 
 
@@ -209,7 +392,7 @@ MP4Box 0.5.2 rev 1110 Nightly [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146804.jpg" />
 </div>
 
 
@@ -233,7 +416,7 @@ magnet:?xt=urn:btih:4335547504DB08DC9AC3246A9D3B7C0D69A2FE51
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146805.jpg" />
 </div>
 
 
@@ -257,7 +440,7 @@ Joe Brown - The Ukulele Album (2013) 2CD Deluxe Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146806.jpg" />
 </div>
 
 
@@ -284,7 +467,7 @@ magnet:?xt=urn:btih:8032B7B2B463D8F35BF70503816524FD1AC48907
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146807.jpg" />
 </div>
 
 
@@ -308,7 +491,7 @@ Fast Video Cutter Joiner 3.6.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146809.jpg" />
 </div>
 
 
@@ -332,7 +515,7 @@ Rencontre Nocturne - Recap 2020 (2020) [MP3|320 Kbps] <Electro House, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146811.jpg" />
 </div>
 
 
@@ -358,7 +541,7 @@ magnet:?xt=urn:btih:68CD8938C36DFF1A9A5F174A06A887D261E43CB2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146812.jpg" />
 </div>
 
 
@@ -382,7 +565,7 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146813.jpg" />
 </div>
 
 
@@ -409,7 +592,7 @@ magnet:?xt=urn:btih:0AC478403202B57E3376B993114183B44446EC65
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146814.jpg" />
 </div>
 
 
@@ -433,7 +616,7 @@ magnet:?xt=urn:btih:DBCBE91D177D57E18DD2CD9853ECCDAF6BCBA76A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146815.jpg" />
 </div>
 
 
@@ -457,7 +640,7 @@ magnet:?xt=urn:btih:8FABAB18CE7E60DE9E41A910C78F21C53E449FA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146816.jpg" />
 </div>
 
 
@@ -468,187 +651,6 @@ magnet:?xt=urn:btih:8FABAB18CE7E60DE9E41A910C78F21C53E449FA1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEED93B4C933DAA689FF5BFDDFDB2A753D6B84EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590184   (146818) от 16.12.2012
-
-John Aise - House Energy 11 (2012) [MP3|320 кб/с]<Club \ Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rune RK - Teacup (Original Mix)
-02. Swedish House Mafia - Greyhound (Original Mix)
-03. Loreen - Euphoria (DJ Stylezz & DJ Rich-Art Remix)
-04. EDX feat. Nadia Ali vs Hardwell - This Is Your Life (Petty Chrais MashUp)
-05. Lazy Rich & Porter Robinson feat. Sue Cho - Hello (Original Mix)
-06. Bad Boy Bill feat. Tamra Keenan - Unsaid (Original Mix)
-07. Artistic Raw & Basti Lourenz - Wolfpack (Original Mix) vs AN21 & Max Vangeli & Tiesto feat. Lover Lover - People Of The Night (Original Mix)
-08. Steve Angello vs Nirvana - Knas Smells Like Teen Spirit (Sunfly MashUp)
-09. DJ Antonio & MC Van4o feat. Tiana - Fire (Extended Mix)
-10. Alex Mica - Dalinda (Johan K Polar Mix)(   Читать дальше...   )Жанр: Club \ Electro HouseПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF1FBF5E2D50059147DD47953629952AA6A6C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435267   (146819) от 27.12.2020
-
-Kryder - Kryteria Radio 270 (2020 Label Showcase) (2020-12-23) [MP3|192 Kbps] <House, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leykenda - Wild
-02. DEADLINE - Show Me How
-03. Leykenda - Heartbeat
-04. Jora - Speak For Yourself(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781B897CDDF7173A36F882B17923C29432D4DA12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087253   (146820) от 27.12.2016
-
-Раскрывая мистические тайны. Феномен фортуны (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждую минуту в мире тысячи мужчин обращаются к своим дамам с предложением руки и сердца. Сотни тысяч азартных игроков делают ставку в реальном или виртуальном казино. Миллионы людей сдают экзамены, устраиваются на работу, едут на важную встречу. Все эти люди мечтают об одном – чтобы им повезло. Как правило, о везении вспоминают, когда от собственных усилий не хватает. (   Читать дальше...   )Производство: Москва МедиаЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF0A9421D089B9A56C2A936C4820D601C5DCBC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969492   (146821) от 27.12.2015
-
-Перекресток / Crossroads (1986) WEB-DL [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодое музыкальное дарование Юджин мечтает о том, что однажды он станет знаменитым блюзовым гитаристом. Единственный, кто может помочь ему в этом, — легенда блюза Вилли Браун.Производство: США / Columbia Pictures CorporationЖанр: Драма, Мелодрама, Детектив, МузыкаРежиссер: Уолтер ХиллАктеры: Ральф Маччио, Джо Сенека, Джейми Герц, Джо Мортон, Роберт Джадд, Стив Вай, Деннис Липском, Гарри Кэри мл., Джон Хэнкок, Аллан Арбас, Гретхен ПалмерПеревод: Профессиональный многоголосый (Tycoon-Studio), Авторский (Владимир Королёв)Язык субтитров: Русский, АнглийскийПродолжительность: 01:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4C9206B70B96089221CCF3272CE7FF5C99450B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272008   (146822) от 25.12.2018
-
-Telegram Desktop 1.5.4 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C1EC36A95462E72F8AB575C28D99AB023973FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347829   (146823) от 25.12.2019
-
-Идущий по линии 2: Теневой агент / Shi tu xing zhe 2: die ying xing dong (2019) HDRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории трёх полицейских под прикрытием. Страшная автокатастрофа в центре Гонконга вызывает войну между местной полицией и международными преступными организациями. Суперинтендант Ип и инспектор Чин из бюро криминальной разведки по борьбе с терроризмом арестовывают журналистку-хакера по имени Ю, причастную к аварии. В это же время суперинтендант Чен подозревает (   Читать дальше...   )Производство: Китай / Babieka, One Cool Film Production, Shaw BrothersЖанр: Боевик, триллер, криминал, детективРежиссер: Джаз БунАктеры: Ник Чун, Луис Ку, Френсис Нг, Джо Ма, Цзян Пэйяо, Черри Чанли Пей, Кимми Вон, Джонни Мелвилл, Джерард Маллер, Джеки ЦайПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:36:24Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3602A62DA3FA138E6E29DC0336F2D8742931E8C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087476   (146825) от 27.12.2016
-
-Фигурное Катание. Чемпионат России 2017. Женщины. Короткая и Произвольная программы. HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Турнир состоялся с 20 по 25 декабря 2016 года во второй раз в Челябинске в крытой спортивной арене Трактор. По результатам чемпионата будет сформирована сборная команда России на чемпионат Европы 2017 года и зимнюю Универсиаду.
-К участию в Чемпионате России допускаются спортсмены по наибольшей сумме набранных очков в виде на двух этапах Кубка России в соответствии (   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (А. Гришин, Т. Тарасова)Продолжительность: 02:16:08 + 02:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3C073B82A8C799BB7F351598815963BF592DC9
 ```
 
 

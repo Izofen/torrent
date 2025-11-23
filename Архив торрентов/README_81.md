@@ -6,7 +6,7 @@ IPTV Pro v9.0.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23310.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Gigapixel AI Pro 8.3.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23322.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23322.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ FreeFileSync 14.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23327.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23327.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23335.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23335.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Windows Manager 2.1.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23344.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ LibreOffice 25.2.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23348.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23348.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ eWeather HD - weather app v9.0.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23352.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23352.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Telegram Desktop 5.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23354.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ By Click Downloader Premium 2.4.18 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23358.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Opera One 117.0.5408.163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23359.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23359.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Google Chrome 134.0.6998.178 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23366.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23366.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Internet Download Manager 6.42 Build 31 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23369.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23369.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ MediaHuman YouTube Downloader 3.9.9.98 (2603) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23378.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23378.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Adobe Photoshop 2025 26.5.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23391.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23391.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WinRAR 7.11 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23393.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23393.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WinRAR 7.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23397.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23397.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ RegCool 2.032 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23406.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Telegram Desktop 5.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23407.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23407.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Polarr v6.11.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23408.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Brave Browser 1.76.81 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23412.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Firefox Browser 136.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23416.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Material Pods: батарея AirPods v6.63 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23424.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Internet Download Manager 6.42 Build 29 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23429.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Scaler Music - Scaler 3 v1.0.2 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23431.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23431.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ TweakPower 2.071 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23435.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Microsoft Visual Studio 2022 Professional 17.13.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23439.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23439.jpg" />
 </div>
 
 

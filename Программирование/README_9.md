@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166343.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:62817E1A552838AC005C32B1265E7B15B8BD5067
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166356.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Marco Secchi | Multiplayer Game Development with Unreal Engine 5 (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166819.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166901.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:97567A957ED33DD5BC847DEF7ED6C399B2148747
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167045.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F9CFD8182C59A9C696C57260D00BDD4936A8642C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167332.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:CADB6B856AF4485178393C43DA1D63DB65F0D3B7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168524.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:FC7CEF840E30E25ECF2ED05C0C5A979CD7C1DBB7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168525.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Pablo David Garaguso | Vue.js 3 Design Patterns and Best Practices (2023) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168618.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:230E3B5F1F46D10524F7B2CE6A47CFF9F62FAD28
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168741.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:970953ABD0556B80A2E7A8A9EC58B8F31F184CCC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168817.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168942.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169033.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:90F0F177F7BD675CA48B5DA99526EB020A5C294F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169428.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:8C0F352C3D1453983FE6E347D8E6A42AF90DFB3C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170352.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170793.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170815.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170881.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:EC11F295EBE5DFFCD017C0533AB0E35CB8F0E4ED
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170941.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Pradeepta Mishra | PyTorch Recipes, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170976.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:E290060FB313E16896B12E0D03A8A8397062CA44
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171109.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Ali Madani | Debugging Machine Learning Models with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171158.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Jonathan Bartlett | Programming for Absolute Beginners (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171642.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Alexander Shuiskov | Microservices with Go (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171645.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Frank Zammetti | Modern Full-Stack Development, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171708.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Andres Ibanez Kautsch | Modern Concurrency on Apple Platforms (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171737.jpg" />
 </div>
 
 

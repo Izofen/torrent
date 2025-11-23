@@ -6,7 +6,7 @@ Reg Organizer 9.50 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39535.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Graphisoft Archicad 28.0.0 build 3001 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39540.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Revo Uninstaller Pro 5.3.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39541.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3006 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39567.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ GPS АнтиРадар v46.1 Mod by 0x7d [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39583.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TikTok 37.0.4 Mod by Dmitry Nechiporenko + Plugin 1.56 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39589.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ NIUBI Partition Editor 10.0.5 Pro / Unlimited / Technician Edition RePack (& Por
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39590.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Altair PSIM 2024.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39593.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ PilotEdit Lite & Pro 19.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39600.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Hard Disk Sentinel PRO 6.20.4 Build 13190 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39608.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.40.7100 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39629.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PotPlayer 241015 (1.7.22347) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39631.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AIMP 5.30.2563 RePack (& Portable) by elchupacabra (Extended + Standard) (22.10.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39635.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.40.7100 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39638.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:111AB406489984E44489DA4C3421C69A3E97303A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39641.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ RadioMaximus 2.33.00 (21.10.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39677.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Display Driver Uninstaller 18.0.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39681.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Imagine 1.7.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39683.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Desktop Calendar 3.17.206.6675 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39684.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:FEFA22AEA34BD649FA0B96AE6E507AD98F82E098
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39685.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ HDCleaner 2.082 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39686.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ OneCommander Pro 3.91.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39689.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ TechSmith Camtasia 24.1.0 Build 4395 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39693.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Kdenlive 24.08.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39695.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wondershare UniConverter Ultimate 15.7.3.47 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39702.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Winxvideo AI 3.6 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39710.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Melodica 2024 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33451.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Katy Perry - 1432 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33452.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Photo Lab PRO v3.13.43 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33453.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Winter Top Tracks Deep House Natural Soundcloud (2024) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33454.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kodeseven - Dystopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33455.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - DJ's 12" Club Tunes 2024: The Best Of (2024) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33456.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:AF64FB638A9A05641F9CD94FEFB311EE1DA0DABD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33457.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - The Best Of Summer 2024 Broken Beat Nu Disco (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33458.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:AA607861DFE7F139D3B558E0576BC3A88FA0F554
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33459.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:08CB0B866FCEFDED50D4C125904372143E07CCC8
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33460.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33461.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:7F218303C13023547BE825AC84C456D82A48CF2F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33462.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:9566CAA71FB45E9D7BAFADB24D0772D98BBC72F6
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33463.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:1D2846DFE228B4201EE91B0E56B9F3ACE9D0EEC1
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33464.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:914A7BD4E445667C9D146A16FB7E1A20096F0937
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33465.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33466.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso v14
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33467.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:DB6286A1E5CDBF85FDA5FDF624007B94102D0983
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33468.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ The Idolmaster Shiny Colors 2nd Season | Идолмастер: Яркие цве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33469.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:75F3CD8A18A47FED7EF7A5F8B854859117712BF5
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33470.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:9E9D7CF14C15BAE2F21B65EDBB069C3E2A81EAB4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33471.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:2C5715855AF1900EFE1EDC1B3EBB44D3178E1612
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33472.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Cardio 3 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33473.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E4350A1F7E5B8FCAA288C5E1A2137844086FA736
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33474.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:4DD0C2EE3D51342AF4DB9924C053A0B8CDE4C3FC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33475.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:9DD57465979FFC89F03F78BC10058B831F3BF233
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33476.jpg" />
 </div>
 
 

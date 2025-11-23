@@ -6,7 +6,7 @@ Liveclasses, Дмитрий Щербаков | 3D моделирование в 
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138958.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №1 (январь
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145670.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CHIP - DVD приложение к журналу CHIP №1 (Январь 2016) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152189.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ HTML Academy | Дизайн для фронтендеров (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154630.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ HTML Academy | CSS-in-JS (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154639.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FEFE38FFB87D27CF8BFE2B8D78821D2101ECEE9C
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154667.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ CHIP | DVD приложение к журналу CHIP №1 (Январь 2018) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154788.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ American English Pronunciation Chart | Программа для овладен�
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154798.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ HTML Academy | Основы наставничества (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154861.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ HTML Academy | Git и GitHub (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156464.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ HTML Academy | Проект на JavaScript «Сайт объявлений»  (
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156573.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ WebforMyself, Андрей Кудлай | Создание интернет-ма
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162814.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ HTML Academy | Онлайн-курс «Вёрстка email-рассылок» (
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163402.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:C6BAA895A79EC19935DC9457F9C7179D813AE690
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165578.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:F1AAF693765170CE402A4E660B95D3488DA5A136
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165673.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:59528EA9629AD9766BC25D799160CBED387136D3
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165724.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Stepik | WEB Парсинг на Python (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166183.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Stepik | Делаем бота с Aiogram, SQLAlchemy(PostgreSQL) и Docker (202
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166268.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Stepik, Sergey Romanenko | JavaScript Базовый уровень (2023) [unpa
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171464.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:03F2ABD45619F5A9619C817887C21D2E2DB16C1F
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171510.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ HTML Academy | Анимация для фронтендеров (2020) [unpacked
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175374.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175374.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Devman, Игорь Перепилицын | Чат-боты на Python (2020) [
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176193.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176193.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:5D7C2EEC372C00D4FB6612C6C3C3CDAB7AAC942C
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181191.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181191.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:C511EBE7C48F1F9D43B041B0AD609B46EA3FEA19
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182126.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:C665BACF41521ADD811F992010E05DBC1C6C6015
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186516.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186516.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:F75329E9BF85871801895CA683D39D6BC8D1A24E
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186690.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186690.jpg" />
 </div>
 
 

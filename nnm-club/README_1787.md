@@ -6,7 +6,7 @@
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46817.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 127.0.6533.120 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46818.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8AC354C9E7A7068FC3674B2BB6C4B3C777CA3B77
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46819.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4B9206C7D8B3413E56939CDD829C376A6106901E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46820.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Betty Wright - My First Time Around (2012) [FLAC|Lossless]<Jazz, Funk, Soul, R&B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46821.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1470BF50D34D416BEE55534B1BBC9A18A9B09ECB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46822.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CF51FC81A9278E178D0C106E29EF19C7BC99A6A4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46823.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:AC8DD8F5458EE064BBEA9D81264FC83A0172D8CB
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46824.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ SZMC - Alien Invasion (Collection) (2024) [MP3|320 Kbps] <Electronic, Spacesynth
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46825.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ StartAllBack 3.8.3 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46826.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:AA6173493DDF7D9F9CBAC3CD77FFA46E48560B73
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46827.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Mark Knopfler - One Deep River (2024) Deluxe [FLAC 24/192|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46828.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:CB39F6E90060B761581C5E18EE09E168937CF975
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46829.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:82CC5D3542B282F4DDC806583769FD33A9096819
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46830.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:675D7BA0379B72795A318B516DF23F44C28CD2B4
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46831.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:DBB99D3DC9139C00CCB1308D1DE97A0673A4204A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46832.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AC30CAB1BFE9202DFA3DDD4C6176A49D1A5FC488
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46833.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:94A6A9C8B658C12FA5F313B6DEC841841DD5B557
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46834.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:BF5C07E67074437FEEAEDB514C6501567305A172
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46835.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:59C456BEDCB397A0E06CEBE5835CF9B32E16F9C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46836.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:7F3D8BC699FB6AA8B49A863F7D37681C1E04F267
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46837.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ HandBrake 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46838.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:D11E9D8EABB7091D56C9F4BDEB3FF08D44AA2DEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46839.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:EE43277312F2405D307CA7FBC5FE7D70C30EBCC0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46840.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:234732CAE043489DE17FD49B8D89705AC9B95DC4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46841.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:188D6EC70AA5490793729F7893B1ECE69D766AEC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46842.jpg" />
 </div>
 
 

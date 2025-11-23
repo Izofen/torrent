@@ -1,3 +1,78 @@
+###  Публикация: 1822374   (100770) от 06.10.2025
+
+Формула 1. Сезон 2025. Этап 18. Гран-при Сингапура. Гонка (05.10.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100770.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 октября 2025 воскресенье 15:00 МСК этап 18. Арена: Городская трасса Марина Бей. Гран-при Сингапура. Гонка (62 круга)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 02:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4A72D1F90AFE057B5E39B8CF35F51322814478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822376   (100771) от 06.10.2025
+
+Жадан і Собаки - Бийся за неї (2025) [FLAC|lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Інтро (01:48)
+02. Бюджет (03:36)
+03. Безробітні (03:55)
+04. Країна (03:30)(   Читать дальше...   )Продолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4F99EE3D0BFB4B5646ED939DF8F911808BC8F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822375   (100772) от 06.10.2025
+
+Оверлеи - GoGivo - 10 Rose Flower Overlays Transparent [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100772.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 красивейших оверлеев с розами. Файлы можно использовать в любом графическом редакторе, поддерживающем слои, просто наложив наложение поверх фотографии.Формат: PNGРазрешение файлов: 4000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D373085B36BD548FEB6CEE8AD7BE7ED4E252D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822372   (100773) от 06.10.2025
 
 Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +81,7 @@ Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100773.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:73679C525BCABFB91C56237ADA73211C0E38FA1B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100774.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Canyon Lights - Breathe Easy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100775.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:0AC1C04BF22A61792CF02FB6665C3E07F7EF9E2B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100776.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:9914F3ACCF6B3D68C9B839ECE3A6BB81E643E07E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100777.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Balder Gernot - Towards The End (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100778.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ Amiya - Prosto do Gwiazd (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100779.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ Aging Disgracefully - Shatter the Mirror (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100780.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ magnet:?xt=urn:btih:C10469F172A5CB9D07CD8D7A302A9AD961500518
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100781.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ Luck & Loot (2025) [Ru/Multi] (1.1c) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100782.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Sadist - Studio Albums (10 releases) (1993-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100783.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ VA - Брат-1, Брат-2. Музыка к фильму, Брат-2. За ка
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100784.jpg" />
 </div>
 
 
@@ -314,7 +389,7 @@ magnet:?xt=urn:btih:C9C7A3F1B17AD42460F81D33CEA9CC7ABDB5EFA6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100785.jpg" />
 </div>
 
 
@@ -338,7 +413,7 @@ magnet:?xt=urn:btih:DA34C1022D806E2DF6273932C6085D42A7A4B364
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100786.jpg" />
 </div>
 
 
@@ -364,7 +439,7 @@ magnet:?xt=urn:btih:56B5BE88785236255651ECE971ED92198CCC02A3
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100787.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ magnet:?xt=urn:btih:048D94859E6EC0D15502EAEF4ABF48FD2B024E6A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100788.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ magnet:?xt=urn:btih:C89E99617F1FE73F4F18A636E7A0C9DF75EB8CCF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100789.jpg" />
 </div>
 
 
@@ -440,7 +515,7 @@ magnet:?xt=urn:btih:2096C9C39F903C651F7C2F9FCA4FCF899C798816
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100790.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ magnet:?xt=urn:btih:4E2C9DB4ACCF7BA36D3150284B18A210B78478F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100791.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ Display Driver Uninstaller 18.1.3.5 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100792.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ magnet:?xt=urn:btih:E5DA3D1B1E9F0DC0511075A3BE3CA5EE11590FB5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100793.jpg" />
 </div>
 
 
@@ -538,7 +613,7 @@ magnet:?xt=urn:btih:B52A0AFE11EAD8628527CB93925F2726BFCF51A9
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100794.jpg" />
 </div>
 
 
@@ -564,7 +639,7 @@ magnet:?xt=urn:btih:4484ED3AAA3D64EB9A7F6CD7E23F58C8227298DE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100795.jpg" />
 </div>
 
 
@@ -575,78 +650,6 @@ magnet:?xt=urn:btih:4484ED3AAA3D64EB9A7F6CD7E23F58C8227298DE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0BEFEE16458002F8CD9FE5AC92EF706CD3CF2EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527156   (100796) от 06.10.2025
-
-Беседы с Богом / Conversations with God (2006) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм описывает историю Нила Дональда Уолша, автора книги «Беседы с Богом». Его путешествие началось после того как он сломал шею в автомобильной катастрофе и потерял свою работу. Ему приходится жить на улице, борясь за жизнь, пытаясь найти работу, знакомясь с новыми людьми и смотря на мир по-другому. В конце концов, обессилев от ударов судьбы, он просит у Бога ответы (   Читать дальше...   )Производство: США / CWG Productions LLC, Esq. Cynthia R. Litman, Spritual Cinema CircleЖанр: драма, приключенияРежиссер: Стивен ДьютчАктеры: Генри Черни, Вилма Силва, Т. Брюс Пейдж, Ингрид Боултинг, Зилла Глори, Абдул Салаам Эль Раззас, Джерри МакГилл, Майкл А. Гурджиан, Мишель Мерринг, Бренна ХаукедальПеревод: одноголосый закадровый (любительский)Продолжительность: 01:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C0A198ED5297AE72214F7DE0BD4E4E68206AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822321   (100797) от 06.10.2025
-
-Звуковые библиотеки - Bigcitiloops - Ghetto Gospel 4 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100797.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ghetto Gospel 4» содержит десять самых вдохновляющих индивидуальных сэмплов госпел-музыки. Эта проникновенная музыка — настоящий шедевр среди госпел-сэмплов для нарезки. Эти комплекты вдохновлены такими артистами, как Андре Крауч, Смоки Норфул, Марта Муницци, Кирк Франклин и многими другими.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F8E532BD206FE89C7B38C0F645DFEC546A5C95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 4262   (100798) от 07.10.2025
-
-Персонаж / Stranger Than Fiction (2006) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о жизни Гарольда Крика, налогового инспектора. Гарольд ведёт чрезвычайно монотонную жизнь — встаёт и ложится спать в одно и то же время и даже считает движения зубной щетки, когда чистит зубы. Совершенно неожиданно он начинает слышать голос, который комментирует его действия. Гарольд обращается за помощью к психиатру, но диагноз шизофрения его не (   Читать дальше...   )Жанр: фэнтези, драма, мелодрама, комедияРежиссер: Марк Форстер / Marc ForsterВ ролях: Уилл Феррелл, Мэгги Джилленхол, Эмма Томпсон, Дастин Хоффман, Куин Латифа, Линда Хант, Том Халс, Уильям Дик, Гай Мэсси, Марта ЭспинозаПеревод: Профессиональный (дублированный)Субтитры: нетПродолжительность: 01:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F33C66C4B63760C341F487E5E7A0D2733DF05A
 ```
 
 

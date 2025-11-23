@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33556.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ QOwnNotes 24.12.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33557.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4D323DF3759FEBAC0313643D5DAEAB9F41F4EAB6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33558.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:332F73AF736C87D0FE60554522950DED54F893BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33559.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3014 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33560.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4BD70C81B30811F401A0E58F2BA05B91FA8C2FD8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33561.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ XYplorer 26.70.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33562.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ GeoGebra 6.0.871.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33563.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ P.S. Верю в любовь / Surprised by Oxford (2023) WEB-DLRip [звук �
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33564.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Monster Jam Steel Titans 2 (2021) [Ru/Multi] (1.0e/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33565.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:C7B34FC06E2CA90C0560FB1723DB478460AE8EBF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33566.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.6/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33567.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DisplayFusion Pro  + Portable + MSI 11.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33568.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ The Offspring - Compilation (1989-2024) [MP3|320 Kbps] <Punk rock, Alternative, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33569.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Daria Orlova, Esra Kadah, Jaime Blasco | Flutter Design Patterns and Best Practi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33570.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows Server [10.0.25398.1308], version 23H2 (Updated December 2024) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33571.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:7E7F55D75C897AC6B1515F181D1F9E7BA6D81DFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33572.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Microsoft Windows 11 [10.0.22631.4602], Version 23H2 (Updated December 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33573.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:C5EE80A76E1FC92D512A36B4ECBA0585DE395525
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33574.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:55AD4B680FA144628092C93D54642F53B3E746C9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33575.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8D79548FB42C4702161FCCB522754FE7843F4B05
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33576.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ TweakPower 2.066 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33577.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Exploding Kittens® 2 v0.0.19 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33578.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Desktop Calendar 3.19.217.6900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33579.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ P.S. Верю в любовь / Surprised by Oxford (2023) WEB-DLRip [H.264/1080
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33580.jpg" />
 </div>
 
 

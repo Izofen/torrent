@@ -6,7 +6,7 @@ Terromania - Nyctophobic (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146289.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:31F9207D5CD0EC51E872E4C9B29F177DE95C1D49
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146292.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fortune - 3 альбома Discography (1993-1995) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146347.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Loathe - 3 Albums / 2 EP (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146357.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:1EB1876D1FCD64E74196B4D91F221E3CD740E7D9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146360.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cradle Of Filth - Cruelty And The Beast (Re-Mistressed) (1998) Reissue, Remaster
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146367.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:E8C4B7C6E34F8C019C32E8929729AE5B46800713
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146465.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rea Garvey - Hy Brasil (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146472.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Psychonaut 4 - 5 Albums, 3 Splits, 1 Single (2011-2020) [FLAC|Lossless|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146485.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A71BBDD5815EC2E6769C950FE87494DF91A6E9C2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146492.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Naka - 8 релизов (2005 - 2014)[MP3|128-320 kbps]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146505.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ AC/DC - Bon Scott Hits (2015) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146652.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:F34B666C7494CD4446714091CB3CCC0E97480BE4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146671.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Erzengel - 3 Albums (2019-2020) [MP3|320 Kbps] <NDH, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146680.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Heavy Pettin - Best Of Heavy Pettin (2020) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146695.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Devil Doll - Queen Of Pain (2002) [MP3|320 Kbps] <Rockabilly, Country Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146698.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:18489187C4A4D492CB9ABED56FBF4E5F56D2B83D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146747.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Neurotech - Symphonies (2016) [MP3|320 Kbps] <Industrial Metal, Symphonic Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146756.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Neal Morse Band - The Similitude of a Dream (2016) 2CD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146792.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Dilmoon - What Lies Beyond (2020) [MP3|320 Kbps] <Progressive Rock, Female Vocal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146793.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Devil Doll - The Return of Eve (2007) [MP3|320 Kbps] <Country Blues, Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146798.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Joe Brown - The Ukulele Album (2013) 2CD Deluxe Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146806.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Captain Ivory - No Vacancy (2016) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146880.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Greatest Ever! Heavy Metal - The Definitive Collection (2012) 3CD, Box Set,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146918.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Hollower - Forking Paths (2016) EP [MP3|320 Kbps] <Progressive, Technical Metalc
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146976.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Ad Infinitum - Chapter II - Legacy (2021) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147156.jpg" />
 </div>
 
 

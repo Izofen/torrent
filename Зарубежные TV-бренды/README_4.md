@@ -6,7 +6,7 @@ NG: Самые страшные стихийные бедствия: Торна�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57429.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NG: Самые страшные стихийные бедствия: Земле�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57430.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7E10148CC63D51A2BE25CD171A3D2BFF61ACEC8C
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57535.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FDEE35BFD87BD6B0113079428FECF0EC55D77116
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57639.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:16696EDB930D924B117AA62F09F5B78E37E20C0A
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57651.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:49C05F1E015C8FB550B6D6DD4F0DFD2DAA141E05
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57669.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F3C8AA79F26919559618AB8CDC97384B1B58EBF4
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57670.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57694.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Discovery. Железная дорога Австралии / Railroad Australia
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57790.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D4E8CF914883F917CF342290CF7FDB15E7EC15D7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57991.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58167.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58169.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58277.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58358.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58389.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58434.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58466.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ BBC: По странам и континентам. Дикая Африка / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58478.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ History Channel. Заговор НЛО: в поисках правды / UFO Con
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58534.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58570.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58718.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58724.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58746.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ BBC: Звуковые волны: симфония физики / Sound Waves: T
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58814.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58821.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ BBC: История древней Британии / A History of Ancient Brita
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58822.jpg" />
 </div>
 
 

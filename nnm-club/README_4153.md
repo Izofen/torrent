@@ -1,3 +1,78 @@
+###  Публикация: 1484215   (127665) от 16.12.2023
+
+Мелисса Медина, Фредрик Колтинг | «Ромео и Джульетта» Уильяма Шекспира (2019) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые произведения многих взрослых теперь можно читать вместе с детьми. Пересказанные в понятной и интересной форме и дополненные потрясающими иллюстрациями, эти истории помогут детям оценить и полюбить классику и сохранить эту любовь до той поры, когда они сами смогут прочитать произведения в оригинале.
+
+Эта книга идеально подойдёт для занятий интерактивным чтением (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Зарубежная классика, Зарубежные детские книгиПеревод: Анастасия А. МаркеловаИздательство: Альпина ДиджиталФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B0CFD46E4BAA962C7A6EE1DF89B4C144749FDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684731   (127666) от 16.12.2023
+
+Темный рай / Tume paradiis / Dark Paradise (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127666.jpg" />
+</div>
+
+
+###  Подробнее
+
+27-летняя Кармен узнает, что ее недавно похороненный заботливый отец на самом деле жил в долгах, и вся их жизнь была одной большой ложью.Производство: Эстония / Three BrothersЖанр: ДрамаРежиссер: Трийн РууметАктеры: Реа Лест, Йорген Лийк, Steffi Pähn, Liisa Saaremäel, Juhan Ulfsak, Reimo Sagor, Maria Avdjushko, Ain Mäeots, Kaie Mihkelson, Kristo ViidingПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:36Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BD9AC145427E2E3066BA6874A90FB31D66BAB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684604   (127667) от 16.12.2023
+
+Томас Эриксон | Все начальники – козлы, а подчиненные – бездельники (2023) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы никак не можете понять, чего от вас хочет начальник; если подчиненные не слышат ни слова из того, что вы им говорите; если в офисе вы чувствуете себя, как в зоопарке, скорее всего, никто не пытается испортить вам жизнь специально. Просто вы – красный, а ваш начальник – зеленый. Ну, или наоборот.
+Благодаря этой книге вы сможете найти общий язык со своими начальниками (   Читать дальше...   )Жанр: Карьера, кадры, Психология и психотерапия, СамосовершенствованиеПеревод: М. О. ПетроваИздательство: Эксмо: БомбораФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BADEE61DF098357161F4F2E5A4C272B235A1318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589571   (127668) от 16.12.2023
 
 Попутного ветра, «Синяя птица»! (1967) DVDRip [H.264]
@@ -6,7 +81,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127668.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Smart Book / Параллельный перевод книг v3.3 (b1065) Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127669.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ CurrPorts 2.77 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127670.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:5379339FFB3A010398D0B7E8472DB039595795E7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127671.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127672.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:C64B4F3276FD3861DD277018A417AEBA93513D41
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127673.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ magnet:?xt=urn:btih:7C78007C91BE3492B92E87ED21228C9CD54C2D5E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127674.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ Search By Image v9.0.1 Mod by vadj [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127675.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ Motion Science, Cameron Pierron | Beyond The Parallax Effect (2020) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127676.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:0FF1B2D055926FD404A8506373E3D68BADBF00D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127677.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:E761F559A4EBC4C2101439CDBAA6C5D44CE21BE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127678.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:D751895CECB4C0A652B80EB8230928E4B4A572DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127679.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ Vivaldi 6.5.3206.39 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127680.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:D1F8B08E4E68BC295A74399CAA96AF0ABC928B13
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127681.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ magnet:?xt=urn:btih:3C8C46342786CB7BEB4351CA083CF6FFE823555D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127682.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ magnet:?xt=urn:btih:E290472277F90866643D4277C1F2E0BBFA1417DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127683.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:6CEB859AD11DE35ECF9423C78A517CB4F3DAF9C3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127684.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:EAFC36B1E90E8CC124FDE5991B5168AF5546BAE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127685.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:3913D6780E1F1ED534CCFF128D0F16E4F2124C84
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127686.jpg" />
 </div>
 
 
@@ -468,7 +543,7 @@ magnet:?xt=urn:btih:2FD85184C2C8DA346C8C3C5198E3F5EB29DD27DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127687.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ magnet:?xt=urn:btih:8D4615206EB7E26C8A68556D14FB609238D57C39
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127688.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ Deven Joshi | Building Cross-Platform Apps with Flutter and Dart (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127689.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ magnet:?xt=urn:btih:8408305603D8C0988554C4F57E84D76630FE5A31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127690.jpg" />
 </div>
 
 
@@ -552,79 +627,6 @@ magnet:?xt=urn:btih:8408305603D8C0988554C4F57E84D76630FE5A31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09979BA139E2B4FF85505771D24C5E1F93531679
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684568   (127691) от 16.12.2023
-
-Трактир «Черная дыра» / Demon Pit (2022) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то далеко-далеко, посреди пустыни, вот уже много лет стоит небольшая постройка, внешний вид которой напоминает то ли бар, то ли стриптиз-клуб. На пороге обитает вечно голодный мужчина, а внутри — несколько очаровательных женщин-демонов в обтягивающих нарядах. Каждый, кто заходит внутрь, вынужден стать частью игры. Если ты живешь праведной жизнью, то местные накормят (   Читать дальше...   )Производство: США / Bulldog Brothers Entertainment, Enhanced Media, Hannibal Films, Tadross Media GroupЖанр: ужасыРежиссер: Лэнс КауэсАктеры: Рэнди Кутюр, Роберт Дави, Дин Кэйн, Майкл Мэдсен, Ричард Греко, Минди Робинсон, Чак Цито, Джанни Капальди, Джон Орр, Марк ДжастисПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: РусскийСубтитры: Русские (forced hardsub на испанскую речь)Продолжительность: 01:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305CCC98F8AB0619BA148B44E1FEB23D794E9C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684520   (127692) от 16.12.2023
-
-JetBrains PhpStorm 2023.3.1 Repack by Sitego [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127692.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
-поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1, 8.2 и PHP 8.3 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание языков. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000698918D35DB5538ACAD5E73E587347F197F21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684696   (127693) от 16.12.2023
-
-За короля! / Vaincre ou mourir (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция, 1793 год. Гнев крестьян, обманутых обещаниями Французской революции, растет. Они призывают Шаретта, бывшего офицера Королевского флота, возглавить восстание. За несколько месяцев моряк становится харизматичным лидером и прекрасным стратегом, увлекая за собой крестьян, женщин, стариков и детей, из которых он создает грозную и неуловимую армию. Борьба за свободу (   Читать дальше...   )Производство: Франция / Puy Du Fou FilmsЖанр: боевик, военный, историяРежиссер: Пол Миньо, Венсан МоттезАктеры: Юго Бекер, Валентин Пиффар, Тристан Студер, Од Студер, Тадрина Хокинг, Жак Милаццо, Вилли Ле Дрюийенек, Пьер-Феликс Гравье, Дамьен Жуйро, Франсис РеноПеревод: Многоголосый профессиональный (КиноПоиск HD)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F570A224492177F902B4775A31D2ED3A60187886
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1712577   (112138) от 03.04.2024
+
+Журнал | Моделист-конструктор №3 (март 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112138.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моделист-конструктор» — ежемесячный отечественный популярный научно-технический журнал. Издаётся с августа 1962 года. В каждом номере журнала публикуются чертежи и схемы самых разнообразных конструкций — от приспособлений для домашнего хозяйства до самодельных микроавтомобилей и любительских самолётов, а также материалы по истории техники и движению самодеятельных (   Читать дальше...   )Жанр: Научно-технический журналИздательство: АО «Редакция журнала «Моделист-конструктор»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77F6F32A552EF6A29B6DD1B2AA4F17D9C09B376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712564   (112139) от 03.04.2024
+
+Bigasoft Video Downloader Pro for Mac 3.27.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft Video Downloader Pro - это популярный одношаговый онлайн-загрузчик и конвертер видео, который помогает быстро загружать и конвертировать видеофайлы для воспроизведения на персональном компьютере, портативном устройстве, мобильном телефоне, mp4-плеере, Apple телевидении и т. д. Мощный инструмент Video Downloader может сохранять онлайн-видео в формате HD, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2024Разработчик: © 2024 Bigasoft CorporationПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9172F144C06263F53B17DB8412F65836710BD9FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712583   (112140) от 03.04.2024
+
+Звуковые библиотеки - Splice - Blastwave FX Water and Aquatic Bible [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет специальных выделяющихся звуков воды, записанных в различных местах и с разными уровнями интенсивности.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4542FB35EDAAAB7024716E776C742E78D77FCB0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712576   (112141) от 03.04.2024
 
 Звуковые библиотеки - Amazon - Blastwave FX Haunted Halloween 300 Scary Sound Effects from Beyond the Grave [FLAC]
@@ -6,7 +78,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112141.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ QLab 5.3.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112142.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:EE955D4F4FAE824C9B3DB8D0FE48D369A874AF27
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112143.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Bigasoft FLAC Converter for Mac 5.8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112144.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:C62C3BC24D71778BE5E5F9D88E178E2362CDF26B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112145.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:C26E2A7B40E5A6383A81869103B4FEE695AA5064
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112146.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:1CEAC54F730A38950A75A5FAB945F203CC0519A2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112147.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:AAB9193A1F6DCC130333C99C6F0D104D6C455EB9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112148.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:D89EA03D0808DFD54082BE283716F7CF00634D7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112149.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112149.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:D89EA03D0808DFD54082BE283716F7CF00634D7F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112150.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112151.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Tad Morose - March of the Obsequious (2022) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112152.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ Tad Morose - Chapter X (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112153.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ Teutonic Slaughter - Puppeteer of Death (2018) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112154.jpg" />
 </div>
 
 
@@ -357,7 +429,7 @@ Tad Morose - Revenant (2013) [FLAC|Lossless|image + .cue] <Progressive Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112155.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ Tad Morose - St. Demonius (2015) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112156.jpg" />
 </div>
 
 
@@ -411,7 +483,7 @@ magnet:?xt=urn:btih:9A91E59F81B5ADC06E5C509F40505980B2FEFE4C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112157.jpg" />
 </div>
 
 
@@ -435,7 +507,7 @@ magnet:?xt=urn:btih:61D539CC4F770061BAE928F0F3BFB5EBF01F603C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112158.jpg" />
 </div>
 
 
@@ -459,7 +531,7 @@ magnet:?xt=urn:btih:72345CC7BB7E761F04C7EEADA22DE52788F56A9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112159.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ magnet:?xt=urn:btih:72345CC7BB7E761F04C7EEADA22DE52788F56A9B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112160.jpg" />
 </div>
 
 
@@ -507,7 +579,7 @@ Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112161.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ magnet:?xt=urn:btih:61E834A1A63A40663B4AB556C6EA965C7D8F69B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112162.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112162.jpg" />
 </div>
 
 
@@ -558,7 +630,7 @@ magnet:?xt=urn:btih:61E834A1A63A40663B4AB556C6EA965C7D8F69B1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112163.jpg" />
 </div>
 
 
@@ -571,87 +643,6 @@ magnet:?xt=urn:btih:61E834A1A63A40663B4AB556C6EA965C7D8F69B1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF12CDF2396319620D9138343C64A57F4B5806A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712507   (112164) от 02.04.2024
-
-The Disco Biscuits - Revolution in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shocked! [00:03:50]
-02. The Wormhole [00:06:12]
-03. Twisted in the Road [00:04:35]
-04. Another Plan of Attack [00:06:33](   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D0889C65E4DEEA1FA6A46E2601DCD5D8DE5350
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712228   (112165) от 02.04.2024
-
-Grover Washington, Jr. - Time Out Of Mind (1989) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grover Washington Jr. (12.12.1943 – 17.12.1999) был американским саксофонистом в стиле джаз-фанк и соул-джаз. Наряду с Wes Montgomery и George Benson многие считают его одним из основателей жанра smooth jazz. И хотя музыкальное производство фактически превратило smooth jazz в поджанр, который по сути лишил инструменты жизненной силы, тем не менее, эта музыка по своей (   Читать дальше...   )01. Jamaica (4:44)
-02. Gramercy Park (3:57)
-03. Sacred Kind of Love (5:41)
-04. Brand New Age (5:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69903602145820D78F04219E5780D95D330DA681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712480   (112166) от 02.04.2024
-
-HJirok - HJirok (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Sanandaj
-02 – HJirok Rock
-03 – Yahu
-04 – Jin Bo Chie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EC125340D01C94F7DFD75276E3BC3B01414059
 ```
 
 

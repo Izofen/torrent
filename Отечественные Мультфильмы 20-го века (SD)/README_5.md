@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130770.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5B6DF94F29ADC92825656C4EEFCD37BD17278003
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130785.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EA4CAE3A9F65865F890B1790C503F753EADFE9E4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130788.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B73380727C598B4F952993808562D5309C7254FF
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130795.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:90D9FD49F9964E4226E822C87A6DF9D412354CB9
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130800.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:844759F0E656A87C37452411BB93F3EC7E89944A
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133037.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:109FBAD313355BF6AE8FF2015080BA367B6EC8F5
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134062.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0E7FFEF770C692E37B61702377DC3571AA04085E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136821.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F57FDD3FBE0833BBE4777FD1A3C7348568E50501
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137049.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5E18AF4BDC9AE102A3AC232578BBC4634A40A316
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138501.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C1509351584908B9FFEDEA15EAA35107AD9AF26B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139072.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:CA3DDC7CBC71CF23E4ECA47ABEE8EFFF37421515
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146647.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:09172BEB5BF13FE54BB91A383D0D0349561A2B8F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149103.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:EC9200714EC9760FCCB3CA3EA78C8EAAA9BFF740
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153176.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:96F20EAF0C81AA0147E6B4FC8361CE6035505116
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153213.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:76E79CC2EC69FE4CD010B5E55B15A4F9BAC1D782
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157240.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:B0F7F27F24257834F05B33992DD51274192D3D44
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159499.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:A91217386F797F71F425DC33D4892E823E6D8980
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161081.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:4A87D246871A85F2E00D72DB5C350F8464D25E2C
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162348.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:C8C55CC7C2528A123443249403D31D4E46B2998C
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164856.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:6159BF12F50E3D36E5EAF5A790D7B3A3BE989CC0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169799.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:0CFA5CE1745D3C3EC1C9575078E585BAC1DD53E7
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175281.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175281.jpg" />
 </div>
 
 
@@ -530,97 +530,99 @@ magnet:?xt=urn:btih:3EF57EC1A4086A78973B35EE7EF23438CB23C26A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426497   (185117) от 26.11.2020
+###  Публикация: 46139   (178640) от 03.12.2020
 
-Пpиключения капитана Врунгеля (1979) DVDRip [H.264] [PR] (без заставок)
+Приключения поросенка Фунтика (1986-1988)
 
 >>Мультфильмы
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185117.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_178640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Христофору Бонифатьевичу Врунгелю, известному мореходу, профессору навигации, приходит приглашение участвовать в международной парусной регате. Специально для соревнований помощник Врунгеля — матрос Лом — построил яхту «Победа», но во время отплытия две первые буквы её названия отпали с кормовой доски, и она получила название «Беда». И на этой яхте Врунгелю и его (   Читать дальше...   )Производство: СССР / КиевнаучфильмЖанр: Детский, Комедия, Приключения, Рисованная анимацияРежиссер: Давид ЧеркасскийАктеры: Зиновий Гердт, Георгий Кишко, Семён Фарада, Эдуард Назаров, Евгений Паперный, Григорий Шпигель, Вениамин СмеховСубтитры: отсутствуютПродолжительность: 01:57:52
+Фунтик сбежал от своей хозяйки, госпожи Беладонны, потому что не хотел обманывать детей. Хозяйка же думала только о наживе и безжалостно преследовала поросёнка, который мог приносить ей неплохой доход.Жанр: Мультфильм, короткометражкаВ ролях: Армен Джигарханян, Ирина Муравьёва, Ольга Аросева, Юрий Волынцев, Спартак Мишулин, Зоя Пыльнова, Анатолий Баранцев, Георгий Бурков, Борис Рунге, Андрей Колков, Раиса МухаметшинаПродолжительность: 00:10:07 + 00:10:01 + 00:09:52 + 00:09:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3A10B4ACA87F051DD11EAD7E78326E193B257B7
+magnet:?xt=urn:btih:6C59C76EE4C8032C0A90CAB75C735D472006FAF1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663531   (186546) от 22.09.2023
+###  Публикация: 73681   (178650) от 03.12.2020
 
-Жили-были. Сборник мультфильмов (1977-1994) DVDRip
+Кошкин Дом (Реставрация) (1958) [DVDRip]
 
 >>Мультфильмы
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186546.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_178650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник рисованных отечественных мультипликационных фильмов для детей. В него вошли: Жили-были…, Жихарка, Летучий корабль, Волчище - серый хвостище, Богатырская каша, Жили были дед и баба.Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, детскийРежиссер: Николай Титов, Наталия Голованова, Гарри Бардин, Галина Баринова, Александр Мазаев, Иван АксенчукСубтитры: ОтсутствуютПродолжительность: 6 х ~ 00:10:00
+По пьесе-сказке Маршака о том, как загорелся Кошкин дом и о том, что в беде помогут лишь те, кто сами беду и нужду пережили.Жанр: анимацияРежиссер: Леонид АмальрикПеревод: ОригинальныйПродолжительность: 00:28:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:293CA0D026DAE3B930D4CE29FA4E79C661686CFA
+magnet:?xt=urn:btih:66B7F4DBA9EB0B1618AB30E8DF9906D243BB46E9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663414   (186753) от 21.09.2023
+###  Публикация: 66379   (178779) от 03.12.2020
 
-Басни для детей. Сборник мультфильмов (1946-1953) DVDRip
+Баранкин, будь человеком! (1963) DVDRip
 
 >>Мультфильмы
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_178779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник рисованных отечественных мультипликационных фильмов для детей. В него вошли: Ворона и лисица, Кукушка и петух, Квартет, Лев и заяц, Павлиний хвост, Кукушка и Скворец, Слон и муравей, Лиса - строитель, Лесной концерт, Полкан и шавка.Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, детскийРежиссер: Иван Аксенчук, Александр Иванов (II), Борис Дёжкин, Геннадий Филиппов, Владимир Полковников, Леонид Амальрик, Пантелеймон Сазонов, Иван Иванов-ВаноСубтитры: ОтсутствуютПродолжительность: 10 х ~ 00:10:00
+Бездельник и двоечник Баранкин мечтает об одном - ничего не делать. При помощи волшебных превращений он убеждается, что без труда не проживешь.Производство: ФГУП "Киностудия "Союзмультфильм" СССРЖанр: Рисованная анимация, короткометражкаРежиссер: Александра Снежко-БлоцкаяПродолжительность: 00:20:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7D81DB926927CCFCC7AA6CED48CDC8B1E8BD76A
+magnet:?xt=urn:btih:416608D6468392D83EFD491FB414815B244F3FAE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827426   (187998) от 22.10.2025
+###  Публикация: 237520   (178963) от 03.12.2020
 
-Катигорошек (1970) DVDRip [H.264]
+Фантазерка (1999) DVDRip
 
 >>Мультфильмы
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187998.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_178963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мультипликационный фильм по мотивам украинской сказки о том, как у пожилого украинца было три славных сына и красавица-дочка. Но налетел злой смерч и унес всех деток. Заплакала жена, а из слезинки выросла горошинка в виде малюсенького мальчика, Катигорошка, который, вооружившись огромной булавой, отправился братцев выручать. Бился он даже с драконом многоголовым! (   Читать дальше...   )Производство: СССР / КиевнаучфильмЖанр: рисованная анимацияРежиссер: Борис ХраневичСубтитры: отсутствуютПродолжительность: 00:09:36
+Мультипликационный фильм о девочке, которая в своих рисунках-фантазиях пытается разобраться в непростых взаимоотношениях со своими друзьями.Жанр: МультфильмРежиссер: Татьяна ЖитковскаяФормат: AVIПродолжительность: 00:10:02
+
+Файл:
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C57DF5DFDC8A331D03D570412629CD6166A1A29
+magnet:?xt=urn:btih:488EA29B2824467072B00F183D906B493BE4211E
 ```
 
 

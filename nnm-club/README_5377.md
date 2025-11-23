@@ -1,3 +1,176 @@
+###  Публикация: 1673352   (165296) от 01.11.2023
+
+Возвращение Белого Клыка / Il Ritorno di Zanna Bianca (1974) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фильма "Белый Клык"... Действие происходит на Юконе, Канада, в 1899 году... На дороге в Клондайк старый золотоискатель Джон Таруотер и его внук Билл находят собаку по кличке Белый Клык рядом с телом его хозяина-эскимоса, убитого неизвестными преступниками... Писатель Джейсон Скотт возвращается на Аляску для написания новой книги... Сестра Еванджелина (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ), Coralta Cinematografica, Terra-Filmkunst, Les Films CoronaЖанр: драма, приключения, вестернРежиссер: Лучио ФульчиАктеры: Франко Неро, Вирна Лизи, Джон Стайнер, Раймонд Хармсторф, Янти Соммер, Вернер Похат, Ханнелоре Эльснер, Ренато Де Кармине, Гарри Кэри мл., Дональд О`Брайэн, Рольф Хартманн, Джон Барта, Серджо Смакки, Эцио Марано, Витторио ФанфониПеревод: дублированныйЯзык озвучки: русский, итальянскийСубтитры: русские (на места без перевода), английские, итальянскиеПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908820CB7177E945C96D365E31D1112D17A8F4AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597828   (165297) от 16.12.2022
+
+Джон МакКрэй | Червь (Книга 12). Чума (2022) [MP3, Adrenalin28]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 05:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8278FC07DF02E37C783A661EB8A7EB1D22F5DE34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516685   (165298) от 12.12.2021
+
+Neil Young With Crazy Horse - Barn (2021) [FLAC|Lossless|track+.cue] <Country Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song Of The Seasons (06:04)
+02. Heading West (03:22)
+03. Change Ain't Never Gonna (02:53)
+04. Canerican (03:12)(   Читать дальше...   )Жанр: Country Rock, Folk RockПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CF0A93CCA9270153E66C7B80D0A1530E30B904
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673334   (165299) от 01.11.2023
+
+Александр Тамоников | Тамоников. Честь имею. Халхин-Гол. Граница на крови (2022) [MP3, Михаил Полежаев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна 1939 года. В самом разгаре пограничный конфликт между японцами, оккупировавшими Маньчжурию, и Монголией. Советский Союз выступает на стороне монгольского народа. В числе Особого Корпуса РККА, сдерживающего натиск японских захватчиков у реки Халхин-Гол, стрелковая рота капитана Сергея Новикова. Бойцы измотаны многодневными боями. Но враг продолжает упорно штурмовать (   Читать дальше...   )Жанр: БоевикиИздательство: Нигде не КупишьПродолжительность: 09:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F2BBE0C50B45EF35D30BE13F8923CFB5831ACB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345998   (165300) от 17.12.2019
+
+Лилия Ильюшина | Мэтт Грэнвилл, везучий неудачник (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэтью Грэнвилл, притворившись сиротой, приезжает в магический город Карпетаун, чтобы поступить в Школу Магии Дихлофос ради исполнения заветного желания. Герой выполняет задания конкурса на право стать студентом, участвует в состязаниях, попадает в забавные и не очень ситуации и выкручивается из них, используя находчивость, смекалку, магию и помощь окружающих; спасает (   Читать дальше...   )Жанр: Фэнтези, книги про волшебниковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA949981C6C14BE2F37537062F390CDAB56BE259
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432229   (165301) от 16.12.2020
+
+Opera GX 72.0.3815.450 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она ещё может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB2C7B8F38229EC509AB999636C0C40057FBD70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516810   (165302) от 12.12.2021
+
+Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о Сётаро Футабу, старшекласснике, который на последнем году обучения в средней школе загорелся таким видом спорта, как мужская художественная гимнастика. Когда Сётаро зачислили в частную академию Сосюкан, он вступил в кружок мужской художественной гимнастики. В нём он, вместе с остальными участниками клуба, стремится добиться общей цели.Производство: Zexcs / ゼクシズ, Buemon / 武右ェ門Жанр: повседневность, спортРежиссер: Куроянаги ТосимасаПеревод: CrunchrollЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D643E136DF0807DFFC004CBB27B0E6A81B31E5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597780   (165303) от 16.12.2022
 
 Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -6,7 +179,7 @@ Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165303.jpg" />
 </div>
 
 
@@ -33,7 +206,7 @@ Anat Cohen - Claroscuro (2012) Anzic Records [FLAC|Lossless|tracks + .cue] <Mode
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165304.jpg" />
 </div>
 
 
@@ -60,7 +233,7 @@ Doro - Maximum Celebration - Strong and Proud (2023) EP, Promo [MP3|320 Kbps] <H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165305.jpg" />
 </div>
 
 
@@ -87,7 +260,7 @@ magnet:?xt=urn:btih:EE1D5BE4512CF479952CB68B8A296F3F082D3D40
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165306.jpg" />
 </div>
 
 
@@ -111,7 +284,7 @@ magnet:?xt=urn:btih:13A9D34638CE540A804368919BEC6E558E855C1C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165307.jpg" />
 </div>
 
 
@@ -135,7 +308,7 @@ SoundSource 5.5.7 fc1 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165308.jpg" />
 </div>
 
 
@@ -160,7 +333,7 @@ TextMate 2 v2.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165309.jpg" />
 </div>
 
 
@@ -186,7 +359,7 @@ magnet:?xt=urn:btih:174F08812EC19EA8703CBEF1370E6BAE661CEEF1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165310.jpg" />
 </div>
 
 
@@ -210,7 +383,7 @@ Ocenaudio 3.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165311.jpg" />
 </div>
 
 
@@ -234,7 +407,7 @@ Vented - Cruelty And Corruption (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165312.jpg" />
 </div>
 
 
@@ -261,7 +434,7 @@ magnet:?xt=urn:btih:39EFD9E8E8AC9D155F4F286B3B14382A20C4AB5C
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165313.jpg" />
 </div>
 
 
@@ -286,7 +459,7 @@ Alfred 4 Powerpack 4.0.7 (build 1131) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165314.jpg" />
 </div>
 
 
@@ -312,7 +485,7 @@ magnet:?xt=urn:btih:9BE9AA7A3F86839A8B563A9937DF48CF7A77C868
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165315.jpg" />
 </div>
 
 
@@ -336,7 +509,7 @@ magnet:?xt=urn:btih:9CC9C08C2882CEE0D2A73FCAC29423E784F65889
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165316.jpg" />
 </div>
 
 
@@ -360,7 +533,7 @@ magnet:?xt=urn:btih:9FE93BDADEC29FF386CF1E6C3C871B66D341F9C4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165317.jpg" />
 </div>
 
 
@@ -384,7 +557,7 @@ Dropzone 4 Pro v.4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165318.jpg" />
 </div>
 
 
@@ -409,7 +582,7 @@ magnet:?xt=urn:btih:87F0B514A748C33EDB5D4288C697E1C5F2E70B6C
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165319.jpg" />
 </div>
 
 
@@ -433,7 +606,7 @@ Movist Pro 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165320.jpg" />
 </div>
 
 
@@ -459,7 +632,7 @@ Athentech Perfectly Clear Video for Mac 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165321.jpg" />
 </div>
 
 
@@ -471,187 +644,6 @@ Athentech Perfectly Clear Video for Mac 4.2.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8BF65D413709BE3EA85304213393DF3CB410DAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516553   (165322) от 12.12.2021
-
-Little Violet - Code Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz /Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good on Me (3:23)
-02. Silent Movie (3:17)
-03. Code Red (3:49)
-04. Other Side (3:18)(   Читать дальше...   )Жанр: Nu-Jazz /SwingПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59AAB4F3E797AF1B51674AA27EEA249BFB698FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432262   (165323) от 16.12.2020
-
-Bartender 4 v4.0.33 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD417411807D3293DD665790B2A74CF488455AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673276   (165324) от 01.11.2023
-
-Александр Тамоников | Тамоников. Честь имею. Обет на крови (2022) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудники спецназа ГРУ майор Гончаров и прапорщик Власенко выясняют обстоятельства убийства своего сослуживца. Становится известно следующее: в преступлении замешаны те же люди, которые, скрывая лица под масками, совершили несколько кровавых погромов на рынке. Очевидцы утверждают, что хулиганы бравировали нашивками с логотипом местной патриотической организации, (   Читать дальше...   )Жанр: БоевикиИздательство: Нигде не КупишьПродолжительность: 11:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFE913D2B8531C37ECE80B8737160FA31BB4322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673351   (165325) от 01.11.2023
-
-uBar 4 v.4.2.2  [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165325.jpg" />
-</div>
-
-
-###  Подробнее
-
-uBar — это полнофункциональная замена стандартному Доку в OS X. Внешний вид, работа приложения и его возможности сильно приближены к таковым из Windows. При первом запуске программы необходимо разрешить ей доступ к меню настроек «Конфиденциальность» в параметрах Защиты и безопасности. После этого нужно перезапустить само приложение. Теперь обратите внимание на самый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2023Разработчик: © 2009-2022 Brawer Canada IncПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9261733A4DA37D958458DBBF8AACB790604B5946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597758   (165326) от 16.12.2022
-
-Vreid - Solverv (2015) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haust 06:27
-02. Sólverv 06:01
-03. Geitaskadl 08:24
-04. ?tti Sitt Fjedl 07:01(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605DDFC05FB26F1A7C34E6E96B509FFA801043A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432170   (165327) от 16.12.2020
-
-Прыжки с трамплина. Чемпионат мира по полётам на лыжах 2020. Планица (Словения). Индивидуальные соревнования. Квалификация (2020) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по полётам на лыжах 2020. Планица (Словения)
-10 декабря 2020 года
-Трамплин HS 240.
-Индивидуальные соревнования. Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B34CFE6067EEE57A98F8E0610B3E797811E166
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516615   (165328) от 12.12.2021
-
-VA - Nu Cool Covers 1: Pop Classics ReStyled (2017) [AAC|~337 Kbps] <Lounge, Nu Jazz, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik, Alan Scaffardi - Crazy (4:32)
-02. Sugarpie And The Candymen - Toxic (4:00)
-03. Melania - Killing Me Softly (3:31)
-04. Papik, Sarah Jane Morris - Let The Music Play (4:03)(   Читать дальше...   )Жанр: Lounge, Nu Jazz, DowntempoПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654B099412190DD094D918AB0CBEC8293CD179AD
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9191.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XMedia Recode 3.6.1.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9209.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Process Lasso Pro 16.0.1.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9239.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ProfiCAD 13.1.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9252.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIMP 5.40.2689 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9253.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:091A2DA69087650FF0A4E2F2DADC64E14E708B60
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9261.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AnyDesk 9.5.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9271.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ R-Studio Network / Technician 9.5 Build 191580 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9277.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (05.08.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9282.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Adobe Illustrator 2025 29.7.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9294.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ FireAlpaca 2.13.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9310.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Process Lasso Pro 16.0.1.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9355.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v26 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9358.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E091006D0EF13DABF6D3791A4399B80BE1080DDE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9369.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:E091006D0EF13DABF6D3791A4399B80BE1080DDE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9370.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E091006D0EF13DABF6D3791A4399B80BE1080DDE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9389.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:E091006D0EF13DABF6D3791A4399B80BE1080DDE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9391.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:E091006D0EF13DABF6D3791A4399B80BE1080DDE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9406.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:EA3C3560CEF6D96F94E68DACA282EC4CF11EBA73
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9440.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Display Driver Uninstaller 18.1.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9450.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Internet Download Manager 6.42 Build 42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9454.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Flyoobe 0.40.64 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9462.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:BD99438E3E3E8D3EDAA81848F31BBEADAA17623E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9484.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ MemTest86 Pro 11.4 Build 1000  RePack by Taciturn + ISO [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9491.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ iTubeGo YouTube Downloader 10.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9515.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Xiaomi Home (Ранее. MiHome) v10.7.704 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9517.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ SplitCam 10.8.25 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30513.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30513.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C825826DC018B9BCA646F103656F1FC2020A4819
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30514.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9BBB99A5E190690CCA96797D3057E7DAF561FCC6
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30515.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:15910CE2CAD4743514720014DA08206DE302B311
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30516.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ GPS Emulator v2.99 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30517.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30517.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ English LinDuo HD v5.33.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30518.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30518.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D605D18A18FD378BF4AAE3800B701FAEE2C8A3AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30519.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30519.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:904C0C0D63C5F59C89DA4FC64CC47BAD27EE00D3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30520.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30520.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Solid Explorer File Manager v2.8.57 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30521.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Ascold Flow | Вторжение (Книга 4). Академия магоуби
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30522.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30522.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0370C65EB889A0484F3AD6F503DC93646C8DBE8D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30523.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30523.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:10A83A1B2E92C3170B58B308924AD1575508AA98
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30524.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30524.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Night Rider 8 (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30525.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:C818535E274A3E26B05EEBA51F3AD12DB5693D6A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30526.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30526.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:250ADFF7BDBEFFA3102A300C793D524F0A5202D4
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30527.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30527.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:10748C889F900E29EC512C809A1336035BA5766F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30528.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30528.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:CBD18F7870A55F550B0B75A84327D777DB09B6F7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30529.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30529.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ O&O DiskImage Professional 20.1 Build 336 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30530.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30530.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:08FB7C219A4562BF79F7B9F1484A6D4A16493138
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30531.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30531.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:4FBD431430BDBBD583E5E06C4548DD44EE0AD8AB
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30532.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30532.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ FanControl V212 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30533.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30533.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Allavsoft Video Downloader Converter 3.27.8.9146 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30534.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30534.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:1DFC2767E9B0E6EE7AF6E2468A04524E4B74803E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30535.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30535.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30536.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30536.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:797202F5CF1F7B825441FDFAF1061E9D17971431
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30537.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30537.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:B21FD3979C9346427EDB13122FE6B520C161E983
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30538.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30538.jpg" />
 </div>
 
 

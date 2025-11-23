@@ -1,3 +1,27 @@
+###  Публикация: 447841   (74422) от 06.02.2012
+
+Оперативный псевдоним (2003) 2хDVD5+DVD9 (серии 1-12 из 12)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74422.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшом провинциальном городе Тиходонске живет бывший пациент дома умалишенных Сергей Лапин. Он производит впечатление тихого и скромного человека. Однако местные жители знают, что странный мужчина, живущий с рыночной торговкой в состоянии какого-то полузабытья, на самом деле не так прост, как кажется. Сергей очень силен и вспыльчив, причем эта ярость неподконтрольна (   Читать дальше...   )Жанр: Боевик, Криминал, ПриключенияРежиссер: Игорь ТалпаАктеры: Александр Дедюшко, Ольга Прохватыло, Дмитрий Шалов, Владимир Епископосян, Карен Аванесян, Вячеслав Молоков, Михаил Богдасаров, Александр Пашковский, Аристарх Ливанов, Владимир Конкин, Людмила Зайцева, Владимир Рузанов, Эдуард ФедашкоСубтитры: нетПродолжительность: 12 x ~ 00:44:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447849   (74430) от 06.02.2012
 
 Оперативный псевдоним 2. Код возвращения (2005) 2xDVD9 (серии 1-8 из 8)
@@ -6,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74430.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74434.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74449.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74454.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74456.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74474.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ magnet:?xt=urn:btih:AA369209DB2C3C3362E74AA25EB518D990F35716
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74500.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ magnet:?xt=urn:btih:87272A88A5E33B8AE962B1FB729F9369BC4653C0
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74506.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ magnet:?xt=urn:btih:87272A88A5E33B8AE962B1FB729F9369BC4653C0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74513.jpg" />
 </div>
 
 
@@ -225,7 +249,7 @@ magnet:?xt=urn:btih:EC96A0E5CFC86A6BBE839EE36CE9EAD39BB1A135
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74514.jpg" />
 </div>
 
 
@@ -249,7 +273,7 @@ PLASTICZOOMS -  6 альбомов (2009-2012) Дискография [MP3|192, 
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74516.jpg" />
 </div>
 
 
@@ -283,7 +307,7 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74518.jpg" />
 </div>
 
 
@@ -310,7 +334,7 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74519.jpg" />
 </div>
 
 
@@ -338,7 +362,7 @@ magnet:?xt=urn:btih:680D09B76DDE765E92D6C26E1D113E4F33AA799C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74524.jpg" />
 </div>
 
 
@@ -362,7 +386,7 @@ magnet:?xt=urn:btih:F3285618BAB1A350E6CEE53D6C94E3772FEEB719
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74528.jpg" />
 </div>
 
 
@@ -386,7 +410,7 @@ magnet:?xt=urn:btih:F3285618BAB1A350E6CEE53D6C94E3772FEEB719
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74533.jpg" />
 </div>
 
 
@@ -410,7 +434,7 @@ magnet:?xt=urn:btih:F3285618BAB1A350E6CEE53D6C94E3772FEEB719
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74540.jpg" />
 </div>
 
 
@@ -443,7 +467,7 @@ magnet:?xt=urn:btih:B0FB0A490FE94F80FE32E0B0BDD2C111F030E64D
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74545.jpg" />
 </div>
 
 
@@ -467,7 +491,7 @@ magnet:?xt=urn:btih:B0FB0A490FE94F80FE32E0B0BDD2C111F030E64D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74547.jpg" />
 </div>
 
 
@@ -492,7 +516,7 @@ magnet:?xt=urn:btih:9A879CE11AEDDAB9B2ACC52981BE83EA8E0C237D
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74548.jpg" />
 </div>
 
 
@@ -515,6 +539,35 @@ magnet:?xt=urn:btih:C6184011BEDB552935EC9C39341BE9045F7D2C86
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447209   (74549) от 06.02.2012
+
+FLV to AVI MPEG WMV 3GP MP4 iPod Converter 6.0.0124 [английский]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_74549.jpg" />
+</div>
+
+
+###  Подробнее
+
+-поддержка AVI, MPEG, WMV, ASF, 3GP, MP4, PSP, IPOD, ZUNE, MP3, M4A, WMA, WAV и других форматов
+-пакетный режим конвертирования
+-встроен flv декодер
+-настройка параметров конвертирования (битрейд, размер картинки, фреймрейд, fps, NTSC/PAL и других)
+-подключение и настройка кодеков
+-автоматическое выключение компьютера после завершения конвертированияНазвание программы: FLV to AVI MPEG WMV 3GP MP4 iPod ConverterЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447747   (74551) от 06.02.2012
 
 А.П.Попов | Траволечебник. Лечение лекарственными травами [1999] [Pdf]
@@ -523,7 +576,7 @@ magnet:?xt=urn:btih:C6184011BEDB552935EC9C39341BE9045F7D2C86
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74551.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ magnet:?xt=urn:btih:A692AAEA3E36AA497373CFF71A5B6ABF61709598
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74553.jpg" />
 </div>
 
 
@@ -572,7 +625,7 @@ magnet:?xt=urn:btih:A692AAEA3E36AA497373CFF71A5B6ABF61709598
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74557.jpg" />
 </div>
 
 
@@ -598,7 +651,7 @@ magnet:?xt=urn:btih:812EF4F243CBAA093FF5307B9BBCD661C894C4A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74558.jpg" />
 </div>
 
 
@@ -610,66 +663,6 @@ magnet:?xt=urn:btih:812EF4F243CBAA093FF5307B9BBCD661C894C4A7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D377F8400A035DA7A976A74C26E860F3DEBB2835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447467   (74563) от 06.02.2012
-
-The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра начинается с того, что юноша с труднопроизносимым именем Гайбраш Трипвуд (Guybrush Threepwood), желающий стать пиратом, появляется на карибском острове Mêlée (фр. рукопашная схватка, а также свалка).
-Три пиратских лидера назначают ему три задания — найти клад, украсть идола из особняка губернатора острова Элейн Марли (Elaine Marley) и победить мастера фехтования.
-Однако как только Гайбраш выполняет третье задание, пират-призрак ЛеЧак (LeChuck) похищает Элейн и увозит её на остров Обезьян (Monkey Island). Гайбраш, к тому моменту вовлечённый в романтическую связь с Элейн, набирает команду из трёх человек, покупает у торговца подержанными кораблями Стэна корабль и отправляется на поиски таинственного острова, в надежде спасти губернатора.
- На острове Обезьян Гайбраш встречает потерпевшего кораблекрушение отшельника по имени Герман Туфрот (Herman Toothrot), а также обнаруживает поселение каннибалов-вегетарианцев, которые помогают ему найти средство против призрачной команды ЛеЧака.Тип издания: RePackЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A865979D5F04F94A92942B33B456AFC37686E04E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447277   (74570) от 06.02.2012
-
-Microsoft Windows 7 Ultimate SP1 x86 ru OPTIM v.3
-
->>3
->>30
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Урезанный образ сделан на основе
-оригинальной русской версии от 12.05.2011г.
-Целью ставилось не вместить систему на CD, а сделать
-сбалансированный компактный вариант,
-без ущерба полезной функциональности.
-
-Что нового/исправлено:
-- сохранены драйверы принтеров и сканеров Canon, Epson, HP (на остальные жалоб не было)
-- сохранены драйвера модемов
-- удалены драйвера для видеокарт ATI и nVidia - все равно они были бестолковые (у меня свои на АТI ставятся как установщиком, так и с центра обновлений)(   Читать дальше...   )Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

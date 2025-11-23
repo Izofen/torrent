@@ -1,3 +1,179 @@
+###  Публикация: 1677908   (149210) от 19.11.2023
+
+Kollektiv Turmstrasse - Unity of Opposites (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Bass, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kollektiv Turmstrasse - Betwixt 1
+02. Kollektiv Turmstrasse - Distant Love
+03. Kollektiv Turmstrasse - When the Lights Go Lower
+04. Kollektiv Turmstrasse - Betwixt 2(   Читать дальше...   )Жанр: Tech House, Deep House, Bass, ProgressiveПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CC5BE157083BBBA69683B13CA70F36D762E6A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271470   (149212) от 23.12.2018
+
+Облачный атлас / Cloud Atlas (2012) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149212.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении всей истории человечества людей весьма волновал вопрос - что происходит после смерти? Существует ли продолжение, или нет? Фантастический фильм «Облачный атлас», снятый по мотивам одноименного бестселлера Дэвида Митчелла, рассказывает шесть историй реинкарнации одной души, причем две из которых происходят в будущем времени. Масштабная экранизация удивительной (   Читать дальше...   )Производство: Германия, Гонконг, США, Сингапур / A Company Filmproduktionsgesellschaft, ARD Degeto Film, Anarchos PicturesЖанр: Фантастика, Драма, ДетективРежиссер: Лана Вачовски, Том Тыквер, Лилли ВачовскиАктеры: Том Хэнкс, Холли Берри, Джим Бродбент, Хьюго Уивинг, Джим Стёрджесс, Ду На Пэ, Бен Уишоу, Джеймс Д`Арси, Жу Жу, Кит Дэвид, Дэвид Гяси, Сьюзен СарандонПеревод: Дублированный, авторский одноголосыйСубтитры: Русские, английские, немецкие (Вшитые, отключаемые)Продолжительность: 2:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848D4B4D9A6D526583C6EA9BE12A7B8248BAAB04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968878   (149213) от 26.12.2015
+
+О.В. Бесов | Лекции по математическому анализу (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник соответствует программе МФТИ и содержит теорию пределов, дифференциальное и интегральное исчисление функций одного и нескольких переменных, числовые и функциональные ряды, тригонометрические ряды Фурье, преобразования Фурье, элементы нормированных и гильбертовых пространств и другие темы. Он написан на основе лекций, читаемых в течение многих лет в МФТИ автором (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DCF829D35D31561CA40A88D7ECCC4D58943C7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086786   (149214) от 25.12.2016
+
+Н.Г. Цед, В.М. Андрейчук | Первый шаг к кунг-фу (1990) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана мастером спорта Н.Г. Цедом и мастером спорта В.И. Андрейчуком, призером всесоюзных и республиканских соревнований по самбо и дзюдо, одним из авторов учебника "Рукопашный Бой".
+В книге рассматриваются физические упражнения Боевых видов Искусств Восточных Единоборств; описываются принципы приемов и действий; содержатся рекомендации, с чего (   Читать дальше...   )Жанр: Учебно-методическое пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949D3B9FC897E367BDDC64AEB01E18D6DED9B01F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968180   (149215) от 26.12.2015
+
+В.А. Шахнов (ред.) | Проектирование источников электропитания электронной аппаратуры (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы схемотехнического и конструкторского проектировании низковольтных и высоковольтных источников электропитания электронной аппаратуры различного назначения, а также их особенности, определяемые характеристиками систем автономного электроснабжения, характером нагрузки и условиями эксплуатации. Приведены справочные данные для курсового и дипломного (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F677B952A4465C4E997516D0509DB8FA68B528F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434719   (149216) от 25.12.2020
+
+VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+M3U|MC-Rip] <Pop, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martina McBride - The Christmas Song (Chestnuts Roasting on an Open Fire)
+White Christmas
+1999 - RCA - Torme / Wells
+02. Gene Autry - Here Comes Santa Claus(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18222DBA370B7760BEA224CAFAA0BA9818724C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677975   (149217) от 19.11.2023
+
+Джон Гришэм | Вердикт (2023) [MP3, Сергей Нафронович]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный, казалось бы, процесс по иску вдовы американца, умершего от рака легких, против табачной корпорации… Ничто не предвещает неожиданностей.
+Но могущественные «теневые команды» стремятся навязать суду нужный им вердикт, и жюри присяжных вдруг становится совершенно неуправляемым…Жанр: триллер, детективИздательство: АудиокнигаПродолжительность: 16:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E06C54EA030478A6D03F8DA544D48570D73F4D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086743   (149218) от 25.12.2016
 
 Проекты - VideoHive - Hybrid Teaser - 17270240 [AEP]
@@ -6,7 +182,7 @@
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149218.jpg" />
 </div>
 
 
@@ -30,7 +206,7 @@ magnet:?xt=urn:btih:DCDEB921729EA3E36E90DC9D574579528C48A935
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149220.jpg" />
 </div>
 
 
@@ -54,7 +230,7 @@ magnet:?xt=urn:btih:D8F71DA4CFC7C6F911451872BEB1DD32389B94F7
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149223.jpg" />
 </div>
 
 
@@ -78,7 +254,7 @@ magnet:?xt=urn:btih:4DD6D23F47E4C79EA4472257F35DFBE064E927ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149225.jpg" />
 </div>
 
 
@@ -102,7 +278,7 @@ ACDSee Ultimate 10.2 Build 878 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149226.jpg" />
 </div>
 
 
@@ -126,7 +302,7 @@ magnet:?xt=urn:btih:5396726C751909E4639CD1700E4047DFC0A420BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149227.jpg" />
 </div>
 
 
@@ -151,7 +327,7 @@ Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149228.jpg" />
 </div>
 
 
@@ -178,7 +354,7 @@ magnet:?xt=urn:btih:713D92E1AEEB4B5901650A791B91191832F27A8B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149229.jpg" />
 </div>
 
 
@@ -202,7 +378,7 @@ magnet:?xt=urn:btih:50252FBB93A901D982B8FB4B852F177B56226696
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149230.jpg" />
 </div>
 
 
@@ -226,7 +402,7 @@ VA - Зайцев.нет Новогодняя вечеринка (2020) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149231.jpg" />
 </div>
 
 
@@ -251,7 +427,7 @@ Adler - Back From The Dead (2012) [MP3|320 кб/с]<Hard Rock / Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149232.jpg" />
 </div>
 
 
@@ -284,7 +460,7 @@ magnet:?xt=urn:btih:C4973FD644B4FB0CA6D81F4B1CC7820F48683A67
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149234.jpg" />
 </div>
 
 
@@ -308,7 +484,7 @@ magnet:?xt=urn:btih:3F99050B320C68CFF389357692CCAD3F9F13A54A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149235.jpg" />
 </div>
 
 
@@ -332,7 +508,7 @@ magnet:?xt=urn:btih:2ED3098337F966E24112BE54A5E6366E4EF544BB
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149236.jpg" />
 </div>
 
 
@@ -356,7 +532,7 @@ magnet:?xt=urn:btih:52B435C92F71D2A316F3227109B9FEF00AC221D4
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149238.jpg" />
 </div>
 
 
@@ -380,7 +556,7 @@ VA - 100 Greatest Rap (2020) Explicit [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149239.jpg" />
 </div>
 
 
@@ -407,7 +583,7 @@ Enigma Virtual Box 9.90 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149241.jpg" />
 </div>
 
 
@@ -432,7 +608,7 @@ magnet:?xt=urn:btih:73DC4A30840BFAE51842E2E0781C6C503D46C7D6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149242.jpg" />
 </div>
 
 
@@ -456,7 +632,7 @@ magnet:?xt=urn:btih:755581F10393135C513268EF29089FBFF5BAE0DE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149244.jpg" />
 </div>
 
 
@@ -467,179 +643,6 @@ magnet:?xt=urn:btih:755581F10393135C513268EF29089FBFF5BAE0DE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:972B77C9BB3E22365C1C64BB3854254DC4AA2E05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086730   (149245) от 25.12.2016
-
-Проекты - VideoHive - Christmas - 19169491 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas - проект для создания Рождественского пожелания или другого праздничного приветствия!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A96125472F128E837C457557BF8F1D54083E4EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513556   (149246) от 23.12.2021
-
-Джиперс Криперс / Jeepers Creepers (2001) BDRip [H.264/1080p-LQ] [Remastered]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделав ужасное открытие в подвале старой заброшенной церкви, Триш и ее брат Дэрри едут домой. Но обычное ежедневное путешествие на машине оборачивается ужасающей гонкой, приз в которой — их жизни. Тинейджеров преследует неуничтожимая сила, охотящаяся на них с азартом хитрого хищника, обнаруживая в названии старой песенки «Jeepers Creepers» бездны нового смысла самого (   Читать дальше...   )Производство: США, Германия / American Zoetrope, Cinerenta Medienbeteiligungs KGЖанр: Ужасы, Триллер, Детектив, ДрамаРежиссер: Виктор СальваАктеры: Джина Филипс, Джастин Лонг, Джонатан Брек, Патриша Белчер, Брэндон Смит, Айлин Бреннан, Пегги Шеффилд, Джеффри Уильям Эванс, Патрик Черри, Джон БешараПеревод: ДублированныйСубтитры: Русские, английские (full, SDH)Продолжительность: 01:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0367084B7F77209FBB7F7C8DECABD94BF9F3055A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425352   (149247) от 25.12.2020
-
-Хрустальный гроб / Стеклянный гроб / El ataud de cristal (2016) WEB-DL [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роль аутистки Дезири в инди-фильме "Пустошь светлячков" становится переломной в карьере молодой актрисы авангардного театра Аманды, превратив её в кинозвезду мировой величины. Спустя 20 лет Аманда получает престижную кинопремию. Однако вместо церемонии вручения лимузин везет её к расплате за прошлые грехи.
-Психологический триллер испанского режиссера Харица (   Читать дальше...   )Производство: Испания / Basque Films, Byp Media, Demeter FilmsЖанр: триллерРежиссер: Хариц ЦубиллагаАктеры: Паола БонтемпиПеревод: Двуголосый закадровый (ViruseProject)Субтитры: русские, английскиеПродолжительность: 01:16:54Реклама: нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70382F5A42788DB34333AAB9A683F63B22FE4E5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677682   (149248) от 19.11.2023
-
-VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kbps] <Tech House, Melodic House, Hard Dance, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz - Guess Who's Back
-02. Yellow Claw & Juyen Sebulba - Do You Like Bass? (Headhunterz Edit)
-03. Joy Kitikonti - Joyenergizer (Dr. Rude Remix)
-04. Headhunterz - The Flame Inside(   Читать дальше...   )Жанр: Tech House, Melodic House, Hard Dance, TranceПродолжительность: 06:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047A47758A64AAE104C218E3C44AF4534244A86E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588321   (149251) от 15.12.2012
-
-GOM Player 2.1.47 Build 5133 Final [English]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149251.jpg" />
-</div>
-
-
-###  Подробнее
-
-GOM Player - мультимедийный плеер для систем Windows. Не уступающий похожим по качеству воспроизведения видео, по скорости загрузки и по удобству использования – это один из лучших мультимедиа плееров на настоящий день! Соответствующей специфичностью этого проигрывателя является умение проигрывать много медиа-файлов без необходимости в сторонних кодеках, благодаря встроенной поддержке большинства распространенныхкодеков. Сверх того существует неповторимая возможность проигрывания повреждённых либо недогруженных файлов.Название программы: GOM Player 2.1.47 Build 5133 FinalЯзык интерфейса: English
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519203   (149252) от 23.12.2021
-
-MAGIX Sound Forge Pro 15.0 Build 161 (x64) RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149252.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOUND FORGE вот уже более 20 лет задает стандарты в том, что касается работы со звуком. SOUND FORGE Pro задаёт ориентиры для уже не первого поколения продюсеров, мастеров звукозаписи и артистов. SOUND FORGE Pro позволяет записывать, обрабатывать и восстанавливать звуковой материал с высочайшим выходным качеством звука. Трансляция, запись CD или потоковое воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D61E056B2328476C2CEDBA982646C7CB710468
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271428   (149253) от 23.12.2018
-
-Олег Данильченко | Лузер (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на глазах оживают ночные кошмары, а по окрестностям бродят живые мертвецы, просто доживать не получиться!
-Жизнь у каждого складывается по-разному. Кому-то фартит, а кого-то записывает в неудачники, и вот ты уже не живешь, а доживаешь по привычке. Исчезли куда-то друзья-приятели, близких ты тоже больше не интересуешь, а тут еще возраст давит на психику. Как (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 17:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B55386565B0448543B4F3555F7EBC7D10A03520
 ```
 
 

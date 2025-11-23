@@ -1,3 +1,27 @@
+###  Публикация: 1661600   (188339) от 15.09.2023
+
+Уральские пельмени. Истина в кине (2023.09.15) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Верещагин ушел с баркаса. Когда Москва поверила слезам. И когда заливная рыба стала радостью. Можно начинать смотреть новую программу «Истина в кине» от Шоу «Уральские Пельмени»!Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3030226F53EF896221280D027184A4625E25DEEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661734   (188453) от 15.09.2023
 
 Однажды в России (03.09.2023) WEBRip [H.264/1080p]
@@ -6,7 +30,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188453.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188453.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:BA87CDDFBF3B5B3D62728E6418901780B1FE53A4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189005.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189005.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:9FFCED672A94524FD7353AFA0A85EA2A086EB4E7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189279.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189279.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:FDB5BEB07CD8C56146DBD24739EFCDE080A34109
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189515.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189515.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:4C55CE83C8E07BEB704259E17C5799480B39627C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189534.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189534.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:B229C7ACB8003258C0D0C9F0867686411A2D7A83
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191288.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191288.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:B4A056B19804265F0C109DB2E513F617802084DC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191517.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191517.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:321C864674E47018291AD77DB98CCD9353CCF58B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192269.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192269.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ magnet:?xt=urn:btih:40C9CF940800764CDCAF9571D52485AB1CDB2768
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193175.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193175.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ magnet:?xt=urn:btih:F1C90954897E101054A33A40CA4CF1AF231DDF84
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193397.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193397.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ magnet:?xt=urn:btih:901A4076E2D57D0EEACFDB9C6FEE487455544958
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193399.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193399.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ magnet:?xt=urn:btih:DE538C03A2F1E6819AE70AEC0E6E37CB4584F9B9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194343.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194343.jpg" />
 </div>
 
 
@@ -298,7 +322,7 @@ magnet:?xt=urn:btih:3402D313C44D4DA0180AA5C036C8F3D9DC9F899F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196148.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196148.jpg" />
 </div>
 
 
@@ -322,7 +346,7 @@ magnet:?xt=urn:btih:FA6F937DF13113F029CAAA34012258FFCAA9AFAA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196387.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196387.jpg" />
 </div>
 
 
@@ -346,7 +370,7 @@ magnet:?xt=urn:btih:E0CE638A44FA2E27B8997FB18F3CACEFAC858513
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198155.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198155.jpg" />
 </div>
 
 
@@ -370,7 +394,7 @@ magnet:?xt=urn:btih:371799BDB802CA253B5987A4C68004A802560D09
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199146.jpg" />
 </div>
 
 
@@ -394,7 +418,7 @@ magnet:?xt=urn:btih:D4D8EB874BB91B2D5B66F5C2E17B7B721D1734C4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199159.jpg" />
 </div>
 
 
@@ -418,7 +442,7 @@ magnet:?xt=urn:btih:123C0A9F9828019DAE85D5E88ADA944A8CFDDF86
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199166.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199166.jpg" />
 </div>
 
 
@@ -442,7 +466,7 @@ magnet:?xt=urn:btih:5944C6D9E0E73A4A5E552424C8A75D232A8DCDFF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199417.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199417.jpg" />
 </div>
 
 
@@ -466,7 +490,7 @@ magnet:?xt=urn:btih:AC546B8634FE0160B890958B546BE36371F7D7D5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199469.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199469.jpg" />
 </div>
 
 
@@ -490,7 +514,7 @@ magnet:?xt=urn:btih:A976C397224598E11FEABE348F6FFED056765777
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199491.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199491.jpg" />
 </div>
 
 
@@ -514,7 +538,7 @@ magnet:?xt=urn:btih:F43F8558CA2739748E6182720F03221928C7E19A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199493.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199493.jpg" />
 </div>
 
 
@@ -538,7 +562,7 @@ magnet:?xt=urn:btih:0E5129B7B774195535AA0BADE87A1D993691814E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199809.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199809.jpg" />
 </div>
 
 
@@ -562,7 +586,7 @@ magnet:?xt=urn:btih:36F95F3DC5E13A056D9C6B5268C1F5D6BD01C492
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199813.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199813.jpg" />
 </div>
 
 
@@ -586,7 +610,7 @@ magnet:?xt=urn:btih:AD7A9350F2B490203FA1E3B93BB9F59C397DCC88
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199857.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199857.jpg" />
 </div>
 
 
@@ -597,30 +621,6 @@ magnet:?xt=urn:btih:AD7A9350F2B490203FA1E3B93BB9F59C397DCC88
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09940978288D70D1F31BE8CB4B3C93F6ADC3DF8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626078   (199896) от 12.04.2023
-
-Уральские Пельмени. Космос Наш (12.04.2023) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он сказал: «Поехали!». Мы ответим: ЕСТЬ!Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59E5A4413A33FF18D1B558FCDA7159F5A16022E
 ```
 
 

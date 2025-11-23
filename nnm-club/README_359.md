@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:217657DEE59F202F9CE3EEB14CCCFE4CBCB9AA86
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9478.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ No Plan B (2024) [Ru/Multi] (1.2/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9479.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9480.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cent Browser 5.2.1168.57 (DC 17.07.2025) Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9481.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Craft The World (2014) [Ru/Multi] (1.11.006/dlc) Repack Pioneer
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9482.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1D1555E3961C4783A42E213ACAE63B90ED8BB78A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9483.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:655C43D5802FC9179FDAE3BA1A54D2919D576B81
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9484.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/Multi] (11.1) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9485.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B523D720BDAB1F3F1FC75E258F2EFED58D0F2272
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9486.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Decepticon [Campaign]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9487.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:59D0143ED86D63EE53A21F99ECEEDA221FAB8685
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9488.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cosmoteer: Starship Architect & Commander / Cosmoteer: Конструктор и
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9489.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:16771DF67AABC98F270CC811D975C79BB4E61707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9490.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MemTest86 Pro 11.4 Build 1000  RePack by Taciturn + ISO [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9491.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:325DF70E35C21E1223DF1CE9A649EFB0B2DDD640
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9492.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6897358/dlc) License GOG [Digital
 >>38
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9493.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ UALinux RescuePack v.25.08 (Antivirus LiveDisk) (август 2025) [En] (обн
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9494.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:97825357D9D1425E29D3550A446A6EEBADA12B2B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9495.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:7299BB8B3191016F011DBB27295AE92D6E115F2F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9496.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:6957D8FB31A3D9A35580E5844B3C9A483545D501
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9497.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B0F7D94D6578E13FEF6E94682B1B8A4289F422A4
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9498.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Adobe Photoshop 2025 26.9.0.15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9499.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:433B2649F88E842819EC2945782182825935C38B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9500.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9501.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Internet Download Manager 6.42 Build 42 RePack by elchupacabra [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9502.jpg" />
 </div>
 
 

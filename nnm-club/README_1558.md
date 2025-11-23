@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40862.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.41 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40863.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Paul McCartney - McCartney (1970) SHM-CD, Japanese Edition, Reissue, 2024, MPL �
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40864.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40865.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Wings - Wings Wild Life (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40866.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ The Smile - Cutouts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40867.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tablacus Explorer 24.10.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40868.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Shadowrunner - The Stranger (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40869.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - The Orient Collective - Divine Oracle (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40870.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Smoothies - SoulFingers (Soul Velvet Nights) (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40871.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA -  Dance to Trance Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40872.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Our Graves - System Overload (2024) [MP3|320 Kbps] <EBM, Industrial, Dark Electr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40873.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Hardy - Мир Криминала (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & H
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40874.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Juke Joint, The Everblades - Can’t Slow Me (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40875.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Steve Roach - One Day of Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Amb
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40876.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40877.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:90AFCD3E5053246F7E579222DF1327ED89F739FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40878.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (1.0.96.0927.1622) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40879.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ FastCopy Pro 5.8.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40880.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:60CB416C9D651844B1C5738BDA1358C89884C93E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40881.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:325EB6DC1C835F2CBA6A78BCEDB88BAD1AD44591
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40882.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ TikTok 36.7.4 Mod by Dmitry Nechiporenko + Plugin 1.55 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40883.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:50AAF0D97D6AB485233C61F361840881386AACC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40884.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:B7CC273D5E29CDDE3736A02E44547450721599F1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40885.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Opera One 114.0.5282.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40886.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Google Chrome 129.0.6668.101 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40887.jpg" />
 </div>
 
 

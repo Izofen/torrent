@@ -6,7 +6,7 @@ Tarja Turunen - Circus Life (2025) Live in Bucharest [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66791.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bury Tomorrow - Will You Haunt Me, With That Same Patience (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66803.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66826.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Blood Incantation - Timewave Zero (2022) EP [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66834.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Believer - Dimensions (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66858.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Gong - I See You (2014) 10th Anniversary, Mix, 2025, Kscope Music [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66886.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Sleep Token - Even In Arcadia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66887.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Little Feat - Strike Up The Band (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Cla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66889.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ The Kooks - Never-Know (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt. Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66891.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Thin Lizzy - The Acoustic Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66894.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ The Smoke Kings - Where Are Your Demons? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66910.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Tad Robinson - Soul In Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66911.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Mezcaleros - No Way Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66913.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Kurt Deimer - And So it Begins (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66915.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Star Overdrive - Star Overdrive 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66917.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Stam - A Bit Edgy (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66922.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Raise Hell - Studio Albums (5 releases) (1998-2015) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66924.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Believer - Sanity Obscure (1990) Released 1991, R/C Records [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66944.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Carrion - Evil Is There (1986) [FLAC|24/96|image + .cue|Vinyl-Rip] <Speed, Thras
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66950.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Manowar - Fighting the World (1987) [DSD128|Lossless|image + .cue|Vinyl-Rip] <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66962.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Blood Incantation - Hidden History of the Human Race (2019) [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66973.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Joe Marcinek Band - The Groove Session (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66994.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Joharpo - Last Tides of Magnolias (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66995.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Leadpetal - Glass Teeth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66996.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Fuel for the Dogz - Puppy Massacre (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66997.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Kevin Moan & The Howling - Big Milk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66998.jpg" />
 </div>
 
 

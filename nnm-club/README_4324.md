@@ -1,3 +1,83 @@
+###  Публикация: 1681398   (133119) от 02.12.2023
+
+VA - The Best Of Suanda Music 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & NoMosk & Christina Novelli - Lost Soul (Extended Full Fire Mix) [6:14]
+02. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
+03. SMR LVE & Caitlin Potter - Love Story (Extended Mix) [6:57]
+04. Roman Messer & Six Mists & Jaki Nelson - Just Be You (Extended Mix) [6:23](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9BF95B8ADA3B8EE138F8E3DFB00CD5C98850881
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594769   (133120) от 27.12.2012
+
+Шнитке - Concerto Grosso no. 1, Quasi una sonata, Moz-Art а la Haydn, A Paganini: Kremer, Gridenko, Smirnov, Schiff (2010) [FLAC|Lossless]<Classical, Modern, Avant-garde>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto Grosso no. 1 (1976-77)
+01 (1) Prelude: Andante
+02 (2) Toccata: Allegro
+03 (3) Recitativo: Lento
+04 (4) CadenzaЖанр: Classical, Concerto, Modern, Avant-gardeПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681348   (133121) от 02.12.2023
+
+Вольтер | Орлеанская девственница (2013) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для своей поэмы Вольтер использовал один из драматических эпизодов Столетней войны между Францией и Англией – освобождение Орлеана от осаждавших его английских войск. Замысел поэмы возник, очевидно, в 20-е годы XVIII в. Работал над ней Вольтер медленно, с большими перерывами. Первые песни были написаны к началу 30 – концу 40 гг.
+Первое анонимное франкфуртское издание (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэмаИздательство: Нигде не купишьПродолжительность: 07:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AA8A1522AFB0E1210C0AEBD725D71AB81BF202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681253   (133123) от 02.12.2023
 
 Зелёный человек / The Green Man (1956) BDRip [H.264/720p] [VO]
@@ -6,7 +86,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133123.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ Elvis Presley - If Every Day Was Like Christmas (1994) [FLAC|Lossless]<Rock, Bal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133124.jpg" />
 </div>
 
 
@@ -63,7 +143,7 @@ VA - The Best Of Suanda Future (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133125.jpg" />
 </div>
 
 
@@ -90,7 +170,7 @@ magnet:?xt=urn:btih:1111C150D8ADD53CD92B0CC998A41AACCB83A2CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133126.jpg" />
 </div>
 
 
@@ -116,7 +196,7 @@ VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133127.jpg" />
 </div>
 
 
@@ -143,7 +223,7 @@ magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133129.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ magnet:?xt=urn:btih:2F67436D466ABEE7E504BF97CFDDF334642CC651
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133130.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ magnet:?xt=urn:btih:652FBFAFC1F65283340D485BCDE64322BBC3B7D4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133131.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ magnet:?xt=urn:btih:B499D1975A61C1BDE22A927CD3E25129E437F018
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133132.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133133.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ magnet:?xt=urn:btih:B684BF5413A937344BE1AAD36B4E56952AA1A9DB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133135.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ Robben Ford - Night In The City (Live) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133137.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ Zola Moon - 7 Альбомов (1995 - 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133138.jpg" />
 </div>
 
 
@@ -358,7 +438,7 @@ Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133139.jpg" />
 </div>
 
 
@@ -385,7 +465,7 @@ magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133141.jpg" />
 </div>
 
 
@@ -410,7 +490,7 @@ magnet:?xt=urn:btih:D16A9E2BA9AFB8431DDCCCB0569CAA48A1686012
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133142.jpg" />
 </div>
 
 
@@ -434,7 +514,7 @@ magnet:?xt=urn:btih:3897A907EFDBD659658F68ABEEEA4B316D4F02D2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133143.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ magnet:?xt=urn:btih:6101DA33E2B2701E15709273C385F03FD1C3E871
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133144.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ VA - Crate Digging - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133147.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ Lucky Troubles - The Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133148.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ magnet:?xt=urn:btih:920D59FBC5EA130D3AE20A5F9E7BD5E15AECA4E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133149.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ VA - Jingle Bell Jam: Jazz Christmas Classics (1994) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133150.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133154.jpg" />
 </div>
 
 
@@ -607,84 +687,6 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9BADD56A7DFD3759161AB5303CFF874FFF40DFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681030   (133155) от 02.12.2023
-
-Копенgаgен - От счастья до меланхолии (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сколько стоит меланхолия? [00:01:29]
-02. Хаос [00:03:33]
-03. 12/60 [00:03:32]
-04. Сердце справа [00:04:01](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7D82D1B1C40D3F04795D2BC379A13707F905E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681351   (133156) от 02.12.2023
-
-Игры разумов (2023) WEBRip [H.264/1080p] (выпуск 30)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальный поединок двух известных людей в телешоу «Игры разумов». В гости к знатокам, известным экспертам и интеллектуалам будут приходить звезды, чтобы на равных сразиться в «разумной» битве. В каждой игре будут вопросы, связанные с профессией или увлечением гостя. Именно он выбирает тему, в которой, как ему кажется, он может превзойти таких профессиональных (   Читать дальше...   )Производство: Россия | "2В Медиа"Жанр: Телепередача, интеллектуальное шоуУчастники: Олег Солнцев, Анатолий ВассерманСубтитры: РусскиеПродолжительность: 00:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE457028955D819B2DCB4FE2F8C456CBF98B82FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681259   (133157) от 02.12.2023
-
-Citizen Soldier - ICU (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterlife [00:03:22]
-02. Comparison [00:03:28]
-03. Broken Like Me [00:02:52]
-04. Alone With Myself [00:02:51](   Читать дальше...   )Жанр: Alt.Metal, Modern RockПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B214E6AE6E63729541BC64EBC1238AF84A574B
 ```
 
 

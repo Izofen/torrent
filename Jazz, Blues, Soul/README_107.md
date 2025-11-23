@@ -6,7 +6,7 @@ Timo Gross - Black Dawg Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120794.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jean Paul Rena - A thief known for stealing hearts (Silver edition remaster 2024
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120926.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120928.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lone Star Mojo - A Shot of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120958.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The liberators - A Ride Out of Town (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120959.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Madcat's Roughriders - Madcat's Roughriders (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120962.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eva Carboni - In the Name of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120977.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cyrus Chestnut - My Father's Hands (2022) HighNote Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121086.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kenny Hughes - Born & Raised (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121087.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Toshiyuki Miyama & New Herd - Misty (1982) 1985, SMS Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121095.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Erik Andresen's Quartet - GIP (1971) 2018, Jazzaggression Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121100.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Misha Tsiganov - Playing With The Wind (2018) Criss Cross Jazz [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121246.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Maestros Del Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121263.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Beegie Adair & Friends - Jazz Romance: 15 Sentimental Love Songs (2016) Green Hi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121266.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Beegie Adair & Monica Ramey - Some Enchanted Evening (2016) Green Hill [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121273.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dave Brubeck Quartet - Debut in the Netherlands 1958 (1958) 2022, The Lost Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121276.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Instrumental Wedding Music Zone, Relaxing Piano Music - Sexual Sounds (2019) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121278.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Relaxing Carefree Romantic Smooth Jazz Ride (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121288.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Talent Blues Condensed Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121313.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Susannah McCorkle - How Do You Keep The Music Playing? (1985) 2000, The Jazz All
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121668.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ V.A. - Chillout Covers Collection Vol.6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121700.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rosalba Piccinni - Rosa che s'inchina (2024) [MP3|320 Kbps] <Jazz, Pop>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121701.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Aaron Diehl & The Knights - Zodiac Suite (2023) Mack Avenue [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121707.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Howard Alden & Jack Lesberg - No Amps Allowed (1988) Chiaroscuro Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121817.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Bernard Allison - Luther's Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121849.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Bobby "Blue" Bland - Blues At Midnight (2003) Limited Edition [FLAC|Lossless|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121856.jpg" />
 </div>
 
 

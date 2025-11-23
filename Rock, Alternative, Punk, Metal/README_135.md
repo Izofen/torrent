@@ -6,7 +6,7 @@ Cardiac Arrest - A Parallel Dimension of Despair (2018) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109373.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cardiac Arrest - The Day That Death Prevailed (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109374.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jeff Kollman - 2023 A.D. (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Guit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109377.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bat - Under The Crooked Claw (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109390.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:66E1FE26637F71D7139BD674309F91B7A79FFA2A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109397.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Eat Defeat - My Money's On Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109400.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109406.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sun Moon Holy Cult - Sun Moon Holy Cult (2024) [FLAC|Lossless|WEB-DL|tracks] <st
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109410.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Zelenaya - Folk Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <doom metal, fusion, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109411.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cardiac Arrest - Cadaverous Presence (2008) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109413.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cardiac Arrest - Morgue Mutilations (2006) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109415.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Night Hearth - La noche de los sueños perdidos (2024) [MP3|320 Kbps] <Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109422.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Neal Morse Band - Innocence & Danger (2021) [FLAC|Lossless|tracks + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109423.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1F2FEC41D8790CEAD5AD2152F1CF3961431CDB37
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109424.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Demon - Invincible (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109426.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Stonehand - Алхимия (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109427.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shokran - Duat (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109432.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kalac - Odyssee (2024) [FLAC|Lossless|WEB-DL|tracks] <space rock, fuzz, kraut>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109434.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109442.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Elvellon - Ascending in Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109443.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Demon - Invincible (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109449.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jonathan Young - Sea Shanty Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109450.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Universe III - Universe III (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109451.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Collective Soul - Here To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109453.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ayreon - 01011001 - Live Beneath The Waves (2024) 2 x CD [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109462.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:B18FA5FF4B5D7FF3186142BD10217C73706C44D7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109470.jpg" />
 </div>
 
 

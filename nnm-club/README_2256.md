@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59021.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CB52139999E823B7FD89C47D31DAD4A11C60C320
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59022.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8FC13BE91D764213D9FF65536E48C428846F9777
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59023.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59024.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D91B2861806073B5C28D10FB464412FED2C44459
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59025.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack FitGirl [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59026.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2E348610FC941A2FFFABC29DA0004C090B2DCB14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59027.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ BBC: Мир природы. Водопад Виктория - Гремящий �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59028.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:EF4F6FAD370C59C8E520631CD29F50992E285CB0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59029.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7F387D0B9AD37BB7476D35FFB1DE44F1466A78E4
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59030.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:16AE6BDC8E73D1635808E2DE89E401CDD455DC81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59031.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E01676BBE3DA2655D0AF45EA47293D2581023D93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59032.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7F008812874BF061ED21692115E8BD13034D1C07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59033.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:7F008812874BF061ED21692115E8BD13034D1C07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59034.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Jonesville (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59035.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:F8CB3731FED50F8EF92E3CD60BD6F0471FDDC25F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59036.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:AD629EA962AD0C88C590796057AB02D7011378CC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59037.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:71FF038C88AE7FD2BE756787A455D0E75BF5E1E9
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59038.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C89FD8046565F4C285150FED2D8DA9D29FFB923E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59039.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:DAACC2DBCEE392872C6E0C1E28B0B0627FB5AAD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59040.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:30E6849790056AD82E6FEAB6E136623236A0DD7E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59041.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:3E95267C2440402D6CFC038D00CFFEACB3472172
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59042.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:11F4A22AB15D58FE872E4A6724458ABE30F639E4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59043.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:5042BFEEC0A9E3FA95B12B80BBE2FA0F6A183F20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59044.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:A641C6154585ACF65B2B442776F698242EE363D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59045.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:E2AA5249ED4842FC014C635E59DA22D4AB76A1A7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59046.jpg" />
 </div>
 
 

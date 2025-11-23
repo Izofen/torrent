@@ -6,7 +6,7 @@ Manowar - Into Glory Ride (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68166.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D02F775B466B95E010A29E6106B235F5B197E988
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68167.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mr. Jazzek - Swing Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68168.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - 25 Years Of Anjuna Mixed By Eli & Fur (2025) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68169.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:A0E3B0AE57BD63ED3029F25181AB91DFF7816B14
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68170.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:8933E4ACBC29ED2A57075E408AD47E323FD73812
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68171.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:22B06533643735760B7BBFF8487C07D54574BF6A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68172.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:B2BDAE3A7B25105FE9DDEAD6D879470BFCFE2080
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68173.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Moon Destroys - She Walks By Moonlight (2025) [FLAC|Lossless|WEB-DL|tracks] <psy
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68174.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Grammy 2017 Nominees (2017) [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Funk / So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68175.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:00FB1739E7D9D48C78BEB987062A1E4581ADC205
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68176.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:6899664AC8679D43725F50A5F5F68B3C8A3FB47D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68177.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:5FF365E4D8B5F89583B07751C8858C798F7675B6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68178.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:8D145F5FDAAC6CA7CF171EAE7B4AA0D5807E7FA1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68179.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Новые хитовые песни 2025, Часть 4 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68180.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:5D1CDCEEE54FCD586F98AE4551B09138264F4622
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68181.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:0471D956140B20C87E02B75671B6C0D38943D25B
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68182.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:FBE17CB3987B63B9A952B0AF545A4E932E8FACDE
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68183.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Vocal Trance Legends - Esmee Bor Stotijn (2025) [MP3|320 Kbps] <Trance, Voc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68184.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Spatial Vox - Collection (2025) [MP3|320 Kbps] <Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68185.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:E835B11EC4245D2582C10E792953A1FEC85EDCDE
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68186.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:0D849078E686B910E0C05027A84BC5C589D0F254
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68187.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Nomo no kuni | The Land of NOMO | Земля НОМО [2025, Web] WEB-DL 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68188.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:F337BEA8A77BBA92D1F13F595DC62AAB4B88CED7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68189.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Плакала весна (Красивые весенние песни) (2
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68190.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:069D425906C11C1B191FFCCE9EE43B1C9BCFCF00
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68191.jpg" />
 </div>
 
 

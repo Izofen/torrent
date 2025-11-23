@@ -6,7 +6,7 @@ Pentiment (2022) [Multi] (1.0.1212) License Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175226.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175226.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Surge (2017) [Ru/Multi] (55623) License GOG [Augmented Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176157.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176157.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176408.jpg" />
 </div>
 
 
@@ -70,6 +70,30 @@ magnet:?xt=urn:btih:9D267BF2AAD6A9DA457953645577BAFF8B6E6FF3
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526257   (178873) от 29.11.2022
+
+Dust to the End (2021) [Ru/Multi] (1.0.1) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ядерные войны положили конец человеческой цивилизации, какой мы ее знаем, несколько счастливчиков укрылись в подземных убежищах, проведя застойный, но безопасный век под разрушенной землей. Когда радиация в конце концов рассеялась, выжившие вернулись на поверхность, чтобы начать восстановление цивилизации. К сожалению, человечество не смогло извлечь уроки из (   Читать дальше...   )Тип издания: RepackРазработчик: Haojoy Game, Zjoy GameЖанр: Simulation (Survival), Adventure (Open World), Strategy, RPGЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88AC4EDEEACCFC14848310F32BECBD15B3AB89D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666359   (179172) от 04.10.2023
 
 UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -78,7 +102,7 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179172.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179172.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179877.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179877.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ Bound By Blades (2022) [Multi] (1.7.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181340.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181340.jpg" />
 </div>
 
 
@@ -142,6 +166,30 @@ magnet:?xt=urn:btih:63423784FDB69841C2A1A3747D88C7065B2C5475
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103691   (181730) от 29.11.2020
+
+Earthlock: Festival of Magic (2016) [Ru/Multi] (1.1.0/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Earthlock - приключенческая ролевая инди-игра с новыми возможностями пошагового боя и развития персонажей. Earthlock: Festival of Magic заставит попотеть даже опытных стратегов. Спаси Umbra - таинственную планету, которая перестала вращаться тысячи веков назад. Решив спасти дядю Amon из тисков древнего культа, ты окунешься в увлекательное приключение. Вместе с группой (   Читать дальше...   )Тип издания: LicenseРазработчик: SnowCastle GamesЖанр: RPG (Rogue, Action), 3D, IsometricЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470B103CCCB9A3AF6DD5C0B4D1EA6C12B6FAD999
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665379   (182046) от 30.09.2023
 
 The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
@@ -150,7 +198,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182046.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182046.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183420.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183420.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183497.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183497.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184767.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184767.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Diablo II (2000) [En] (1.14d/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186086.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186086.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ PAYDAY 3 (2023) [Ru/Multi] (1.0.0.0.624677) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186134.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186134.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187269.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187269.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Swords and Fairy 7 (2021) [Multi] (2.1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187854.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187854.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ XEL (2022) [Ru/Multi] (1.0.7.3/dlc) License GOG [Save the World Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188290.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_188290.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ XEL (2022) [Ru/Multi] (1.0.7.3/dlc) License GOG [Save the World Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188291.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_188291.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188357.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188357.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188640.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188640.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188688.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188688.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Gordian Quest (2020) [Ru/Multi] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189864.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_189864.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License PLAZA [Enhanc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190344.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190344.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Lovecraft's Untold Stories 2 (2022) [Ru/Multi] (0.9.049b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191169.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191169.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Danger Forever (2022) [En] (845) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191884.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191884.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191994.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191994.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBB0A5F08CCFE26A4CAEB10B425D1393BCD8F76B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657519   (192472) от 03.09.2023
-
-Starfield (2023) [Multi] (1.7.23.0/dlc) Repack DjDI [Premium Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starfield - первая более чем за 25 лет новая игровая вселенная от Bethesda Game Studios, авторов The Elder Scrolls V: Skyrim и Fallout 4. В этой космической ролевой игре вы сможете создать любого персонажа и исследовать вселенную так, как вам этого хочется. Раскройте величайшую тайну человечества. В 2330 году люди осваивают планеты за пределами Солнечной системы. (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Action, RPGЯзык озвучки: Английский, Немецкий, Испанский, Японский и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B551DA421222C619383A66F3A2755C4E6D8F14C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828021   (193742) от 23.10.2025
-
-Shining Resonance Refrain (2018) [Multi] (1.00.1618) Repack Necros
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shining Resonance Refrain - это ролевая игра в жанре экшен, которая является улучшенной версией игры Shining Resonance, изначально выпущенной на PlayStation 3 в Японии. Действие разворачивается в мире, где жизнь человека управляется судьбой, а сюжет вращается вокруг борьбы героя Юмы Илверн и его друзей, помешайте Империи использовать силу древних драконов. Заручитесь (   Читать дальше...   )Тип издания: RepackРазработчик: Media.Vision, Sega, O-TWO inc.Жанр: Приключенческая игра, ролевая играЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Корейский, Китайский (Упрощенный)Язык интерфейса: Английский, Японский, Корейский, Китайский (Упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E3EEAEF4CC57AF987B68DECAB7543D8709A2A8
 ```
 
 

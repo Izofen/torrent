@@ -6,7 +6,7 @@ Trapsix - Scenery (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122137.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Darzamat - Studio Albums (7 releases) (1996-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122140.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gotus - Gotus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122155.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Project 86 - OMNI, Pt. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122157.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Metalite - Expedition One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122175.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Saxon - Hell, Fire And Damnation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122178.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122326.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Greg Puciato - FC5N (2024) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Mathcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122343.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bagual - Inhumar (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Psych/Stoner/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122344.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hannah Wicklund - The Prize (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122489.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Elegy - Graveflowers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122493.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lair - The Hidden Shiv (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122494.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122507.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122519.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Fixed Trio - Talladega (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122704.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sean McKee Band - In This Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122719.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chris Wragg and Greg Copeland - The Last Sundown (2024) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122722.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Vesta Lugg - Muy Mucho (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122736.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Asking Alexandria - Dark Void (2024) EP [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122738.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Charles Aznavour/Шарль Азнавур - Поёт Шарль Азнавур 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122760.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122875.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Cocteau Twins - Four-Calendar Cafe (1993) Remastered, 2024, 4AD [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122906.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:167A0EC352332212A41769DB1448B0342B32A129
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122911.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cocteau Twins - Milk & Kisses (1996) Remastered, 2024, 4AD [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122913.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Beyond The Black - Beyond The Black (2023) Deluxe Edition, 2024, Nuclear Blast [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122917.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Living Colour - Vivid (1988) Remastered, 2023, Epic / 1988 Sony Music Entertainm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122918.jpg" />
 </div>
 
 

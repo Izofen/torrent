@@ -1,3 +1,75 @@
+###  Публикация: 1614099   (202524) от 21.02.2023
+
+Талисман (2003) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Талисман - это сочетание жанров экшен и RPG. По сюжету игры Талисман различные напасти постепенно ослабляют мир Талисмана - как междоусобные конфликты местных правителей, так и проявления нечистой силы. Но это кажется мелочами на фоне того, что пропала куда-то столица мира - древний город Кияж. Ваш персонаж, как житель Кияжа, чудом избежавший печальной участи, (   Читать дальше...   )Тип издания: LicenseРазработчик: Buka EntertainmentЖанр: Action, RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FA17AEDA5F8F3938BA0DB8109C41894E737D71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611634   (202746) от 12.02.2023
+
+Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просто невозможно отказаться, когда великий Один требует найти и поймать своего домашнего любимца, волка Фенрира. Вернуть домой зверька, способного уничтожить весь мир, по плечу только Гномам. Добрые и бескорыстные, готовые перегрызть глотку любому, кто косо взглянет на их безбородые физиономии или осмелится разинуть рот на последнюю бочку эля. Но удастся ли им получить (   Читать дальше...   )Тип издания: LicenseРазработчик: Spieleentwicklungskombinat GmbH, General ArcadeЖанр: Стратегия, Приключение, МенеджментЯзык озвучки: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6C77E9ECD6FF90187BD7F1D6B692ECB4F83BBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609295   (203228) от 02.02.2023
+
+The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_203228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земли Кирандии исчезают пядь за пядью, и вам, неординарной юной чародейке, предстоит проникнуть в центр мира, чтобы разрушить проклятье. Это сюрреалистическое приключение заставит пораскинуть мозгами самых проницательных. Путешествуя по огромному странному и прекрасному миру, вы будете варить зелья, творить заклинания и привлекать на помощь очень странных жителей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Приключeние, Квест, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF2391A085175863DDC654EFFF5FDB613EEBBE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608919   (203267) от 01.02.2023
 
 The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) License GOG
@@ -6,7 +78,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203267.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203267.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ El Matador (2006) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204692.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204692.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204709.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204709.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204741.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204741.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205214.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205214.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205681.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205681.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206016.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206016.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Styrateg / Западная граница (2006) [Ru] (1.0) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206060.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206060.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Warhammer 40 000: Chaos Gate (1998) [Ru] (1.2 Hotfix 3) Repack Other s
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206554.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206554.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206956.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206956.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Secret Agent (1992) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206971.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206971.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207047.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207047.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207448.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207448.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207598.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207598.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Twinsen's Little Big Adventure 2 Classic (1997) [Multi] (3.2.4.3/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207645.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ Star General (1996) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207750.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207750.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207895.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207895.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207954.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207954.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ Arsenal of Democracy: A Hearts of Iron Game (2010) [Ru/Multi] (1.12) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208248.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208248.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208506.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208506.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ Driver: Parallel Lines (2007) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208740.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208740.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ Strike Commander (1993) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208889.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208889.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ The Legend of Kyrandia - Book One (1992) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209314.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209314.jpg" />
 </div>
 
 
@@ -545,78 +617,6 @@ The Legend of Kyrandia – трилогия в жанре квеста, кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:022C2680FB9E13AE5E16D166F8F3D272DA18E381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572479   (209447) от 29.08.2022
-
-Silent Hunter 5: Battle of the Atlantic (2010) [En] (1.2) License ViTALiTY
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209447.jpg" />
-</div>
-
-
-###  Подробнее
-
-В продолжении знаменитого сериала Silent Hunter вы сможете примерить на себя форму командира немецкой субмарины и отправится в Атлантику и Средиземное море на войну с силами флота Союзников. Вас ждут поистине кинематографические битвы посреди бескрайних морских просторов. Отныне враги не будут для вас бездумным мясом, действие всех кораблей (будь-то транспортные (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft RomaniaЖанр: Simulator (Submarine), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B3C5822EC6B8A65BF63CA3CDB850BE13D56BD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645131   (209502) от 08.07.2023
-
-Transport Giant (2004) [Ru/Multi] (2.30) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сейчас 1850 год - мир меняется. Началась новая эра массового производства и массовых перевозок. Для умного бизнесмена существует множество возможностей. Имея немного денег и хорошие идеи, вы можете основать бизнес-империю. На каждом углу появляются новые компании. Мир нуждается во всех видах товаров, и рост городов резко ускоряется. Но как товар попадает к покупателю?Тип издания: LicenseРазработчик: Fancy Bytes, ReactorЖанр: Стратегия, Симулятор, МенеджментЯзык субтитров: Русский, Английский, Китайский, Чешский и другиеЯзык интерфейса: Русский, Английский, Китайский, Чешский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EB43086E94F28DE2556994E42FB70977BCE080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604730   (209951) от 15.01.2023
-
-Dark Reign + Expansion (1997) [En] (1.4hotfix/dlc) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Reign + Expansion – это мини-сборник, куда вошла оригинальная игра и дополнение к ней. Проект относится к жанру RTS. Сюжет повествует о борьбе двух сторон: Imperium и Freedom Guard. Расширение добавляет новые карты и ещё пару фракций: Shadowhand и Xenites. У тайтла научно-фантастический сеттинг.Тип издания: LicenseРазработчик: AuranЖанр: Стратегия, В реальном времени, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CC7F0E5EF927D9741B00B0485047E03B9CFCC3
 ```
 
 

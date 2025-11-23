@@ -1,3 +1,75 @@
+###  Публикация: 1699091   (117988) от 12.02.2024
+
+Михаил Зощенко |  Рассказы о Ленине (1986) [PDF] [AM]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Այս գիրքը գրված է երեխաների համար, Միխայիլ Զոշչենկոյի կողմից։ (   Читать дальше...   )Жанр: Рассказы (Պատմվածք)Перевод: Геворг Айрян (Գևորգ Հայրյան)Язык: Армянский (հայերեն)Издательство: «Советакан Грох» («Սովետական գրող»)Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DFA5372E0391E8CD4EF7A9D24E99511AC8CF7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699336   (117989) от 12.02.2024
+
+Revo Uninstaller Pro 5.2.5 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D31FA1940CA8966B646459C48AA3B57ACD15702
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699324   (117990) от 12.02.2024
+
+PicPick Free+Pro 7.2.7 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117990.jpg" />
+</div>
+
+
+###  Подробнее
+
+PicPick - приложение, объединяющее в себе возможности простого графического редактора и утилиты для захвата изображений с экрана компьютера. PicPick обладает простым и удобным интерфейсом. Среди особых возможностей стоит выделить возможность захвата целого рабочего экрана (в том числе, и на мультимониторных системах), захват только активного окна, отдельной области, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E591453603339A0DB7304D9745374763B74DC22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699172   (117991) от 12.02.2024
 
 Ростислав Плятт | Без эпилога (2008) [MP3, Юрий Заборовский]
@@ -6,7 +78,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117991.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:B30332724BDBFB0D68235346A49BA5B88E9692AF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117992.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:F4D432D5847C016AD0A1569EC152821ABA8BAB1D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117993.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Sumatra PDF 3.6.15961 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117994.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:1C1F5B2C1EB998CA5CC1C8832898AA0270C9A560
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117995.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:CFBB4DFBA8E9BEF680366862E3F2ABFF70EF01CA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117996.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Aiseesoft Video Converter Ultimate 10.8.16 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117997.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117998.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:E41E757840E2686DA97D19D1784617D90799210C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117999.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:60D7DB7CD70FDF8AC3D6419DD1B9AF0E74F55DA8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118000.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Clint Langley | Артбук художника Clint Langley / The Art of Clint
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118001.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:1FEC29DEC643AA085A4FD01E46D5A575204608EC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118002.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:D48C14F01EBCC9EC4417476A48F941EAFD10B7A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118003.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ magnet:?xt=urn:btih:ED4AEBF8B97E85BC384A2577462770844E616955
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118004.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ magnet:?xt=urn:btih:BA3EF27DEF9C15754A33CFA9F6F7511CF757F0E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118005.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:7D6B526ED3C799364BDEBB7DF4B4AA027137D762
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118006.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:9F276ADBE318ECBC94A55E7BD906272230A9C2FA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118007.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ USB Device Tree Viewer 4.0.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118008.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Spotify 1.2.29.605 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118009.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ magnet:?xt=urn:btih:0FFA1AD4308267CDE262F8A6B64801CAC99AE3D3
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118010.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:C6125804549D2CF38C4F3DC4D12CC4374719B1F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118011.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ magnet:?xt=urn:btih:ED2874A29B22D4D8E6DBC95BE4D7A6FDFD7D1BDC
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118012.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:A867B04680DC206207F06436C73059D0EBBF5099
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118013.jpg" />
 </div>
 
 
@@ -558,78 +630,6 @@ magnet:?xt=urn:btih:A867B04680DC206207F06436C73059D0EBBF5099
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0228126B9067689B3075CAD998961214E1F0971
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699205   (118014) от 12.02.2024
-
-На пределе / Aus dem Nichts (2017) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катя, молодая женщина, теряет мужа и сына в результате теракта неонацистов. Она всевозможными способами пытается заглушить боль утраты и даже хочет покончить с собой. Когда же суд оправдывает убийц, Катя идёт на крайние меры...Производство: Германия, Франция, BKM, Bombero International, Canal+ (fr)...Жанр: драма, криминалРежиссер: Фатих АкинАктеры: Дайан Крюгер, Дэнис Москитто, Нуман Аджар, Самия Мюриэль Шанкрен, Йоханнес Криш, Ульрих Тукур, Ульрих Брандхофф, Ханна Хильсдорф, Джем Акын, Йула БудалиПеревод: профессиональный многоголосый, любительский двухголосый, авторскийЯзык озвучки: русский, немецкийСубтитры: русские, английские, немецкиеПродолжительность: 01:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7BC95B0D54129910A125F3477DE1ECE1EF0307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699287   (118015) от 12.02.2024
-
-Злой умысел / Malicious (2023) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейный уик-энд Маккейбов принимает неожиданный поворот, когда таинственный незнакомец стучит в их дверь.Производство: США, Канада / Bruise Productions, Take No Prisoners ProductionsЖанр: ТриллерРежиссер: Джон ФэллонАктеры: Кевин Интердонато, Ник Бэйли, Мелисса Аншуц, Аликс Шварц, Джон Фэллон, Данило РочаПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:07Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38F0B5B949B337B3ECCEF775A6D785B493A49C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698101   (118016) от 12.02.2024
-
-Создан уникальный процессор с ядрами одновременно ARM и RISC-V
-
->>Компьютеры и комплектующие
->>Компьютерные новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sophgo создала процессор SG2000 и его модификацию SG2002, внутри которых одновременно уживаются ядра с архитектурами RISC-V и ARM. CPU рассчитан на работу с Android и Linux, но предназначен в первую очередь для устройств интернета вещей. Также в его составе есть ядра, с логикой, копирующей возможности микроконтроллера Intel 8051 44-летней давности. В начале 2024 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

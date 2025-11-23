@@ -6,7 +6,7 @@ Giorgio Moroder & Raney Shockne - Queen of the South (Original Series Soundtrack
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71096.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Emin - Юбилейный концерт со звездами (Live) (2025) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71106.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Be'lakor - Studio Albums (5 releases) (2007-2021) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71110.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fates Warning (Arch/Matheos; Ray Alder) - Studio Albums (18 releases) (1984-2023
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71122.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Kovenant (Covenant) - Studio Albums (4 releases) (1997-2003) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71136.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ We Sell The Dead - Studio Albums (2 releases) (2018-2020) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71138.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Folterkammer - Die Lederpredigt (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71139.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ David Rose - Let It Slide (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71161.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Peter Kern - Guitar Man (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71166.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Pep'sBrown - I Fell In Love (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rhythm 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71167.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ The Hellacopters - Overdriver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Garage
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71168.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Nicole Zuraitis - Siren songs volume 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71170.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Zaza Desiderio - Osmoses (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71172.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ The 2:19 - Keep My Will Strong (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71174.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Salah Khaili & Eric D Larsen - Out of the Blues (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71177.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Kadi Vija 3 - Freedom (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71178.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ In Vain - Solemn (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Death/B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71181.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Exu - The Exu (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71182.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Rui Fernandes - Para Dois Corações (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71183.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ David Rose - Romantic Dining Music (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71185.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Robin Verheyen, Billy Hart, Drew Gress - Liftoff (2025) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71198.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Omnium Gatherum - Studio Albums (10 releases) (2003-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71200.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Mogwai - The Bad Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <post-rock, A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71236.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) Live [FLAC 24/96|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71246.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Decius - Decius Vol. II (Splendour & Obedience) (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71253.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Deep Forest - Live Machine (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71262.jpg" />
 </div>
 
 

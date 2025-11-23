@@ -1,3 +1,76 @@
+###  Публикация: 1432122   (165255) от 16.12.2020
+
+Privacy Eraser Free 5.6.0 Build 3756 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFEE721DD41020252D4F004F2FB51AEBD6AC76B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345944   (165256) от 17.12.2019
+
+iTrash 5.0.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165256.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTrash - утилита для удаления приложений с вашего Mac, которая использует специальный алгоритм поиска (расстояние Левенштейна), чтобы найти все связанные файлы для последующего удаленияТип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: OSXBytesПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE7C0051FAB9DECBDC595B2FB04E72E4CA2B842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673401   (165257) от 01.11.2023
+
+WinTools.net 23.11.1 Classic / Professional / Premium RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165257.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1074E5DE1EBB1562194EA7DF7249C0E86AFF68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432184   (165258) от 16.12.2020
 
 Scrivener 3 v3.2.2 [En]
@@ -6,7 +79,7 @@ Scrivener 3 v3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165258.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ Skype 8.67.0.96 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165261.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ DMG Canvas 3 v3.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165262.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Tinderbox 9 v.9.5.1[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165267.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ HDCleaner 1.321 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165269.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ TagScanner 6.1.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165271.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ Opera GX 102.0.4880.117 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165279.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ BBEdit 14.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165281.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Pale Moon 32.5.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165286.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ MarsEdit 4 v.5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165288.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ Timemator 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165292.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ Navicat Premium 15.0.24 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165295.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ Opera GX 72.0.3815.450 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165301.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ SoundSource 5.5.7 fc1 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165308.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ Ocenaudio 3.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165311.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ Alfred 4 Powerpack 4.0.7 (build 1131) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165314.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ Dropzone 4 Pro v.4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165318.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ Movist Pro 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165320.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ Athentech Perfectly Clear Video for Mac 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165321.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ Bartender 4 v4.0.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165323.jpg" />
 </div>
 
 
@@ -500,7 +573,7 @@ SiteSucker 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165331.jpg" />
 </div>
 
 
@@ -525,7 +598,7 @@ n-Track Studio Suite 10.0.0.8158 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165333.jpg" />
 </div>
 
 
@@ -549,7 +622,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.1.47 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165343.jpg" />
 </div>
 
 
@@ -562,80 +635,6 @@ DxO PhotoLab 4 ELITE Edition 4.1.1.47 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F88F934C39D974A129C4AF3B43F7F056D9020BC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597914   (165347) от 16.12.2022
-
-Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A0D15809670B8E6D1B8CB5D6FBF28776197BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432197   (165348) от 16.12.2020
-
-Tweak and Tuneup 4.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tweak and Tuneup представляет собой набор мощных инструментов для повышения производительности вашего Mac. Эти инструменты включены в одно приложение и являются исключительными для обслуживания и повышения производительности.
-Вы не должны чистить вручную, чтобы сэкономить место на диске. Чтобы увидеть магию Tweak and Tuneup сделайте один клик кнопкой мыши на любом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB5C11310F29FC1224D371A71266D6B31C634B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432124   (165352) от 16.12.2020
-
-Disk Clean Pro 5.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Clean Pro - это приложение с высоким рейтингом, которое удаляет ненужные файлы и данные с вашего Mac. Он надежно очищает избыточные файлы и гарантирует, что ваши важные данные никогда не окажутся под угрозой.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Systweak SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1AE86E0C92012D51895274C691D70ED42EE1B8
 ```
 
 

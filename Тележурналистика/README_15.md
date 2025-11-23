@@ -1,3 +1,53 @@
+###  Публикация: 1663572   (186567) от 22.09.2023
+
+Следствие вели... (03.09-17.09.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти уголовные дела гремели на весь Советский Союз. По ним были написаны романы и сняты художественные фильмы. Их фигуранты - миллионеры эпохи социализма, хитроумные воры, профессиональные грабители и валютчики. Они бросили вызов советскому обществу. Вызов приняли лучшие сыщики страны. В их распоряжении не было компьютеров, сотовой связи и бойцов ОМОНа. Но это не (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:44:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776F92C70522A55C1DA37E3DB53C626F5924C978
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591723   (186912) от 19.11.2022
+
+Живая еда с Сергеем Малозёмовым (19.11.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный завтрак – как приготовить его по науке? И что необычное едят по утрам в разных странах? Как регулярный отказ от завтрака влияет на вес и самочувствие? Что полезнее по утрам – яйца или каши? Стоит ли есть перед тренировкой? И как, не жертвуя сном, быстро приготовить что-то вкусное?
+
+Соевый соус – неприглядная правда о его производстве. На что в составе надо (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A1F8F6CEE9A79222D6DFF5D63B74FD92DA721B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662336   (188077) от 17.09.2023
 
 Чудо техники с Сергеем Малозёмовым (17.09.2023) WEBRip [H.264/720p]
@@ -6,7 +56,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188077.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188077.jpg" />
 </div>
 
 
@@ -32,7 +82,7 @@ magnet:?xt=urn:btih:0D894D730AF7CFFFC9223EAE0B09451999FC0BCC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188252.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188252.jpg" />
 </div>
 
 
@@ -59,7 +109,7 @@ magnet:?xt=urn:btih:683D8336A963228A46160605C4980CC7AB2C6559
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188376.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_188376.jpg" />
 </div>
 
 
@@ -84,7 +134,7 @@ magnet:?xt=urn:btih:591C16DB2FDA1852D2729AE5239B3FD6C8C984F9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189147.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189147.jpg" />
 </div>
 
 
@@ -108,7 +158,7 @@ magnet:?xt=urn:btih:5D9EBA001F9D5B00E7388123E1E6F5DEF1D0BC19
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189438.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189438.jpg" />
 </div>
 
 
@@ -134,7 +184,7 @@ magnet:?xt=urn:btih:450B4EA927F7186810700B12FE94A821640E2C57
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189572.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_189572.jpg" />
 </div>
 
 
@@ -158,7 +208,7 @@ magnet:?xt=urn:btih:EDFA79168402E4D31D1593D97B2587F7D42A00C4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190565.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190565.jpg" />
 </div>
 
 
@@ -184,7 +234,7 @@ magnet:?xt=urn:btih:9A35DB241724F838F095870E3A6BA480BD67B70D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190977.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190977.jpg" />
 </div>
 
 
@@ -211,7 +261,7 @@ magnet:?xt=urn:btih:101B3B9CDC6AB9672F4243FC5C0A33865EDB598A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191103.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191103.jpg" />
 </div>
 
 
@@ -235,7 +285,7 @@ magnet:?xt=urn:btih:3640C418E109E0F3F39C3E09462CC777B632DDD0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191224.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191224.jpg" />
 </div>
 
 
@@ -259,7 +309,7 @@ magnet:?xt=urn:btih:3A35F3C0C9B864D3D6C9DFF05836B3720C7F7E7F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191252.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191252.jpg" />
 </div>
 
 
@@ -283,7 +333,7 @@ magnet:?xt=urn:btih:20ADF3A3495EA2A6612B3227D131FED734BDAFA2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191400.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191400.jpg" />
 </div>
 
 
@@ -307,7 +357,7 @@ magnet:?xt=urn:btih:A32044D8E282A10C0AB2AE6A25808BA4FCFE0E27
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192701.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192701.jpg" />
 </div>
 
 
@@ -333,7 +383,7 @@ magnet:?xt=urn:btih:F233BCE051E7F685732E8E8393173AC4E8518357
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192940.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192940.jpg" />
 </div>
 
 
@@ -357,7 +407,7 @@ magnet:?xt=urn:btih:DBC0D9C7238D6C31E26F9D99E30E6C3CA08CAB54
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193068.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193068.jpg" />
 </div>
 
 
@@ -383,7 +433,7 @@ magnet:?xt=urn:btih:D74D20E5E3F5EDAE4236D4AE1FA793F1D505D532
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193252.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193252.jpg" />
 </div>
 
 
@@ -407,7 +457,7 @@ magnet:?xt=urn:btih:7D8E28A2987B43884C04AAAC78FE4E8C09EBE690
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193855.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193855.jpg" />
 </div>
 
 
@@ -431,7 +481,7 @@ magnet:?xt=urn:btih:4976754995C756789932340A62E9C4131B8D4FD0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195560.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195560.jpg" />
 </div>
 
 
@@ -455,7 +505,7 @@ magnet:?xt=urn:btih:9BCD026709F492B3C8D8DEF6754A4A69BB1FC723
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198525.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198525.jpg" />
 </div>
 
 
@@ -479,7 +529,7 @@ magnet:?xt=urn:btih:9FCFF985BFE34721A1EC9EE9837C22E25FDCE2F5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202126.jpg" />
 </div>
 
 
@@ -504,7 +554,7 @@ magnet:?xt=urn:btih:A06DD853ED1D6CB837BD4C5F852B737747979481
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202409.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202409.jpg" />
 </div>
 
 
@@ -531,7 +581,7 @@ magnet:?xt=urn:btih:24F9597859350F02D94E5F863A4DED8302C7321C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202482.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202482.jpg" />
 </div>
 
 
@@ -555,7 +605,7 @@ magnet:?xt=urn:btih:2026FB09EBD0A9AF61DD38E43297AECB47A0E562
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204038.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204038.jpg" />
 </div>
 
 
@@ -581,7 +631,7 @@ magnet:?xt=urn:btih:0E380F88E1BB7AE5E2B80DD0ABD65135E59561C0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206723.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206723.jpg" />
 </div>
 
 
@@ -592,54 +642,6 @@ magnet:?xt=urn:btih:0E380F88E1BB7AE5E2B80DD0ABD65135E59561C0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAA9E00A19F8CA22AA24DB069D9CB977B0124491
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642858   (210221) от 29.06.2023
-
-15 минут позора / 15 Minutes of Shame (2021) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм об истоках и последствиях травли, спродюсированный Моникой Левински. Проект «15 минут позора» посвящен проблеме буллинга в современном мире. Он состоит из историй людей, которые подвергались публичному унижению — это смелые и честные рассказы, тревожные и подчас шокирующие. Создатели фильма попытались разобраться, что движет инициаторами травли (   Читать дальше...   )Производство: США, Six WestЖанр: документальныйРежиссер: Макс ДжозефУчастники: Макс Джозеф, Моника Левински, Джон РонсонПеревод: двуголосый профессиональный (Amedia)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF0A7C3BCAB2299E2B62C9DCEF5C5A1283AD7C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927184   (210567) от 13.08.2022
-
-Гибель "Курска" - следственный эксперимент (2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210567.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 лет прошло с момента гибели атомной подводной лодки "Курск". До сих пор пишутся книги, снимаются фильмы, вспоминаются погибшие моряки. Казалось бы, "Курск" - давно уже история. Но масштаб катастрофы и переживание этого горя всей страной - не отпускают...Почти два года длилось расследование этой катастрофы. Отрабатывались разные версии гибели (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ДокументальныйПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4459E7DCF8631C00C2D69E74A078C5E4553E41
 ```
 
 

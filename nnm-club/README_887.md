@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23399.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23399.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A7E23FD6690DB1A7708C392BA7EA6D35CE12535E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23400.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EA53AD334590ABC240138C21612AC06A3E356DD9
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23401.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23401.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Icebound Secrets: The Frostwood Bane (2025) [Multi] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23402.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23402.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:74FC73ED536E79D81AEE2AA28AC1A870CA33EB46
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23403.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Sonic Academy - ANA 2 2.5.5 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23404.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23404.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:146410F4DF8DAAE3D55E24130FB0736C3963BDD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23405.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23405.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ RegCool 2.032 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23406.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Telegram Desktop 5.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23407.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23407.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Polarr v6.11.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23408.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:996CBAC5383870752F7E1472010C6E9E934B360F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23409.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Compilation Part 150 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23410.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23410.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F39991D01D822C96722F60F507B638B6C73CAD04
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23411.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Brave Browser 1.76.81 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23412.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B99A83D0A7426AA1F529776A688B122D7CB0871D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23413.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:600200DC659332FDDE19118593A358919141FF45
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23414.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23414.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:D90D7D1B9AF50C3B1B8B230C62A6ED8B3D4BEBFE
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23415.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23415.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Firefox Browser 136.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23416.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:3B29D08FCE70C326EA2789D81D61C478E5421850
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23417.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:36D826951934AAB25B9882DFD3CEC9AC850532BA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23418.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:B20A3160154848FA1E5D4AEC961523366DE9146A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23419.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23419.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:D58C53C7F0F4576B13083A0A489C9FDB64572834
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23420.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:2D3475DF2860F4C7D0AA2CAADF19DBD1FDFA8F58
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23421.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:C21A3A8E8B071100A3E6CA545B18706E83908058
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23422.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23422.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:DE0D7D2F90BA208DDB102954E5D7947BE156B231
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23423.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Material Pods: батарея AirPods v6.63 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23424.jpg" />
 </div>
 
 

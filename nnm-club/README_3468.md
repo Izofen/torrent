@@ -1,3 +1,81 @@
+###  Публикация: 1722245   (109850) от 10.05.2024
+
+VA - Music News vol.374 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сола Монова - Миу Миу Мяу (03:11)
+ 002. Adam Marcos feat. Foldes & Alessa - Worthy (02:36)
+ 003. Akcent - Miracle Of Love (02:51)
+ 004. Akris & Teddy - Растопи Мой Лёд (Tarzan Kurtizan Remix) (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614642DBF168825236991978C3D813E1192A7AED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722079   (109851) от 10.05.2024
+
+Ричард Ферт-Годбехер | Эмоции. Великолепная история человечества (2022) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масштабное и увлекательно написанное исследование того, как эмоции повлияли на ход человеческой истории и как наше восприятие эмоций эволюционировало вместе с нами.
+Нам, людям, нравится думать о себе как о разумных существах, которые как вид полагались на интеллект, чтобы выжить. Но многие из самых важных моментов в нашей истории не имели ничего общего с холодными (   Читать дальше...   )Жанр: Всемирная историяПеревод: О. БыковаИздательство: Манн, Иванов и Фербер (МИФ)Формат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7F3C7F5D85B6BE944519A5D737E7B68903DAC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722291   (109852) от 10.05.2024
+
+Кейт Хавари | Путеводитель ботаника по цветам и судьбам (2024) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1923 год.
+Непростое время для женщины, страстно желающей продвинуться в академических кругах. Но Шафран — девушка необычная. Она уже раскрыла опасное дело о ядах и заодно спасла университет от банкротства, а теперь ей доверили вести собственное исследование! Кажется, все мечты сбылись, но стук в дверь меняет абсолютно все…
+В Лондоне объявился серийный убийца: (   Читать дальше...   )Жанр: Мистика, Зарубежный детективПеревод: Кристина Руснак, Елена ТеплоуховаИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B208DE8E16EDACF8C5DA04D23583B102091370BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722358   (109853) от 10.05.2024
 
 MediaHuman YouTube Downloader 3.9.9.92 (0509) RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +84,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109853.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109854.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ WinToUSB Technician 8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109855.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ magnet:?xt=urn:btih:01C84CD6FABF49F374A4B2E37EABC02B83CB0580
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109856.jpg" />
 </div>
 
 
@@ -102,7 +180,7 @@ Fitify: Фитнес тренировки дома 1.71.1 Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109857.jpg" />
 </div>
 
 
@@ -126,7 +204,7 @@ magnet:?xt=urn:btih:126FC88CAF16D78CDCFF07CA2194A5A53EBB1489
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109858.jpg" />
 </div>
 
 
@@ -150,7 +228,7 @@ magnet:?xt=urn:btih:69C7BABC4928A24F84B6D5392E0FF923717BF6F9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109859.jpg" />
 </div>
 
 
@@ -174,7 +252,7 @@ magnet:?xt=urn:btih:128E4BD0434CA512E9D6F8C6FF9B70AA0594ECFE
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109860.jpg" />
 </div>
 
 
@@ -198,7 +276,7 @@ Lynx - Claws Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Glam M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109861.jpg" />
 </div>
 
 
@@ -225,7 +303,7 @@ Brodequin - Created to Kill (2002) Split [FLAC|Lossless|image + .cue] <Brutal De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109862.jpg" />
 </div>
 
 
@@ -252,7 +330,7 @@ magnet:?xt=urn:btih:6D31A1FDE2971DF883ECDFBE637B2E474F8F3753
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109863.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ magnet:?xt=urn:btih:C54A8625E78022018F8F1768191AA59A9C45FFFE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109864.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ magnet:?xt=urn:btih:9FDCA1421DACD7514D883033363BE9AA4CBCA857
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109865.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ magnet:?xt=urn:btih:B97320CBAB4576ED6141B5F7610EE9D540933013
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109866.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ magnet:?xt=urn:btih:05DE77D5D2A31786983C896B4C775A82C74D8F3D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109867.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ magnet:?xt=urn:btih:5B7B1507D7329F8E940C4CC87BF6CEA62485E560
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109868.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ magnet:?xt=urn:btih:5D91F07F539F01BD6C6615E866F147A050E286BC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109869.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|image + .cue] <Brutal Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109870.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ magnet:?xt=urn:btih:7304C23EC6DD532B24FB5DEDD3B78297DA7B91F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109871.jpg" />
 </div>
 
 
@@ -472,7 +550,7 @@ magnet:?xt=urn:btih:9551B76D450E4C35E94DB2F69F0FF667331EF024
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109872.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ magnet:?xt=urn:btih:CEEE6C1D6E643DD2AB9CF672CD160D867DC33248
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109873.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ magnet:?xt=urn:btih:05FA30461649565F4CF5B1203FA4156CDFD3E860
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109874.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ Crownshift - Crownshift (2024) [MP3|320 Kbps] <Melodic Death Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109875.jpg" />
 </div>
 
 
@@ -562,85 +640,6 @@ Crownshift - Crownshift (2024) [MP3|320 Kbps] <Melodic Death Metal, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3496A7875D41B92995B1AE617371881A70C20E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721916   (109876) от 09.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 2-й матч) Бостон Брюинз - Флорида Пантерз (08.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109876.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 мая 2024, четверг. 02:30 МСК. 1/2 финала - Восток. 2-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 789 зрителей (102% при вместимости 19 434)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EFBAE906B468DE11D36627883A490C26D1D6F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722002   (109877) от 09.05.2024
-
-Six Feet Under - Killing for Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Death-Groove Metal, Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Know-Nothing Ingrate (2:23)
-02. Accomplice to Evil Deeds (2:18)
-03. Ascension (4:31)
-04. When the Moon Goes Down in Blood (3:47)(   Читать дальше...   )Жанр: Death-Groove Metal, Death 'n' RollПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA54728E6E6428FA54D187E07ED3BB2D74ABA4ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721846   (109878) от 09.05.2024
-
-Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortal
-02. Beyond The North Wind
-03. Priest Of Stygia
-04. Island Of The King(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8FC3FFA274EE031D618C7196CC5B92E04D90AC
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1431994   (165644) от 15.12.2020
+
+Movavi Video Converter 21.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FA900E1E4D0AB5FF119ADE9E8410BAEBC7336A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431930   (165646) от 15.12.2020
+
+FastStone Capture 9.4 (15.12.2020) Final RePack (& portable) by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165646.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2817F24D8CFF91E9B77E7A2976343BDC337F1B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345728   (165655) от 16.12.2019
+
+Instinct - Still Life (2019) INSTINCT [FLAC|Lossless|WEB-DL|tracks] <UK Garage, Drum n Bass, Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen (04:28)
+ 02. Can't Run Away From Yourself (07:12)
+ 03. Passing Storms (03:40)
+ 04. Home (05:20)(   Читать дальше...   )Жанр: UK Garage, Drum n Bass, Downtempo, AmbientПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068AE6DAAA4A09A95AADFC320E0E6ABD07E4B06C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673310   (165664) от 31.10.2023
 
 VLC Media Player 3.0.20 + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ VLC Media Player 3.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165664.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Firefox Browser 71.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165665.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ PotPlayer 221215 (1.7.21859) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165683.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.22 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165691.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165692.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ PDF Expert 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165703.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ Tenorshare UltData - Mac 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165706.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ The Chemical Brothers - Chemical Reaction (1997) Compilation, Mixed [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165711.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ Hetman Partition Recovery 4.5 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165715.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 29) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165725.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ Topaz Video AI 3.0.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165731.jpg" />
 </div>
 
 
@@ -278,7 +353,7 @@ PotPlayer 221215 (1.7.21859) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165739.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ COMSOL Multiphysics 5.6.0.280 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165741.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ Antivirus Removal Tool 2022.12 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165742.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ magnet:?xt=urn:btih:B35379FA48D4BE5A292A4F59D3028067878036D3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165761.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ Macsome iTunes Converter 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165765.jpg" />
 </div>
 
 
@@ -400,7 +475,7 @@ EditRocket 4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165785.jpg" />
 </div>
 
 
@@ -424,7 +499,7 @@ Privacy Eraser Free 4.57.2 Build 3324 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165791.jpg" />
 </div>
 
 
@@ -449,7 +524,7 @@ One Switch 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165797.jpg" />
 </div>
 
 
@@ -473,7 +548,7 @@ RazorSQL 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165801.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ Scarlean - Soulmates (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165803.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ iWork Converter 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165806.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ Softorino YouTube Converter 2 2.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165809.jpg" />
 </div>
 
 
@@ -561,78 +636,6 @@ Softorino YouTube Converter 2 2.1.11 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F3431BB9C1497499250F659FA60FA1E4965A935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345812   (165812) от 16.12.2019
-
-FontLab 7 7.0.1 (build 7276) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165812.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontLab 7, это новая программа, для профессионалов, предназначенная для создания уникальных шрифтов. Программа для создания шрифтов позволяет создавать высококачественные шрифты и используется большинством дизайнеров, типографами, графическими студиями, чья работа профессионально связана с шрифтами, т.к. позволяет им полностью создавать или редактировать собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.10.5 YosemiteЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2641826F86CEDA32077FE8BDDC2D7A724B38E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597585   (165821) от 15.12.2022
-
-Macrorit Partition Extender 2.1.0 Unlimited Edition RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Extender - утилита, доступная также в портативной версии, позволяет быстро расширять и объединять разделы жестких дисков HDD и SSD. Macrorit Partition Extender  позволяет быстро расширить раздел со свободным пространством из соседнего раздела, и автоматически объединить нераспределенное пространство в один раздел, если оно доступно на диске. Кроме (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301C829091902057EE1269BF76804593B84548E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516588   (165826) от 11.12.2021
-
-Textify 1.8.10 + Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Textify — это крошечная утилита, позволяющая скопировать практически любой некопируемый обычными средствами текст диалоговых окон, меню, панелей инструментов и так далее. Пользователю достаточно воспользоваться горячими клавишами и кликнуть в нужную область экрана, а затем скопировать текст из открывшегося окна.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5236A3A625F548EE9A2AFD498809607A48019B2E
 ```
 
 

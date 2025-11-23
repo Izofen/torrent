@@ -1,3 +1,75 @@
+###  Публикация: 1693894   (121550) от 22.01.2024
+
+Imagine 1.4.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюверам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545669EE6FD00776C22C358195D5C81BA541D026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823221   (121551) от 10.10.2025
+
+Сигизмунд Кржижановский | Неукушенный локоть (2021) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Репортер крупного издания отправляется за интервью к человеку, посвятившему жизнь стремлению «укусить себя за локоть». Внезапно, этот забытый для всего мира человек, становится новым феноменом, переворачивающим общественную и политическую жизнь.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B770D074094EC26FCFDD459F6902C4B89E2E6D92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693840   (121552) от 22.01.2024
+
+TweakPower 2.049 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121552.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9088A519EF678C211C2C4E2F51720CC25C651E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823139   (121553) от 10.10.2025
 
 VA - Armin van Buuren - A State Of Trance 1246 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +78,7 @@ VA - Armin van Buuren - A State Of Trance 1246 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121553.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Malwarebytes Windows Firewall Control 6.9.9.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121554.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ VA - Ori Uplift - Uplifting Only Episode 661 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121555.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:782104B868A73A1885F57CC2A87B759857B7C461
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121556.jpg" />
 </div>
 
 
@@ -109,7 +181,7 @@ VA - A State of Trance - Classics Top 10, Vol. 9 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121557.jpg" />
 </div>
 
 
@@ -136,7 +208,7 @@ magnet:?xt=urn:btih:AB3D962F4071AD6B5E48EC8FD8F0D0438C7D033A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121558.jpg" />
 </div>
 
 
@@ -161,7 +233,7 @@ MEDUZA - Live @ La Torre Ibiza, Spain (2025-09-16) [MP3|320 Kbps] <Tech House, M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121559.jpg" />
 </div>
 
 
@@ -188,7 +260,7 @@ magnet:?xt=urn:btih:5555058404B56A1E7266031C45A8A7790B34AA44
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121560.jpg" />
 </div>
 
 
@@ -214,7 +286,7 @@ VA - Black Hole Trance Music 10-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121561.jpg" />
 </div>
 
 
@@ -241,7 +313,7 @@ magnet:?xt=urn:btih:49BD7B47FBB15FBB5A68165252BF20598AE64B9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121562.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121562.jpg" />
 </div>
 
 
@@ -265,7 +337,7 @@ VA - Black Hole House Music 10-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121563.jpg" />
 </div>
 
 
@@ -292,7 +364,7 @@ magnet:?xt=urn:btih:EDAE34293015ED2BA7BAFC0FDFF621E0DAE1A692
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121564.jpg" />
 </div>
 
 
@@ -316,7 +388,7 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121565.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:857F5D1F1C923FA630476B96FD96E59BF16DFFF9
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121566.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ magnet:?xt=urn:btih:225A817E7D39302C997BB75FF4FFBDBE00283014
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121567.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ magnet:?xt=urn:btih:589B2B5020612C6C0E23770186231B4AF1925D7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121568.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ magnet:?xt=urn:btih:9F828ED253A60C9802657AB083CF673319304A69
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121569.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ magnet:?xt=urn:btih:BE678C909C402BC93A10791021CFB3F1D11723D1
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121570.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:55E260D3483B1D9CF3AB1ACD6A4DB56A5DF577EF
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121571.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:F48ECAAA5C0B0F0DAC6E0948B099D2061BB78AB1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121572.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:74467371C004BDF74047018BACB5A0EF6ABA2849
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121573.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:0C8BD89B3C14AAE1BDC9DC70CEB6DD7720C3A3F9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121574.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:1950260BE1F616E460CDC7E598E61F6D105F8BB6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121575.jpg" />
 </div>
 
 
@@ -572,79 +644,6 @@ magnet:?xt=urn:btih:1950260BE1F616E460CDC7E598E61F6D105F8BB6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E69795DE0C40AA798FF55A583B7E58A0827338C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693823   (121576) от 22.01.2024
-
-Инферно / Inferno (2016) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некий миллиардер в порыве искреннего человеколюбия решает убить половину населения планеты. В своей уютной лаборантской он выводит особый штамм смертельного вируса, способного заразить 95 процентов людей за пару суток. Будучи не в силах упустить красоту момента, он зашифровывает точные координаты пакета с адским варевом в "Инферно" - первой части "Божественной (   Читать дальше...   )Производство: США, Венгрия / Columbia Pictures, Imagine Entertainment, LStar CapitalЖанр: боевик, триллер, драма, криминал, детектив, приключенияРежиссер: Рон ХовардАктеры: Том Хэнкс, Фелисити Джонс, Омар Си, Ирфан Кхан, Сидсе Бабетт Кнудсен, Бен Фостер, Ана Улару, Ида Дарвиш, Паоло Антонио Симиони, Алессандро ГримальдиПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (full, forced)Продолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2793A931788DF0F54548DE8DDA4D78C2C84BD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823207   (121577) от 10.10.2025
-
-НХЛ 2025-2026. Нью-Йорк Айлендерс - Питтсбург Пингвинз (09.10.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121577.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 октября 2025, пятница 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 016 зрителей (96% при вместимости 18 673)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Картер Сандлак (Лондон, Канада); Линейный: Брэд Ковачик (Вудсток, Канада); Линейный: Дэн Келли (США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE31C502DA9F3BF7850BCE47ECC6D85C670B196
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693749   (121578) от 22.01.2024
-
-Стальная хватка / The Iron Claw (2023) CamRip [H.264] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их жизнь — изнурительные тренировки перед грядущим сражением. Каждый раз, выходя на арену, они рискуют остаться здесь навсегда. Толпа приветствует могучих юношей, готовых развлекать их ради мимолетной славы. Но они — не гладиаторы в Древнем Риме. А дети некогда знаменитого бойца, который теперь полностью сконцентрирован на карьере своих четырёх сыновей. Рано или (   Читать дальше...   )Производство: США, Великобритания | A24, Access Entertainment, BBC FilmЖанр: биография, спорт, драмаРежиссер: Шон ДуркинАктеры: Зак Эфрон, Джереми Аллен Уайт, Харрис Дикинсон, Мора Тирни, Стэнли Саймонс, Лили Джеймс, Холт Маккэллани, Челси Эдмундсон, Грейди Уилсон, Валентайн НьюкомерПеревод: ДублированныйЯзык озвучки: Русский, украинскийСубтитры: отсутствуютПродолжительность: 02:04:53Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
 ```
 
 

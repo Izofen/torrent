@@ -1,3 +1,79 @@
+###  Публикация: 1733216   (107354) от 28.06.2024
+
+PortableApps.com Platform 29.5.3 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107354.jpg" />
+</div>
+
+
+###  Подробнее
+
+PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
+
+Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C864A0A49E2F77B4A118E173367E821F66FFE19D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733264   (107355) от 28.06.2024
+
+MediaInfo 24.06 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107355.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaInfo — позволит узнать техническую информацию о видео-или аудио-файлов. Это абсолютно бесплатное программное обеспечение (бесплатный и свободный доступ к исходному коду: GPL или LGPL лицензии). Приложение поддерживает большое количество современных форматов файлов, при работе использует различные способы отображения информации. Не содержит вредоносного кода.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A83003E1DE8BC33FB4FDBB1BC86F455717088A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733398   (107356) от 28.06.2024
+
+Фабрика иллюзий Алисы и Терезы | Фабрика грёз Алисы и Терезы | Alice to Therese no Maboroshi Koujou [2023, Movie] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масамунэ, ученик третьего класса средней школы, живёт в городе, где все выходы были закрыты из-за внезапного взрыва на сталелитейном заводе, в результате чего время остаётся на месте. Жителям запрещено вносить какие-либо изменения и проводить свои удушающие дни в надежде когда-нибудь вернуться к нормальной жизни.
+
+Однажды таинственный одноклассник Масамунэ Муцуми (   Читать дальше...   )Производство: Япония / Студия MAPPAЖанр: Приключения, драма, романтика, фантастикаРежиссер: Окада МариЯзык озвучки: Русский (AniLibria.Top); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 112 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6652FB0F0ADC5C5D9DF9EC60AD7C0CDED4F256C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733090   (107357) от 28.06.2024
 
 Разбой / Break (2024) WEB-DLRip [MVO]
@@ -6,7 +82,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107357.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:C706925EBE180BB8A42F6BF344916EBC4F3CC8C6
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107358.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:64B78F4AFB36957B6FCF01FD5BC03386E949DFB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107359.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ magnet:?xt=urn:btih:64B78F4AFB36957B6FCF01FD5BC03386E949DFB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107360.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ magnet:?xt=urn:btih:64B78F4AFB36957B6FCF01FD5BC03386E949DFB3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107361.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ magnet:?xt=urn:btih:67FCADB6196353724CE4BF0F6BF33276CE6823A7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107362.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ magnet:?xt=urn:btih:BFD859A88F97419E0BA2E08ED9D100DAC98CF6BF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107363.jpg" />
 </div>
 
 
@@ -180,7 +256,7 @@ magnet:?xt=urn:btih:D1F4A6B20374E887BFC47660CC403937D126A5D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107364.jpg" />
 </div>
 
 
@@ -205,7 +281,7 @@ VueScan Pro 9.8.34 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107365.jpg" />
 </div>
 
 
@@ -229,7 +305,7 @@ magnet:?xt=urn:btih:81074F6F70129DA1D55F9B390DBFC94FC90C8EE1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107366.jpg" />
 </div>
 
 
@@ -253,7 +329,7 @@ VA - Vocal Trance Hits 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107367.jpg" />
 </div>
 
 
@@ -280,7 +356,7 @@ NetLimiter 5.3.16.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107368.jpg" />
 </div>
 
 
@@ -304,7 +380,7 @@ Szigeti Juli - Wild & Groovy (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107369.jpg" />
 </div>
 
 
@@ -331,7 +407,7 @@ Shayne Malone - Turning Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107370.jpg" />
 </div>
 
 
@@ -358,7 +434,7 @@ Orquesta del Desierto - Orquesta del Desierto (2002) Remastered, 2023, Heavy Psy
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107371.jpg" />
 </div>
 
 
@@ -385,7 +461,7 @@ Olav Ajer - Slow Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107372.jpg" />
 </div>
 
 
@@ -412,7 +488,7 @@ Larissa Baumann - Showtime (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107373.jpg" />
 </div>
 
 
@@ -439,7 +515,7 @@ Vi Champ - Country Boyz (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107374.jpg" />
 </div>
 
 
@@ -466,7 +542,7 @@ Naive New Beaters - Fvtvrvm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107375.jpg" />
 </div>
 
 
@@ -493,7 +569,7 @@ Hot Lips Page - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107376.jpg" />
 </div>
 
 
@@ -520,7 +596,7 @@ White Stones - Memoria Viva (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107377.jpg" />
 </div>
 
 
@@ -547,7 +623,7 @@ Rex Stewart - 1949 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107378.jpg" />
 </div>
 
 
@@ -574,7 +650,7 @@ magnet:?xt=urn:btih:52869092339F5AD0802B6769FDB235EA47C51D43
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107379.jpg" />
 </div>
 
 
@@ -586,84 +662,6 @@ magnet:?xt=urn:btih:52869092339F5AD0802B6769FDB235EA47C51D43
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686A8913ED7368FDC9B43C55C8DEF86E98E80AC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733084   (107380) от 27.06.2024
-
-Eve Gallagher - Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Murdoch - Lovin You Again (3:55)
-02. Looking Down (4:17)
-03. Everybody Knows (3:09)
-04. You Cared (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FACA5C4023CA3E8BC6D912402A13CE82373BB5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732919   (107381) от 27.06.2024
-
-Карнавал душ / Carnival of Souls (1962) BDRip [H.264/720p] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобильная катастрофа. Машина с тремя девушками падает с моста в реку. Когда полиция уже и не надеялась найти хоть кого-нибудь в живых, на берег выбирается Мэри Генри. Оправившись от шока, девушка переезжает в маленький городок и устраивается органисткой в местную церковь. Ещё по дороге Мэри начал мерещиться жуткий бледнолицый тип, а вскоре происходят и более (   Читать дальше...   )Производство: США / Harcourt ProductionsЖанр: ужасы, детективРежиссер: Херк ХарвиАктеры: Кендес Хиллигосс, Фрэнсис Фейст, Сидни Бергер, Арт Эллисон, Стэн Левитт, Том Макгиннис, Форбс Колдуэлл, Дэн Палмквист, Билл Де Жарнетт, Стив БузерПеревод: профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0E439B8E9394CD34225B79B5AD5D93067104C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732886   (107382) от 27.06.2024
-
-Masha Ray - Masha Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bei Mir Bistu Shein (Electro Swing Mix) (3:32)
-02. Levan Polka (Dancing Donkey Mix) (2:55)
-03. Sway (Neo Swing Mix) (2:47)
-04. Bang Bang (Electro Swing Mix) (3:19)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D88171450BDD26BAF4E8E6A0C8C4038FA7C79C1
 ```
 
 

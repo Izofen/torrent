@@ -1,3 +1,78 @@
+###  Публикация: 1691971   (122902) от 14.01.2024
+
+Ghost Buster Pro 2.5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghost Buster Pro находит и удаляет файлы из приложений, которые вы уже удалили. Приложение работает молниеносно и мгновенно освобождает память. Многие приложения устанавливаются на компьютер, но обычно они остаются на вашем компьютере только в течение короткого времени. Каждое приложение создает файлы, но удаление приложения не приводит к их удалению. Это приводит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2017-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F7066D191CE64D8C2671490BC55C78BF2A6DD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692015   (122903) от 14.01.2024
+
+Всю ночь напролёт / All Night Long (1962) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет обновленную версию "Отелло" Уильяма Шекспира. Действие происходит на лондонской джазовой сцене за один вечер, во время юбилейной вечеринки... В фильм вставлены выступления нескольких выдающихся британских и американских джазовых музыкантов 60-х годов прошлого века... Музыкант Аурелиус Рекс и его жена Делия, певица на пенсии, приглашены (   Читать дальше...   )Производство: Великобритания / The Rank Organisation Film Productions Ltd.Жанр: драма, музыкаРежиссер: Бэзил ДирденАктеры: Патрик МакГуэн, Кит Митчел, Бетси Блэр, Пол Харрис, Марти Стивенс, Ричард Аттенборо, Бернард Браден, Гарри Тауб, Мария Веласко, Дэйв БрубекПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (на песни и полные, Игорь Клушин), английскиеПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3C5E8A4D893CD8FBDFAB3CA250F7402827B451
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692053   (122904) от 14.01.2024
+
+Antarsys - The North Star (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. North Star [00:04:13]
+02. Star Divination [00:04:38]
+03. Infinity Soundwaves [00:03:56]
+04. Frozen Dragon [00:04:45](   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F38353CD85859D129810F9CD4421726EA0FB2C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691877   (122905) от 14.01.2024
 
 Александр Король | Нелюбовь (Книга 1) (2023) [MP3, Дмитрий Филимонов]
@@ -6,7 +81,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122905.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Cocteau Twins - Four-Calendar Cafe (1993) Remastered, 2024, 4AD [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122906.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ MacPilot 15 v.15.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122907.jpg" />
 </div>
 
 
@@ -83,7 +158,7 @@ magnet:?xt=urn:btih:DEB3D30BE98879ACE0A2A30D3DE65305F68849EB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122908.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122909.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ Temple Balls - Avalanche (2023) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122910.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ magnet:?xt=urn:btih:709CC1DB964D881668CF8BAE7B29EB2AAC901B61
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122911.jpg" />
 </div>
 
 
@@ -187,7 +262,7 @@ Dead Fish - Labirinto da Memória (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122912.jpg" />
 </div>
 
 
@@ -214,7 +289,7 @@ Cocteau Twins - Milk & Kisses (1996) Remastered, 2024, 4AD [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122913.jpg" />
 </div>
 
 
@@ -241,7 +316,7 @@ Bookends 14.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122914.jpg" />
 </div>
 
 
@@ -266,7 +341,7 @@ Beyond The Black - Beyond The Black (Deluxe Edition) (2024) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122915.jpg" />
 </div>
 
 
@@ -293,7 +368,7 @@ magnet:?xt=urn:btih:79C37B0913DE1CCFB7F656E81AB849FFE58751FF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122916.jpg" />
 </div>
 
 
@@ -317,7 +392,7 @@ Beyond The Black - Beyond The Black (2023) Deluxe Edition, 2024, Nuclear Blast [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122917.jpg" />
 </div>
 
 
@@ -344,7 +419,7 @@ Living Colour - Vivid (1988) Remastered, 2023, Epic / 1988 Sony Music Entertainm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122918.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ Surya Kris Peters - There's Light In The Distance (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122919.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ Laudanum - As blue as my veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122920.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ magnet:?xt=urn:btih:ADFCDDA35B0FA27CC11298F926154F8F41CC9839
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122921.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ VA - Piano Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122922.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ magnet:?xt=urn:btih:22EB4C49AFAF5717D577E42A6B888FE528A7222E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122923.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ magnet:?xt=urn:btih:6AD240E8688EEF7F6A01FB09D01B5FBA41D8E582
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122924.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ magnet:?xt=urn:btih:97B954851F69B7F9D8FC415FDF98584D163576F0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122925.jpg" />
 </div>
 
 
@@ -549,7 +624,7 @@ Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acous
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122926.jpg" />
 </div>
 
 
@@ -576,7 +651,7 @@ magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122927.jpg" />
 </div>
 
 
@@ -587,84 +662,6 @@ magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A94E31AC1BB285ED16640073125A0A8853BACF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691841   (122928) от 14.01.2024
-
-VA - Real Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusty Rockers - Tell Me Why (Deep Mix) [03:14]
-02. Burning Grooves - Deserve It (Original Mix) [03:24]
-03. Incredible Motion - Goodbye (Original Mix) [02:46]
-04. Max Clarke - Stayin Forever (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EE6081D6CDCB1345354882F2BB7DF58057C37C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692001   (122929) от 14.01.2024
-
-Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Temper Trap - Sweet Disposition (ID Remix)
-02. ID - ID
-03. Agents Of Time - Inception
-04. Piero Pirupa - Change Your Mind (Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691957   (122930) от 14.01.2024
-
-Убить императора / Ye yan / The Banquet (2006) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122930.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате дворцового переворота убит императора Танг, и на престол воцаряется его жестокий брат. Молодая вдовствующая императрица принимает предложение стать женой нового правителя. Но у убитого императора есть взрослый сын, законный наследник, бывший возлюбленный своей прекрасной мачехи. Чтобы помочь юноше вернуть престол, императрица надевает маску преданной (   Читать дальше...   )Производство: Китай / Huayi Brothers, Media Asia Films Ltd.Жанр: фэнтези, драма, мелодрама, боевикРежиссер: Сяоган ФэнАктеры: Цзыи Чжан, Гэ Ю, Дэниэл Ву, Сюнь Чжоу, Цзину Ма, Сяомин Хуан, Чжоу Чжонгэ, Цзэн Цюшэн, Сюй Сиянь, Лю ЯньбиньПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4147753A723E1A2935FBA1A3F0BE1273D587753B
 ```
 
 

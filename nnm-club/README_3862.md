@@ -1,3 +1,80 @@
+###  Публикация: 1695722   (120094) от 30.01.2024
+
+Карел Чапек | Рассказы из карманов (2008) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Союз классика.
+В аудиокнигу «Рассказы из карманов» вошли аудиоверсии избранных произведений из сборников «Рассказы из одного кармана» и «Рассказы из другого кармана» самого известного чешского писателя, автора слова «робот», философа и защитника демократии Карела Чапека. «Рассказы из одного кармана» впервые были опубликованы в Праге в 1929 году.
+Карел (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 03:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F31A52BB9FF2EE8D062B9421A93B0B3204D352A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695647   (120095) от 30.01.2024
+
+C# - Me & 23 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kesuari (4:33)
+02. Once More Around the Moon (4:07)
+03. Take Wing, My Soul (3:39)
+04. Flightingale (4:00)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA123ED8CD5D2C18E3E36793E00376E56112245B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695664   (120096) от 30.01.2024
+
+AltTab for Mac 6.65.0 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение AltTab дает возможность пользоваться функцией «alt-tab» от Windows на Mac.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 lwouisПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C659B3A494897B1264717F5F3F4B53AE4B8B5B27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695709   (120097) от 30.01.2024
 
 Gianluca De Palo - My Kind Of Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +83,7 @@ Gianluca De Palo - My Kind Of Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120097.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Project Arcadia - Of Sins And Other Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120098.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ Infuse PRO 7.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120099.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:7BB19789CC053ED32A8668554781298B53D232F3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120100.jpg" />
 </div>
 
 
@@ -110,7 +187,7 @@ Inertia - The Human Element (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120101.jpg" />
 </div>
 
 
@@ -137,7 +214,7 @@ Photo Lab PRO v3.12.89 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120102.jpg" />
 </div>
 
 
@@ -161,7 +238,7 @@ Ungoogled Chromium 121.0.6167.85-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120103.jpg" />
 </div>
 
 
@@ -185,7 +262,7 @@ magnet:?xt=urn:btih:527741902F9622BE877AB1495503638B0B2B8675
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120104.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ Privacy Eraser Free 6.3 Build 4831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120105.jpg" />
 </div>
 
 
@@ -234,7 +311,7 @@ magnet:?xt=urn:btih:B012F48D464711E9EF33A46587E1D7BA0EAC2E94
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120106.jpg" />
 </div>
 
 
@@ -258,7 +335,7 @@ magnet:?xt=urn:btih:20C0C6BE7B387638D273EF0B1C4BB40B21B95F89
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120107.jpg" />
 </div>
 
 
@@ -282,7 +359,7 @@ magnet:?xt=urn:btih:9D9A2C2FC521A77497246AD81C01DE934100F706
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120108.jpg" />
 </div>
 
 
@@ -307,7 +384,7 @@ magnet:?xt=urn:btih:9A35F371CF31CB61EB67568EB579E435CD5944AB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120109.jpg" />
 </div>
 
 
@@ -331,7 +408,7 @@ HitPaw Video Converter for Mac 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120110.jpg" />
 </div>
 
 
@@ -356,7 +433,7 @@ AudKit Spotify Music Converter for Mac 2.5.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120111.jpg" />
 </div>
 
 
@@ -380,7 +457,7 @@ magnet:?xt=urn:btih:0515DFE639E92CE6D4167DF29D31571B2DFE0EEA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120112.jpg" />
 </div>
 
 
@@ -404,7 +481,7 @@ Skype 8.112.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120113.jpg" />
 </div>
 
 
@@ -428,7 +505,7 @@ magnet:?xt=urn:btih:EE78ED2438AF749DD1D08CB64FD4E40EB84EFB25
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120114.jpg" />
 </div>
 
 
@@ -452,7 +529,7 @@ magnet:?xt=urn:btih:32F23FC74C8FBF05A76E6EF7920B5F687DE1EDA3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120115.jpg" />
 </div>
 
 
@@ -476,7 +553,7 @@ magnet:?xt=urn:btih:A4291E9C79E66A22DDF681F4410578F2BCDB594C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120116.jpg" />
 </div>
 
 
@@ -500,7 +577,7 @@ QOwnNotes 24.1.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120117.jpg" />
 </div>
 
 
@@ -524,7 +601,7 @@ magnet:?xt=urn:btih:0F0E0C89B2F3A4071AB863EFFA70BDAD41ED32DB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120118.jpg" />
 </div>
 
 
@@ -549,7 +626,7 @@ magnet:?xt=urn:btih:E608D16040DC7DAE708C568E3D852ABEF408843E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120119.jpg" />
 </div>
 
 
@@ -563,79 +640,6 @@ magnet:?xt=urn:btih:E608D16040DC7DAE708C568E3D852ABEF408843E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52789CF2BA9C16DA0405423E977483C15EF6EA89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695858   (120120) от 30.01.2024
-
-Skype 8.112.0.203 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B781F7C0A3F2428D16853C64793EB344CFC10EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695756   (120121) от 30.01.2024
-
-Monkey's Audio 10.47 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monkey's Audio — данная утилита предназначена для преобразования (сжатия) уже цифровых данных в собственный формат без потерь (lossless) APE.
-Главная особенность программы состоит в том, что Monkey's Audio, в отличие от большинства традиционных методов оцифровки звука (MP3, OGG и т.п.) полностью сохраняет качество звука, а сжатие производит по собственному алгоритму (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6273DCC6F0F202B9B4DEEB70B5C196267C940CB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695794   (120122) от 30.01.2024
-
-И.М. Пёрышкин, А.И. Иванов | Физика. Учебник для 7 класса (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник соответствует Федеральному государственному образовательному стандарту основного общего образования. Большое количество красочных иллюстраций, разнообразные вопросы и задания, а также дополнительные сведения и любопытные факты способствуют эффективному усвоению учебного материала.Жанр: Учебная литература по физикеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F39357FF22E012C163020CD0D77B085AFE01FCB
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AC5001B1CEDFA4B642478EBEFF268536C4F7E373
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134480.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134480.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AC5001B1CEDFA4B642478EBEFF268536C4F7E373
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134492.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Picsart: редактор фото и видео 23.6.6 Mod by Mixroot [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134493.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Full Uninstall 2.12 Final Portable [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134500.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134500.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ RS Explorer / RS Проводник 2.0.7.1 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134505.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ USB Disk Security 6.2.0.30 RePack by KpoJIuK [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134506.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134506.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Memento Database Pro 5.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134507.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ WPS Office + PDF 18.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134511.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ SILKYPIX Developer Studio Pro 5.0.28.0 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134519.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134519.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ SILKYPIX Developer Studio Pro - программа которая предназ
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134523.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ OfficeSuite Pro + PDF 14.0.50070 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134524.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Keka 1.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134525.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134528.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Native Instruments Kontakt 7.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134529.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Dynamic Wallpaper Engine 16.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134531.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:A3857DC7AFC56DC5F37EF8870CF6787A3D6DD7E5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134534.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ PDF Expert 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134535.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Corel AfterShot Pro 1.1.0.30 [Multi/Rus] Portable by SoftLab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134550.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134550.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Corel AfterShot Pro 1.1.0.30 [Multi/Rus] Portable by SoftLab
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134552.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Speedtest от Ookla 5.2.3 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134555.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Infuse PRO 7.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134567.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:EB7237FD7CB7121492BC5BE53BC28B0B833998ED
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134584.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VueScan Pro 9.1.21 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134586.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134586.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Video Converter X2 for Mac 1.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134593.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:E613E389C104DB52D7D3306A6C9D5A7C0AD8C236
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134594.jpg" />
 </div>
 
 

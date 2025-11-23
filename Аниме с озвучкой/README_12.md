@@ -6,7 +6,7 @@
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100857.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100862.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5F90C2E1D6FEE7B0E0719A1EE1B10E725D6C7CA8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100890.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:54F9F6D71EA9EFF496C9754FA3889EEA9E28124A
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100964.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101016.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101675.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Naruto Shippuuden: Movie 8. Blood Prison / Наруто Ураганные хр�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102552.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:67F6A58E62021BC0DC67521574868C226DD833F2
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102697.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103862.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104488.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0C48187F3CB7D359AB4709DEFE2A1F415A18789C
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104514.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Мистика, де�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104673.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ji Jia Shou Shen: Baolie Feiche | Screechers Wild! | Дикие Cкричеры!
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104977.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Ji Jia Shou Shen: Baolie Feiche 2 | Screechers Wild 2! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104978.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Ji Jia Shou Shen: Baolie Feiche 3 | Screechers Wild 3! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105008.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105061.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105089.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105116.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105470.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Buddy Daddies | Напарники-папаши | Папаши-дружбаны 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107132.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:BB0826849FC71C57ED16946DC3EAC2E0F70903E3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107356.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:C6652FB0F0ADC5C5D9DF9EC60AD7C0CDED4F256C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109859.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Tekkamen o Oe "d'Artagnan Monogatari" yori | After the Man in the Iron Mask! (fr
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112759.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Misutenaide Daisy | Don't Leave Me Alone, Daisy | Не покидай меня, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114044.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Fate/Grand Order: First Order | Fate/Grand Order -First Order- | Судьба: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114170.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Takt Op. Destiny | Такт. Опус Дестини | Такт. Опус Суд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114246.jpg" />
 </div>
 
 

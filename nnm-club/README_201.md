@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5290.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AAB5B231CFDAD7856B81D38E2AF24846F72E7145
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5291.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A6BA479F1AFD4DA3890C36EFE6EC7B5D9CDB8933
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5292.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6FCC4057C2FBDFABFE77F9824E40DB7857E1482C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5293.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:200D542090FAA3735C44207543978BF0705891DF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5294.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997/1.0.1.3725653 Update 1) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5295.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ SamDrivers 25.8 Сборник драйверов для Windows [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5296.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Stellaris (2016) [Ru/Multi] (4.0.23/dlc) License GOG [Galaxy Edition] (обно�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5297.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5298.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Old World (2022) [Ru/Multi] (79513/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5299.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.16.03/dlc) License GOG [Field Marshal Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5300.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:CFC3E5553B6E29987731DEA35CFDDFD94AEBCBEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5301.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.73r) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5302.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:7F2C296007F7918A0BD45DE67FEE766FE6777F09
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5303.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Knights of the Chalice 2 (2022) [En] (1.91) License GOG [Archmage Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5304.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5305.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Caves of Lore (2023) [En] (1.8.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5306.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Kynseed (2018) [En] (1.2.11.14505) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5307.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/En] (1.1.
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5308.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Legends of Amberland II: The Song of Trees (2023) [En] (1.24) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5309.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ ELDEN RING (2022) [Ru/Multi] (1.16.1/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5310.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Dragon Is Dead (2024) [Multi] (1.0783) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5311.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:5D704D3BDDCB604B1848F2EB301622ABD9436B72
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5312.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Telepath Tactics Liberated (2022) [En] (1.0.60l) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5313.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:840C76528CBFF7D011DCB6D212DBE179BF758BE7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5314.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ The RPG (2025) [Ru/Multi] (1.021) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5315.jpg" />
 </div>
 
 

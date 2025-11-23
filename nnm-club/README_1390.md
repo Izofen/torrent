@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36493.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D1AE7B7BEFE6A5F15596AE9C5C14C685C441F663
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36494.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:53203918B8FBA72030B2BDA126EB296567E0252A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36495.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36496.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ OneCommander Pro 3.93.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36497.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Boney M. - Christmas With Boney M. (2007) Compilation, Reissue, Remastered [FLAC
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36498.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:A6929F028C5960314B2BCC068E7701417CB8484C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36499.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:5573F4E81F576B51AF72463C449A62D67A75860A
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36500.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A8BD33E68140532BF33CEC63FED4DCB03CF6C01E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36501.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:322DE29A473BE653C5F0E4D01FA9696878D74AC6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36502.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:810675A888714CD50294F671737BB2911E93550E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36503.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:0F59D959B3F93F6C008F11D120E0807644700161
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36504.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:D8DE8CD51149AC70C4FFCB0820D25F376EE9D2A9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36505.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Pet Shop Boys - Nonetheless (2024) expanded edition, 2024, Parlophone UK [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36506.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:7F4419C561FF08973A132C4269036AC8B01D802E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36507.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Sexual Music Collection - After Dark Sex Red Room (2024) [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36508.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Musical kaleidoscope part 14 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36509.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Vivaldi 7.0.3495.18 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36510.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:C6F9B6F6CF2659B4F73878F771ED1CD012098D54
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36511.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:2208532D6B20828C10B02A43CDE8D0C64F89D6FD
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36512.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:E0EF4EAFBCD1C6CF39258450E5FCB2A0C10630B0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36513.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:E0EF4EAFBCD1C6CF39258450E5FCB2A0C10630B0
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36514.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:0B52E033D3C547ABFE30406C49A1DE00645E1E8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36515.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:0D909431E8A67562F2E8DECB74E4BB5BB791785E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36516.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:78FC9EBED7C638326D0275ADDBFB4CAEACA11235
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36517.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Vanced Tube v5.2.80.154 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36518.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1692962   (122278) от 18.01.2024
+
+Один триллион долларов / Eine Billion Dollar / One Trillion Dollars (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вчера Джон Фонтанелли развозил в Нью-Йорке пиццу. Сегодня он - богатейший человек мира. Один триллион долларов. Тысяча миллиардов. Денег больше, чем можно себе представить. Этим состоянием в течение пятисот лет управляло итальянское адвокатское семейство, чтобы в день, назначенный его основателем, передать наследнику.
+С этими деньгами Джон может делать что хочет. (   Читать дальше...   )Производство: Италия, Германия / Viola Film, W&B TelevisionЖанр: триллер, драмаРежиссер: Флориан Баксмейер, Isabel BraakАктеры: Nyamandi Adrian, Филип Фруассан, Пит Сепенюк, Дана Херфурт, Оливер Мазуччи, Николо Пазетти, Беттина Кенни, Лорис Лодди, Lisa Lendaro, Alessandro Cucca и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E82B5742A563032C3A9DD0DFA721A22108FB2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692969   (122279) от 18.01.2024
+
+qBittorrent 4.6.3 Portable by PortableApps + Themes (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122279.jpg" />
+</div>
+
+
+###  Подробнее
+
+qBittorrent - абсолютно бесплатная, без рекламы, мощная и простая в работе программа.
+Несмотря на кажущуюся простоту, она обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация по IP, удаленное управление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F20FC9A89D2224AD14F8FDCA47CE688FB79E45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692848   (122280) от 18.01.2024
+
+Герой / Heroic / Heroico (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Луис, 18-летний мальчик коренных народов, поступает в военный колледж в надежде обеспечить себе лучшее будущее. Там он сталкивается с жесткой и институционально жестокой системой, призванной превратить его в идеального солдата.Производство: Мексика, Швеция / Film i Vаst, FilmadoraЖанр: триллер, драма, детективРежиссер: David ZonanaАктеры: Сантьяго Сандовал, Фернандо Куаутле, Эстебан Кайседо, Карлос Гарсиа, Исабель Юдисе, Моника дель КарменПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, испанскийСубтитры: английские, испанские, португальскиеПродолжительность: 01:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC7C77AE792A516B35923CB2B1E39BDFF607052
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693006   (122281) от 18.01.2024
 
 Microsoft Windows 11 [10.0.22631.3007], Version 23H2 (Updated January 2024) - Оригинальные образы от Microsoft MSDN [En]
@@ -6,7 +80,7 @@ Microsoft Windows 11 [10.0.22631.3007], Version 23H2 (Updated January 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122281.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Viewfinder (2023) [Ru/Multi] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122282.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Stardock Fences 5.0.4.1 (x64) RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122283.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:B90934C74A0C66B6F883C9A470B76AC8A06FF6D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122284.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:CCE1D797A8E4D517F1BA40AFCF2C60C14854EC47
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122285.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:C61023CB3A8A9D0D8007035A0F010C234FF97565
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122286.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122286.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ CCleaner 6.20.10897 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122287.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Microsoft Windows 10 [10.0.19045.3930], Version 22H2 (Updated January 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122288.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ magnet:?xt=urn:btih:F2D9945325103287AD70AF532ECECF281453AC5C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122289.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ magnet:?xt=urn:btih:CDB47763F0FFEA5A0C7DF069DC2047D9A0500FAC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122290.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ Windows Server 2022 LTSC [10.0.20348.2227], Version 21H2 (Updated January 2024) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122291.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ magnet:?xt=urn:btih:CED55244FEE3D0A8389C725B746DE0F3BEE00641
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122292.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ magnet:?xt=urn:btih:D07AA2603B737AE07C94BD579D84B7D60A227257
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122293.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ magnet:?xt=urn:btih:3AA1FB131511177A3DBD538E7F0B5FF496D01E50
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122294.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ magnet:?xt=urn:btih:7955A4E9A983A105DF521C8FC601F5C258F1AD93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122295.jpg" />
 </div>
 
 
@@ -371,7 +445,7 @@ education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122296.jpg" />
 </div>
 
 
@@ -398,7 +472,7 @@ magnet:?xt=urn:btih:82BCFDB7A8309CB7649C510D4C549976BB2AB078
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122297.jpg" />
 </div>
 
 
@@ -422,7 +496,7 @@ CPU-Z 2.09.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122298.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122299.jpg" />
 </div>
 
 
@@ -471,7 +545,7 @@ magnet:?xt=urn:btih:31818A1D662CD15D5A00491A1C06D804BD28DCF5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122300.jpg" />
 </div>
 
 
@@ -495,7 +569,7 @@ magnet:?xt=urn:btih:404D28C176094315E0ECB2412B97DD6D3D85919B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122301.jpg" />
 </div>
 
 
@@ -519,7 +593,7 @@ magnet:?xt=urn:btih:80263D8FC19E6E663678B85B8ADC4E02C9DC65B6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122302.jpg" />
 </div>
 
 
@@ -543,7 +617,7 @@ magnet:?xt=urn:btih:9FF3552C8A5479DE6303D69C3BCD38BF9DD3A85B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122303.jpg" />
 </div>
 
 
@@ -554,79 +628,6 @@ magnet:?xt=urn:btih:9FF3552C8A5479DE6303D69C3BCD38BF9DD3A85B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D580579AB9E8BEC390F312D261742448237CF5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692624   (122304) от 18.01.2024
-
-Красные комнаты / Les chambres rouges / Red Rooms (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122304.jpg" />
-</div>
-
-
-###  Подробнее
-
-В суде идет рассмотрение громкого дела серийного убийц Людовика Шевалье. Молодая женщина Кэлли-Энн ночует у здания суда, чтобы успеть занять место в зале суда и не пропустить заседание. Она болезненно одержима личностью убийцы и хочет разгадать тайну пропавшего видео, на котором запечатлено убийство 13-летней девочки, похожей на героиню как две капли воды.Производство: Канада / Nemesis Films ProductionsЖанр: Триллер, криминал, детективРежиссер: Паскаль ПлантеАктеры: Жюльетт Гарьепи, Лори Бабен, Элизабет Локас, Максвелл МакКейб-Локос, Натали Таннус, Пьер Шаньон, Ги Товетт, Шарлотта Обен, Себастьен Бюлак, Фредерик Де ГранпреПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, французскийСубтитры: АнглийскиеПродолжительность: 01:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7124E738A520433F71D6FB0E64279B043E0392D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692772   (122305) от 18.01.2024
-
-Врата ада / The Gates (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Викторианский Лондон. Серийный убийца использует тела женщин в оккультных ритуалах, надеясь воскресить свою умершую жену. Однажды расплата настигает его, и он становится первым британским заключенным, которого казнят на электрическом стуле. Однако убийца силен в черных искусствах, и в последние минуты жизни он проклинает тюрьму и всех, кто в ней находится.Производство: Ирландия / Forever Safe Productions, Mad Honey Productions, Studio AtlanticЖанр: Ужасы, триллерРежиссер: Стивен ХоллАктеры: Ричард Брэйк, Майкл Йар, Дэвид Пирс, Джон Рис-Дэвис, Елена Делия, Кристин Малхерн, Питер Кунан, Тристан Хинью, Брайан Форчун, Клер ЛойПеревод: Дублированный (Студия Позитив)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF8327DA083BCACD2695C03F43172449483E44B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790238   (122306) от 18.01.2024
-
-Жатва / The Reaping (2007) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня знаменита оригинальным хобби — развеивать мифы. Придумав себе новое развлечение, она отправляется в маленький, Богом забытый городок в штате Техас с намерением развеять его зловещую легенду.
-В процессе расследования, она понимает, что на этот раз ей придется столкнуться с чем-то действительно мистическим… Ужас, царящий в городе — это не россказни (   Читать дальше...   )Производство: Warner Bros. Pictures Co., Village Roadshow Pictures, Dark Castle Entertainment / СШАЖанр: Ужасы, Триллер, МистикаРежиссер: Стивен ХопкинсАктеры: Хилари Суонк, Аннасофия Робб, Идрис Эльба, Уильям Рэгсдейл, Дэвид Морриси, Эдди Фернандес, Бургесс Дженкинс, Лара Грайс, Маноло КардонаПеревод: Дублированный, Авторский (одноголосый), ДвухголосыйСубтитры: Русский, АнглийскийПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CC9ADBDDE471E5A1A0CC0B5820A14BDC254E8D
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11057.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:84507D7649EB02010C2FE3E278B407E0841B1264
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11059.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A6C0B9619E8ED61E89205075D5E871FCD8819961
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11060.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:504D46927E16D25B5D213591B0C4A1538A0DD363
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11061.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:933A8986182C93BDCF75552D62F81CCFF9F3F229
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11062.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:35351A06ABA71A422C8D15A68317D847CB49E086
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11063.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ RAR Extractor - Unarchiver (vip) 6.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11078.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Malwarebytes Windows Firewall Control 6.18.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11114.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kalmuri 4.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11117.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MyLanViewer 6.5.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11119.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ LibreOffice 25.2.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11121.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:2B5BE0FCDFD1F69B7521A37A1060F9612F054843
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11133.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:0300C88F89A7B8B29E2D4374CE7E951A815C595A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11138.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C8B8C4CC65E3F229E2C6CA604E62B4BE18801BF8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11151.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:25217C5CE9905F58D313AAAE1F1FC05CB7E78CEA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11157.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:FEDE9161072BE123686A0E3C316D25C7D0036314
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11158.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:AB36C4FBDB4F3B5BC880545BFEEF0E864E00DF3D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11160.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:C37FB06E1224FEF51C9427659A969F7A911B148F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11162.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:FACEB35E925A03D9986380CC1822B20AE96DB06F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11165.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Shotcut 25.05.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11199.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ iDownerGo Video Downloader 10.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11206.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ YT Downloader 9.12.20 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11208.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:1C1DAAA2ADFCC1B174E3B6FFD4FDA3E8AB36BF82
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11210.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Antivirus Removal Tool 2025.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11226.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ IsMyHdOK 4.24 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11232.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Proton VPN 5.12.36.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11245.jpg" />
 </div>
 
 

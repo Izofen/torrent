@@ -6,7 +6,7 @@ FolderView 2.2 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10521.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8298429293C65305363EDD9D3AC25F600C1CD2FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10522.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CF7B6B39A0D1A77BAE5428E90562E1C4951AB66C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10523.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CCleaner 6.38.11537 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10524.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:FF6720635363A8204AEEF0DF4B8C69E769292F4C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10525.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Balun.Courses, Виталий Лихачев | Observability, как в BigTech 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10526.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:65D5B5828C84B5DB3C7139D6835F04621D01CA23
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10527.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Лучшие песни Радио DFM за полгода 2025 от NNM-CL
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10528.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7EB09984B2758A5DC7593E899D074A10BA9AF90C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10529.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:6AE72293951EC6294AC0473C9EDAF50DE6559810
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10531.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5CD352F8EE34791C22F9A5876AC0FFE0CDD9760B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10532.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:A7CBFDCA8EC4BD8E9B0ECBC5A386734513D41185
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10534.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:BEBB067854208B8E03CE29FFF5B6BF58BD3D40AF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10535.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ozzy Osbourne - Compilation (1980-2025) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10536.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:8096581BB60C75562CA3288EC679FC41771BB2E8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10537.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:F45D072B4C7EB92E542F711436C90A8685348C0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10538.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:13BF3BF7AAE53E26A9271EEABA45B946F655673A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10541.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.0105/dlc) Repack Other s [R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10542.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E6848322E75ACA0C2B53419B65CACE65D81146D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10543.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:E92B3044A97EB2A64E22AC547D1B803A4FE935E6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10545.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:EC70C625AD6658B806E8B740D20F04D34FCAC4B2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10547.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:30C9900B8C9A366883B23AB13CD818CB0ADBB785
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10548.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:2A11D5D471D54F1D47F9052D3D30BD8EBFE50CDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10549.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Windows 11 home x64 24H2 DiskExpansion by Alexandr1235 07.2025 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10550.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:8C87AB17D77A1CE9254FB758E8DF533169C8B512
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10552.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:48DA9B6ABC6A9AA19870E6FC24203D3E2A076E21
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10553.jpg" />
 </div>
 
 

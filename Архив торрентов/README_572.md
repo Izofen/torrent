@@ -6,7 +6,7 @@ Gekijouban Psycho-Pass: Providence | Психопаспорт: Провиден�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123138.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Display Driver Uninstaller 18.0.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123147.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8D30716F35F1466943EBA33E74A38E82B791236E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123153.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ CrystalDiskInfo 9.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123156.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Squid - рукописные заметки v4.0.26.0 Mod by Alex.Strannik [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123168.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ ImgDrive Pro 2.1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123175.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Windows 10 Debloater 2.6.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123190.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Start11 Version 2.05 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123207.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Path Finder 2166 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123250.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Money Pro - Personal Finance 2.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123257.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Final Draft 13 v.13.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123260.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Fork 2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123261.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ FontLab 8 v.8.3.0.8762 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123263.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ ExamDiff Pro Master Edition 14.0.1.20 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123267.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Opera Crypto Browser 106.0.4998.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123269.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Opera GX 106.0.4998.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123270.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Fort Firewall 3.10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123273.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Vivaldi 6.5.3206.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123274.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Chromium 120.0.6099.217 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123275.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ HWiNFO 7.69 Build 5330 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123277.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Icecream Slideshow Maker PRO 5.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123282.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ IceCream Ebook Reader Pro 6.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123287.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Opera One 106.0.4998.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123289.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Icecream Photo Editor Pro 1.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123291.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Icecream Video Editor Pro 3.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123295.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ EF Commander 2024.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123296.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Purvpn 8.8 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5741.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 139.0.7258.155 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5742.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Becastled (2021) [Ru/Multi] (0.9102) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5743.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Proton VPN 5.12.80.0 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5744.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:BF8F2AFEBA142037E98180A742F468DFC265EB92
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5745.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:BF8F2AFEBA142037E98180A742F468DFC265EB92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5746.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.2.0) Repack Let'sРlay [Supporter Bun
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5747.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2F8213373EC9595836255774B4FF0EE207405B37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5748.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5749.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:144ABB2F6437B2F2BA22D1CC449C9074E87366D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5750.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ MediaHuman YouTube Downloader 3.9.16 (2408) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5751.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3C061FA29BB753EF45EF5CB8E567A264A95D49ED
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5752.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ FOUNDRY (2024) [Ru/Multi] (0.6.0.21821) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5753.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wondershare Filmora 14.9.3.14445 (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5754.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MAX Desktop 25.8.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5755.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:0BA7DADBF8C7C430DF6A400D7AF53E2DCCAEB779
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5756.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Blackmagic Design DaVinci Resolve Studio 20.1.1 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5757.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:03FB2660434634E00FB8778AA13F8ED40FE5CCBE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5758.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:AFFEAFCC0466F7830FDD2D14A48EA5CD514AF1CC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5759.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:618AE186037A7BCDE4C7C208EA16D004508EC7E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5760.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5761.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack FitGirl [Director's Cut - Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5762.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:7EC7EB4C71AD6FF90A0B35480FAC0C39BB8EF68C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5763.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:FA20E5252059AE6A0DFCEAA79758526F8D517EF2
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5764.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:598686D75EF6791A06C8C51659BB86592805A24D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5765.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:CA381298038BE1D5355187AFA94599EFF122D57F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5766.jpg" />
 </div>
 
 

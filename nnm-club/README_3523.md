@@ -1,3 +1,80 @@
+###  Публикация: 1717182   (111280) от 18.04.2024
+
+PicWish: AI Photo Editor v1.6.10 Mod by derrin [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте самое простое приложение для редактирования фотографий с искусственным интеллектом! Удалите фон и размытие фотографии, чтобы ваши продукты выделялись! Вот ваши полностью автоматические функции ластик фона, улучшитель фотографий и ластик фотографий и ретушь. Никаких навыков не требуется. Супер простой в использовании.
+PicWish — фоторедактор с искусственным (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.04.2024Разработчик: WangxuTechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E9BFBF965CECDA80F3E8D00867932BC9578441
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716545   (111281) от 18.04.2024
+
+Лёша Закон (Алексей Глухов) - ''Нет Предела Беспредела'' (2024) [MP3|320 Kbps] <Acoustic, Punk, Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Intro [00:01:42]
+02-Нет предела Беспредела [00:02:35]
+03-Разъебу [00:02:12]
+04-Православные Кресты [00:03:53](   Читать дальше...   )Жанр: Acoustic, Punk, ChansonПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B90A164C6BF34A07B2EDC5FE961A969C3A7791
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717088   (111282) от 18.04.2024
+
+Q-Dir 11.55 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A627441F389EC0316C98AB77B3CC22B949F4B457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715571   (111283) от 18.04.2024
 
 Лёша Закон (Алексей Глухов) и ''Златоглавая Тверь'' - ''Тверь Над Всем Миром'' (2022) [MP3|320 Kbps] <Acoustic, Punk, Chanson>
@@ -6,7 +83,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111283.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Waterfox Current G6.0.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111284.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:5EB438636CA9E6AED1499B0883F36E581B9B3F2D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111285.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ Joe Sedita - They All Love Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111286.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ Bless Her Evil - We Are Mystery... (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111287.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ magnet:?xt=urn:btih:E1301FD59D98EEAC7EE75690FA753A332798BB8A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111288.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ Louis Prima & Keely Smith - Live from Las Vegas (1958) 2005, Capitol Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111289.jpg" />
 </div>
 
 
@@ -186,7 +263,7 @@ Crimson Train - Crimson Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111290.jpg" />
 </div>
 
 
@@ -213,7 +290,7 @@ Tedd Graves - The Day My World Turned Blue (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111291.jpg" />
 </div>
 
 
@@ -240,7 +317,7 @@ Engel Mayr - Heavy Metal Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111292.jpg" />
 </div>
 
 
@@ -267,7 +344,7 @@ magnet:?xt=urn:btih:EFA6987447A18F0C6A660F897909140B88CC6FE2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111293.jpg" />
 </div>
 
 
@@ -294,7 +371,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111294.jpg" />
 </div>
 
 
@@ -321,7 +398,7 @@ magnet:?xt=urn:btih:6BD69156E238F8ACFDC885795D17FE21A89D12A7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111295.jpg" />
 </div>
 
 
@@ -346,7 +423,7 @@ Firefox Browser 125.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111296.jpg" />
 </div>
 
 
@@ -370,7 +447,7 @@ Firefox Browser 125.0.1 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111297.jpg" />
 </div>
 
 
@@ -394,7 +471,7 @@ magnet:?xt=urn:btih:A2E9D55AA92ADEBFE9E1E0E6A69236AA957667D0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111298.jpg" />
 </div>
 
 
@@ -421,7 +498,7 @@ magnet:?xt=urn:btih:DB631C90EDA8437222F33256102B91F58E39A8A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111299.jpg" />
 </div>
 
 
@@ -445,7 +522,7 @@ Linda Ronstadt - Live in Los Angeles 1980 (2024) [MP3|320 Kbps] <Country Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111300.jpg" />
 </div>
 
 
@@ -472,7 +549,7 @@ Void Chapter - humAnIty (2023) Deluxe, 2024, FiXT[FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111301.jpg" />
 </div>
 
 
@@ -499,7 +576,7 @@ magnet:?xt=urn:btih:54360154BC4C291E766C629350D43EC27537FCD6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111302.jpg" />
 </div>
 
 
@@ -526,7 +603,7 @@ magnet:?xt=urn:btih:D4AE1157E245511B5DC2C9982F302A62E2F3C951
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111303.jpg" />
 </div>
 
 
@@ -553,7 +630,7 @@ magnet:?xt=urn:btih:8EBDCD661E60AB9F1147D5D2A19329D46EA2B306
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111304.jpg" />
 </div>
 
 
@@ -580,7 +657,7 @@ Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111305.jpg" />
 </div>
 
 
@@ -594,87 +671,6 @@ Side 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95CB92998D1079A31829EBE1339C27B851B056E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716735   (111306) от 17.04.2024
-
-The Dave McKenna Quartet featuring Gray Sargent - No More Ouzo For Puzo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look for the Silver Lining [4:57]
-02. Shake Down the Stars [5:29]
-03. Smile [5:25]
-04. Lonesome Me [3:22](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88DEF2CCCBDC14B48E8775510841CE7A677A8DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716734   (111307) от 17.04.2024
-
-Dave McKenna - Giant Strides (1979) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Dreams Come True [3:42]
-02. Yardbird Suite [2:58]
-03. Windsong [2:50]
-04. Dave's Blues [6:10](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB575D81D1B5B191763536F961242739D66D79F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716736   (111308) от 17.04.2024
-
-Dave McKenna & Gray Sargent - Recorded Live At Maybeck Recital Hall (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sheik of Araby [6:58]
-02. Girl of My Dreams [7:04]
-03. Red Woods in the Sunset [7:21]
-04. Letter Medley [13:34](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385B146980B5F1DD44DA29D10E2ED5C10AD94C09
 ```
 
 

@@ -1,3 +1,176 @@
+###  Публикация: 1433208   (158136) от 20.12.2020
+
+Журнал | AD / Architectural Digest [Россия]. Спецвыпуск. Маленькие квартиры (2021) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал AD (Architectural Digest)— ведущий международный журнал об архитектуре и дизайне представляет ежегодный специальный коллекционный выпуск «100 лучших дизайнеров и архитекторов России».
+
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E9186CB7BA7158847F7AE5530FE278CFA76745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193895   (158137) от 23.12.2017
+
+Сергей Лысак | В начале пути (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158137.jpg" />
+</div>
+
+
+###  Подробнее
+
+События по обе стороны Атлантики идут свои чередом, но ход Истории уже значительно изменился. Молодое государство Русская Америка доказало всем свое право на место под солнцем, что привело к целой цепи событий, считавшихся до этого невозможными. Прошли безвозвратно те времена, когда «цивилизованная» Европа могла диктовать всем свои правила с позиции силы. Однако… (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 11:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830A18AA28F9B7942D31E71FED658C2C7240B5B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853201   (158138) от 26.12.2014
+
+Donten ni Warau / Laughing Under the Clouds / Смех под облаками [2014, TV, 12 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расцвет эпохи Мэйдзи. Земля Ямато стремительно осваивает западный стиль жизни, освобождаясь от застывшего прошлого. Третий год действует закон о запрете ношения мечей, и самурайская вольница уходит в историю. Кто умнее – приспособился, а буйные головушки еще сопротивляются – от открытых бунтов до злостного хулиганства. Для таких власти создали спецтюрьму на острове посреди огромного озера Бива – но поди, доставь туда опасных преступников, уследи за ними по дороге. Тут в дело и вступает клан Кумо – лучшие во (   Читать дальше...   )Жанр: приключения, комедия, мистика, сёдзёРежиссер: Харагути ХиросиПеревод: YakuSub StudioФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118991225EBFF1180B42C10096D7D98D08426055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193899   (158139) от 23.12.2017
+
+Сильнее / Stronger  (2017) BDRip [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158139.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Джеффа Баумана, одного из участников трагических событий на Бостонском марафоне в 2013 году, лишившийся в результате взрывов обеих ног.Производство: США / Bold Films, Lionsgate, Mandeville Films, Nine Stories ProductionsЖанр: драма, биографияРежиссер: Дэвид Гордон ГринАктеры: Джейк Джилленхол, Татьяна Маслани, Клэнси Браун, Миранда Ричардсон, Фрэнки Шоу, Мишель Романо, Карлос Санс, Оуэн Бурк, Джон Поллоно, Дж.П. ВалентиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69560968355FF79F85D998E43E7DA6782762E292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968016   (158140) от 22.12.2015
+
+Преисподняя мертвых / Z airando (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя десять лет, глава клана якудза Хироя Мунакава (Шо Айкава), встречает своего верного соратника Такаши (Цуруми Синго) из тюрьмы. Парень принял удар вместо него, так что босс присматривал за его женой и дочерью, пока он отбывал срок. Но дочь Такаши, не желая встречаться с отцом, вместе со своей подругой сбежала на остров Зени. Однако, в это время на остров обрушилась (   Читать дальше...   )Производство: Япония / Kadokawa Daiei Studios, Nishimura Motion Picture Model Makers GroupЖанр: Ужасы, БоевикРежиссер: Хироси СинагаваАктеры: Сё Айкава, Дайго, Кунихиро Кавасима, Шунсуке Кадзама, Ючи Кимура, Ёскэ Кубодзука, Даизуке Миягава, Эрина Мизуно, Хидео НаканоПеревод: Двуголосый закадровый, любительскийЯзык субтитров: ОтсутствуютПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F510D1508EEAF589F43702DF1B5A3910F640F21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433189   (158141) от 20.12.2020
+
+Одни ли мы во Вселенной? / Et si la terre etait unique? (2019) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158141.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение многих десятилетий астрономы изучали галактику в поисках планет, похожих на нашу. Но ни одна солнечная система не обладает такой организацией, которая позволила бы появиться земной экосистеме. Может быть, мы победители в невероятной космической лотерее? Что, если на самом деле планета Земля - уникальна? Есть веские основания утверждать, что присутствие (   Читать дальше...   )Производство: Франция / Point du Jour, CNRS Images, France.tv studio, France Télévisions, Ushuaïa TVЖанр: Документальный, космосРежиссер: Laurent LichtensteinПеревод: Двуголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 01:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A7C369A3606BA4551AD23A507AFA2EC67EA32F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967591   (158144) от 22.12.2015
+
+Елена Звездная | Темная Империя. Книга 3 (2014) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный текст романа Темная Империя. Книга 3, из цикла "Миры Хаоса".
+Место действия - Темная Империя, Миры Хаоса, Третье королевство.
+Временные рамки - сразу после событий в книге Академия Проклятий.
+Главные герои - Даррэн Эллохар и все-все-все.(   Читать дальше...   )Жанр: Фэнтези, любовный романФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80449E8412E761A5449A05227CBCDE92BACCC122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433312   (158145) от 20.12.2020
 
 Горные лыжи. Кубок мира 2020-2021. 6-й Этап. Валь д Изер (Франция). Мужчины. Скоростной спуск (2020) IPTVRip [H.264/1080p-LQ]
@@ -6,7 +179,7 @@
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158145.jpg" />
 </div>
 
 
@@ -33,7 +206,7 @@ magnet:?xt=urn:btih:D322908967BC05C6CA9720069AE5ACF6432B4B85
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158146.jpg" />
 </div>
 
 
@@ -57,7 +230,7 @@ SparkyLinux 4.2 Tyche (Включая легкие дистрибутивы) [i5
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158148.jpg" />
 </div>
 
 
@@ -83,7 +256,7 @@ Social! for WhatsApp 0.9.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158149.jpg" />
 </div>
 
 
@@ -110,7 +283,7 @@ magnet:?xt=urn:btih:6294A8AB8CAA06F469CEFD67BD8882781AEBDC1C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158151.jpg" />
 </div>
 
 
@@ -134,7 +307,7 @@ Matt Zajac - Garden of Hedon (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock; P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158152.jpg" />
 </div>
 
 
@@ -161,7 +334,7 @@ WinToUSB Enterprise 2.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158153.jpg" />
 </div>
 
 
@@ -185,7 +358,7 @@ magnet:?xt=urn:btih:ED60B1152D70A8434C9673A8F8526A0FE579480C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158154.jpg" />
 </div>
 
 
@@ -209,7 +382,7 @@ magnet:?xt=urn:btih:55C6E9C988BEE2F5271E72D111660DC38D5D4D04
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158155.jpg" />
 </div>
 
 
@@ -235,7 +408,7 @@ ComboFIX 15.12.16.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158156.jpg" />
 </div>
 
 
@@ -259,7 +432,7 @@ Manzanita Blues - To Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158157.jpg" />
 </div>
 
 
@@ -286,7 +459,7 @@ magnet:?xt=urn:btih:ADFB8ACE90454BF4EAC800F0C47B82D18AFACF1B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158159.jpg" />
 </div>
 
 
@@ -310,7 +483,7 @@ magnet:?xt=urn:btih:BBF84E9D244176DF2E6410E3C83AA891832D9E56
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158160.jpg" />
 </div>
 
 
@@ -334,7 +507,7 @@ magnet:?xt=urn:btih:9B6F9036C784B278924897CB8F45E1A1D7D51052
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158161.jpg" />
 </div>
 
 
@@ -358,7 +531,7 @@ magnet:?xt=urn:btih:8EDEAC3E9C7995095F971A0DCE4DF035C41B1FA0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158162.jpg" />
 </div>
 
 
@@ -382,7 +555,7 @@ magnet:?xt=urn:btih:43B5575968E4E750674501979066BC0156723ED2
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158163.jpg" />
 </div>
 
 
@@ -406,7 +579,7 @@ magnet:?xt=urn:btih:72B88928A797438DD3BDE1CC05DF734098CC4FC9
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158164.jpg" />
 </div>
 
 
@@ -430,7 +603,7 @@ magnet:?xt=urn:btih:FEA14E4C9F8CF35E76B58A3B1CA01B3DD779B806
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158165.jpg" />
 </div>
 
 
@@ -454,7 +627,7 @@ magnet:?xt=urn:btih:6370EB97FE5BE6BAC009F77891564EDE0371DF55
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158166.jpg" />
 </div>
 
 
@@ -465,185 +638,6 @@ magnet:?xt=urn:btih:6370EB97FE5BE6BAC009F77891564EDE0371DF55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE06894B066EC8DBAADB519212D130E38270CF0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433228   (158167) от 20.12.2020
-
-Фотографии - PHOTOBASH - AERIAL SKIES [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой набор облаков и неба, снятых на большой высоте. Этот пакет был снят в дневное время и включает в себя образования кучевых облаков и аэрофотоснимки.Формат: JPGРазрешение файлов: 3526x5290-9810x3922
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77B4A028421B25985DA8324E041B09D43B2AF8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433250   (158168) от 20.12.2020
-
-Фотографии - PHOTOBASH - FIRE & FLAMES [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой набор огня и пламени на черном фоне. Включает факелы, растопки и тлеющие угли. Каждый тип пламени был снят сериями с различной выдержкой.Разрешение файлов: 4000x6000-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E62A9BF3273A008CA5076235223E695589BFC7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968049   (158169) от 22.12.2015
-
-Telarc Heads Up SACD Sampler Vol 7 (2009) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158169.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Some Skunk Funk - Randy Brecker with Michael Brecker
-2. Oh What A Beautiful Morning - Ray Charles
-3. You Are My Sunshine - Tierney Sutton Band
-4. Caravan - Hiromi(   Читать дальше...   )Жанр: VariousПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F0145D314C14A655120B3B2E310342B4BAD24F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967489   (158170) от 22.12.2015
-
-Enigma - A Posteriori (Private Lounge Remix) (2007) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Electronic, Trance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eppur Si Muove (Tocadisco Remix 2) (06:11)
- 02. Feel Me Heaven (Boca Junior Remix) (06:24)
- 03. Dreaming Of Andromeda (Jean F. Cochois Remix) (07:28)
- 04. Dancing With Mephisto (Boca Junior Remix) (05:28)(   Читать дальше...   )Жанр: Downtempo, Electronic, TranceПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049DB6E8661FABC12970950F19B33AFDAE6B31B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968080   (158171) от 22.12.2015
-
-Карандаш - Монстр (2015) [MP3|320 кб/с] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вернулся
-02. Много Лет
-03. Отражение (feat. Пицца)
-04. Кольцо (skit)(   Читать дальше...   )Жанр: RapПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D387ED7626DCE2B2B96716000BE649C235854CCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967930   (158172) от 22.12.2015
-
-Одинокий голубь / Lonesome Dove (1989) BDRip [H.264/720p] (серии 1-4 из 4)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это потрясающе снятая сага о старом Западе, история любви и приключений Аугустуса МакКреа и Вудроу Колла — героев грандиозного эпоса. Техасские бродяги становятся партнерами и друзьями, помогающими друг другу переносить лишения, опасности, тяготы…Производство: СШАЖанр: драма, приключения, вестернРежиссер: Саймон УинсерАктеры: Роберт Дювалл, Томми Ли Джонс, Дэнни Гловер, Дайан Лэйн, Роберт Урих, Фредерик Форрест, Д.Б. Суини, Рик Шродер, Анжелика Хьюстон, Крис Купер и др.Перевод: двухголосый, закадровый, профессиональныйЯзык субтитров: английскийПродолжительность: 01:34:36 + 01:30:16 + 01:34:01 + 01:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7759AF0E52DE70B671EFCECF405EE7D446431B40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968135   (158173) от 22.12.2015
-
-Векторный клипарт - Set of Elegant VIP cards and invitation cards with bows [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративные шаблоны для дизайна.
-Набор VIP карточек и элегантные пригласительные с бантами.
-5 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E910DF4835ECD8B20F85DC0BBE60FA40F07039
 ```
 
 

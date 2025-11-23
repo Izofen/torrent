@@ -6,7 +6,7 @@ StartAllBack 3.9.4 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27104.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27104.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ HiBit Uninstaller 3.2.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27110.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27110.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ qBittorrent 5.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27131.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27131.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.60.7300 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27134.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27134.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ WinRAR 7.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27144.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27144.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Adobe Acrobat Pro 2024.005.20414 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27145.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27145.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Windows 11 PRO 23H2 22631.4890 Update 16 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27149.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27149.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ qBittorrent 5.0.4 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27153.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27153.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Topaz Video AI 6.1.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27160.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27160.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Total Commander 11.51 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27180.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27180.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:BB6C52540FCD1F4802601E11C9C36A71E7E2B446
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27192.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27192.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Foobar2000 2.24.2 include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27219.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27219.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1F5FB60896CF8F0A38C1E9169197064ACE3B80C5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27222.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27222.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Activation Program 1.03 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27237.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27237.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.60.7300 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27239.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27239.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ AOMEI Backupper Technician Plus 7.4.2 RePack by KpoJIuK DC 18.02.2025 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27247.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:198BC461282E4A9592159FB6B74AD0C3035A4445
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27253.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Snappy Driver Installer Origin R812 | Драйверпаки 25.01.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27265.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27265.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ WinRAR 7.10 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27276.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6E4A76379102C015C6E2D0890C660F25F73C17DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27286.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ RegCool 2.030 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27298.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ XYplorer 26.80.0900 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27331.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ XtraTools Professional 25.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27340.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Vov Sticky Notes 9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27344.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ AntiPlagiarism.NET 4.137.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27349.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27349.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Activation Program 1.02 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27355.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27355.jpg" />
 </div>
 
 

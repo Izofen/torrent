@@ -1,3 +1,57 @@
+###  Публикация: 1590508   (188754) от 14.11.2022
+
+VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Million Dollar Baby
+02. Lizzo - About Damn Time
+03. Ed Sheeran - 2step (feat. Lil Baby)
+04. Alex Warren - Headlights(   Читать дальше...   )Жанр: Synthpop, Disco, Dance, Hip HopПродолжительность: 01:42:39 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5263B42AA4DFBE986CE2BCAB6A84514F501920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590507   (188790) от 14.11.2022
+
+VA - Totally Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Dance, Rhythm & Blues>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LF SYSTEM - Afraid to Feel
+02. David Guetta - Family Affair (Dance for Me)
+03. Nathan Dawe - 21 Reasons (feat. Ella Henderson)
+04. Tiesto - Hot in It(   Читать дальше...   )Жанр: Electropop, Synthpop, Dance, Rhythm & BluesПродолжительность: 01:21:24 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170C5A3F0207B8238A939CEF986FED743AD8D751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590509   (188804) от 14.11.2022
 
 VA - Let's Dance Baby Vol. 2 (2022) [MP3|320 Kbps] <Dance, Electro Pop, Progressive, Groove>
@@ -6,7 +60,7 @@ VA - Let's Dance Baby Vol. 2 (2022) [MP3|320 Kbps] <Dance, Electro Pop, Progress
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188804.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188804.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ VA - Compilation Part 10 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189668.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_189668.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ VA - Dance Remixes 2022 Formentera Edition (2022) [MP3|320 Kbps] <Euro Dance, Cl
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191024.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191024.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ VA - The Best Songs of All Time - Greatest Hits (2023) [MP3|320 Kbps] <Dance, Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191093.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191093.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ GAYAZOVS BROTHERS - Синглы и ремиксы (2015 - 2022) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191893.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191893.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ VA - In Mood Styles Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Hands Up,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192003.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192003.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ VA - Halloween Party 2022 (Powered By Xtreme Sound) (2022) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192119.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192119.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 2 (2022) [MP3|320 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192246.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192246.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193648.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193648.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 13 (2023) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194892.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194892.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ VA - Лето на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195314.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195314.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ VA - Summer Hits (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195353.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195353.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ VA - Relax FM for a Good Evening 2 (2023) [MP3|320 Kbps] <Pop, Easy Listening>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195543.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195543.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ VA - Музыка для машины Vol.30 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195889.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195889.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ VA - Pop 3 Remix NNM (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196113.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196113.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ VA - Музыка для машины Vol.27 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196897.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196897.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ VA - 90s Eurodance: XXL Super Sounds 90s (2020) Unofficial [MP3|320 Kbps] <Eurod
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198185.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198185.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ VA - Hits from 20th century films (2023) 3CD [MP3|320 Kbps] <Pop, Soundtrack, Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198700.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198700.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ Various Artists - Ballads Classic Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198781.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198781.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ VA - Весна на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199537.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199537.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ VA - Retro Vintage Best Vibes (2023) [MP3|320 Kbps] <Synthpop, Disco, New Wave, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199675.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199675.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ VA - Hits of Active Rest (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199880.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199880.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ VA - 90er - 100 Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200245.jpg" />
 </div>
 
 
@@ -626,7 +680,7 @@ VA - Disco-Rock Dancing 70-80's (2023) [MP3|320 Kbps] <Electronic, Pop Rock, Dis
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200519.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200519.jpg" />
 </div>
 
 
@@ -640,60 +694,6 @@ VA - Disco-Rock Dancing 70-80's (2023) [MP3|320 Kbps] <Electronic, Pop Rock, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DCC3BA506E6AF47E7B1867133867BE8F7CFA509
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619873   (201107) от 18.03.2023
-
-VA - Back To 90S: Hot Remixes (2023) [MP3|320 Kbps] <Nu-Disco, Indie Dance, Euro-Disco, Synth-Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chain Reaction - Dance Freak
-002. Marianne Faithfull - Sex With Strangers
-003. Jesse Gould - Out Of Work
-004. Strawberry Station - Future Funk(   Читать дальше...   )Жанр: Nu-Disco, Indie Dance, Euro-Disco, Synth-PopПродолжительность: 12:06:31 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07102C9616F29E1708F030DDF2E36B184DB9184D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829678   (201786) от 26.10.2025
-
-Sofia Bellini - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Smile, My Sunshine
- 02 - Amore Mio
- 03 - Come Stai, Tesoro? (Version 1)
- 04 - È Una Meraviglia!(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7D8E25852555CACAED546E2096AA692382ABB1
 ```
 
 

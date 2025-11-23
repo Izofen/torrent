@@ -1,3 +1,75 @@
+###  Публикация: 1701009   (116688) от 19.02.2024
+
+DiskDigger 1.157.227.3821 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116688.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEC94216F8EEEC151FF3D3CEECA81E61B6BD09D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700929   (116689) от 19.02.2024
+
+Вороний квартал / Kvarteret Korpen / Raven's End (1963) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в рабочем квартале в шведском городе Мальмё в 1936 году. Молодой рабочий Андерс заканчивает свой первый роман, в котором описывает жизнь в своем квартале, и мечтает найти издателей в Стокгольме. Его отец, неудачливый коммивояжер, постепенно спивается. Во всех своих проблемах он обвиняет жену, мать Андерса, которая зарабатывает на жизнь (   Читать дальше...   )Производство: Швеция / Europa FilmЖанр: драмаРежиссер: Бу ВидербергАктеры: Томми Бергрен, Кеве Эльм, Эми Сторм, Ингвар Хирдвалль, Кристина Фрамбэк, Агнета Притц, Louise Gustafsson, Fritiof Nilsson Piraten, Hugo Tunnbindare, Нина ВидербергПеревод: Многоголосый профессиональный (студия "Омикрон")Язык озвучки: русский, шведскийСубтитры: английские, русскиеПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5284667C16E7D861082CCBD4D0FF9C57A935950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701079   (116690) от 19.02.2024
+
+Дмитрий Биленкин | Звездный аквариум (2024) [MP3, Червь Книжный]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116690.jpg" />
+</div>
+
+
+###  Подробнее
+
+После аварии космического корабля вблизи астероида, единственный выживший член экипажа - пилот Петров, оказался заперт внутри капсулы на орбите вокруг безжизненного астероида. Ему нужно подать сигнал бедствия, чтобы спасти себя, но он не знает, как это сделать, так как никто не знает о его местонахождении.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBDB7BD767CD310EA639C9E00BB08CF08CB3B7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701104   (116691) от 19.02.2024
 
 Opera GX 107.0.5045.30 + Portable [Multi/Ru]
@@ -6,7 +78,7 @@ Opera GX 107.0.5045.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116691.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:C27DD2423B029BD490EA590C7E8897F8316BBAD0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116692.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:7A74AB52D61DB59E7A56DF9E418CAE7049B458FB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116693.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Chromium 121.0.6167.185 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116694.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:024D0927BAF6C333A9BEDE58F4518CB5F5DFB14B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116695.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116696.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116697.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116698.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Erin Ross - The Wind Will Lead Me Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116699.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:B6DCE573995C8D7B6A998AA865D8DC2C6B622D95
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116700.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ Telegram Desktop 4.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116701.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:BA6CDE766168FFF7F8C270A70D7F23FE2FEF3AD2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116702.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Notepad++ 8.6.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116703.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Revo Uninstaller Pro 5.2.5 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116704.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:0C31B1C5F45AAD0C71573B0E022CDC258C986C52
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116705.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ VA - Milk & Sugar Winter Sessions 2024 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116706.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ Topaz Photo AI 2.3.2 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116707.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ magnet:?xt=urn:btih:FC52E5E22B13D109365CAA6039D85BE42A65B123
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116708.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:9717A11C5CE63737BF4D9219AC7EA1A59054263A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116709.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ HiBit Uninstaller 3.1.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116710.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ HiBit Startup Manager 2.6.35 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116711.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ USB Device Tree Viewer 4.0.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116712.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ magnet:?xt=urn:btih:2D7F5D01B282D1E402B70FE3D0ED73955341E3F5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116713.jpg" />
 </div>
 
 
@@ -559,78 +631,6 @@ magnet:?xt=urn:btih:2D7F5D01B282D1E402B70FE3D0ED73955341E3F5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8437AD17764E18BE7A2AE3FE28B370180765D6DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701108   (116714) от 19.02.2024
-
-Эдуард Хруцкий | Тени кафе «Домино» (2024) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116714.jpg" />
-</div>
-
-
-###  Подробнее
-
-1922 год. Москва. В знаменитом кафе «Домино» на Тверской улице собирается самая разношерстная публика: артистический бомонд, поэты и художники, бандиты и бывшие уголовники, новоиспеченные «генералы» Гражданской войны, а так же сотрудники милиции и ОГПУ, которые внимательно наблюдают за всеми посетителями и собирают информацию, помогающую в раскрытии многих преступлений, (   Читать дальше...   )Жанр: ДетективИздательство: СОЮЗПродолжительность: 08:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF7F9134467606E51BA38360F700A45892D7D1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701154   (116715) от 19.02.2024
-
-FastCopy Pro 5.7.0 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116715.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76345F419F63ED3B6A5AE6E928A2836FC974ECC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700910   (116716) от 19.02.2024
-
-Призраки: Чужая жизнь / Two Sisters (2019) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несчастье в семье по разному повлияло на сестер Мэй. Но время и доктора психиатрической клиники лечат больные души, так по крайне мере думала Уэ, когда забрала сестру к себе домой. После ее возвращения в доме стали происходить странные вещи.Производство: Малайзия / Kuman PicturesЖанр: ужасы, драмаРежиссер: Джеймс ЛиАктеры: Эмили Лим, Лим Мэй Фэнь, Уилльям Бу, Пейдж Чань, Адери Чинь, Майк Чуа, Джойс Харн, Анхелина Ху, Венис Нг, Джулианн ТаньПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97848E495236ACBED483A28FC91F9592BFAF1436
 ```
 
 

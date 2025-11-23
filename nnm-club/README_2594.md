@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68192.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6E137817FCA028D3B7E0927F851163B70C20FAF5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68193.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Urban Grooves Vol. 5 (Urban Funk Breaks Dub Hip Hop Beats) (2025) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68194.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2F8DF9FFD33AF9E05D0CA8CCC17F9012813C8551
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68195.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Manowar - Defender (1983) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68196.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Grace VanderWaal - Childstar (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68197.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bright Light Bright Light - Enjoy Youth (2024) Enjoy More: Deluxe Version, 2025,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68198.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Savage Master - Dark & Dangerous (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68199.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Seven - Interdimensional Act III Shadows in the Sky (2025) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68200.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Benediction - Ravage Of Empires (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68201.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Nightwish - Bye Bye Beautiful (2008) (Single) [FLAC|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68202.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sirens - In Goat We Trust (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68203.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Luna Kills - Deathmatch (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68204.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Lo-Pan - Get Well Soon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68205.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Fractal Universe - The Great Filterspic (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68206.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Fear Factory - Fear Is the Mindkiller (1993) (EP) [FLAC|24/192|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68207.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Centhron - Liebe ist Krieg (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68208.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Manowar - Battle Hymns (1982) Reissue, 1987, Liberty [DSD|tracks|Vinyl-Rip] <Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68209.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:8E2ED05EF6FE0C72B96C9CE05E069E1EE027D524
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68210.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:98EFB740A6F853A52811455CDFB17E4ADD5CCE0A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68211.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:4DE6F650B9AB3D15D2E7E4E51E5B1225B706AB20
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68212.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Borssch (Борщ) - Экзистенция (2025) [MP3|320 Kbps] <Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68213.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:8D394C2A4DA4400D55BAD5A00E2D9951535958BD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68214.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Acid Jazz Beats & Breaks Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68215.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:99D43E68FC5CBF292334A6111A13FC9B02CB5098
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68216.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Fatal Embrace (Germany) - Studio Albums (7 releases) (2000-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68217.jpg" />
 </div>
 
 

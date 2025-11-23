@@ -6,7 +6,7 @@ EmEditor Professional 12.0.8 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132739.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EmEditor Professional способен открывать очень больш�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132756.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ New year wallpapers 2013 (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132760.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Diplo & Friends - Dada Life Guest Mix (23.12.2012) [MP3|320 кб/с]<House / Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132762.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:1237169CD6FC6FB190446ACCC45163CE4AEE6258
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132772.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:3432E3AA200C2C28D6316E75D02B191C025093FF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132773.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:C873B6B512A7A11268C5C175B3717D5DED3ECF5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132775.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ F1 Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132778.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Creative Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132791.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Hotel Lounge IV by Bar de Paris (2012) [MP3|320 кб/с]<Downtempo, Lounge,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132796.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Interior Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132797.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:8E0A653609900962E6AFB015EC482F12614C1B2E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132801.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:BEF29F67CFED10EB8F61E281A0F44EAA5233A3B9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132805.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ A Place In Time - Transitions [EP] (2012) [FLAC|Lossless]<Pop Punk, Easycore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132807.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ SynWrite Editor 4.6 build 552 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132809.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Computer Desktop Wallpapers Collection (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132811.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Computer Desktop Wallpapers Collection (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132813.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Lynx Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132815.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ HQ Wallpapers for a desktop (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132817.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Best HD Wallpapers Pack (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132819.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Best HD Wallpapers Pack (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132821.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Nature Wallpapers (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132828.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Sexy Girls Wallpapers (27.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132829.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Nature Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132830.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Sexy Girls Pack Wallpapers (27.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132831.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Sexy Girls Pack Wallpapers (26.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132835.jpg" />
 </div>
 
 

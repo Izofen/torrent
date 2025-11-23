@@ -6,7 +6,7 @@ Pale Moon 33.0.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115373.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RadioBOSS Advanced 7.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115382.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Total Commander 11.03 (26.02.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115386.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FastCopy Pro 5.7.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115389.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ashampoo WinOptimizer 26.00.24 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115391.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ StartAllBack 3.7.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115394.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Adobe Media Encoder 2024 24.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115402.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ StartAllBack 3.7.5 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115415.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Adobe Audition 2024 24.2.0.83 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115417.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115426.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Hiren’s BootCD PE x64 v1.0.7 (26 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115432.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe After Effects 2024 24.2.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115448.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Total Commander 11.03 Final - Titan v34 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115449.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Windows 10 PE x64 by AnkhTech V7.5 (26.02.2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115450.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Tablacus Explorer 24.2.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115485.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ K-Lite Codec Pack Update 18.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115504.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ PrivaZer 4.0.83 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115514.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Chromium 122.0.6261.70 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115520.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ungoogled Chromium 122.0.6261.69-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115525.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ RegCool 1.361 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115538.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Revo Uninstaller Pro 5.2.6 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115545.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ RAM Saver Professional 24.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115548.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Advanced Renamer 3.94.3 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115551.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Revo Uninstaller Pro 5.2.6 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115553.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ XtraTools Professional 24.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115559.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Psiphon 3 build 181 (25.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115566.jpg" />
 </div>
 
 

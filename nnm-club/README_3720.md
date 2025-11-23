@@ -1,3 +1,76 @@
+###  Публикация: 1701496   (116402) от 21.02.2024
+
+Capture One 23 Enterprise 16.3.6.1949 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507B7D60B5C8B162DF1944602F355132927660E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701604   (116403) от 21.02.2024
+
+ASCOMP Cleaning Suite Pro 4.010 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116403.jpg" />
+</div>
+
+
+###  Подробнее
+
+ASCOMP Cleaning Suite - программа для комплексной очистки системы и настройки Windows, которая проанализируют систему и поможет выполнить глубокую очистку и оптимизацию ПК.
+﻿Если система загружается все медленнее и места на жёстком диска уже недостаточно, то самое время тщательно очистить систему! Но какие данные могут быть удалены без риска и какие все еще (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11991802F06A418CE1024063920C9E2D0AE5F233
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701481   (116404) от 21.02.2024
+
+CPUID HWMonitor Pro 1.53 (x64) Portable by Padre Pedro [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116404.jpg" />
+</div>
+
+
+###  Подробнее
+
+CPUID HWMonitor - утилита предназначена для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. показателей накопителей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D332918BE0DE7EAC8696767AE03444AD3A58B6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698697   (116405) от 21.02.2024
 
 Гибель на вулкане Кракатау / Krakatoa: East of Java (1968) BDRip [H.264/720p] [AVO]
@@ -6,7 +79,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116405.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:E00E27591BFF7621689B5152ABE7CC52A152687F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116406.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:E00E27591BFF7621689B5152ABE7CC52A152687F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116407.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:FCE1D114F136B2CEA25CCDA23F545F9802325168
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116408.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:FCE1D114F136B2CEA25CCDA23F545F9802325168
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116409.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ CPUID HWMonitor 1.53 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116410.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ magnet:?xt=urn:btih:427AD4622B8468009266F9DF50BFDE906338123C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116411.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ magnet:?xt=urn:btih:EF1EC6B9C4D37E5DB5FFEF9841AB9FC373146F49
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116412.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ Structure Studios - VIP3D Suite v3 2023.1.4 by Zmco [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116413.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ OneLoupe 5.77 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116414.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ Gentoo Linux 2024-02-18 [i386/amd64] 1xCD, 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116415.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:1424E846034A9020573444D1E8B64C4866DBBE3D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116416.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ magnet:?xt=urn:btih:4837E0547F1151C576DA34E1C558E3EE235801FB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116417.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ NVIDIA NVFlash 5.821.0 (x64) Portable [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116418.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ magnet:?xt=urn:btih:8D9502EF8F77037F49B5F1EFF60F7EE2072AD70B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116419.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ StartAllBack 3.7.4 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116420.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:3803F863AB96D02FE94D6132DB50228575FF3DB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116421.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ magnet:?xt=urn:btih:F939E20B758AEF7A7749658C25C4409A4C677A1C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116422.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ magnet:?xt=urn:btih:CB021ADA98E31CBF6FF4F164F2F9F5711B662562
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116423.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ magnet:?xt=urn:btih:C01C44886BDBDDFEB18B801D4540868DFD0A5D6B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116424.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116425.jpg" />
 </div>
 
 
@@ -519,7 +592,7 @@ magnet:?xt=urn:btih:E4F454352C207788F29FD809D8B02B3248133EC9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116426.jpg" />
 </div>
 
 
@@ -543,7 +616,7 @@ magnet:?xt=urn:btih:A78B250FB162D8D2305FD0EFD915FE65502D88AE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116427.jpg" />
 </div>
 
 
@@ -555,80 +628,6 @@ magnet:?xt=urn:btih:A78B250FB162D8D2305FD0EFD915FE65502D88AE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C425823415A73ADB14B08A5E6332BBA7177C594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655031   (116428) от 21.02.2024
-
-Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Order | Ву Гэн Цзи | Джи Ву Ген - Непокорный воле богов [2016 - 2023, TV, сезон 1-4, 156 из 156] WEBRip HEVC 1080p HS+rus
-
->>Аниме разное
->>Аниме хардсаб
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Император северных земель Ван Чжоу отказывается подчиниться воле богов и жить под их тиранией, тем самым навлекая на свой народ божественный гнев. На помощь Ван Чжоу приходит его старый друг и соперник Юй Цзы, легендарный мастер меча, равному которому нет.
-И если Император сражается за свой народ, стремясь свергнуть богов, то Мечник сражается лишь, чтобы защитить (   Читать дальше...   )Производство: Sparkly Key Animation StudioЖанр: экшен, фэнтези, сверхъестественное, исторический, боевые искусстваРежиссер: Шэнь ЛэпинЯзык озвучки: Русский (Anton Shanteau, Женька Пипец)Субтитры: Русские на надписи (неотключаемые), Китайские(неотключаемые)Продолжительность: 156 x ~ 10 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3589271516B3F6B2661301622FBA5589815340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701517   (116429) от 21.02.2024
-
-Хоккей. НХЛ 2023-2024. Нью-Йорк Айлендерс - Питтсбург Пингвинз (20.02.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116429.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 февраля 2024, среда. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 016 зрителей (96% при вместимости 18 673)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Картер Сандлак (Лондон, Канада); Линейный: Брэд Ковачик (Вудсток, Канада); Линейный: Дэн Келли (США)Телекомпания: SNPITЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425E2A5FC79879EB3348E7E6C527FB0ADAFE4F4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 353034   (116430) от 21.02.2024
-
-Исаак Бабель | Линия и цвет. Рассказы (2008) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116430.jpg" />
-</div>
-
-
-###  Подробнее
-
-В аудиокниге представлены 4 сборника произведений известного писателя начала XX века Исаака Эммануиловича Бабеля: «Рассказы 1920-1937», «Линия и цвет», «Гюи де Мопассан», «Иисусов грех». В них автор со свойственным ему натурализмом изображает кровавые, но подчас и трагикомические картины гражданской войны, организации первых колхозов, продовольственных экспедиций. (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-МПродолжительность: 04:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2E425550DD103D47F1E698338656232D669463
 ```
 
 

@@ -6,7 +6,7 @@ WinHelper 1.4.0 Portable [Русский]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84384.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SBMAV Disk Cleaner 3.50.0.1326 + Portable [English+Russian]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85791.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SBMAV Disk Cleaner - мощный набор инструментов для о�
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86628.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ KaraKEYoke Karaoke 3.3.1 [Русский/Анлийский]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86680.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ dupeGuru Picture Edition 2.5.0 [Multi/Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86842.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Hardcoded Software dupeGuru Pack by Wadimus [04.04.12] [Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87046.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ LearnWords 6.0 [Multi/Rus] + Portable by BALISTA
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90551.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Master PDF Editor 5.9.95 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91226.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Reg Organizer 9.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91227.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Revo Registry Cleaner Pro 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91228.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Advanced Renamer 4.17 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91253.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Soft Organizer Pro 10.31 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91264.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Reg Organizer 9.86 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91285.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Reg Organizer 9.86 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91297.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ MediaInfo 25.09 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94502.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Caramba Switcher 2025.10.03 Test [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94564.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Flyoobe 1.25.485 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94566.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Firefox Browser 143.0.4 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94617.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Firefox Browser 143.0.4 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94619.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Calibre 8.12.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94623.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ By Click Downloader Premium 2.4.26 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94625.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ UltraUXThemePatcher 4.5.0 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99929.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ StartAllBack 3.9.16 build 5320 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100733.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Display Driver Uninstaller 18.1.3.5 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100792.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ AnyBurn 6.6 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100806.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ StartAllBack 3.9.16 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100873.jpg" />
 </div>
 
 

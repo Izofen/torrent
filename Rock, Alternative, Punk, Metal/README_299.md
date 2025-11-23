@@ -1,3 +1,30 @@
+###  Публикация: 1595350   (175669) от 05.12.2022
+
+Rosanna's Raiders - Calling Down Fire (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Raiders
+02. Just Like A River
+03. Serve Someone
+04. Good News(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240901F6EEF353703C93662681DDBF33F1437098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595406   (175674) от 05.12.2022
 
 Mentalist - Freedom of Speech (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Heavy Metal>
@@ -6,7 +33,7 @@ Mentalist - Freedom of Speech (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175674.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175674.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Asterise - Two Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175675.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175675.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Metal Order - Adventures & Nightmares (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175677.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175677.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Nightmare - Aeternam (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175680.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175680.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Temple Agents - Next Step (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175697.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175697.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Paul Bartolome - Reflections (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175701.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175701.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ magnet:?xt=urn:btih:D7E1525D8E1D56275AB0681161AA7A25B986E7C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175715.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175715.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Endtime - Impending Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175717.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175717.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Symbol Of Obscurity - n.N.i.M.m. (2007) [WavPack|Lossless|image + .cue] <Melodic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175723.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175723.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Disturbed - The Sickness (2000) Remastered, 2010, Reprise Records [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175729.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175729.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ magnet:?xt=urn:btih:4C9FE15E7B0B7A36EDD71FDD54A177A714666039
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175839.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175839.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ Lee Aaron - Almost Christmas (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175876.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175876.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ magnet:?xt=urn:btih:689ED42C1B00DD6A58D439EEE71BAE43A336D229
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175908.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ One Desire - Midnight Empire (2020) Jараnеsе Еditiоn [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175914.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175914.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ Lionville - Magic Is Alive (2020) Jараnеsе Еditiоn [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175936.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175936.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ Butcher - 666 Goats Carry My Chariot (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175996.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175996.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ Disturbed - Believe (2002) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176014.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176014.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ Outland - Where Do We Go From Here? (2022) [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176018.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176018.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ Disturbed - The Sickness (2000) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176022.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176022.jpg" />
 </div>
 
 
@@ -519,7 +546,7 @@ magnet:?xt=urn:btih:6AACD8DC8533A51772804B36C287B8754F03796D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176026.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176026.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ Infernal Majesty - No God (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176075.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176075.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ Luca Turilli - King Of The Nordic Twilight / The Forest Of Elves (1999) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176088.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176092.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ Delight - Last Temptation (2000) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176106.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ Grymheart - Hellish Hunt (2023) [FLAC|Lossless|image + .cue] <Melodic Death Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176116.jpg" />
 </div>
 
 
@@ -668,33 +695,6 @@ Grymheart - Hellish Hunt (2023) [FLAC|Lossless|image + .cue] <Melodic Death Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA42EB9999FAE8A312422F1D8F2EA419D2299D34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667770   (176118) от 09.10.2023
-
-Random Deathmatch - Reach Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mulldrifter [00:05:12]
-02. Sentinel Totem [00:05:24]
-03. Sustenance [00:03:57]
-04. Athreos [00:05:59](   Читать дальше...   )Жанр: Alternative Rock, Metal, Female VocalsПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5469CDA0580B1AD0C8A44FE8A0E36FD1705EA371
 ```
 
 

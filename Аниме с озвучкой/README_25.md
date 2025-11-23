@@ -1,3 +1,27 @@
+###  Публикация: 1610724   (207872) от 08.02.2023
+
+86 | Eighty-Six | Восемьдесят шесть [2021, TV, 23 из 23] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгое время Республика Сан-Магнолия находится в военном конфликте с Империей, соседним государством, которое создало серию беспилотных военных машин. В ответ на угрозу республика успешно завершает разработку аналогичной технологии и отражает атаку противника, сумев обойтись без жертв. Однако это... официальная версия. На самом деле жертвы были. За пределами известных (   Читать дальше...   )Производство: Студия A-1 PicturesЖанр: приключения, фантастикаРежиссер: Исии ТосимасаЯзык озвучки: Японский, русский (AniLibria, AniPlague, Akari Group)Субтитры: Русские (Crunchyroll)Продолжительность: 23 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E1E25E7152E868E31211EC14CB9FA0A7375CF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648842   (207951) от 25.07.2023
 
 Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [2023, Web, 10] WEBRip 1080p rus
@@ -6,7 +30,7 @@ Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207951.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207951.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208181.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208181.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208344.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208344.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208727.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208727.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208895.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208895.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209093.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209093.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209173.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209173.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:E103DBA0E2FD0F7ECD46ECEF406C80DCBDC9F05F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209254.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209254.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209561.jpg" />
 </div>
 
 
@@ -227,7 +251,7 @@ magnet:?xt=urn:btih:282580405C57DBF56D8873BAAEE75ED020CC0EC3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209703.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209703.jpg" />
 </div>
 
 
@@ -255,7 +279,7 @@ Bokura no Yoake | Break of Dawn | Наш рассвет [2022, Movie] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209910.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209910.jpg" />
 </div>
 
 
@@ -279,7 +303,7 @@ Bakuman 2 | Бакуман [ТВ-2] [2011, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210004.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210004.jpg" />
 </div>
 
 
@@ -303,7 +327,7 @@ Bakuman 3 | Бакуман [ТВ-3] [2012, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210017.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210017.jpg" />
 </div>
 
 
@@ -327,7 +351,7 @@ magnet:?xt=urn:btih:3D293AD2AE1D97B23F12FD9AFA385020C85B19F8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210117.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210117.jpg" />
 </div>
 
 
@@ -354,7 +378,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210123.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210123.jpg" />
 </div>
 
 
@@ -378,7 +402,7 @@ High School Agent | Агент Старшеклассник [1988, OVA, 2 эп.]
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210136.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210136.jpg" />
 </div>
 
 
@@ -402,7 +426,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210232.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210232.jpg" />
 </div>
 
 
@@ -426,7 +450,7 @@ magnet:?xt=urn:btih:EACC6DFE43027445D0699E0E2D492A2EA882AB9A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210652.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210652.jpg" />
 </div>
 
 
@@ -451,7 +475,7 @@ magnet:?xt=urn:btih:5DB40CC87A2F7CA6F75936BF5480BC1C03664E43
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210739.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210739.jpg" />
 </div>
 
 
@@ -477,7 +501,7 @@ magnet:?xt=urn:btih:7C270B0E8D8F87EFE39D45E496EE2C1A3AA889B3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210745.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210745.jpg" />
 </div>
 
 
@@ -503,7 +527,7 @@ magnet:?xt=urn:btih:29C56075E559F394B45F400F6EF6DD1A3BFDD10E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210825.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210825.jpg" />
 </div>
 
 
@@ -532,7 +556,7 @@ magnet:?xt=urn:btih:9E32366FBC9DA270BA3BDF796B6904366AAF0244
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210836.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210836.jpg" />
 </div>
 
 
@@ -558,7 +582,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210968.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210968.jpg" />
 </div>
 
 
@@ -582,7 +606,7 @@ magnet:?xt=urn:btih:549D2AB0CE539D440F874B3D25B3BEC0D6432757
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211758.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211758.jpg" />
 </div>
 
 
@@ -607,7 +631,7 @@ Rokka no Yuusha | Rokka: Braves of the Six Flowers | Герои шести цв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211914.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211914.jpg" />
 </div>
 
 
@@ -618,30 +642,6 @@ Rokka no Yuusha | Rokka: Braves of the Six Flowers | Герои шести цв�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5D26C38A82C73C7FFCD4C165FD349EB706F9410
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564589   (212366) от 19.07.2022
-
-Остров гигантских насекомых (фильм) | Gekijouban Kyochuu Rettou [Movie] [2020, 01 из 01] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212366.jpg" />
-</div>
-
-
-###  Подробнее
-
-После крушения самолёта Орибэ Муцуми и её одноклассники, которые летели на школьную экскурсию, оказываются на острове, кажущемся необитаемым. Используя свои знания о дикой природе, Орибэ помогает выжившим в авиакатастрофе. Девушка ждёт, что их спасут в течение трёх дней, которые можно и перетерпеть. Но при расчётах она не могла учесть того ужасного факта, что хозяевами (   Читать дальше...   )Производство: Япония, студия Passione / パッショーネЖанр: приключения, фантастика, этти, ужасыРежиссер: Такахаси ТакэоЯзык озвучки: Русский закадровый, многоголосый (youmiteru); English - дублированный (Passione Kickstarter bd)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, PortuguêsПродолжительность: 75 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD1CBA89625140857DDAA04618567BB96D395E0
 ```
 
 

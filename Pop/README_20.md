@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57459.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E215FC119E844066669FA3BC2847AB8A9A5032CC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57460.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3AE5839C1C887DEED0C7B1BFFAB39E6EFB08F150
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57465.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4A5B81962EB8947830A00DBFEEDC647C7D153939
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57468.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:6F808F144B9EC39C95306FDC0603854D11094AFF
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57483.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:B3623C69289AD0818ACC99D06BA0C50436F155E8
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57540.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:67DF0EE3062075A50D1416DE628EBF774A6699B1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57541.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:25F446D9EFE3549D7508AE0ABEFFF1F8DBAA1228
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57562.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Boney M - Hit Story (2010) 4CD Set Sony Music [FLAC|Lossless]<Disco / Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57566.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Radiorama - 17 Albums +1 Bootleg+ 12  Compilations + 38 Singles (68 CD)  (1985 -
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57571.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:2BF2D643E626E8F9D224D20CAB747BD1F348CB5F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57573.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:AC691A9A9DC1432B54B22BB66F4C88D877C14B5C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57654.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57742.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57743.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Italo Disco Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58025.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Little Big - Lobster Popstar (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58134.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Rod Stewart - The Best Of The Great American Songbook (2011) Japanese Edition, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58136.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Various Artists - ZYX Italo Disco Remastered (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58163.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mildlife - Chorus (2024) [FLAC|Lossless|WEB-DL|tracks] <cosmic disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58759.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - Summer Party - Beach Evergreens (2024) [MP3|320 Kbps] <Pop, Dance, Club, Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58770.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mylene Farmer - Remix XL (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58809.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59196.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Modern Heroes - Magic-The 1st Album (2024) [FLAC|Lossless|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59292.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ A La Carte - 6 Albums (1982-2016) Remastered, 2024, Coconut Music [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59698.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Arabesque - 40th Anniversary Best (2017) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59700.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - We Love Italo Dance (vol. 2) (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Da
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59822.jpg" />
 </div>
 
 

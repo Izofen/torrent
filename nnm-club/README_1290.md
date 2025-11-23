@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9AB4A080211618B9664F1A0D1BFA94D0FA4FC293
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Новогодняя Ночь (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33895.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A93807AAD477C519CF330C2C697FECCB834F8B94
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33896.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FC3E120DA99A9289BD75A8212EE5984F9E8F8344
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33897.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:592F246EECC8814661E45B3E85FCCD6EC453D568
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33898.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Hard Disk Sentinel PRO 6.20.5 Build 13190 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33899.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ FliFlik KleanOut for Photo 6.4.0 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33900.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Aiseesoft FoneLab for Android 5.0.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33901.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:16743C44BDFCCC5265DE76E9CAB53C23DC1AD3DE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33902.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:79B4D7A0BF95A646A0299AF2A9C9998AF3994DD5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33903.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:55C64EA669B25AFD3FE28EFEC4281FDA3B64629F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33904.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Freemake Video Converter 4.1.13.189 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33905.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Foobar2000 2.2.4.1 include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33906.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D817E4C04D3DB10A2D7DB61FDFDBBBA7B920A357
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33907.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2F010832A73F90DC49715C5E45823FC4A97C1F9E
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33908.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33909.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Skype 8.134.0.202 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33910.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:562266A9C714109CCD1CFA5D1AE99F120853D892
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33911.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F6D71C7C9FBA308CF6E2B3B7F77ECD61032FFE78
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33912.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:79D93F8596560DF7ED5C810FC5C77D20C5385924
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33913.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Beholder 2.6.269 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33914.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:DE2F41B48396B4F6B5A6A99EF12074A8601A392B
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33915.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:3937E07D2349F8CF45FF8FD2FF4098661540C173
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33916.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6FCA54C25B888D69C707F5008FAD2A9395E59976
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33917.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:4DD5626F6B7FFF359457016E843A6D7F008A7F4E
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33918.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Terence Blanchard & Donald Harrison - New York Second Line (1985) Concord Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147933.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stevie Ray Vaughan & Double Trouble - 5 х CD Collection (1983-1991) /Re-mastere
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148038.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Doug Westberg - I Get The Blues (2020) [MP3|320 Kbps] <Blues Rock , Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148367.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Doug Westberg - I Get the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148435.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Chet Baker - 3 Essential Albums (1958 - 1988) 3CD, 2017, Universal [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148485.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ John Verity Band - 11 albums (2006-2019) [FLAC|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148605.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cozy Cole & Savina - Big Band Jazz And All That Gentle Jazz: Dual Performance 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148689.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The Michael Brecker Band - Live (1993) Jazz Door [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148746.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portrait
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148752.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148761.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Vargas Blues Band - Vargas Blues Band & Company (2012) [MP3|320 кб/с]<Blues R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148766.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148768.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Hank Mobley - Newark 1953 (2012) 2CD, Uptown Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148816.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148824.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ J.J.Johnson - The Columbia Albums Collection 1956-1961 (2017) 4CD, Enlightenment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148839.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Christophe Wallemme - Om Project (2017) Bonsai Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148843.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Papik - Cocktail Italy Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149196.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Rag'n'Bone Man - Wolves (2016) EP [FLAC|Lossless|tracks + .cue] <Rhythm & Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149281.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Andy Lindquist - Stone in the Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149405.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Morgan Giosa - Feelin' Fine Today (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149420.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gil Evans Orchestra - Blues In Orbit (1969, 1971) 2009, Enja Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149477.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Papik - Sounds For The Open Road Vol.2 (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149730.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Jeffery Liberman - Then And Now (1996) 2CD [FLAC|Lossless|tracks+.cue] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149741.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Innes Sibun - Anthology (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149765.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Stanley Turrentine With Milt Jackson - Cherry (1972) 1988, CBS [APE|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149777.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ The United Jazz+Rock Ensemble - Highlights (1985) [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149844.jpg" />
 </div>
 
 

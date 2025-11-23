@@ -1,3 +1,181 @@
+###  Публикация: 1272113   (145875) от 26.12.2018
+
+Александр Рекемчук | Мальчики (1973) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя Прохоров обладал чудесным даром - голосом. Он рано потерял родителей и воспитывался в детском доме. Благодаря своему таланту, Женя был замечен и принят в московское хоровое училище, стал солистом хора мальчиков. В двенадцать лет у него были первый успех, запись на радио, первая любовь. Из тысячи мальчишек, обладающих голосом, примерно у одного он сохраняется (   Читать дальше...   )Жанр: Детская литература, радиоспектакльПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA7DB89C59F18F328B367CEDE1ACCCBDEE53562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348025   (145876) от 26.12.2019
+
+Asterix & Obelix XXL 3: The Crystal Menhir v1.56 (2019) [Multi/Ru] [macOS Native game]
+
+>>Игры для macOS
+>>Quests, Adventure, Arcade для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asterix & Obelix XXL 3: The Crystal Menhir – это приключенческий экшен о легендарных галлах Астериксе и его друге Обеликсе, которым в очередной раз придется отправиться в опасное и очень интересное путешествие…
+
+События игры происходят во времена Римской Империи и ее захватнической деятельности. Одна небольшая галльская деревня до сих пор остается незахваченной (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: MicroïdsПоддерживаемая ОС: macOS 10.13 и вышеЖанр: Adventure, Arcade,Язык озвучки: Русский, английский, немецкий и другиеЯзык интерфейса: Русский, английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E7C7C7E292C8FDB77D7C70F1250A071005E03F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519773   (145877) от 26.12.2021
+
+VA - Glasgow Underground 2021 (2021) [AAC|~331 Kbps] <Deep House, Tech House, Funky House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kevin McKay, Wayne Hernandez - Hit The Road Jack (2:36)
+02. Westend - Get This Party Started (2:40)
+03. Roog - Move On Up (3:38)
+04. Dillon Nathaniel, Kevin McKay - Jump Around (2:29)(   Читать дальше...   )Жанр: House, Deep House, Tech House, Funky HouseПродолжительность: 02:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AAD88BEAF434C5E9D515A6C534B2F77B04235A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969808   (145878) от 28.12.2015
+
+Людмила Синицына | Узор счастья (2007) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она молода, красива, талантлива и влюблена. Ее избранник — ей под стать. Эта пара просто обречена на долгую счастливую жизнь.
+Но почему же тогда после слова «любовь» звучит слово «смерть»? От кого должно защитить любящих шаманское копье? Кто желает счастливой паре зла?
+И все-таки что сильнее, любовь или смерть?Жанр: Современные любовные романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F30C7C4CEF7F67ACE6E7F4B560D1167B79B91BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087190   (145879) от 27.12.2016
+
+Проекты - VideoHive - Hands II - 1196453 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эффектного слайд-шоу, интро, презентаций и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93D969A5639509408EBA45C0F916C210E15D18A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435162   (145880) от 27.12.2020
+
+Real Steel Boxing Champion v2.5.118 [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Real Steel Boxing Champions – продолжение игры всеми известного файтинга Real Steel по мотивам фильмы "Реальная сталь". В этой части вам в самом начале предлагают так званый скелет робота, к которому вы уже сами сможете добавить любые детали на ваш вкус. Улучшайте и прокачивайте своё творение с помощью широких возможностей кастомизации. Начните свой путь (   Читать дальше...   )Тип издания: Пиратка (Бесконечные деньги и золото)Релиз состоялся: 23 декабря 2020 г.Разработчик: Reliance Big Entertainment (UK) Private LimitedПоддерживаемая ОС: Android 4.2 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68AA0975B797E0703386E94B5D7DB10ADBEF2C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519971   (145883) от 26.12.2021
+
+VA - Nye Recovery Session 2021 (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythmphoria - Under the Tree (5:41)
+02. Aquarius - Ease Your Mind (6:11)
+03. HIC ET NUNC - Light Wings (6:03)
+04. Muehlig - Perseverance (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62D5379FF1EC635CB84CC5F9AA478494D046528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087484   (145884) от 27.12.2016
 
 Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG [Director's Cut]
@@ -6,7 +184,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145884.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ VA - Best Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145886.jpg" />
 </div>
 
 
@@ -57,7 +235,7 @@ magnet:?xt=urn:btih:37835717940CC55639F2CB6390498B38FA364FB1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145887.jpg" />
 </div>
 
 
@@ -81,7 +259,7 @@ Xentry OpenShell 12.2020 28.9.2.3 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145888.jpg" />
 </div>
 
 
@@ -108,7 +286,7 @@ Mastercastle - Last Desire (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145890.jpg" />
 </div>
 
 
@@ -135,7 +313,7 @@ magnet:?xt=urn:btih:309C34D90CD952E85F7BC9DC5358F069F8688DE0
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145891.jpg" />
 </div>
 
 
@@ -159,7 +337,7 @@ magnet:?xt=urn:btih:40CC5D09A6A88820BCD4630F0C96612F53FD35BD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145892.jpg" />
 </div>
 
 
@@ -184,7 +362,7 @@ VA - Nye Bash Downtempo 2021 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145893.jpg" />
 </div>
 
 
@@ -211,7 +389,7 @@ magnet:?xt=urn:btih:4D95C6CEC6367EE3AA0AFF96004FA42CD47F2F69
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145895.jpg" />
 </div>
 
 
@@ -235,7 +413,7 @@ Phlebotomized - Deformation Of Humanity (2019) [FLAC|Lossless|Web-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145897.jpg" />
 </div>
 
 
@@ -262,7 +440,7 @@ VA - Sunset Aperitive Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145898.jpg" />
 </div>
 
 
@@ -289,7 +467,7 @@ magnet:?xt=urn:btih:94B1CC9D06FFA217816AD408D1BB7B9FF8EF5D28
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145900.jpg" />
 </div>
 
 
@@ -313,7 +491,7 @@ magnet:?xt=urn:btih:F06AB5117E0FCD2EAD64044EC0CD52B13C4838D8
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145902.jpg" />
 </div>
 
 
@@ -337,7 +515,7 @@ magnet:?xt=urn:btih:D0C5A1AC505E6AFC577F9E004DBFEEC3A261E429
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145903.jpg" />
 </div>
 
 
@@ -361,7 +539,7 @@ magnet:?xt=urn:btih:32A58D737D8A98F1AEAB42274003BF3769FDBDC0
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145904.jpg" />
 </div>
 
 
@@ -387,7 +565,7 @@ magnet:?xt=urn:btih:88299E2AA924FA81493FE07A1183255D2C38D05C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145905.jpg" />
 </div>
 
 
@@ -412,7 +590,7 @@ Artie Shaw - 1939-1940 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145906.jpg" />
 </div>
 
 
@@ -439,7 +617,7 @@ magnet:?xt=urn:btih:498FBE14363367840176C39FCFEA5AB4F5D7CA35
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145907.jpg" />
 </div>
 
 
@@ -463,7 +641,7 @@ VA - Suprematic 2021 (2021) [AAC|~334 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145908.jpg" />
 </div>
 
 
@@ -477,187 +655,6 @@ VA - Suprematic 2021 (2021) [AAC|~334 Kbps] <Deep House, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DBD0EA6A749DB787E0DA8938418F339C02E6E4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678001   (145909) от 21.11.2023
-
-Herjan - Nightfall of Humanity (2017) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ancestral Pact Of Blood
-02 - Lord Of Misanthropy
-03 - Through The Realm Of Eternal Ascension
-04 - Anti-Human(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88E8A31E27A9DAD505C836466EC5E4C8592C42A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969992   (145910) от 28.12.2015
-
-VA - King Of Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pray - Peaceful Runners [05:03]
-02. Oscar Salguero - Jack [03:47]
-03. Andrey Faustov - Eoil [04:41]
-04. Fischer & Miethig - We Only Live Once - Chillout Mix [04:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40324A4A55596724E5EE677B9CD593E021F9A042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348173   (145911) от 26.12.2019
-
-VA - Top Hits 1996, 4 CDs (1996)  [FLAC|Lossless|image + .cue]<Eurodance, Euro House,  Pop >
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145911.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Course - Ready Or Not (Radio Mix) 3:24
-2. Paradisio - Lalala Bandolero 3:56
-3. Faithless - Insomnia ('96 Monster Radio Edit) 3:34
-4. DJ M.D. - Rio (Radio Version) 3:51(   Читать дальше...   )Жанр: Eurodance,  Euro House,  House , Trance,  Europop,  Pop ,  Pop-Rap,  Synth-popПродолжительность: 05:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087227   (145912) от 27.12.2016
-
-Восставший / Risen (2016) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145912.jpg" />
-</div>
-
-
-###  Подробнее
-
-В картине пойдет речь о первых 40 днях, последовавших вслед за воскресением Христа. Основным персонажем станет атеистически настроенный римский центурион, которого прокуратор Иудеи, Понтий Пилат, посылает разузнать с чем связаны слухи о воскресении Христа, а также попытаться отыскать тело этого новоявленного мессии.Производство: США / Liddell Entertainment, Affirm Films, Columbia Pictures, Patrick Aiello ProductionsЖанр: Боевик, Драма, Детектив, ПриключенияРежиссер: Кевин РейнольдсАктеры: Джозеф Файнс, Том Фелтон, Питер Фёрт, Клифф Кёртис, Мария Ботто, Луис Кальехо, Антонио Хиль-Мартинес, Ричард Этуилл, Марк Киллин, Стюарт СкудаморПеревод: Профессиональный (многоголосый закадровый) (Лицензия BD CEE)Язык субтитров: Английский, Арабский, Болгарский, Хорватский, Чешский, Эстонский, Греческий, Иврит, Венгерский, Исландский, Польский, Португальский, Румынский, Русский, Сербский, Словацкий, Словенский
-Турецкий.Продолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBFDDD749043E1F6C4A90F6584F0A4082E629D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271943   (145913) от 26.12.2018
-
-SmallCubed MailSuite 1.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145913.jpg" />
-</div>
-
-
-###  Подробнее
-
-С MailSuite это новый плагин для Mail, который включает в себя 4 основных продукта MailTags, Mail Act-On, Mail Perspectives и SigProТип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: SmallCubedПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAB245C265F61FBE823079244F1ED67B2AE963F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590315   (145914) от 16.12.2012
-
-Ты сверху, я снизу (2007) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они соседи по подъезду. Но, как дельфин и русалка, они не могут быть вместе. Он - известный на весь мир кутюрье, а она - невзрачная студентка иняза. Единственное место, где они могут встретиться - это лифт, но и там он не заметит ее, потому что его невеста, имеющая все шансы затмить красотой любую топ-модель, вряд ли выпустит своего гения из цепких объятий. И лишь несчастный случай заставит звезду увидеть сияние вокруг гадкого утенка и позабыть прекрасного лебедя. Вот, только, навсегда ли?..Жанр: МелодрамаРежиссер: Николай ДенисовАктеры: Алла Фомичева, Сергей Шнырев, Владимир Литвинов, Ольга Долинина, Олег Комаров, Марина Голуб, Ольга Науменко, Николай ДенисовПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB033F3BF11DD2F1DEC5B2BF6ACD666461F969B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435206   (145915) от 27.12.2020
-
-Владимир Пресняков - Слушая тишину (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снег
-02. Слушая тишину
-03. Ты у меня одна
-04. Достучаться до небес(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100775736A0EBA7A4D54CDABA4F3852F01086032
 ```
 
 

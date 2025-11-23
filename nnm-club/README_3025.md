@@ -1,3 +1,102 @@
+###  Публикация: 454668   (93979) от 21.02.2012
+
+VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abcdavid - No Chance (Original Mix) (6:32)
+ 02. Anna - Down Under (7:49)
+ 03. Aquabeat - Whisky (Louie Cut Remix) (5:48)
+ 04. Avrosse - Droplet (Original Mix) (6:01)
+ 05. Disco Dancer (Felix Bernhardt Remix) (7:52)
+ 06. Cristian Glitch - El Pito (Zeitspule Remix) (7:11)
+ 07. Cryteque - Acid Rainbow (original mix) (6:16)
+ 08. Damolh33 - Red Beauty (Original Mix) (6:01)
+ 09. Dani San - Clikity Clack (Marco Raineri Remix) (5:00)
+ 10. Desto feat. Kitt Kidoxx - Element (Talstrasse 3-5 Remix) (6:56)(   Читать дальше...   )10.02.2012Жанр: MinimalПродолжительность: 02:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2FBE53AD32B0B7372FDB419C7BCF234998E1F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454665   (93983) от 21.02.2012
+
+VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.K.O - Rolling (Original Mix) (8:11)
+ 02. Artem Abdrakhmanov - Back Flip (Original Mix) (6:26)
+ 03. Bedoya - Minimetrico (Original Mix) (7:03)
+ 04. Bricklake - Reaktor (Chris Lawyer Remix) (6:07)
+ 05. Caiwo - Playing Games (Caiwo aka Music Supervisor ReWork) (7:38)
+ 06. D-Funkshion - Bim Bam (Original Mix) (7:11)
+ 07. Daniel Mehes - Highend (Andy Notalez Niaz Arca Remix) (6:37)
+ 08. Glitter - Vigilante (Original Mix) (6:09)
+ 09. Hertzman - Gift (Original Mix) (6:17)
+ 10. Jey Pee Razz - No Melody (Gaga Remix) (6:34)(   Читать дальше...   )09.02.2012Жанр: MinimalПродолжительность: 02:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C4CF8D9E190CCEDDEEBDDAC3EA4247698424E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455001   (93985) от 21.02.2012
+
+VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afonso Maia - Playhead (Original Mix) (6:03)
+ 02. Cristian Glitch - One (Alessandro Grops Remix) (6:24)
+ 03. Destructo - Technology feat. Oliver (Original Mix) (5:09)
+ 04. Insect Elektrika - Man In Love With Fish (Original Mix) (6:43)
+ 05. Johnny Kaos – Lsd (7:40)
+ 06. Keira - Sguitara (Min & Mal Remix) (6:01)
+ 07. Was Bleibt (Jimpster Vocal Remix) (8:01)
+ 08. Kontak - Triangle (Minimal Law Remix) (6:00)
+ 09. Kriece - Ginger Explosion (Original Mix) (7:45)
+ 10. Lazy M - Stranger (Dani Sbert Big Bully Remix) (7:01)(   Читать дальше...   )17.02.2012Жанр: MinimalПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454996   (93989) от 21.02.2012
 
 VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
@@ -6,7 +105,7 @@ VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93989.jpg" />
 </div>
 
 
@@ -39,7 +138,7 @@ magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93994.jpg" />
 </div>
 
 
@@ -63,7 +162,7 @@ Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_93995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_93995.jpg" />
 </div>
 
 
@@ -96,7 +195,7 @@ Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94011.jpg" />
 </div>
 
 
@@ -129,7 +228,7 @@ magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94013.jpg" />
 </div>
 
 
@@ -153,7 +252,7 @@ Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94037.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94037.jpg" />
 </div>
 
 
@@ -186,7 +285,7 @@ VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94058.jpg" />
 </div>
 
 
@@ -219,7 +318,7 @@ magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94063.jpg" />
 </div>
 
 
@@ -243,7 +342,7 @@ VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94067.jpg" />
 </div>
 
 
@@ -276,7 +375,7 @@ VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94076.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94076.jpg" />
 </div>
 
 
@@ -309,7 +408,7 @@ VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94083.jpg" />
 </div>
 
 
@@ -342,7 +441,7 @@ VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94087.jpg" />
 </div>
 
 
@@ -375,7 +474,7 @@ VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94091.jpg" />
 </div>
 
 
@@ -408,7 +507,7 @@ Mark May Band - Release My Soul (2011) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94092.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94092.jpg" />
 </div>
 
 
@@ -441,7 +540,7 @@ VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94093.jpg" />
 </div>
 
 
@@ -474,7 +573,7 @@ Toronzo Cannon - Leaving Mood (2011) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94094.jpg" />
 </div>
 
 
@@ -507,7 +606,7 @@ Nick Colionne - Keepin' It Cool (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94101.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94101.jpg" />
 </div>
 
 
@@ -540,7 +639,7 @@ Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94114.jpg" />
 </div>
 
 
@@ -573,7 +672,7 @@ VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94120.jpg" />
 </div>
 
 
@@ -606,7 +705,7 @@ Karin Krog - Raindrops, Raindrops (2002) [FLAC|Lossless]<Contemporary Female Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94125.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94125.jpg" />
 </div>
 
 
@@ -639,7 +738,7 @@ Paul van Dyk - Vonyc Sessions 286 (17.02.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94129.jpg" />
 </div>
 
 
@@ -672,7 +771,7 @@ VA - Black Box One (2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94140.jpg" />
 </div>
 
 
@@ -705,7 +804,7 @@ VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94145.jpg" />
 </div>
 
 
@@ -725,92 +824,6 @@ VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1B4E78F8697A1A18BA98152CA8FDD5205C7D2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455252   (94163) от 23.02.2012
-
-November's Flame - На Обочине Больного Мира (ЕР) (2012) [MP3|320 kbps]<Alternative,Nu Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Другие Глаза  [03:21]
-02. Земля В Огне  [02:40]
-03. Краски Мая  [04:17]
-04. Обманутый Мир  [03:30]
-05. Сон  [04:28]
-06. Погоня За Мечтой  [03:17]
-07. Другие Глаза (instumental)  [03:21]2012Жанр: Alternative,Nu MetalПродолжительность: 00:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FE15E1DD9E417875218DB2ADED1CE08AA6A9F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456876   (94164) от 23.02.2012
-
-Fox Stone - Deep EP (2011) [MP3|320 кб/с]<Dubstep, Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Meeting (05:51)
-02. Botanical Park (05:02)
-03. The Polar Lights (05:16)
-04. Micro Declines (04:26)2011Жанр: Dubstep, Drum & BassПродолжительность: 00:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E9515ED2FABDF588C1D6716540A97F22F90DB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456554   (94165) от 23.02.2012
-
-Southell (Италия) - Alcohol Fueled, Weed Inspired (2011) [MP3|320 кб/с]<Southern Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94165.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Weedlust 06:03
-2 Overtaken 07:20
-3 Drowned 04:35
-4 Straight On 06:15
-5 Mind Trip 05:35
-6 The Lie 10:102011Жанр: Southern MetalПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39BBA26B64823453E049AACA06C782896EAD6BF
 ```
 
 

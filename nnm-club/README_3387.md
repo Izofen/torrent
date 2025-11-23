@@ -1,3 +1,84 @@
+###  Публикация: 1731227   (107744) от 20.06.2024
+
+Fedde Le Grand - Something Real (2016) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Give Me Some (Radio Edit) [3:26]
+02 - Feel Good (Radio Edit) [3:17]
+03 - I Can Feel (Radio Edit) [3:15]
+04 - Beauty From The Ashes (Original Mix) [3:29](   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 02:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B24961499DAE923EC884DC21C666CC729DAAF66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731133   (107745) от 20.06.2024
+
+Хороший год - От небес до земли (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Морская соль [00:03:57]
+02. Все это сон [00:03:59]
+03. Каждому свое [00:04:27]
+04. Лайфхак [00:04:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496B848E1243B24828EB9D8FD16DF9924DC43C0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731288   (107746) от 20.06.2024
+
+Ozric Tentacles - Strangeitude & Pungent Effulgent (1989-1991) Compilation, Reissue, 2007, Recall 2cd [FLAC|Lossless|image + .cue] <Progressive Rock, Space Rock, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107746.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Pungent Efflugent(1989):
+01. Dissolution (The Clouds Disperse) 6:15
+02. O-I 3:58
+03. Phalarn Dawn 7:34(   Читать дальше...   )Жанр: Progressive Rock, Space Rock, Instrumental RockПродолжительность: 02:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA294D8AA4FA3D4018350E147A29249149A9E2D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731314   (107747) от 20.06.2024
 
 VA - DJ Hits Vol. 81 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
@@ -6,7 +87,7 @@ VA - DJ Hits Vol. 81 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107747.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ VA - DJ Hits Vol. 78 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107748.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Vulgar Devils - Witches Wheel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107749.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Psychic Graveyard - Wilting (2024) [FLAC|Lossless|WEB-DL|tracks] <synth punk, in
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107750.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Stonekind - Hollow Ground (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107751.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Sunburst - Manifesto (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107752.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Portrait - The Host (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107753.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ DinUmbra - Finality (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107754.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Brian Auger & The Trinity, Savannah Grace - Live At Rockpalast (Live) (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107755.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ magnet:?xt=urn:btih:662BA3DD9871916126073A24929FB6E76EB81163
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107756.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ Detroit Hills - Us (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107757.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ Teodasia - Metamorphosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107758.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ My Diligence - The Matter, Form and Power (2022) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107759.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ VA - Chillout Summer Anthems 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107760.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ magnet:?xt=urn:btih:9D5C6972CFD532E83EBEFCB1387760375374C444
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107761.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ KineMaster - Video Editor & Maker v7.4.15.33304.GP Mod by youarefinished [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107762.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ VA - Новый хит- 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон,
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107763.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ magnet:?xt=urn:btih:66C1A2980830A951ED82F8FD8173CF75BA7738DF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107764.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ VA - Новый Хит Весна (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107765.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ magnet:?xt=urn:btih:CF1C06E9DD89C42A2170319CBD3FD86D4C652B2E
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107766.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ Firefox Browser 127.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107767.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ magnet:?xt=urn:btih:71F70A81F19BAF133ECB1656AB26376DFC6CA15C
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107768.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ PhotoRoom v5.0.5 b1455 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107769.jpg" />
 </div>
 
 
@@ -596,85 +677,6 @@ PhotoRoom v5.0.5 b1455 Mod by Mixroot [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9993548624604CCF02B5E361B4D1ABD0D7FC80AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731261   (107770) от 20.06.2024
-
-Мелани Митчелл | Идиот или гений (2022) [MP3, Марина Титова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какой путь развития прошел искусственный интеллект, на каком уровне он находится в наше время и что ждет всех нас в ближайшем будущем.
-Искусственный интеллект прочно вошел в нашу жизнь, обосновавшись на невероятно обширном поле: от космических станций до домашних компьютеров. Именно с его развитием связаны наши основные футурологические надежды и страхи. Именно он, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 10:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA2055E5DADA4A679CC62B873C7588A71B67CAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731369   (107771) от 20.06.2024
-
-VA - DJ Hits Vol. 87 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Machine - U Make Me Come A Life.(Simply Mix)
-02. Dana E - I Only Wanna Be With You.(Cube Version)
-03. Maxima - You Set My World On Fire.(Radio Mix)
-04. Joyce Sims - Who's Crying Now(Radio Version)(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC1B7326F86C61508C3D2AC1933A1DE279BC159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731231   (107772) от 20.06.2024
-
-Vintage Culture - Promised Land (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Disco, Euro Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promised Land [00:04:13]
-02. Nothing Ever Changes [00:03:46]
-03. Hero [00:03:52]
-04. Chemicals [00:03:37](   Читать дальше...   )Жанр: Pop, Disco, Euro DiscoПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE60622CD04348101AC8EE7D69334BDF9AD5286B
 ```
 
 

@@ -6,7 +6,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39271.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dead Mount Death Play (2023) | Смертельная игра мёртвой г
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39275.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ani ni Tsukeru Kusuri wa Nai! 5 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39364.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Uzumaki | Спираль [2024, TV, 4 эп.] WebRip 720p raw+eng
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39413.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Yuru Camp Season 3 | Лагерь на свежем воздухе [ТВ-3] [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39416.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39670.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39672.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Monogatari Series: Off & Monster Season | Легенды: Межсезонье �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39915.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Boku no Hero Academia Season 7 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40627.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Yozakura-san Chi no Daisakusen | Mission: Yozakura Family | Операция: С
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40735.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41000.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Oshi no Ko 2 | Звёздное дитя [ТВ-2] [2024, TV, 13 из 13] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41114.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Atri: My Dear Moments | Атри: Мои бесценные мгновенья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41394.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41948.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kami no Tou: Ouji no Kikan | Tower of God 2nd Season | Башня Бога: Во
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42038.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Make Heroine ga Oosugiru! / Too Many Losing Heroines! / Слишком мног�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42124.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Nige Jouzu no Wakagimi | The Elusive Samurai | Беглый самурай [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42129.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42131.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42138.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Naze Boku no Sekai o Dare mo Oboeteinai no ka? / Why Does Nobody Remember Me in 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42160.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Senpai wa Otokonoko / Senpai is an Otokonoko / Моя сэмпай — паре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42254.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ NieR:Automata Ver1.1a | Ниер: Автoмaтa Ver 1.1a [2023, TV, 24 эп.] We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42272.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Koi wa Futago de Warikirenai / Love Is Indivisible by Twins / Любовь бл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42440.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42583.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42599.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42679.jpg" />
 </div>
 
 

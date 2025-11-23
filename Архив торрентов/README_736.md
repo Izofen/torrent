@@ -1,3 +1,77 @@
+###  Публикация: 1434130   (153553) от 23.12.2020
+
+Glary Disk Cleaner 5.0.1.227 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Disk Cleaner - бесплатный инструмент от компании Glarysoft для очистки операционной системы от различного мусора. При помощи Glary Disk Cleaner можно существенно освободить место на жестком диске посредством удаления временных файлов системы, кэша различных приложений и утилит, кэша web-браузеров, файлов дампа памяти, очистки корзины и многое другое.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D605D68B906A10F003A81C63E058DF2BD7374500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194860   (153554) от 26.12.2017
+
+ScrollNavigator 5.7.2 RePack by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа, которая дает вам возможность колесом мыши прокручивать фоновое окно.
+
+Программа, позволяющая сделать более точной, но в то же время динамичной, прокрутку колесика вашей мыши и сможет обеспечить перемещение по листам документов, имеющих стандартные полосы прокрутки, одновременно в обоих направлениях без необходимости перемещения курсора мыши на полосу прокрутки.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0C8DE14323193884AEE0CE953EFCC8CA283CDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194820   (153559) от 26.12.2017
+
+Ashampoo Burning Studio 19.0.1.4 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте классическую программу в новом исполнении! Ashampoo Burning Studio не только выглядит роскошно, она ещё и содержит тщательно улучшенный набор функций. Новая защита от царапин создаёт диски, которые пригодны для чтения даже когда их поверхность поцарапана! Новая функция истории восстанавливает последние 20 проектов по требованию, включая все Ваши изменения. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E94E715B3ECBD566D1B5C107B5CBBEA5331DBAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589263   (153561) от 14.12.2012
 
 Журнал | АиФ. Спецвыпуск. Вопросы и ответы № 22 [2012] [PDF]
@@ -6,7 +80,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153561.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:F72CF2DAE7877C94FB309465B050F770CEFCC4CC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153563.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Wallpapers Sexy Girls (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153570.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:C536021DD5BC53578775E4B8C2222512145121E1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153578.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:AD40DC063C985CA29EB57B5519FA4B866F291720
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153580.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ Yummy 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153581.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Poisonblack - Nothing Else Remains (2CD) (2020) Japanese Edition [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153582.jpg" />
 </div>
 
 
@@ -180,7 +254,7 @@ magnet:?xt=urn:btih:7F9AF6992489FAE1A56DE7C091E057010882639C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153583.jpg" />
 </div>
 
 
@@ -207,7 +281,7 @@ NCH WavePad Masters Edition 11.49 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153592.jpg" />
 </div>
 
 
@@ -231,7 +305,7 @@ Movist 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153595.jpg" />
 </div>
 
 
@@ -256,7 +330,7 @@ Grid 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153600.jpg" />
 </div>
 
 
@@ -280,7 +354,7 @@ AweCleaner Professional 4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153613.jpg" />
 </div>
 
 
@@ -304,7 +378,7 @@ Wattagio 1.12.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153615.jpg" />
 </div>
 
 
@@ -328,7 +402,7 @@ magnet:?xt=urn:btih:F24A4EB3DB920536C32BB2DD16D2BB42E1274F31
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153617.jpg" />
 </div>
 
 
@@ -352,7 +426,7 @@ World Clock Deluxe 4.17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153618.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ DAEMON Tools Lite 10.5.0.222 Unlocked [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153642.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ AppKiller 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153646.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ Adobe Substance 3D Painter 9.1.0 build 2983 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153647.jpg" />
 </div>
 
 
@@ -450,7 +524,7 @@ ExifEditor 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153649.jpg" />
 </div>
 
 
@@ -474,7 +548,7 @@ AOMEI Backupper Technician Plus 6.8.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153657.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ Chaos Control 1.11 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153659.jpg" />
 </div>
 
 
@@ -524,7 +598,7 @@ HandBrake 1.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153661.jpg" />
 </div>
 
 
@@ -548,7 +622,7 @@ Adobe Photoshop 2024 25.1.0.120 (x64) Lite Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153663.jpg" />
 </div>
 
 
@@ -559,79 +633,6 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15CBC03044C244FDB46D8BC16C0E24906688AF79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434164   (153664) от 23.12.2020
-
-SpeakMe 1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите преобразовать текст в аудио на любом языке и поделиться как файлом? SpeakMe - это единственный инструмент, который вам когда-либо понадобится.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: ENSILI.CO.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2FFF85D22F5212E5A51BBF6F2A1FAD3FDF8FD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434113   (153668) от 23.12.2020
-
-DropDMG 3.6.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
-Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Голландский, Датский и д.р.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BDFA0C0301CBCDFD442FE29964D86B2616B633
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434252   (153674) от 23.12.2020
-
-Nisus Writer Pro 3.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nisus Writer Pro Мощный мультиязычный текстовый редактор для Mac OS, предоставляющий пользователям широкий набор возможностей для работы с текстом. Помимо стандартных для текстового редактора функций, Nisus Writer Pro умеет работать с таблицами контента, добавлять закладки, индексировать, показывать номер строки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2020Разработчик: NISUSПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2FAA552D2CDDA884FD1079E676251087921337
 ```
 
 

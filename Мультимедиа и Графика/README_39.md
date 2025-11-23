@@ -1,3 +1,27 @@
+###  Публикация: 1672299   (169050) от 28.10.2023
+
+SILKYPIX Developer Studio Pro 11.0.12.0 (x64) Portable by 7997 [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169050.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — японская программа, позволяющая редактировать, обрабатывать и конвертировать цифровые фотографии различных форматов. SILKYPIX поможет ввести поправку экспозиции, подстроить баланс белого, в том числе пипеткой, настроить резкость, отредактировать контраст, выбрать насыщенность, уменьшить шум. Одно из преимуществ программы – возможность (   Читать дальше...   )Язык интерфейса: Английский (Русский отсутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED249AFE7A8CA28BFE21B27E53E99022244B8438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515547   (169352) от 07.12.2021
 
 MAAT Digital Bundle 12.2021 VST, VST3, AAX RePack by R2R [En]
@@ -6,7 +30,7 @@ MAAT Digital Bundle 12.2021 VST, VST3, AAX RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169352.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ NoiseAsh Palmary Collection 1.3.9 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169355.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ NoiseAsh Rule Tec All Collection 1.8.2 VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169389.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ SILKYPIX JPEG Photography 11.2.11.0 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170012.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ MAGIX SOUND FORGE Audio Cleaning Lab 4 26.0.0.23 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170072.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ magnet:?xt=urn:btih:399D8319225A91957AAE9C8F31B5378A03C06EA7
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170781.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ EZ CD Audio Converter 11.3.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170927.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ DxO PureRAW 3.6.2 build 26 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171135.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ TurboCollage Advanced / Home / Professional 7.2.11.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171313.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ VCartoonizer 2.0.5 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171324.jpg" />
 </div>
 
 
@@ -250,7 +274,7 @@ FotoWorks XL 2024 24.0.0 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171369.jpg" />
 </div>
 
 
@@ -275,7 +299,7 @@ Bookmanager modelplusmodel 2.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171809.jpg" />
 </div>
 
 
@@ -299,7 +323,7 @@ FL Studio 21.1.1.3750 (X64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172026.jpg" />
 </div>
 
 
@@ -324,7 +348,7 @@ Fotosizer Pro 3.17.2.584 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172260.jpg" />
 </div>
 
 
@@ -348,7 +372,7 @@ Sound Normalizer 8.7 Portable by Spirit Summer [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172572.jpg" />
 </div>
 
 
@@ -372,7 +396,7 @@ IcoFX 3.9.0 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172980.jpg" />
 </div>
 
 
@@ -396,7 +420,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.1.3578 (x64) Portable by conservator [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173109.jpg" />
 </div>
 
 
@@ -420,7 +444,7 @@ magnet:?xt=urn:btih:56B175CADF5D26D55819E73D89AAA875EF048347
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173442.jpg" />
 </div>
 
 
@@ -444,7 +468,7 @@ WonderFox HD Video Converter Factory Pro 28.1 RePack (& Portable) by elchupacabr
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173446.jpg" />
 </div>
 
 
@@ -468,7 +492,7 @@ Moho Pro 14.0 build 20230910 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173559.jpg" />
 </div>
 
 
@@ -492,7 +516,7 @@ Modartt - Pianoteq 8.3.1 Pro STANDALONE, VSTi, VSTi 3, AAX RePack (& Portable) b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173591.jpg" />
 </div>
 
 
@@ -516,7 +540,7 @@ Avanquest Architect 3D Interior Design 20.0.0.1036 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173596.jpg" />
 </div>
 
 
@@ -541,7 +565,7 @@ Avanquest Architect 3D Landscape Design 20.0.0.1036 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173597.jpg" />
 </div>
 
 
@@ -567,7 +591,7 @@ Room Arranger 10.3.0.735 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173599.jpg" />
 </div>
 
 
@@ -591,7 +615,7 @@ Valhalla DSP Bundle 2021.12 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173670.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173670.jpg" />
 </div>
 
 
@@ -602,31 +626,6 @@ Valhalla DSP Bundle 2021.12 VST, VST3, AAX (x64) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F771C4358E0BAF6686C9827BF7180277574D5CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430315   (174238) от 09.12.2020
-
-Xfer Records - Cthulhu 1.217 VSTi, AAX (x86/x64) Retail [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий титан в создании арпеджио и монстр аккордов!
-Cthulhu - это, во-первых, инструмент, запоминающий и исполняющий аккорды, позволяющий экспериментировать с созданием и перестройкой последовательностей аккордов с помощью нажатия отдельных нот. Включено более 150 заводских аккордовых предустановок, позволяющих создавать практически неограниченное количество возможных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73653915B4DCC2559D42FEAD12F8DFD3963C9551
 ```
 
 

@@ -6,7 +6,7 @@ Waves Complete v9r7 (x86/x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133844.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Waves Complete v9r7 (x86/x64) [Английский]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133851.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Acode - code editor | FOSS 1.9.0 (326) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133858.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera GX 104.0.4944.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133860.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:94277A5BE469B566E0EA1DF08A7039CF89A3F033
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133863.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Beowulf: The Game / Беовульф [Ru] (RePack) 2007 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133864.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ uDock 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133866.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Driver Fusion 1.4.0 Portable by 6sergey5 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133867.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ ManyCam Virtual Webcam 3.1.29.3991 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133876.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Sony Sound Forge Pro Mac 1.0.22 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133885.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ AirMail Pro 5 v.5.6.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133886.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:F7CC728D1D1372A53B5A7352B29E91824C273761
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133889.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Hands Off! 2.0.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133891.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Mp3tag 1.8.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133896.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:91097EA81F7169120BDBA42D16475324546D7F3F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133914.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ NCH DreamPlan Plus 8.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133915.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Catharsis - 15 Лет Полёта.. (2012) DVD-9
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133927.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Automize13 Enterprise for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133931.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Manjaro Linux 0.8.3 [x86-64] (Arch с несколькими рабочими с
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133933.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Manjaro Linux 0.8.3 [x86-64] (Arch с несколькими рабочими с
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133935.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133942.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Nitro PDF Professional 8.1.1.3 Final [Multi/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133950.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Nitro PDF Professional - мощный набор инструментов, с п
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133971.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Dropshare 5 v.5.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133976.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ MarsEdit 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133981.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:C9D311232DC7A96689B3D273A1D877288C86D87B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133984.jpg" />
 </div>
 
 

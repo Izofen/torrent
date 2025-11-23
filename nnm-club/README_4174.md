@@ -1,3 +1,79 @@
+###  Публикация: 1683747   (128211) от 12.12.2023
+
+VA - Meditative, Romantic and Stylish Jazz for the Quiet Times (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - The Way You Look Tonight (5:06)
+02. Chillaxing Jazz Kollektion - A New Day (4:44)
+03. Love Suggestions - Clarity (4:36)
+04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC427F85EA72390E6EAADF86E03668CCD05B0D8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683697   (128212) от 12.12.2023
+
+Журнал | Дачный сезон №7 (июль 2023) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: ООО Бауэр МедиаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED63FBE40885FF739D8BC4CF1AF676536F4EB75A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683782   (128213) от 12.12.2023
+
+Михаил Лермонтов | Княгиня Лиговская (2005) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
+«Княгиня Лиговская» – роман о жизни офицеров и чиновников в Петербурге. Любовь, борьба за положение в свете, интриги, неравенство. Книга «Княгиня Лиговская»  – незавершённый  социально-психологический роман с элементами светской (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Вира-МПродолжительность: 04:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222740401C3AD3996736081ACC01A5BC17182127
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683678   (128214) от 12.12.2023
 
 Лилия Ларина | Право жить. Истории о людях и выборе (2023) [MP3, Александра Долганова]
@@ -6,7 +82,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128214.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128215.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:2FAA9527A96EC5AABE98385542B61DE872305AB5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128216.jpg" />
 </div>
 
 
@@ -83,7 +159,7 @@ VA - Luxury Relaxing Lounge Comfort Smooth Playlist (2023) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128217.jpg" />
 </div>
 
 
@@ -110,7 +186,7 @@ Phil Woods - The Rev & I (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128218.jpg" />
 </div>
 
 
@@ -137,7 +213,7 @@ magnet:?xt=urn:btih:DFDD841A7CC1DD391710B0168CE57AFB16E33C56
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128219.jpg" />
 </div>
 
 
@@ -161,7 +237,7 @@ Ayreon - 01011001 (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128220.jpg" />
 </div>
 
 
@@ -188,7 +264,7 @@ Ammanas - Solitude (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128221.jpg" />
 </div>
 
 
@@ -215,7 +291,7 @@ Dramaturg - Darkness (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128222.jpg" />
 </div>
 
 
@@ -242,7 +318,7 @@ Sword - III (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128223.jpg" />
 </div>
 
 
@@ -269,7 +345,7 @@ Jessica Williams - Live At Yoshi's, Vol. 2 (2005) MaxJazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128224.jpg" />
 </div>
 
 
@@ -296,7 +372,7 @@ Cavandish - Лицемерие (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128225.jpg" />
 </div>
 
 
@@ -323,7 +399,7 @@ Foetal Juice - Grotesque (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128226.jpg" />
 </div>
 
 
@@ -350,7 +426,7 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|image + .cue] <Black Metal, Sympho
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128227.jpg" />
 </div>
 
 
@@ -377,7 +453,7 @@ magnet:?xt=urn:btih:734623A5E2DD65F4B86A6438F339D429508FD7B3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128228.jpg" />
 </div>
 
 
@@ -401,7 +477,7 @@ VA - Chillout Winter Gems 2024: Chillout Your Mind (2023)[FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128229.jpg" />
 </div>
 
 
@@ -428,7 +504,7 @@ magnet:?xt=urn:btih:07305CC0285E7A9B689DD8162111DD8587849DDA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128230.jpg" />
 </div>
 
 
@@ -452,7 +528,7 @@ magnet:?xt=urn:btih:CA2B7035C8596884F46F1443C63FB2A1C098765D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128231.jpg" />
 </div>
 
 
@@ -476,7 +552,7 @@ magnet:?xt=urn:btih:9A3FF1A47C7950D0EB3E259294E468801F7AF4B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128232.jpg" />
 </div>
 
 
@@ -500,7 +576,7 @@ VA - Electro Swing Back to Old School Volume 2 (Jazzy Electro and Vintage Swing 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128233.jpg" />
 </div>
 
 
@@ -527,7 +603,7 @@ magnet:?xt=urn:btih:205EB56C17A37DBCA63B3D591E62C19D8D378CD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128234.jpg" />
 </div>
 
 
@@ -551,7 +627,7 @@ magnet:?xt=urn:btih:395E33112F2AAA1C28F53116D289281B4450F776
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128235.jpg" />
 </div>
 
 
@@ -575,7 +651,7 @@ magnet:?xt=urn:btih:5246A2EE5416EBF461485598E881D0C21DBCD632
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128236.jpg" />
 </div>
 
 
@@ -588,83 +664,6 @@ magnet:?xt=urn:btih:5246A2EE5416EBF461485598E881D0C21DBCD632
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00D0F68FA12AD0A3F75A3B9DA5D176D8ECA9CF07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683698   (128237) от 12.12.2023
-
-О.А. Морозова | Интеграция корпоративных информационных систем (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются современные подходы к разработке интеграционных решений. Обосновывается стратегическое значение интеграции информационных систем для преобразования бизнеса, приводится классификация интеграционных задач, формулируются критерии выбора интеграционного решения, проводится обзор базовых технологий и стандартов, используемых при разработке интеграционных (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Финансовый университетФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C65A143D8CC3BD8E40EC58504259369A2090570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683776   (128238) от 12.12.2023
-
-Михаил Лермонтов | Герой нашего времени (Аудиоспектакль) (2008) [MP3, Сергей Бурунов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Театральный фонограф».
-Представленный на диске аудиоспектакль по роману М.Ю. Лермонтова «Герой нашего времени» записан в лучших традициях «Театра у микрофона». В записи принимали участие известные артисты, многие из которых полюбились слушателям именно по работам в радиопостановках и аудиоспектаклях.
-В спектакле сохранены все сюжетные линии, и текст романа (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: VOX records, 1С-ПаблишингПродолжительность: 06:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADE9F396FA304F357568219634F22D7326ED2DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683753   (128239) от 12.12.2023
-
-VA - Smooth Jazz Beats & Modern Fusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance - Around Me (4:35)
-02. Lo Greco Bros - Bella M'Briana (4:23)
-03. David Florio - Lost Numbers (5:21)
-04. Papik - Feelings (4:12)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D0BC4FF60A798E58B187689612FF13CA448AA2
 ```
 
 

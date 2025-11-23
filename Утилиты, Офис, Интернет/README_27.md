@@ -6,7 +6,7 @@ Punto Switcher 4.5.0 Build 583 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46633.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 Portable by FC Portables [Mu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46718.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ nthLink 6.5.0.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46757.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Punto Switcher 4.5.0 Build 583 RePack (& Portable) by elchupacabra [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46856.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rainlendar Lite 2.21.3 Build 180 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47039.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ InControl 1.0.2 (DC-28.02.2024) Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47165.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AOMEI Backupper Technician Plus 7.4.0 WinPE by Updated Edition [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47791.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ElevenClock 4.4.1.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47894.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VCap Downloader 0.1.23.6257 Portable by 7997 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48316.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ KMS_VL_ALL_AIO-52 Portable by abbodi1406 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48358.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ WakeMeOnLan 1.91 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48411.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Glarysoft File Recovery Pro 1.26.0.28 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48420.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Glary Utilities Pro 6.13.0.17 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48470.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Adobe Acrobat Pro 2024.002.20965 (x32-x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48539.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ eM Client Pro 10.0.3351.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48553.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Mailbird Pro 3.0.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48572.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Mailbird Premium 3.0.17 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48593.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Macrorit Partition Expert 8.2.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48780.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ NIUBI Partition Editor Technician 9.9.8 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48786.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Fast Video Downloader 4.0.0.62 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48811.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ AutoSettingsPS 0.5.9fix 12.07.2024 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48930.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Wise Care 365 Pro 6.7.5.650 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48973.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Twinkle Tray 1.15.5 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48998.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ PassMark RAMMon 3.3 Build 1000 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49111.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PowerRun 1.7 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49201.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Windows Manager 2.0.3 + Portable (x64) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49235.jpg" />
 </div>
 
 

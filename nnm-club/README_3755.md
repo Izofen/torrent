@@ -1,3 +1,75 @@
+###  Публикация: 1699398   (117312) от 16.02.2024
+
+Стальная хватка / The Iron Claw (2023) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их жизнь — изнурительные тренировки перед грядущим сражением. Каждый раз, выходя на арену, они рискуют остаться здесь навсегда. Толпа приветствует могучих юношей, готовых развлекать их ради мимолетной славы. Но они — не гладиаторы в Древнем Риме. А дети некогда знаменитого бойца, который теперь полностью сконцентрирован на карьере своих четырёх сыновей. Рано или (   Читать дальше...   )Производство: США, Великобритания / A24, Access Entertainment, BBC FilmЖанр: биография, спорт, драмаРежиссер: Шон ДуркинАктеры: Зак Эфрон, Джереми Аллен Уайт, Харрис Дикинсон, Мора Тирни, Стэнли Саймонс, Лили Джеймс, Холт Маккэллани, Челси Эдмундсон, Грейди Уилсон, Валентайн НьюкомерПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full), Английские (Full, SDH)Продолжительность: 02:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50C58E2FB6594E1B78AFBD7B24AC7AF393387A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699656   (117313) от 16.02.2024
+
+Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Scene Rune [Deluxe Edition]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lies Of P была вдохновлена знаменитой историей о Пиноккио, но демонстрирует более жестокую и мрачную версию сказки. Чтобы стать человеком недостаточно доброты и любви, ведь людская сущность обладает и кровожадными чертами, где каждый готов бороться за власть или место под солнцем любыми способами. Многое предстоит построить на лжи, главное не запутаться в ней, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: NEOWIZЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4FBD8CAA8C61D03B9C076C7B3A2B7E620CE6E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699862   (117314) от 16.02.2024
+
+Тот, кто смотрит / Stranger in the Woods (2024) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оливия, пережившая гибель жениха и попытку самоубийства, отправляется со своими друзьями на природу. Ее близкие уверены, что свежий воздух и смена обстановки пойдут девушке на пользу. Но вместо этого Оливию начинает одолевать тревога. Она не может избавиться от ощущения, что леса вокруг их хижины таят опасность, а остановившийся по соседству сводный брат одного из (   Читать дальше...   )Производство: США, WonkЖанр: триллерРежиссер: Адам НьюачекАктеры: Холли Кенни, Брендин Браун, Пэрис Николь, Радек Антчак, Тедди Спенсер, Девон СтюартПеревод: Дублированный (ОККО)Язык озвучки: русскийСубтитры: Русские (Forced, full)Продолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A355E87AF31DEC87FAE1DE085EC9E9F130CBCC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700170   (117315) от 16.02.2024
 
 Игроки / Players (2024) WEB-DLRip [H.264] [DVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117315.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:3EA97569CF6128796A5C2B61873DD2FC58977210
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117316.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:815A8A07A395C9486105B20FFB6F898B9A5201CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117317.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:3284310E43888D093C5D2FE911789569B5CF56BE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117318.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ StartAllBack 3.7.3 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117319.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:33C27B07BEF5936C369570398B171B9E3CC8E24B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117320.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117321.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:7F6C8DF721637CF41C7AF004CC4748365F7F8F06
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117322.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:7087CC8874785C08841B7A87A9B9B772D50E8E3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117323.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:C43BF51456FD238C3E9C2CC7489AD1069B55349A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117324.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:56C9A46A60BC3ADC919888435379C97AD0A7C93E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117325.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:F75A4A26706FCD628B1C6BA1DF4979586C49681B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117326.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:3EDEDE11DF9C5D8EECBABA28459D8824E4CE273A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117327.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:7AA3AE8E9AF4D60237A0503ED2229F06FEC4070D
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117328.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:7A2F881F3BC9013C02DE0C05D836D83E641693DF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117329.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ magnet:?xt=urn:btih:E984858118578F1F227804A35D6CB1C194C533DC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117330.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ magnet:?xt=urn:btih:0E3DE22E8D18BEB6A72AA91D18CFF414D02B0B9E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117331.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ magnet:?xt=urn:btih:46FFDAB37C800D6B45E54AC57BC9BD1673156CE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117332.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ magnet:?xt=urn:btih:E4F727790D60DC3E5150D594F6C5BFFD9FFDA376
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117333.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ magnet:?xt=urn:btih:1C5ACF1C0AEAE676C7014A256172569FCA4FC288
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117334.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ magnet:?xt=urn:btih:F9331CC64192113B43A33D1B6BA01D456291D2DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117335.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ magnet:?xt=urn:btih:35C2BA4CD35E8E9FDB19976F362112A88A4C077F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117336.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ magnet:?xt=urn:btih:7B7C907DC15EF8B3BD176088C3466EBF8412A1A2
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117337.jpg" />
 </div>
 
 
@@ -547,79 +619,6 @@ magnet:?xt=urn:btih:7B7C907DC15EF8B3BD176088C3466EBF8412A1A2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7BBC41C0CD0848F7E6187B5C81A323A6424385C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700342   (117338) от 16.02.2024
-
-Присцилла: Элвис и я / Priscilla (2023) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая девушка не мечтает о романе со знаменитостью? У молодой Присциллы такое желание сбылось, и судьба уготовила ей встречу с самим Элвисом Пресли. Теперь они официально — главная пара Америки, но что скрывается за фасадом счастливой жизни с кумиром всей страны?Производство: Италия, США / American Zoetrope, The Apartment, FremantleЖанр: биография, драмаРежиссер: София КопполаАктеры: Кейли Спейни, Джейкоб Элорди, Эри Коэн, Дагмара Доминчик, Тим Пост, Линн Гриффин, Дэн Бирн, Родриго Фернандес-Столл, Дэн Абрамовичи, Мэттью ШоуПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6662424EE69E7204B1AB8E530DAC9A96F9C60586
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698744   (117339) от 16.02.2024
-
-Microsoft разрешит удалять из Windows программу, которая расходует память, следит за пользователем и крадет персональные данные.
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117339.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Windows 11 появится опция удаления браузера Edge, который поставляется с системой и намертво в нее вшит. Выкорчевать его можно только при помощи стороннего ПО, но Microsoft это не одобряет, уверяя, что удаление Edge может навредить ОС. На деле это совсем не так, даже на оборот – новые версии Edge приносят больше вреда, чем пользы. Например, браузер может в фоновом (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700168   (117340) от 16.02.2024
-
-Контроль / Control (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственный незнакомец давно следит за Стеллой. Она блестящий политик и всегда в центре внимания. Не составляет труда затеряться в толпе журналистов, освещающих каждый ее шаг, но лишь он знает о темных сторонах ее жизни и запретном романе с премьер-министром.​
-Незнакомец давно вынашивал свой план и когда Стелла решила отвезти домой дочь своего любовника, он (   Читать дальше...   )Производство: Великобритания / Cupsogue Pictures, CineNorth StudiosЖанр: боевик, триллерРежиссер: Джин ФолэйзАктеры: Кевин Спейси, Лорен Меткалф, Марк Хэмптон, Natasha Kemball, Эр Фаррелл, Аарон Либёрд, Джошуа Фрэйтер-Лафлин, Адам Сауфвик, Питер Гриффитс, Адам ТемпларПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C32B596153ED29AE9562CF7197CD8A5B5DC8D1
 ```
 
 

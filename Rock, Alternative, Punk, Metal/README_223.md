@@ -6,7 +6,7 @@ Aegrus - Thy Numinous Darkness (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140980.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ HMR - Ад Уже Здесь (2016) [FLAC|lossless|image + .cue] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140981.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rienaus - Saatanalle (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140994.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:995FBDF5617274080B433E09FF3A79D1283AF7F4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141055.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Epitaph - Danger Man (1982) Reissue, 2012,  M.I.G. Music Gmbh [MP3|320 Kbps] <Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141059.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:8B1F8D424D18EA3FF752A74231D31508D807A974
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141112.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Liverbirds - More Of The Liverbirds (1966) Reissue, 1994,  Repertoire Record
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141162.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sweet - Isolation Boulevard (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141196.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Royal Southern Brotherhood - 2 альбома (2014 -2015) [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141232.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kim Salmon & Spencer P. Jones - Runaways (2013) [FLAC|Lossless|tracks] <Rock, Sw
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141266.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Testament - The Formation of Damnation (2008) 2CD, Deluxe Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141490.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:3397C00FCCD4E50D4CA319703D69B729FEA88715
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141493.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Pixies - Doolittle (1989) SACD, Remastered, 2008 Mobile Fidelity Sound Lab [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141525.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Kerrang! Ultimate Rock Heroes! (2015) [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141547.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Jono - Silence (2015) [FLAC|Lossless|image + .cue] <Progressive, Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141559.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Silvertomb - Edge of Existence (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141596.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Tina Turner - Queen Of Rock 'n' Roll (2023) 3 x CD [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141609.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Opus VII - Prima Opus Magnum (2013) [FLAC|Lossless|image + .cue] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141662.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C2CD855DCBBBE3AE6D1B936BCC42F5415B197157
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141671.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Rydell & Quick - 2 альбома Discography (2006-2012) [MP3|320 Kbps] <Melodi
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141721.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:C1EF096DEF1D854C1ADCE7878907B288F1380BF5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141731.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Alcest - 6 Albums, 2 EPs (2005-2019) [FLAC|Lossless|image + .cue] <Shoegaze, Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141799.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Sons Of Apollo - MMXX (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141828.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Rydell & Quick - 2 альбома Discography (2006-2012) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141849.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ GB Arts - The Lake (2000) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141910.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Les Discrets - Septembre Et Ses Dernieres Pensees (2010) Limited Edition [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141989.jpg" />
 </div>
 
 

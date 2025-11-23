@@ -6,7 +6,7 @@ Duran Duran - Notorious (1986) Deluxe Edition, Remaster, 2010, Parlophone Record
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45258.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Moon Tripper - Echoes Of Freedom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45259.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Duran Duran - Notorious (1986) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45260.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Various Artists - Italo Lounge (2007) [WavPack|Lossless|image + .cue] <Lounge>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45457.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Ride to Paradise: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45459.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Insatiable Void - Nefelibata Descent (2024) 2CD [MP3|320 Kbps] <Industrial, witc
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46066.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Röyksopp (Royksopp) - Profound Mysteries III (2022) [FLAC 24/44.1|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46092.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - The Best Of Remixes 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46094.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Black Coffee: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46099.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Seychelles Summer Mix 2024 Chillout Island Beach Lounge [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46101.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ TaTa Golosa (Romina Contiero) - Fotonovela Y Otras Historias (2009) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46178.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ TaTa Golosa (Romina Contiero) - Busca Busca (+ Micromania 2014) (2014) [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46182.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Ministry of House (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46274.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Top 20 Melodic Techno & Progressive House (2024) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46275.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - It's All About Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46810.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Space Purr - X-Meow | Once Upon a Space (2016, 2018) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47321.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Armin van Buuren - A State Of Trance 1185 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47332.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - 50 DJ Tracks 2024 Vol. 2 (2024) [MP3|320 Kbps] <House, Dance, Club, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47345.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Calvin Harris - 96 Months (2024) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Dance, H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47353.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - The Ultimate Background Playlist - Chillout Music FLAC (2024) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47427.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Anjunabeats Essentials 01 (DJ Mix) (2024) - [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48167.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Deus Ex Lumina - As Above So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48170.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Dark Chisme - Dark Chisme (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkpop, Darkwav
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48171.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Vaylon - A Different Void Of Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48172.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Krachtek Elektronik - Oslo Syndrome (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48173.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Kazaky - Like It (Part I) (2014) [WavPack|Lossless|image + .cue] <Synth-pop, Ele
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48175.jpg" />
 </div>
 
 

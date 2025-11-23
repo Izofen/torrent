@@ -6,7 +6,7 @@ VA - Fulltime Production Italo Disco, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109022.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109055.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FIZICA - Что, если…? – Часть 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109062.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - The Classic Dance Remixes (Arthur Baker Presents Dance Masters John Luongo)
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109142.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Fulltime Production Disco Classic, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109226.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Fulltime Production Disco Classic, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109234.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ant-People - Disco Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109327.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Teisutis Makacinas (T. Makačinas) - Disko Muzika (1982) Reissue, 2018, Makačin
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109345.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ FIZICA - Что, если…? – Часть 1 (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109404.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109420.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Luther Vandross - Luther (1976) Remaster, 2024, Legacy Recordings [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109433.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Soft Relaxing Piano Music - Famous Piano Songs 2024: Piano Jazz Relax [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109464.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Dance: Made in Italy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109487.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Disco Rock Years (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco. Pop, Rock
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109503.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - The Best of Italo Disco, Vol. 3 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109538.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Teenage Bad Girl - Separate (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Dance
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109560.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109589.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - The Best of Italo Disco, Vol. 2 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109606.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - The Best of Italo Disco, Vol. 4 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109607.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:1AC4F0B8A6417CFA091AFCC3141DD388D022A733
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109678.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:2FEE3ECAE9147FA6B5D99452816EBB9687A0A7FE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109691.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F396E3A68E33D59FD87F763B73F22982CA1F3480
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109693.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:978DDCD1426DF2F33D7F350378EA7F9A2C6BAA80
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109698.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Imagination - The Golden Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109792.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:A6CF7320568269EAE4BE0D3CB64794C7A59F00FC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109971.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Paul Jabara - The Third Album (1979) LP [MP3|320 Kbps] <Disco, Funk Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110115.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1703590   (114998) от 29.02.2024
+
+AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Deeds Done Dirt Cheap
+02. Ain't No Fun (Waiting Round to Be a Millionaire)
+03. There's Gonna Be Some Rockin
+04. Problem Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7C58CF7641C37D42FBA92A43F49D18BBE43C26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703588   (114999) от 29.02.2024
+
+PhotoDirector v19.0.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114999.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.02.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA71D336251B526194BEBDCF53E2A8D832EDB4A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703587   (115000) от 29.02.2024
+
+Walter Trout - Broken (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken (4:50)
+02. Turn And Walk Away (4:33)
+03. Courage In The Dark (5:36)
+04. Will Wilde - Bleed (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395BF883B6759FBAD6A865F8DF7D44FE7491BED1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703375   (115001) от 29.02.2024
 
 Арсений Тарковский | Я свеча, я сгорел на пиру (1982) [FLAC, Арсений Тарковский]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115001.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:D295F16246BD5E00A891472FB94BBC9C081D1322
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115002.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ magnet:?xt=urn:btih:B935BE0A44B6B91AFF27BCFB7301B627CDEF3895
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115003.jpg" />
 </div>
 
 
@@ -80,7 +158,7 @@ Doro - Conqueress - Extended (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115004.jpg" />
 </div>
 
 
@@ -107,7 +185,7 @@ Emurasoft EmEditor Professional 24.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115005.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ Band of Experts - Revisiting the Songs of Jimi Hendrix (2024) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115006.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:704F170421093F63A694B6B6F2802D2EA4DB391E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115007.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ Hell Boulevard - Requiem (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115008.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ Nathan Beretta - Love Taxman (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115009.jpg" />
 </div>
 
 
@@ -237,7 +315,7 @@ Luca Giordano, Victor Puertas, Netto Rockfeller Trio - Night Time Boogie (2024) 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115010.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115011.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ Above & Beyond - Group Therapy 500 Live from Los Angeles (2024) (Live) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115012.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ magnet:?xt=urn:btih:08F80C335F6FAA0A0DC8D4D7E19052BDB119C28E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115013.jpg" />
 </div>
 
 
@@ -342,7 +420,7 @@ YT Downloader 9.6.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115014.jpg" />
 </div>
 
 
@@ -366,7 +444,7 @@ Emurasoft EmEditor Professional 24.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115015.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ Vivaldi 6.6.3271.45 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115016.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ IObit Driver Booster Pro 11.3.0.43 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115017.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115018.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ VueScan Pro 9.8.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115019.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ magnet:?xt=urn:btih:6B5D4B1A990ACC991D6FD292E70D56F6A5114C8B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115020.jpg" />
 </div>
 
 
@@ -517,7 +595,7 @@ Fort Firewall 3.11.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115021.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ magnet:?xt=urn:btih:5D9EEBFD7706EEAB1978EAB2AF26728F8D11A883
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115022.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ magnet:?xt=urn:btih:3C7BE6E37A3D48EC5A6755E2D99C8518C20DF2ED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115023.jpg" />
 </div>
 
 
@@ -577,81 +655,6 @@ magnet:?xt=urn:btih:3C7BE6E37A3D48EC5A6755E2D99C8518C20DF2ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08AABDF314D4DC3C8FD9C82F6FB39556CD1BE76A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703456   (115024) от 29.02.2024
-
-HWiNFO 7.73 Build 5375 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115024.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8D18FDD491294A54743E056D42A6F8FC76A246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703543   (115025) от 29.02.2024
-
-VueScan Pro 9.8.28 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115025.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0006B6D177BD1797555760BA27A34CB7436F3E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703448   (115026) от 29.02.2024
-
-Army of Lovers - Massive Luxury Overdose (1993 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-1. We Stand United
-2. Crucified
-3. Candyman Messiah(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150755A436A964C98B5487901B92D73EDA2A024E
 ```
 
 

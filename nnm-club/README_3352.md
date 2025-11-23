@@ -1,3 +1,78 @@
+###  Публикация: 1735783   (106834) от 09.07.2024
+
+Зинаида Гаврик | Магия взбесившихся дверей (2024) [MP3, Софья Шамаева]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106834.jpg" />
+</div>
+
+
+###  Подробнее
+
+После расставания с парнем с Ульяной начинает происходить что-то странное. Проходя через двери, она то и дело оказывается в разных диковинных местах. Так её заносит на занятие по настоящей магии! Решив, что сошла с ума, она в ужасе убегает прочь. Вот только странности всё не прекращаются. А ещё повсюду начинает возникать привлекательный и жуткий парень, покрытый (   Читать дальше...   )Жанр: Любовное фэнтези, Магические мирыИздательство: АрдисПродолжительность: 13:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F19D400C2A55703D6F1E991281DA5B14E25560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735676   (106835) от 09.07.2024
+
+Ты никогда не сможешь сказать / You Never Can Tell (1951) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший армейский пёс унаследовал целое состояние от своего эксцентричного владельца-миллионера, и, будучи отравленным, просит небесного покровителя животных отправить его обратно на Землю в качестве частного детектива-человека, чтобы раскрыть его собственное убийство...Производство: США, Universal International Pictures (UI or U-I)Жанр: фэнтези, мелодрама, комедия, криминалРежиссер: Лу БреслоуАктеры: Дик Пауэлл, Пегги Дау, Джойс Холден, Чарльз Дрэйк, Альберт Шарп, Лу Полан, Фрэнк Нельсон, Уильям Веддер, Фрэнк Герстл, Энтони ДжорджПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7624B4C9354DC1023FBAAACDC4B41065DAC0157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735737   (106836) от 09.07.2024
+
+Hads Lads - Kingdom in the Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragonheart (3:31)
+02. Kingdom in the Sky (3:01)
+03. Prince and Princess (2:21)
+04. Prince of the Blues (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6814CF32358404C6CD1C1E64E4EE595AF012EFCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735706   (106837) от 09.07.2024
 
 VA - DJ Hits 141 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
@@ -6,7 +81,7 @@ VA - DJ Hits 141 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106837.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:6EC22FACA932CF4F7C8BBE43A51D8A07A40834C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106838.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:4A2A3BFC671A3ED4D5ADBBD43532037EDA28A565
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106839.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:AD414FFBFB88980FBDE907915FECE96B3D96610B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106840.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Anna Prior - Almost Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106841.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Bart&Baker - Electro Swing Classics - The Swing Phenomenon (2024) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106842.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ magnet:?xt=urn:btih:F6E9E297B43592CF0D2DE5709EAD2A5422824F05
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106843.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ Rawa Blues Band - Night and Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106844.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ DS Caw - Nothing To Fight For (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106845.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ George Shearing Quintet And Orchestra - White Satin & Black Satin (1957, 1960) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106846.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ magnet:?xt=urn:btih:A123BBE400E28E17CD099F09F921F5F930B994B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106847.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ Mike Cahen - Bottle Neck Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106848.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ Paul Benjaman Band - My Bad Side Wants a Good Time (2024) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106849.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ magnet:?xt=urn:btih:EA2EBB03F2C714B27E70A25DDCDD377A8307F0FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106850.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ Glary Disk Cleaner 6.0.1.13 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106851.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ magnet:?xt=urn:btih:0A1A2091D1930E156A7DD4E7796B6EFFAA8D011B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106852.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ TapinRadio 2.15.97.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106853.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ magnet:?xt=urn:btih:663BC6E1F394AA3DBE611A031144C6B4367D0B8D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106854.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ Subtitle Edit 4.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106855.jpg" />
 </div>
 
 
@@ -489,7 +564,7 @@ Balabolka 2.15.0.873 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106856.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ PDF Shaper Premium / Ultimate 14.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106857.jpg" />
 </div>
 
 
@@ -538,7 +613,7 @@ Kdenlive 24.05.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106858.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106859.jpg" />
 </div>
 
 
@@ -576,82 +651,6 @@ Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6C560B6D08204BF60F9DAEE2FA9720E06BB8F71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735677   (106860) от 09.07.2024
-
-Байкеры / The Bikeriders (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1960-е. Мотоклуб, в котором собираются местные аутсайдеры, постепенно превращается в сборище бандитов.Производство: США / 20th Century Studios, Regency Enterprises, Regency TelevisionЖанр: драма, криминалРежиссер: Джефф НиколсАктеры: Джоди Комер, Остин Батлер, Том Харди, Майкл Шеннон, Майк Фейст, Бойд Холбрук, Норман Ридус, Дэймон Херриман, Бо Напп, Эмори КоэнПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:57:14Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735713   (106861) от 09.07.2024
-
-VA - Chillout & Lounge Music Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossing Colors - Animated Expressions (4:20)
-02. Bio Logical Theory - Sunny Groove (4:25)
-03. Klasse XXI - Shared Aspirations (4:20)
-04. Vostok Divers - Apparent Nonchalance (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A0B314F8969E5CA061FB27DFBF60F5FB59250B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735750   (106862) от 09.07.2024
-
-Николай Чуковский | Хочу всё знать! (Выпуск № 7). Великие мореплаватели. Крузенштерн и Лисянский (2007) [MP3, Денис Некрасов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Корнеевич Чуковский (1904–1965) – русский писатель, переводчик прозы и поэзии, сын писателя Корнея Чуковского.
-Отважные русские капитаны сделали немало замечательных открытий. Они исследовали не только Северные моря и Аляску – они обошли вокруг света, и в их экспедициях было множество захватывающих приключений. Книга Николая Корнеевича Чуковского рассказывает (   Читать дальше...   )Жанр: Историческая литература, биографияИздательство: Элитайл, СиДиКомПродолжительность: 05:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C046E143A25B34B65788F673A22E0DDAF86ECA
 ```
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1767532   (101190) от 22.12.2024
+
+VA - Guten Morgen Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Junkie XL - Come Together (3:14)
+02.  Black Stone Cherry - Rolling in the Deep (Live) (3:48)
+03.  Linkin Park - What I’ve Done (3:26)
+04.  Nickelback - How You Remind Me (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C99400F86DE89E72C857FB75DDA6D870809FFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767037   (101191) от 21.12.2024
+
+Газета | Невыдуманные истории №49 (453) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101191.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D24385B6833AD16C381CA67B474D4EDAD4A1ED4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766994   (101192) от 21.12.2024
+
+Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101192.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Odyl (6:46)
+• 02. Reina (5:35)
+• 03. Poseidon (5:02)
+• 04. The Quest (7:30)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B43324E9E68DED6C5C424A20502BEEAADC4188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767114   (101193) от 21.12.2024
 
 Своя игра (21.12.2024) WEBRip [H.264/1080p]
@@ -6,7 +85,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101193.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:0F5EDE044F4E49279279F8C8D64544280BAFAC13
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101194.jpg" />
 </div>
 
 
@@ -54,7 +133,7 @@ VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101195.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101196.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ VA - Broken Beat Nu Funk, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101197.jpg" />
 </div>
 
 
@@ -135,7 +214,7 @@ magnet:?xt=urn:btih:22FE1BEB8BA5C53697B514390F707063AEC7471E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101198.jpg" />
 </div>
 
 
@@ -160,7 +239,7 @@ VA - Festive Season (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101199.jpg" />
 </div>
 
 
@@ -187,7 +266,7 @@ VA - Synchronized Music: Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101200.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Arcade Alchemy - 1 hour Beast Mode On Hard-hitting Gym Beats for Strength (2024)
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101201.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ VA - Weekend Dance Tunes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101202.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ magnet:?xt=urn:btih:4E8F85A16317B54449355ED6ED24580123D59CB5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101203.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ magnet:?xt=urn:btih:5062C381742251126FA424DB0EA288B47F6A3887
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101204.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Lane 8 - Winter 2024 Mixtape (2024-12-18) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101205.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ magnet:?xt=urn:btih:68494378F3AD18B738256B3793D25BC22836B38F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101206.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ Beat Find / Распознавание музыки v1.6.51 Mod by NURIK kz [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101207.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ magnet:?xt=urn:btih:68BFA675A9BE8F733120B7CA3FE3850CF4534712
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101208.jpg" />
 </div>
 
 
@@ -421,7 +500,7 @@ Markus Schulz - Global DJ Broadcast Year in Review Part 2 (2024-12-19) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101209.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ magnet:?xt=urn:btih:5C4AD6CAD4F5771EC9C6D0E6487AB031A95FEA3C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101210.jpg" />
 </div>
 
 
@@ -473,7 +552,7 @@ VA - House Disco Funk Vol 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Ho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101211.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ VA - Jalapeno Funk, Vol. 15 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101212.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ VA - My PlayList (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101213.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ Pallbearer - Studio Albums (5 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101214.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ Jelly-Roll Morton - 1928 - 1929 (1992) Classics [FLAC|Lossless|tracks + .cue] <N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101215.jpg" />
 </div>
 
 
@@ -595,82 +674,6 @@ Jelly-Roll Morton - 1928 - 1929 (1992) Classics [FLAC|Lossless|tracks + .cue] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7F9465466474681C686AECDAB5A63B3C2DC153D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766733   (101216) от 20.12.2024
-
-Футбол. Кубок Италии 2024/2025. 1/8 финала Рома - Сампдория (18.12.2024) TVRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101216.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предыдущих раундах «Сампдория» победила «Комо» и «Дженоа» в серии пенальти. «Рома» автоматически попала в 1/8 финала. Рома провалила гостевой матч против Комо в Серии А. Домашняя игра против Сампдории в Кубке Италии, это шанс для "волков" реабилитироваться перед собственными болельщиками.
-
-Тренеры: Клаудио Раньери, Леонардо Семпличи
-Главный судья: Федерико (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF45E45DC3E3589B3A7E81119F57199E78F6FD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766765   (101217) от 20.12.2024
-
-НХЛ 2024-2025. Питтсбург Пингвинз - Нэшвилл Предаторз (19.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101217.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 декабря 2024, пятница. 04:00 МСК. Стадион: Бриджстоун-Арена (Нэшвилл, США), 17 159 зрителей (99% при вместимости 17 335)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Брэндон Шредер (Санборн, США); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Килиан МакНамара (Лейк Уорт, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8340999EFC07BB61B08FC42ABC1427F44C26F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766750   (101218) от 20.12.2024
-
-Дьявол и Дэниэл Уэбстер / All That Money Can Buy (1941) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на рассказе Стивена Винсента Бенета 1936 года «Дьявол и Дэниел Уэбстер»... Стоун, простой фермер в Новой Англии, страдает от неурожая и долгов и не видит смысла продолжать заниматься фермерством. В отчаянии он говорит, что готов продать душу в обмен на деньги и достойный урожай. Тут как тут появляется некий мистер Скрэтч, и предлагает контракт на семь (   Читать дальше...   )Производство: США / William Dieterle ProductionsЖанр: фэнтези, драма, мелодрамаРежиссер: Уильям ДитерлеАктеры: Эдвард Арнольд, Уолтер Хьюстон, Джейн Дарвелл, Симона Симон, Джин Локхарт, Джон Кволен, Энн Ширли, Линди ВэйдПеревод: профессиональный многоголосый (Спб, 5 канал)Язык озвучки: русский, английскийСубтитры: русские (на место без перевода), английскиеПродолжительность: 01:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2713E46B7F59F6F91386D17C34D93D68D1617E0B
 ```
 
 

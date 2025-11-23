@@ -6,7 +6,7 @@ Archiac Torse - Sneak Attack (1992) Reissue, 2022, Vic Records [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110981.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Strom - En Orkan Pa Var Sida (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110984.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B2FFCEE02E69A8021989A12780C2E50ADB02C767
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110985.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Knightfall - Destiny Calling (2024) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110988.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Architect - Savage Rhythms (2024) [MP3|320 Kbps] <Nu Metal, Alt. Metal, Hard
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110992.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Pale Revenant - Гибель Солнца (2024) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110993.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gordi - Fenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110996.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Loch Vostok - Opus Ferox II - Mark of the Beast (2024) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110998.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Caspar McCloud Band - Immortality (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111001.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hartlight - As Above, So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic/P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111003.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Atrae Bilis - Aumicide (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111006.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Atrae Bilis - Divinihility (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111009.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Atrae Bilis - Apexapien (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111010.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ravage - Spider on the World (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111012.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Finch - Glory of the Inner Force / Galleons of Passion (1975&1977) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111025.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Adrenochrome - The Grove (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Grin
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111026.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Asagraum - Dawn of Infinite Fire (2019) [FLAC|Lossless|tracks + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111028.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Framing the Red - Three To Get Ready (2024) [FLAC|Lossless|WEB-DL|tracks] <South
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111037.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Asgaia - Death Board (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111046.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Alene Misantropi - Absence of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Depres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111047.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B02CDD1BDF3D7FC89C688568BF466EE932642FB7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111050.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Thirsty Moon - Starchaser (1981) LP [MP3|320 Kbps] <Pop-rock, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111051.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Billy Morrison - The Morrison Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111054.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lyndsy Says - Lindsy Says (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111058.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ends With A Bullet - The Game (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111061.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Savage Wizdom - Who's Laughing Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111068.jpg" />
 </div>
 
 

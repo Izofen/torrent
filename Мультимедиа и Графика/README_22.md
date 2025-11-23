@@ -6,7 +6,7 @@ Exposure X7 7.2.0.25 (x64) Portable by conservator [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48506.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ DxO PhotoLab Elite 7.8.0 build 254 (x64) Portable by conservator [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48508.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48565.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ AnyMP4 Blu-ray Player 6.5.62 Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48571.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sugar Bytes - WOW2 2.2.8 Standalone, VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48753.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Adobe Audition 2024 (24.4.1.3) Portable by XpucT [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48823.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Adobe Premiere Pro 2024 (24.5.0.57) Portable by XpucT [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49036.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ FotoJet Designer 1.3.5 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49082.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ FotoJet Photo Editor 1.2.3 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49083.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ n-Track Studio Suite 10.1.0.8710 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49086.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ FotoJet Photo Editor 1.2.3 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49087.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Adobe Illustrator 2024 28.6.0.709 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49114.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ FotoJet Collage Maker 1.3.0 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49121.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ RizomUV Virtual Spaces / Real Space 2024.0.100 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49123.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adobe Substance 3D Sampler 2024 4.5.0 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49130.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Benvista PhotoZoom Pro 9.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49290.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Corel VideoStudio Ultimate 2023 26.2.0.311 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49474.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Tracktion Software & Outersect - Modeler 1.2.4 Standalone, VSTi 3, AAX (x64) ReP
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49596.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ DP Animation Maker 3.5.30 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49626.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Adobe Animate 2024 24.0.4.28 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49638.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ WinX HD Video Converter Deluxe 5.18.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49649.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:F4CEFA41628A0294A636745B6C38D5C73D7FE826
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49820.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Adobe InCopy 2024 19.5.0.84 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49825.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Plugin Alliance & TBTECH Kirchhoff-EQ 1.7.0 VST, VST 3, AAX (x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50218.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ W.A Production - XTT by VINAI 1.1.2 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50229.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Aurora DSP - Rhino 1.7.0 STANDALONE, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50326.jpg" />
 </div>
 
 

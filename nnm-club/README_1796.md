@@ -6,7 +6,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47051.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare UniConverter 15.6.1.25 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47052.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BDCF273D8422A21DE9E887CDBFCE72773B3BFE92
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47053.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Rainlendar Pro 2.21.3 Build 180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47054.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1C4B54817C8304352B83ABAFCCF77BBF1E5DE24C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47055.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5CCE337467C0416F94146B24B99FA96314716346
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47056.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:44D2B29229A8EE67EDA8DF62F11E5464AAAE348D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47057.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cursed Fables 5: A Gilded Rose / Проклятые предания 5: Позо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47058.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ FastCopy Pro 5.7.15 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47059.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:59BFA0127A4BB495ACC4C5BB32E6E55A33294506
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47060.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:616A30CCD6B7728D78A4E869F8F675AA9D63E0FD
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47061.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47062.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:25F7700E57F0F891489EA35DE20F1738332F90CF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47063.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:BD5414D9C5E33F0950CB48711AD9D57A111A55CB
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47064.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:9E0FD3DF35013EBC01FF26DF722FF26514581586
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47065.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:58AA0A9BEFE35A131C0ECF03C3FD1688924987A2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47066.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47067.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47068.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:3334F48AE5DB75963C9C35C6161DA5908D635DD8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47069.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47070.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47071.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:83931E2BB1AE0A1C13E4FE89874F48872B79C166
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47072.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:21D87A60749DC8CFA419E457FC3DBC15B8A585B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47073.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:9122C83BABF20597771AA861E0AE4268A1EC0761
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47074.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47075.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:79F5BBA285DCF522BB31943852ECED3BC5A42AE3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47076.jpg" />
 </div>
 
 

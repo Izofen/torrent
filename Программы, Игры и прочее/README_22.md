@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35561.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.6 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35647.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sleep Cycle: Sleep Tracker v4.24.46 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35651.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.156 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35660.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Torrent Pro - Torrent Download v8 (11.76.51) Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35782.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ PowerDirector – Video Editor v14.6.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35832.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Photo Sherlock v1.123 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35849.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:21A2CBAA2CBEB635E6025C9AA7782AA49F9AD95F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35850.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D849F6C17D2537A6BC58CEB11B5213B039E5A41F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36136.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36157.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Magic Eraser / Магический ластик v2.12.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36169.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ NewPipe v0.27.3 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36191.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AirBrush: ИИ Фоторедактор v7.4.600 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36274.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Colorize Images v4.0.93 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36282.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.31.7 Gold
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36291.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36496.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Vanced Tube v5.2.80.154 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36518.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.142 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36530.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36583.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Grab Photos From Videos / Фото из видео v11.3.2 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36671.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Magnifying Glass / Увеличительное стекло v3.9.1 (от Pony M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36690.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ INKredible PRO v3.0.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36772.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ SHINE – Journey Of Light 1.90.13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36774.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:470C749D03FCBE604168349282DF5E80D5DB66B9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36802.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Netmonitor: 5G, Cell & WiFi v1.25.15 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36817.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.5 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36828.jpg" />
 </div>
 
 

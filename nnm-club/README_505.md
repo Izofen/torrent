@@ -6,7 +6,7 @@ Ninja to Koroshiya no Futari-gurashi | A Ninja and an Assassin Under One Roof | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13399.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:125272225FD3EC3C6C568D824035C286FD666357
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13400.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HWiNFO 8.28 Build 5770 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13401.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Monster Train 2 (2025) [Ru/Multi] (Build #11691) Repack FitGirl [Supporter Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13402.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chuuzenji-sensei Mononoke Kougiroku: Sensei ga Nazo o Toite Shimau kara. | Жу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13403.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A2FBD687C4EF880D5DDC1D9F61C61C8E77E9E6A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13404.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.17.6 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13405.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13406.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13407.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:FD529A83D9E4FF624EE46BB1C7DE6527C4D05A7A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13408.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:E9A8C08E65BB10BB15E7397AEDEDAD3883E36585
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13409.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13410.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:91689FE556B59F95794CCA156D322EAA9EAD67AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13411.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:8B33E340E11A0B6BBD442952112E74077AFFBCC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13412.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:8B33E340E11A0B6BBD442952112E74077AFFBCC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13413.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ CCleaner 6.37.11523 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13414.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:94637EA1F0119E57401A3EDB2C792FFBA2B47A5B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13415.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0.184/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13416.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:A181E08EF7EC052DAA40188126B528364DBF9919
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13417.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | Ki
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13418.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:452570472DEA0E67D17B16827511224956D420F6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13419.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:FE5395C5900F433F93EC3CB7ACBEA265131A56F2
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13420.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:6DC28B7793B3667B70B2D4CE4D1888F32E1779FB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13421.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:6DC28B7793B3667B70B2D4CE4D1888F32E1779FB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13422.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:0F4419AD45B065920C46ED0D46935FE5A5E90512
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13423.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Banquet for Fools (2024) [En] (3.02) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13424.jpg" />
 </div>
 
 

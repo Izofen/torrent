@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125810.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B5CBFF9474EA3E97DFC7A671945D97B5301E3C8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125826.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125868.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Udemy, Colt Steele | JavaScript Pro: Mastering Advanced Concepts and Techniques 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126009.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Udemy, Hussein Nasser | Fundamentals of Backend Engineering (2023) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126014.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Udemy, Brad Traversy | PHP From Scratch 2024 | Beginner To Advanced (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126137.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Podlodka Crew| Python Crew #2. Python для энтепрайза (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126149.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Udemy, Uzochukwu Eddie Odozi | Microservices with NodeJS, React, Typescript and 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126150.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Skillbox, Евгений Дмитриев | DevOps-инженер. Docker (2022-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126161.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Skillbox, Александр Крупин, Евгений Дмитриев | Dev
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126166.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Skillbox, Илья Феоктистов, Дмитрий Зайцев | Инфр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126169.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Skillbox, Даниил Пилипенко, Сурен Хоренян | Python-ф
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126383.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Skillbox, Андрей Митрохин | Excel для рабочих и лич�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126849.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Skillbox, Людмила Ганжа | Инструменты бухгалтер�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127027.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert!
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127517.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128042.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Adrian Cantrill | AWS Certified Developer - Associate (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128071.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Udemy, Nikita I. | Java Stream API полный курс с нуля для но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128072.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Udemy, AI Sciences | AWS Essentials: Master Cloud Computing from Scratch - AWS (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128133.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Udemy, Ohans Emmanuel | AstroJS 101: Build Blazing Fast Frontends! (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128138.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ react.gg, ui.dev (ex. Tyler McGinnis) | The interactive way to master modern Rea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128170.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D8076B3CE2CC64A039C50E8CD62081A949EC815E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128342.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ CyberYozh, Евгений Ивченков, LastByte | Анонимность и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128628.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:CE7B08CF3FAAA5585DDDE375D2A4635E86640A83
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128635.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:30D5F5C22D9A3072F681F44789E3E37FDF1040AC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128639.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:E76EA34636309F4E88D24243FD0EA1C2455154A5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128921.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1270877   (153113) от 21.12.2018
+
+Opera TOR Web Browser 57.0.3098.106 Stable Portable by PortableAppZ [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCD3C5E1631817018C3EFED740453DB268E07D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518900   (153115) от 21.12.2021
+
+ImageRanger Pro Edition 1.8.7.1827 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153115.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F410738F0938378B96C1E234872BA3D13EA840
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587086   (153127) от 14.12.2012
+
+Sexy Women Wallpapers (09.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4368х2912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CC6B04C250CF374689D2C3E720047C6476A545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518841   (153131) от 21.12.2021
 
 GoodNotes 5 v5.7.56 [Multi/Ru]
@@ -6,7 +78,7 @@ GoodNotes 5 v5.7.56 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153131.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ TweakNow WinSecret Plus! 4.9.15 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153134.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ mp3DirectCut 2.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153143.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:6182B02443FA0025572BE1E8311C9A3221D9FEB9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153150.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Clipdiary 5.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153153.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Enigma Dubz - Genesis (2012) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Electro>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153155.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ The Bat! Professional 9.3.2.0 Christmas Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153157.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:8CA138C978132812BC26C312579A6B6E23F55735
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153167.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:527653D452CFE4366EC1570D3BC510031B6F605F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153168.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ Free Video Call Recorder for Skype 1.2.40 build 1223 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153170.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Ditto 3.21.223.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153178.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ WiFiSpoof 3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153185.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Wifiner - WiFi Analyzer 1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153191.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Mozilla Thunderbird 115.4.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153194.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ MiniTool Partition Wizard Technician 11.6 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153197.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ uTorrent Pro 3.5.5 Build 44954 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153201.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ PaintCode 3 v3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153204.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ PDF-XChange PRO 8.0.335.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153209.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Website Watchman 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153214.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ Auslogics BoostSpeed 10.0.1.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153220.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ MarsEdit 4 v4.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153222.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Dj VoJo - CLUB DESIRE vol.21: Reborn (2012) [MP3|320 кб/с]<House, Electro-Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153242.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153244.jpg" />
 </div>
 
 
@@ -554,80 +626,6 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F79A136C97CB2F98C70F7CB69EB6B901B29858F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595647   (153249) от 29.12.2022
-
-CPUID HWMonitor PRO 1.49 RePack (& Portable) by xetrin [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153249.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPUID HWMonitor Pro - расширенная версия утилиты, предназначенной для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C865EF342FC16E32E872C56E104FBAA7ED7084E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518787   (153252) от 21.12.2021
-
-URL Manager Pro 5.8.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153252.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935E7FBA690AE9AFE9B0CF2B515B4B9F19F7D563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968604   (153254) от 24.12.2015
-
-SUMo Pro 4.2.4.297 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153254.jpg" />
-</div>
-
-
-###  Подробнее
-
-SUMo (Software Update Monitor) — последняя версия данной программы, которая поможет поддерживать ваш ПК обновленным и обеспечит его безопасность. В отличие от встроенной функции автоматических обновлений, SUMo предупреждает о доступных обновлениях перед запуском программы.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FB0C882521F7D50A6B2ECA9804A2EC511B5B6C
 ```
 
 

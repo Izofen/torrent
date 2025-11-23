@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89052.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Gigi D'Agostino - L'Amour Toujours (1999) 2CD [FLAC|Lossless]<House, Euro House,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89057.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Gigi D'Agostino - L'Amour Toujours (1999) 2CD [FLAC|Lossless]<House, Euro House,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89058.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:5A5FD1872FF2B0896B6A0D17C2F1AFB8505BD3BB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89079.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:5A5FD1872FF2B0896B6A0D17C2F1AFB8505BD3BB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89081.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ openSUSE 12.1-2 Education Li-f-e [i686] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89087.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:48DC16FD77A15A235E4A5A62CAF10627440E4880
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89091.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Steinberg - Groove Agent 2.0.0 Build 29 INTERNAL(Rebuild SynsoEmu) by AiR.ISO[VS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89098.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Evgeniyuser | Объединенная кулинарная книга дока 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89109.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ AbelCam 4.2.6 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89116.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ SOFTPIR WPI Professional v.04.12 (x32/x64/ML/RUS/XP/Vista/7)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89130.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Naval War: Arctic Circle [Multi5/-] (L) 2012 | TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89134.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:BC0BCEC177BAC6511FB78574B294273364B28E61
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89154.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:DE5481809664EB3095978AEB23A0734040461BEF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89161.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:3C0769E6C3A68F8913D08701E160CD7BC81D8AD1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89165.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:AA1F72FE529D22CB1161CEF4474FA05398A7BC82
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89168.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Michael Jackson: Smooth Criminal (2010) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89172.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:5B6CDBF3BC59A043881254BF1C02A48D3791627D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89179.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Paradise Lost - Tragic Idol (2012) [FLAC|Lossless]<Doom / Gothic Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89181.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ MKVToolnix 5.5.0.437 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89188.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Codec Pack All in 1 6.0.3.0 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89223.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Codec Pack All in 1 это один из самых лучших пакетов 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89227.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Aztec Magic Ball [5.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89251.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Aztec Magic Ball [5.0+jailbreak]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89266.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Race Of Champions - The Official Game [3.2+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89276.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ FileMenu Tools v6.1.3 Final + Portable [ENG\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89284.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ GPU-Z 2.59.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59203.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Bridge 2024 14.0.4.222 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59204.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ XviD4PSP 8.1.78 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59205.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D1CCB31F6A723C4BA67D1EC11B827D43F6B689B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59206.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:81821BC041C9FBCF1CD7F27E5DFA0ECB40405E81
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59207.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Java SE Development Kit 21.0.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59208.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:FA4157059607305BAAC87CE5C835F7BB984249EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59209.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:4D34C29381BB53B8D4B09F17616D3C3184BFA1D4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59210.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:724ED62A9C976EC1D250BC028BF7C5185F3C1040
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59211.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Mystical Riddles 4: Ghostly Park / Мистические загадки 4: Па
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59212.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:D1184D1377977EDC11AA461B5EA6E5B8309441D5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59213.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:E034CFB97FC3AF02C428C39056D25F5455BFEDC9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59214.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:AFE2807F6300797914712A6341642C2898DE0D89
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59215.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ R-Drive Image Technician 7.2 Build 7201 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59216.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Office Installer & Office Installer+ 1.14 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59217.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:96A65090DC8FDD4A8A7CA125237DBB3F950EFD8A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59218.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Malloc Privacy & Security VPN 2024.02.140 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59219.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ BIOMORPH (2024) [Multi] (1.1.26426) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59220.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:65C38E390243CC8DB541AB5BDD1D946347D4890C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59221.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Inspector Schmidt - A Bavarian Tale (2023) [Multi] (1.0.1.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59222.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Farmer's Dynasty (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59223.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:1BD64BA68E5F4CF9872E2E31703EDDA143C08B1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59224.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Giti VPN 11.0 Mod by Nnn [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59225.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59226.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59227.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59228.jpg" />
 </div>
 
 

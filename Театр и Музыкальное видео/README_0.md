@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10433.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2DFFAC28210C8074BC96F8E79353F6835B7B37E2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10579.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:574E6A1BD3703772A1B6649116BD5D94FE113D6A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10915.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:651EE2E50EBE67CC10ED6F3B5C4BFB8D2F13CAF3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11535.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Scooter - Live at Parookaville festival (2024) IPTVRip [H.265/2160p] [hand made 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11936.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ AC/DC (ACDC) - Plug Me In (Limited Edition) [2007, Hard Rock, 3xDVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12107.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Seogi - Nap (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12148.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Girls' Generation - Paparazzi (2012) WEBRip [H.265/2160p] [60fps, AI Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12157.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ STAYC - BEBE (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12171.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:F53CDAC184A4D8F91144FBB59EFC576DAA9DF5B0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13070.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:E79C9A0C25475442529EFB5F015E683B2E4814A0
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13677.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:3E1671ECEE2EE1AC38909FCAADD6795454F5F9B2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13780.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:497E3679572A77CDAE7572F8027C67429DCEAE9A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14186.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:051BBFD43FC7BC4C44D12C7AFE0AB0DB858AA4B4
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14420.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Epica: Live at The Symphonic Synergy (2024) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15233.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:419120D1847BD180703FF7C2DF23F0D290274D28
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15833.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Scooter - Live in Moscow (2020) CamRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15947.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15963.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Devin Townsend - The Moth. Live with Noord Nederlands Orkest (2025) WEB-DL [1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16071.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:320E22C5DB21781A134A81EC9FACDCF5ED25D7B5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16448.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A2F499EBC70291F1E08812C7E0E31098333AEE3D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16970.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:777C5727FE3301F1AFE5BA7A579F6DE4D7B1529A
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17015.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:9E0B6B665401E60F234A38AE66F5DAA140D727D8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17378.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:300FF8A56EA269872C7DD9D657E43E4A9312AA68
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17691.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:46F2269705533F409EFD54B53F6FF61F7813FC33
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17785.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17884.jpg" />
 </div>
 
 

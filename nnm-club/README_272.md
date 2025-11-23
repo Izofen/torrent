@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7155.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.231/dlc) License GOG [Vo
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7156.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5AA79DED9188FE700F4052A8998E6CA1A95DEBB7
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7157.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blood West (2023) [Ru/Multi] (4.5.1 rc1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7158.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8696F5E4B27854770AD4C6C725EF0427F88352A7
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7159.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BB0E5DA8E2F3A53635927DE9ACE68CD40651579A
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7160.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2DF96F931F078762E75797A4DE615E936D5B6169
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7161.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (HotFix 3/dlc) Licen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7162.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:63C593A3878DDB0C1B3EAC073CD69608341351FE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7163.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6CBCCF10512813675083F66A4C984E0EA84B3AC9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7164.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Starfield (2023) [Ru/Multi] (1.15.222.0/dlc) Repack Wanterlude [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7165.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7166.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A3A31F8D3DA34083E829FEC15750CC0CC61AD213
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7167.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:A3A31F8D3DA34083E829FEC15750CC0CC61AD213
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7168.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:CC50BB7B4C2DA4CE5BA0488018536A9224A0B996
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7169.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:A9B9BFDE32CD3CA7DD409817746EA237F72EB9F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7170.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:A9B9BFDE32CD3CA7DD409817746EA237F72EB9F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7171.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:63DCC5BBD8B87A784A29CFF93C9797FEAADABAFF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7172.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ World War Z VR (2025) [Ru/Multi] (1.0) Scene Rune [VR]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7173.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:CFC7B653449E80DFD79984C3C2079D331EAE13BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7174.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:3AFDBCB808CBFE181E97F010BB07652F480C1E38
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7175.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:3AFDBCB808CBFE181E97F010BB07652F480C1E38
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7176.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Scott Fulton - Closet Blues - Scott Fulton - Closet Blues (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7177.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:FB37DBAD28D8A480554380FB63EE0179A4815FFB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7178.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:45D1054F0D1DC39BD8184AB6BEC2496A544FE56E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7179.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Bakertrain - European Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7180.jpg" />
 </div>
 
 

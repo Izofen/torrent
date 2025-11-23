@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14895.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C2AC06480590BF2C33619C9CCC269B89093CF935
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14896.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ByeByeDPI v1.5.0 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14897.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D3277F6317098985FF0BD48790B4D23147E2829E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14898.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:AA0A3DB9660DBBF5C972409849353079CD8A1FD0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14899.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:CF594D0B4C209675BA93BE58035F2B9F8AA01352
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14900.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5A52B98B20DE1ED6C429ED86FD26298D0D52051A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14901.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:981B0C8853E2F7E4576C9AB4306F05EB2716BE84
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14902.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:4960E0295229FE68B91BB99103951124C8D1FB39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14903.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:36F7686080E9C1A7B8AF2A63C53D46710DF449E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14904.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14905.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:AD7C4C56DCE675A281426AAD2A61F75C9990456B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14906.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:42193DE06E9B5ED8856CB52AA01AFCE4FDA026FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14907.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:7E1AD411974F9585B1648F626FB24D409D5E175A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14908.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:89AD416E256A8540C9CE19223BFD72D7E29E7C58
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14909.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:0559843FF6841C155815BD9B33AF95CEB51C96A4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14910.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.00/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14911.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Strangeland (2021) [Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14912.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7C0DA7F1F1E4E615E0910F86A2C14F1EB00F68F0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14913.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:EA29A206E114EAA91177EB3F9804C47867E51071
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14914.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:EA29A206E114EAA91177EB3F9804C47867E51071
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14915.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:26B2B9B602F7DCD65E3F7F4F1148046FCF1706E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14916.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:058870DB05E94357E07092013E5A1EB307D6E2FC
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14917.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ AIR Music Technology - AIR Creative FX Collection 2 1.2.1.14 VST, VST 3, AAX ReP
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14918.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:0586F92118B3995DC82AF35475D4C0F649DAD89F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14919.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:C0D7DEE47122AD8091D75A90F99952F32B03D0AB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14920.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1344968   (156474) от 20.12.2019
+
+Код 8 / Code 8 (2019) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156474.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем существует небольшой процент населения Земли, обладающего сверхспособностями. Власти пытаются контролировать особенных людей, а остальные боятся их и презирают. Добродушный парень, обладающий способностью генерировать в себе энергию огромной мощности, отчаянно пытается перестать быть изгоем и встроиться в общество.Производство: Канада / Colony Pictures Inc.Жанр: Фантастика, боевикРежиссер: Джефф ЧанАктеры: Стивен Амелл, Робби Амелл, Кари Матчетт, Лайсла Де Оливейра, Грег Брайк, Сон Ган, Питер Аутербридж, Шон Бенсон, Аарон Абрамс, Алекс Маллари мл.Перевод: Дублированный (iTunes)Субтитры: Русские (Forced) - отдельным файломПродолжительность: 01:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A549B914D7E7F04F6BE59F0390A3A9B0DFFCD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600407   (156490) от 27.12.2022
+
+StartAllBack 3.5.7 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156490.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD2B2563AF7AC7285A6D17D3FFC287167A0CC97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085639   (156509) от 22.12.2016
+
+Журнал | Авиаколлекция №3 (2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение к журналу «Моделист-конструктор». Специализированный журнал для любителей истории авиации и авиамоделистов. Каждый выпуск - это мини-монография об отечественной или иностранной конструкции летательных аппаратах. Каждый выпуск содержит информацию об истории создания самолета или вертолета, его серийном производстве, модификациях, эксплуатации, боевом применении (   Читать дальше...   )Жанр: История авиации и мини-монографииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C11F5E5D874B91346AFD0A02F19608A3AFB30C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968267   (156526) от 23.12.2015
 
 Keith Richards - Crosseyed Heart (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock>
@@ -6,7 +78,7 @@ Keith Richards - Crosseyed Heart (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156526.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ SamDrivers 23.11 Expert [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156530.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ GParted LiveCD 0.14.1-1 [x86] (1 x miniCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156547.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156547.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ GParted LiveCD 0.14.1-1 [x86] (1 x miniCD)
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156555.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ MetaProducts Offline Explorer Enterprise 6.5.3880 Final RePack by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156557.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156557.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ Test Drive: Ferrari Racing Legends [En] (Steam-Rip/1.0) 2012 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156577.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ Opera GX 72.0.3815.459 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156581.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ Blackmagic Design DaVinci Resolve Studio 15.2.2.007 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156589.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:515843FA498AAA5E8E3CFB9F3C7193239C9166E1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156590.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ ZD Soft Screen Recorder 10.2.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156603.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/En] (1.0.6) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156607.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ BELOFF [dp] 2022.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156640.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ magnet:?xt=urn:btih:02297170C1BD079DE16C3FBBFF23ED6A7401A474
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156641.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ Usher 1.1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156645.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:025C4D06252009FF8ABED99B449F0AD1DAE3576A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156650.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ Bigasoft Total Video Converter 5.0.8.5809 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156651.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ Skip Tunes 3.2.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156658.jpg" />
 </div>
 
 
@@ -430,7 +502,7 @@ Adobe Illustrator 2022 26.0.2.754 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156661.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ VirtualBox 6.0.0 Build 127566 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156667.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ magnet:?xt=urn:btih:29CC5BA7CB2AEAC204C27C7737DA1CCC8CEDCC88
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156669.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ uDesktop NEXT - vast wallpaper collection 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156680.jpg" />
 </div>
 
 
@@ -529,7 +601,7 @@ VCap Downloader 0.1.14.5537 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156704.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ magnet:?xt=urn:btih:7E9A7B3BC1CFF02D41054B6048288CF3F347AFE1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156718.jpg" />
 </div>
 
 
@@ -564,79 +636,6 @@ magnet:?xt=urn:btih:7E9A7B3BC1CFF02D41054B6048288CF3F347AFE1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1017C0816EC027E566BB150C8F4DCA1563BA2A06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433672   (156719) от 21.12.2020
-
-Pixelmator Pro 2.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
-Много неразрушающих про-инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338B5941BD1A36C1C5008FA12E7590CFCF08EABB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853487   (156721) от 27.12.2014
-
-Экспресс: История легенды спорта Эрни Дэвиса / The Express (2008) BDRip [720p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156721.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Эрни Дэвиса, родившегося в бедных кварталах Нью-Йорка и, несмотря на казалось бы на непреодолимые препятствия, ставшего первым темнокожим игроком, победившим в чемпионате университета по американскому футболу.Производство: США / Davis Entertainment, IDEA Filmproduktions, Relativity MediaЖанр: Биография, Драма, СпортРежиссер: Гэри ФледерАктеры: Роб Браун, Деннис Куэйд, Дэррин Девитт Хенсон, Омар Бенсон Миллер, Нелсан Эллис, Чарльз С. Даттон, Джастин Мартин, Джастин Джонс, Онжаню ЭллисПеревод: Профессиональный (многоголосый)Продолжительность: 02:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FEACE537FEC1772E8A5EB42D78680AD3D0FA172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676553   (156722) от 13.11.2023
-
-NirLauncher Package 1.30.7 Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156722.jpg" />
-</div>
-
-
-###  Подробнее
-
-NirLauncher Package - универсальный пакет из более чем 200 портативных, небольших утилит, которые можно использовать ежедневно для различных целей на компьютере. Данное приложение предложит вам инструменты для редактирования контекстного меню проводника (к примеру удалять ненужные Вам пункты или добавлять какие-нибудь новые), инструменты для работы с сетью, поможет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71BD20CC293F39D949DDF70C41931F057737145
 ```
 
 

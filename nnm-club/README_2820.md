@@ -1,3 +1,92 @@
+###  Публикация: 466050   (81448) от 11.03.2012
+
+Маньчжурский вариант (1989) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий фильм трилогии о разведчике Чадьярове, начатой лентами "Конец атамана" и "Транссибирский экспресс". Конец Второй мировой войны… На дальнем Востоке в Манчжурии готова к решающему сражению фанатично преданная императору японская армия. Следуя кодексу чести самураев, солдаты скорее готовы сделать себе харакири, нежели попасть живыми в руки (   Читать дальше...   )Производство: "Казахфильм" им. Шакена Айманова, ТО "МИРАС"Жанр: ВоенныйРежиссер: Игорь Вовнянко, Цой Гук ИнАктеры: Асанали Ашимов, Татьяна Цой, Едгор Сагдиев, Владимир Дин, Ергали Уразимбетов, Эдуард Пак, Олег Ли, Александр Мун, Николай Ким, Советбек Джумадылов, Болот Бейшеналиев, Юрий Туютянь, Исхар Хишанло, Геннадий Люй, Есболган ОтеулиновПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82102C5E17D7AECA5C0F04654068755FF176E530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466103   (81450) от 11.03.2012
+
+Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/с]<Eurodance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry, Baby (Long Version)
+02. No Ordinary Love (Eurodisco Promo Mix)
+03. Soldier (Extra Dance Beat Version)
+04. Stay With Me (Eurodisco Long Version)
+05. One Thing (Extra Dance Beat Version)
+06. Can`t Give You Anything (Slow Down Eurodisco Mix)
+07. Gigolo (Moscow Fm Mix)
+08. The Sweet Hello The Sad Goodbye (Extra Dance Beat Version)
+09. Stay With Me (Air Piano Instrumental)2012Жанр: EurodanceПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59925C492978EA2F8C1A45424D3BA7FADE789F33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466309   (81452) от 11.03.2012
+
+VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Л.Керубини, Introitus et Kyrie.mp3 - 7,14
+02 Л.Керубини, Dies Irae.mp3 - 10,26
+03 Г.Берлиоз, Agnus Dei.mp3 - 11,38
+04 Дж. Верди, Requiem aeternam.mp3 - 5,12
+05 Дж. Верди, Dies Irae.mp3 - 2,04
+06 Г. Форе, Agnus Dei.mp3 - 7,03
+07 Г. Форе, In Paradisum.mp3 - 3,55
+08 А. Моцарт, Lacrimosa.mp3 - 3,36
+09 А. Моцарт, Hostias.mp3 - 5,00
+10 А. Моцарт, Agnus Dei.mp3 - 10,542005Жанр: Классическая музыкаПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F911E1ABFF38DC59A08092B2C256D1984EF895
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466133   (81453) от 11.03.2012
 
 ZZ Top - The Best Blues & Ballads (2001) [MP3|320 кб/с]<Rock, Blues>
@@ -6,7 +95,7 @@ ZZ Top - The Best Blues & Ballads (2001) [MP3|320 кб/с]<Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81453.jpg" />
 </div>
 
 
@@ -39,7 +128,7 @@ Blood-C / КРОВЬ-С [2011, TV, 12 серий] BDRip 1080 raw + rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81455.jpg" />
 </div>
 
 
@@ -65,7 +154,7 @@ magnet:?xt=urn:btih:90D306FC25B1A1BEA24D762B41939D696F50F3DD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81456.jpg" />
 </div>
 
 
@@ -90,7 +179,7 @@ magnet:?xt=urn:btih:90D306FC25B1A1BEA24D762B41939D696F50F3DD
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81460.jpg" />
 </div>
 
 
@@ -114,7 +203,7 @@ magnet:?xt=urn:btih:C439D35D0539392F1F285D51771F37272697CD40
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81464.jpg" />
 </div>
 
 
@@ -138,7 +227,7 @@ Snap - Greatest Hits (2008) [MP3|320 кб/с]<Electronic,Techno,Hip Hop,Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81465.jpg" />
 </div>
 
 
@@ -171,7 +260,7 @@ magnet:?xt=urn:btih:54380544841C588D330795BE931D7D8D2524FAC8
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81467.jpg" />
 </div>
 
 
@@ -195,7 +284,7 @@ magnet:?xt=urn:btih:974516872D781635ED152626487C3D1D5C8D4DEC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81476.jpg" />
 </div>
 
 
@@ -219,7 +308,7 @@ Pino D'Angio - The Best Of (2CD) 2011 (ZYX Records ZYX 5469) [FLAC|Lossless]<Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81478.jpg" />
 </div>
 
 
@@ -252,7 +341,7 @@ magnet:?xt=urn:btih:ED241F15313D061A55C65614DE6B1D8438C63FE9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81481.jpg" />
 </div>
 
 
@@ -279,7 +368,7 @@ magnet:?xt=urn:btih:6D5A838BC70E82FCD9DB78B7950BFDEB88854C81
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81482.jpg" />
 </div>
 
 
@@ -303,7 +392,7 @@ magnet:?xt=urn:btih:A9CEF10325986D2617CF29C5F9A8498320DEA6A8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81485.jpg" />
 </div>
 
 
@@ -328,7 +417,7 @@ magnet:?xt=urn:btih:DE862F0F3912516240691C19E4F0A31FC54C86F4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81486.jpg" />
 </div>
 
 
@@ -352,7 +441,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81487.jpg" />
 </div>
 
 
@@ -376,7 +465,7 @@ magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81488.jpg" />
 </div>
 
 
@@ -400,7 +489,7 @@ magnet:?xt=urn:btih:E95CD534BB627A99533420D8710697E3CB385341
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81489.jpg" />
 </div>
 
 
@@ -424,7 +513,7 @@ magnet:?xt=urn:btih:6B5205C874D79F314D79A1D280445B1606D2ADD6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81493.jpg" />
 </div>
 
 
@@ -448,7 +537,7 @@ Comice OS 4 Beta 2 [[i386 + x86_64]] (2xCD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81495.jpg" />
 </div>
 
 
@@ -472,7 +561,7 @@ magnet:?xt=urn:btih:1332B89C80D388BF01728A2F0A3A617CAF0963E0
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81501.jpg" />
 </div>
 
 
@@ -496,7 +585,7 @@ magnet:?xt=urn:btih:27337726CE9DDF91AC0323FF44F84CC63A06AEB0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81502.jpg" />
 </div>
 
 
@@ -520,7 +609,7 @@ NNM | Кулинарная книга NNM (объединенная) [2007-2011]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81503.jpg" />
 </div>
 
 
@@ -547,7 +636,7 @@ magnet:?xt=urn:btih:A1D6CE003E308ADA2201A7EAFF97C9767DB6A25B
 >>Архив Авто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81504.jpg" />
 </div>
 
 
@@ -571,7 +660,7 @@ magnet:?xt=urn:btih:3E8959DF7F196CA202AAFA0890DAFC1ED99A1121
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81507.jpg" />
 </div>
 
 
@@ -582,80 +671,6 @@ magnet:?xt=urn:btih:3E8959DF7F196CA202AAFA0890DAFC1ED99A1121
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D1DFDBF11A0EAF11BEACD4EB514AA185B38CEBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466279   (81508) от 11.03.2012
-
-Укрытие / Take Shelter (2011) HDRip [АО С. Визгунов]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Измученный апокалиптическими видениями главный герой, молодой муж и отец, должен понять, защищать ли ему свою семью от приближающегося шторма, или от самого себя…Жанр: ДрамаРежиссер: Джефф НиколсПродюсер: Тайлер Дэвидсон, Софи Лин, Сара Грин, ...Актеры: Майкл Шеннон, Джессика Честейн, Това Стюарт, Ши Уигхэм, Кэти Миксон, Наташа Рэндолл, Рон Кеннард, Роберт Лонгстрит, Хезер КолдуэллПеревод: Авторский одноголосый, закадровыйОзвучка / Автор перевода: С.ВизгуновПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9457198D5FAE041EA64341396D031352402A4D5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466339   (81510) от 11.03.2012
-
-Playboy: разденьте девушку / Undress a Woman (10.03.2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу скандального нью-йоркского фотографа Эндрю Эйнхорна. Он ищет новых моделей для своей эротической фото-книги  среди обычных прохожих на улицах. Эйнхорн просто предлагает красивым девушкам сняться обнаженными. И многие соглашаются.... Все это время за ним следует оператор, готовый заснять каждое движение мэтра. Результаты трудов знаменитого фотографа можно увидеть в новом откровенном эротическом шоу на МУЗе.Жанр: Телепередача, эротикаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D7EB6C151A871DB6BE7616BA37E4F0D8898401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466115   (81511) от 11.03.2012
-
-Арчи Баррел: Дело N2: Казино Golden Palace: В поисках золотого жука [Ru] (L) 2002
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив из дружеской Америки по имени Арчи Баррел, заработав на поприще дедуктивного метода некоторый капиталец, а также пресытившись женским контингентом Соединенных Штатов, решается совершить путешествие по необъятной России, вкусить все прелести русского быта, обычаев и покорить славянских красоток на их исторической родине...
-Приключения начинаются уже в купе вагона, очаровательная блондинка, незаметно для самого Арчи, при содействии нескольких мошенников, оставляет Арчи без копейки и в добавок прикованным наручниками к окну купе.
-Вам предстоит провести Арчи через вереницу жизни в России вернуть проигранные в поезде деньги и попутно разоблачить шайку мошенников. А так же вывести американского разведчика крупного вора по кличке Зоофил на золотую неразменную фишку казино, а затем, прозрев - сдать его охране казино. Вас ждут захватывающие игры: американская рулетка, карты, казино, блэк - джек, а также игра на раздевание с очаровательной красавицей Юлией.Тип издания: ЛицензияЖанр: Интерактивный эротический квестЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9005F9F920F85C663C5C3EA0E69A894C656ADEF
 ```
 
 

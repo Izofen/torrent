@@ -6,7 +6,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32723.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0D0D3678947C9E0F855825C8698B87A38D6D1802
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32724.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Gym & Fitness Anthems 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32725.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Dance Hits Winter Selection (2024) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32726.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32727.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:4E7ACF8B2A37DF72B8930495879B7A6F1EFC9751
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32728.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:1D7BE8EF71A24E250C7E6793C485B44827E08FCA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32729.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0331) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32730.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:7F1B049ED2FB3C02282A0122F41CFC4FEE566358
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32731.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ AIMP 5.40 Build 2652 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32732.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5270F5D4B3522D008CF9A51B4538461B9332325D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32733.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VueScan Pro 9.8.42.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32734.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:74D39A32F058058AEE31DBF5DE474F96B224FF8C
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32735.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:E5A0C35AFD23A3EB346BB3FA7811C4FFEE3E4CE0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32736.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:0DFB5E9C73D1F61F573DD4208A10C268780A524C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32737.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32738.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:463B7ACDA384C151C242A2CC0BCE7919E0246EB5
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32739.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:0EB9D8C8BBE47D733E7A1F044C0A32E2C5AE1EBA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32740.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.6  + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32741.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Plexim Plecs 4.9.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32742.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:287615CA26865461B9B0696C3D35963BCB7AB299
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32743.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.63) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32744.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:6B10AC8A13B0EE18B0E980459414E6E28E816929
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32745.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32746.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A6BECE3803A8C3454F0CADA9B2C46218018D0778
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32747.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:81C60079F39F62545A39DB32BDE0C11470AD9F07
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32748.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67256.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67257.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Redemption - The Hard Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67258.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ged Wilson - Regular Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67259.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Aggravated Assault - The Order of Chaos (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67260.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cristina Vane - Hear My Call (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Count
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67261.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gil Laine - Screw You! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Singer & Son
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67262.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:69E32E0F7C3975323DEC8279B718CCD6D8664F51
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67263.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:02350B4AC226CE169444328E4B0031E318A579F8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67264.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Jackie Venson - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67265.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:79EA51C7B2A5DE944CA640AC40EAAE37B6FC4E36
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67266.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:DB508BFB3C667BBDFBD18676F0EF2A445584191E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67267.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:DE65B6E9F8A3F259BAC4748EC185F9149449E11A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67268.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:796E97DBDA6A2BEBD446FAB5673793E5DAEC2CB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67269.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Blue Cheer - Junk - Blue Cheer - Junk (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67270.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Marina Rocks - Marina Rocks S.O.S. Texas (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67271.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Dream Theater - Parasomnia (2025) [WavPack|24/96|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67272.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:E6A2ED0173403F6EEE818F1F57F38C31D4A417AA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67273.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:2D2FDE00C19F11D3158380BD8E9B10EE6AD0B57C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67274.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:996DB9C6D7E2C6EF4DCC5F8A1F80A8B00280466A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67275.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:02E0B3C03488E6CCC6745CE55CFC0CD9FC17B6D2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67276.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ The Double Vision - Demons Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67277.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:DA296CB0F4022239B0CED3AD1E1ADEBDC08DC10A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67278.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Blues2Men - Helleluyah (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67279.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:17C0B863365CC9125DED28973FF8DFF75BDCD3BC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67280.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:92CE3060F3B988678896DACEDE1EA3876E543470
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67281.jpg" />
 </div>
 
 

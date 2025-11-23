@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36051.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B039770C7DD36CFC7E913D43AEE203D2708ECFD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36052.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:AA049853CFAB3DB4702FA5B20BE85BA3B765CC9E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36053.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Multi Commander Full Edition 14.3 Build 3042 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36054.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ TechSmith Camtasia 24.1.3 Build 5321 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36055.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2E88E2862751AC4CC10FD0D3EE7574B870F67642
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36056.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8FDED974D0C8896BEBBAC19B27E90C0C6B012E7A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36057.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:362A8D70C5DAA73DC342E5C7190AC76119A64E5E
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36058.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36059.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D461BDA6BDD9BF2C46E1BAB2A41DE7ACDF16EE49
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36060.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36061.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9AF979CA2E109E4B530D05EA6AEABA88EAB498EA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36062.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Plus Messenger (Telegram+) v11.4.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36063.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:97B37DE8D9B2E567F24D4428670F002C736AF44C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36064.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:FDDF787F688DB842A478E225C02FE8CFB82E5411
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36065.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Vov Sticky Notes 9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36066.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Simple Sticky Notes 6.7.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36067.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ ThunderSoft Video to GIF Converter 5.5.0 (Repack & Portable) by elchupacabra [Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36068.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ ThunderSoft GIF to Video Converter 5.5.0 (Repack & Portable) by elchupacabra [Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36069.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.80/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36070.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Firefox Browser 133.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36071.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:245161B41A32185C3C0C0BD82C6CEAA47096B6E5
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36072.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36073.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36074.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:AFE72198ED3452D04A07EF293BB91F9ADCE0AD19
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36075.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:4F063FF2F3E0B36E556425106606D0789D77E960
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36076.jpg" />
 </div>
 
 

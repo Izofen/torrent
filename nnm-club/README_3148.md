@@ -1,3 +1,78 @@
+###  Публикация: 1822612   (100953) от 07.10.2025
+
+Заклятие 4: Последний обряд / The Conjuring: Last Rites (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователи паранормальных явлений Эд и Лоррейн Уоррен берутся за самый страшный случай в своей практике. Семья переезжает в новый дом, но вскоре жилище начинает проявлять признаки демонической активности, превращая жизнь новых жильцов в кошмар.Производство: США, Великобритания, Канада / Atomic Monster, New Line CinemaЖанр: ужасыРежиссер: Майкл ЧавесАктеры: Патрик Уилсон, Вера Фармига, Миа Томлинсон, Бен Харди, Стив Култер, Ребекка Калдер, Эллиот Кауэн, Бо Гадсдон, Кила Лорд Кэссиди, Джон БразертонПеревод: Многоголосый профессиональный (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3581A43B271FAEDBAAFBAED7473EEFD6024A7750
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822613   (100954) от 07.10.2025
+
+Жизнь в военное время / Life During Wartime (2009) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм является вольным продолжением фильмов Тодда Солондза «Счастье» (1998) и «Добро пожаловать в кукольный дом» (1995).
+Сюжет разворачивается вокруг сестёр Джордан: Триш, Джой и Хелен. Джой вышла замуж за бывшего соседа Хелен, Аллена Мелленкампа. Триш по-настоящему мечтает лишь о том, чтобы её новый муж стал хорошим приемным отцом её детей. Ведь настоящий отец мальчиков (   Читать дальше...   )Производство: США / Werc Werk WorksЖанр: драма, комедияРежиссер: Тодд СолондзАктеры: Ширли Хендерсон, Майкл Кеннет Уильямс, Рослин Рафф, Эллисон Джэнни, Майкл Лернер, Дилан Райли Снайдер, Киаран Хайндс, Рене Тейлор, Ребекка Чайлз, Пол Рубенс, Эмма Хинз, Шарлотта Рэмплинг, Элли Шиди, Рич Печчи, Гэби ХоффманнПеревод: профессиональный многоголосый (R5)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DCA3042CA010C55D40BA12907BE798A00158FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466992   (100955) от 07.10.2025
+
+Престиж / The Prestige (2006) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт и Альфред — фокусники-иллюзионисты, которые на рубеже XIX и XX веков соперничали друг с другом в Лондоне. С годами их дружеская конкуренция на профессиональной почве перерастает в настоящую войну.
+
+Они готовы на все, чтобы выведать друг у друга секреты фантастических трюков и сорвать их исполнение. Непримиримая вражда, вспыхнувшая между ними, начинает угрожать (   Читать дальше...   )Производство: США, Великобритания / Touchstone Pictures, Warner Bros.Жанр: фантастика, триллер, драма, детективРежиссер: Кристофер НоланАктеры: Хью Джекман, Кристиан Бэйл, Майкл Кейн, Пайпер Перабо, Ребекка Холл, Скарлетт Йоханссон, Саманта Мэхурин, Дэвид Боуи, Энди Серкис, Дэниэл Дэвис, Джим Пиддок, Кристофер Ним, Марк Райан, Роджер РисПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 02:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59477886B4624508EC1024B77019FBB9FFA76F75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822565   (100956) от 07.10.2025
 
 Инкогнито - The Best (2025) 2CD [MP3|320 Kbps] <Rock>
@@ -6,7 +81,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100956.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:203D2BF8A977D4C11B9F13CD1BF22495D1C8F7E1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100957.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:D62F61FEEA1EF387BF52F2EF4A4701FABDE7D42F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100958.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:2E034D5A3E2B3F4AF5CA6C002FFD6F80EAC6AD41
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100959.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:8C99A6BAE8A78C82CBA3D9232ECA2D300138074B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100960.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:569B7738A46D191EBEEDDDCF241443A1E6663B57
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100961.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:3689056662B46A6C20B0C2799F8F7F21EEF3D653
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100962.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ magnet:?xt=urn:btih:973B115349C6BAC15E1E066A510A7EC9DDEFC47C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100963.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ magnet:?xt=urn:btih:0C379B72F517ACF479928A168EF865CADF5D71C7
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100964.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100965.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:1DBF68E544C7A06DA67779B11EE6EBACA856A0D0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100966.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ magnet:?xt=urn:btih:F856C29C03FC7B47AB33EBCEE2B8868532EFF21C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100967.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ magnet:?xt=urn:btih:2488E888375C7B67417ED7C35B32F0DB561648FD
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100968.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ magnet:?xt=urn:btih:E747480B0FC955F1CED6122A3201B1C951A5E854
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100969.jpg" />
 </div>
 
 
@@ -352,7 +427,7 @@ magnet:?xt=urn:btih:30C8F04B005AA67EC50AB6B8474BF086A7A5CDE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100970.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ magnet:?xt=urn:btih:EC0713CF9AD5332C337C311118067C4A5C44657E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100971.jpg" />
 </div>
 
 
@@ -400,7 +475,7 @@ magnet:?xt=urn:btih:7023EFFE4B9CDE7ACBD135AAE03652367EA2BF1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100972.jpg" />
 </div>
 
 
@@ -424,7 +499,7 @@ magnet:?xt=urn:btih:2179A3A354A46D95415619E72D4B00C0E05D3DA3
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100973.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ Ocenaudio 3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100974.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ magnet:?xt=urn:btih:4504AFA4E961A884159A493A8B8C906AF0F5A1CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100975.jpg" />
 </div>
 
 
@@ -496,7 +571,7 @@ magnet:?xt=urn:btih:B7E40D0C16FB582EB706F9281A78BDF48AF610E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100976.jpg" />
 </div>
 
 
@@ -520,7 +595,7 @@ magnet:?xt=urn:btih:403050B6F7A3241F5F612F9B0460B89E9A72F54E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100977.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ magnet:?xt=urn:btih:5A580A9721932434D4B88CE63149E82D2B95F3AB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100978.jpg" />
 </div>
 
 
@@ -556,79 +631,6 @@ magnet:?xt=urn:btih:5A580A9721932434D4B88CE63149E82D2B95F3AB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D34CF977895BDF96C4482FB3E78105AC1D347947
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822582   (100979) от 07.10.2025
-
-Floorp Browser 12.2.1 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Floorp Browser – это модифицированная версия Firefox, созданная с акцентом на гибкость и настраиваемость. Браузер предлагает уникальные функции, такие как изменение интерфейса для имитации других браузеров, несколько рядов вкладок и оптимизацию памяти. Floorp Browser также исключает все функции телеметрии Firefox, обеспечивая уважение к приватности пользователей. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A87D34567E6E3118FFD93D0D78BC05C6087FCA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822531   (100980) от 07.10.2025
-
-Soft Organizer Pro 10.32 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EA4441BD1898643F981D5D2FE4042F2A8E3B88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822581   (100981) от 07.10.2025
-
-Жизнь в военное время / Life During Wartime (2009) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм является вольным продолжением фильмов Тодда Солондза «Счастье» (1998) и «Добро пожаловать в кукольный дом» (1995).
-Сюжет разворачивается вокруг сестёр Джордан: Триш, Джой и Хелен. Джой вышла замуж за бывшего соседа Хелен, Аллена Мелленкампа. Триш по-настоящему мечтает лишь о том, чтобы её новый муж стал хорошим приемным отцом её детей. Ведь настоящий отец мальчиков (   Читать дальше...   )Производство: США / Werc Werk WorksЖанр: драма, комедияРежиссер: Тодд СолондзАктеры: Ширли Хендерсон, Майкл Кеннет Уильямс, Рослин Рафф, Эллисон Джэнни, Майкл Лернер, Дилан Райли Снайдер, Киаран Хайндс, Рене Тейлор, Ребекка Чайлз, Пол Рубенс, Эмма Хинз, Шарлотта Рэмплинг, Элли Шиди, Рич Печчи, Гэби ХоффманнПеревод: профессиональный многоголосый (R5)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3C976E473FAE771677EDE80AB9C13E6618D191
 ```
 
 

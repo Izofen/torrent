@@ -1,3 +1,85 @@
+###  Публикация: 591095   (136202) от 20.12.2012
+
+The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Simpsons Main Title Theme (Extended Version)
+02 - We Do (The Stonecutters' Song)
+03 - Dancin' Homer (Medley)
+04 - Homer & Apu (Medley)
+05 - 'Round Springfield (Medley)
+06 - 'Oh, Streetcar!' (The Musical)
+07 - Jingle Bells
+08 - $pringfield (Medley)
+09 - 'Itchy & Scratchy' Main Title Theme
+10 - 'Itchy & Scratchy' End Credits Theme(   Читать дальше...   )Жанр: OSTПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C479FC16A4D6E870357EE00047EFA332735E8213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592071   (136204) от 20.12.2012
+
+Журнал | Вязание модно и просто. Для самых маленьких №12(30) [декабрь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теплая вязаная одежда для малышей в возрасте до 3 лет.
+Маленьким деткам – пестрые комплекты. Теплые кофточки для сына и дочки. Вязаные топотушки для мальчишек и их подружек.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426AAFE46C53D04806ABA90AA2076896438863D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591559   (136209) от 20.12.2012
+
+Лицом к стене / Face Down (1997) VHSRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136209.jpg" />
+</div>
+
+
+###  Подробнее
+
+К бывшему полицейскому Бобу Синьорелли, работающему частным детективом, обратилась за помощью эффектная блондинка Меридит Лейк. Сначала Боб счёл её рассказ плодом богатого воображения, но, познакомившись с девушкой поближе, он понял, что происходящее с нею не выдумка…Жанр: Драма, Детектив, КриминалРежиссер: Том ЭберхардтАктеры: Джо Мантенья, Питер Ригерт, Келли Мэроуни, Кэмерон Тор, Адам Энт, Дж.К. Симмонс, Шэннон Лоусон, Кент Стэйнс, Дайана Рейс, Юджин Кларк.Перевод: Двуголосый закадровыйПродолжительность: 01:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF5AD9EAEA7D343AE4F68BF895B833C8B15CFD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591782   (136210) от 20.12.2012
 
 Заложница 2 / Taken 2 (2012) [720p] BDRip <Звук с TS>
@@ -6,7 +88,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136210.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136210.jpg" />
 </div>
 
 
@@ -30,7 +112,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136212.jpg" />
 </div>
 
 
@@ -55,7 +137,7 @@ magnet:?xt=urn:btih:E0D3E21A385EB4A4286613C532E0F94BB7B444FC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136218.jpg" />
 </div>
 
 
@@ -79,7 +161,7 @@ magnet:?xt=urn:btih:B80A38B825C989367A060C793E5DB0629CA2F09C
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136222.jpg" />
 </div>
 
 
@@ -108,7 +190,7 @@ magnet:?xt=urn:btih:F6C279038EB93F75AFB6A2C3BD836403B06E9081
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136225.jpg" />
 </div>
 
 
@@ -132,7 +214,7 @@ magnet:?xt=urn:btih:BFED92A1BBECA7F2A3BC9E5FBC59C23F2BAF41E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136226.jpg" />
 </div>
 
 
@@ -156,7 +238,7 @@ VA - Armin Van Buuren - A State Of Trance Yearmix 2012 (2012) [MP3|~257 кб/с 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136227.jpg" />
 </div>
 
 
@@ -189,7 +271,7 @@ Mageia 3 beta 1 [x86-64] (3xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136229.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ Various Artists - Commercial Suicide Is Painless Vol.1 (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136230.jpg" />
 </div>
 
 
@@ -250,7 +332,7 @@ Borgore - Turn Up (2012) EP [MP3|320 Kbps] <Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136236.jpg" />
 </div>
 
 
@@ -277,7 +359,7 @@ magnet:?xt=urn:btih:C06036182B27C34A97F35D69787C15C39826ABD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136240.jpg" />
 </div>
 
 
@@ -301,7 +383,7 @@ VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136243.jpg" />
 </div>
 
 
@@ -334,7 +416,7 @@ magnet:?xt=urn:btih:63AEBAADD5A67CC0B88D24B655FAFA26857A5F79
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136244.jpg" />
 </div>
 
 
@@ -358,7 +440,7 @@ magnet:?xt=urn:btih:922253F862365EE33620BEF0CEB5CD04D665B218
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136249.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136249.jpg" />
 </div>
 
 
@@ -391,7 +473,7 @@ Memory Drawings - Music For Another Loss (2012) [FLAC|Lossless]<Electronic, Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136250.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136250.jpg" />
 </div>
 
 
@@ -423,7 +505,7 @@ Fiction - Lifescapes: Guitar For Stress Relief (2011) [MP3|320 кб/с]<Instrume
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136251.jpg" />
 </div>
 
 
@@ -456,7 +538,7 @@ magnet:?xt=urn:btih:34ECFE9A262A1359157F970DEE25C6B8B9CE0D86
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136252.jpg" />
 </div>
 
 
@@ -480,7 +562,7 @@ magnet:?xt=urn:btih:C4772EC62B62B9112A78A22879CF301BCC6A6BA5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136254.jpg" />
 </div>
 
 
@@ -504,7 +586,7 @@ Mageia 3 beta 1 [i586] (3xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136255.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136255.jpg" />
 </div>
 
 
@@ -532,7 +614,7 @@ Mageia 3 beta 1 [i586] (3xDVD)
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136258.jpg" />
 </div>
 
 
@@ -560,7 +642,7 @@ magnet:?xt=urn:btih:0DB79CE3519A05DC26E8381C9FA0DF16A857E61E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136259.jpg" />
 </div>
 
 
@@ -590,7 +672,7 @@ Albedo 067 - Al & Bi (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136261.jpg" />
 </div>
 
 
@@ -622,7 +704,7 @@ magnet:?xt=urn:btih:81F21EC704C83AC85F097890FA9BA1480B76CEF9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136263.jpg" />
 </div>
 
 
@@ -633,87 +715,6 @@ magnet:?xt=urn:btih:81F21EC704C83AC85F097890FA9BA1480B76CEF9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80520FDAFF59F098CB713940F21D267A4777B08D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591565   (136264) от 20.12.2012
-
-VA - Exotic Wafture 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nash & Pepper feat. Rogue Raven - Am I Wrong (Mike Foyle Remix)
-02. Kyau & Albert - A Night Like This (Original Mix)
-03. Gareth Emery - Concrete Angel (Original Mix)
-04. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
-05. Activa feat. Cat Martin - My Way Out (Sonic Element Remix)
-06. Cerf, Mitiska & Jaren - Another World (Shogun Remix)
-07. David Forbes feat. Antonia Lucas - Because Of You (Pulser Remix)
-08. Jordan Suckley feat. Leanne Thomas - Thunder (Original Mix)
-09. Andrew Rayel - Believe (Original Mix)
-10. Marcel Woods - Everything (Marcel Woods Treatment)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 06:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4BC6E7C5F1CB3050E1CA76901112294431E4DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591843   (136266) от 20.12.2012
-
-Журнал | Maximum PC (USA) [январь 2013] [PDF] [En]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136266.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены обзоры технических и программных средств. Тема номера - установка Windows 8 с флешки.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E41059FBD71CAE1A9FA6428ACB2806C31B973B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591902   (136268) от 20.12.2012
-
-Журнал | Туризм и отдых №49 [декабрь 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы о популярных туристических направлениях, полезные рекомендации, интересные обзоры, фоторепортажи. Своеобразное зеркало, отражающее состояние дел в российской туристической индустрии, настоящий навигатор в мире туристических услуг и бизнеса.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C7B692D35E7A759C287C1936F4627CB33400F9
 ```
 
 

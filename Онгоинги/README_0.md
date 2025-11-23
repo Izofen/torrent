@@ -6,7 +6,7 @@ Nukitashi the Animation | Нукитаси [2025, TV, 10 из 11 эп.] WEBRip 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1376.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1381.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Summer Pockets / Летние карманы [2025, TV, 25 из 26] WEBRip 720p 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1386.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 (2025) | �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1496.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Hotel Inhumans | Отель для нелюдей [2025, TV, 12 из 13] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1506.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Nyaight of the Living Cat / Night of the Living Cat / Ночь живых кош
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1518.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Uglymug, Epicfighter | Busamen Gachi Fighter | Всё тот же невзрач
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1520.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, T
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1530.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Jigoku Sensei Nube (2025) | Hell Teacher | Адский учитель Нубэ 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1532.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1542.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1687.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Kaoru Hana wa Rin to Saku | The Fragrant Flower Blooms with Dignity | Благо
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1710.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1716.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1738.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1739.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1744.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1920.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Hikaru ga Shinda Natsu | The Summer Hikaru Died | Лето, когда умер 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2071.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2096.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Muchuu sa, Kimi ni. | Captivated, by You | Других таких нет [2025,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2200.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2226.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2227.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2228.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2239.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2255.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2260.jpg" />
 </div>
 
 

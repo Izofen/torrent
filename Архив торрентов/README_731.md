@@ -1,3 +1,79 @@
+###  Публикация: 1518840   (152802) от 21.12.2021
+
+4K Video Downloader 4.19.1.4680 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152802.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
+Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E89AF111CA5CD7670961BF955D1FA1F48C9DBAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086550   (152817) от 24.12.2016
+
+Eschaton - Universe 3 (2016) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kensho (AP Organism New Gates of Change Remix) (08:59)
+ 02. Gnosis (Flow Steremov Remix) (06:48)
+ 03. Doors of Perception (Original Mix) (05:32)
+ 04. Oaxaca (The Drumkilla Remix) (06:27)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87916D30EAFBB4D455BF930AF5E6105F02BF5DDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518817   (152825) от 21.12.2021
+
+Wondershare PDFelement Pro 8.5.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152825.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2021Разработчик: © 2021 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8460C78C3EE459CA83CAB61B7B7068DD3B01316E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589146   (152828) от 14.12.2012
 
 Поединок с Владимиром Соловьевым. Выпуск №73 (2012.11.13) SATRip
@@ -6,7 +82,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152828.jpg" />
 </div>
 
 
@@ -36,7 +112,7 @@ Topaz Video Enhance AI 1.8.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152829.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ PrivaZer 4.0.36 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152831.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152835.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152841.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ magnet:?xt=urn:btih:8E0E1B7410A6123E97661866D961AB4FCEC13A87
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152847.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ magnet:?xt=urn:btih:83674E7FA1D3927FBE9BA2E060BBAEAB17A56F78
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152856.jpg" />
 </div>
 
 
@@ -182,7 +258,7 @@ Brave Browser 1.60.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152863.jpg" />
 </div>
 
 
@@ -206,7 +282,7 @@ FxFactory Pro 7.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152872.jpg" />
 </div>
 
 
@@ -231,7 +307,7 @@ CleanMyMac X 4.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152878.jpg" />
 </div>
 
 
@@ -257,7 +333,7 @@ Xojo IDE RAD 2016r4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152880.jpg" />
 </div>
 
 
@@ -283,7 +359,7 @@ UltraDefrag 7.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152881.jpg" />
 </div>
 
 
@@ -307,7 +383,7 @@ Waterfox Current G4.0.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152882.jpg" />
 </div>
 
 
@@ -331,7 +407,7 @@ K-Lite Codec Pack Update 17.9.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152883.jpg" />
 </div>
 
 
@@ -355,7 +431,7 @@ magnet:?xt=urn:btih:A9DA99650BA9885CBD1274798AEF592CF33294A8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152888.jpg" />
 </div>
 
 
@@ -379,7 +455,7 @@ EximiousSoft Business Card Designer 5.08 RePack by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152919.jpg" />
 </div>
 
 
@@ -406,7 +482,7 @@ Deliver 2.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152929.jpg" />
 </div>
 
 
@@ -430,7 +506,7 @@ Chromium 119.0.6045.160 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152938.jpg" />
 </div>
 
 
@@ -454,7 +530,7 @@ Re-Loader Activator 2.0 RC 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152940.jpg" />
 </div>
 
 
@@ -479,7 +555,7 @@ WinRAR 5.80 Final (х86) Portable by Deodatto [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152941.jpg" />
 </div>
 
 
@@ -503,7 +579,7 @@ Creative Wallpapers (10.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152943.jpg" />
 </div>
 
 
@@ -527,7 +603,7 @@ TG Pro (Temperature Gauge Pro) 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152944.jpg" />
 </div>
 
 
@@ -552,7 +628,7 @@ Final Draft 12 v12.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152957.jpg" />
 </div>
 
 
@@ -565,88 +641,6 @@ Final Draft — профессиональное программное обес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C451EA78597569E5D536F75C89A2C10D359BA4C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677091   (152971) от 16.11.2023
-
-Fitify: Фитнес тренировки дома 1.60.1 Mod by Balatan [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к более чем 10 миллионам людей, которые занимаются с помощью тренировок и планов от Fitify. С нами вы можете тренироваться дома с использованием только веса вашего тела (без оборудования!). Однако мы здесь представляем единственное приложение, которое также предлагает тренировки и тренировочные программы с использованием снарядов для фитнеса.Тип издания: ProРазработчик: Fitify Workouts s.r.o.Поддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C5531A09C6FE64F3A8DFAE706F4C47EF7367AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588940   (152975) от 14.12.2012
-
-Cojones - Bend To Transcend (2012) [MP3|320 кб/с]<Stoner Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have To Run 03:22
-02. Colour 04:53
-03. Bend & Stretch 04:48
-04. Sacred Fire 04:51
-05. Tide 07:38
-06. Hey Baby 03:07
-07. As Far As It Goes 06:06
-08. Indika 05:52Жанр: Stoner RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B157AFE5D1189BFC0DBF6A574A4A51A25DB3B7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086402   (152996) от 24.12.2016
-
-Wondershare Filmora 7.8.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Filmora - программа для редактирования видео.
-В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах.
-
-После того как ваше видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 декабря 2016Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B7EA635916A1F6AA94BEF60FB61608C413B5E5
 ```
 
 

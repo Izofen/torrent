@@ -6,7 +6,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RarmaRadio Pro 2.77.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16694.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Internet Download Manager 6.42 Build 39 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C6E6D3E484678C08DDB35994416F5D562A96BEB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16696.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16697.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EC152EA6D2305DFE4453175711B17C66DF0D3DEC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16698.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Rock Klassiker (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16699.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16700.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Electrical Calculations Pro / Электрические расчеты v10.4.1 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16701.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Solid Explorer File Manager v2.8.62 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16702.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ aCalendar+ Calendar & Tasks v2.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16703.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Hard Rock Covers (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16704.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:73464DDCC8D16B22820C2C6DD231911C8E618863
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16705.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Music News For Forum vol.093 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16706.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:72757640F0EB53292FD9C66E2EAFD881A4A03713
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16707.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Balthazar & Warhaus - Compilation (2006-2024) [MP3|320 Kbps] <Indie rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16708.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:6FF06583C9908BEFD024B22370F7D27FBE07E115
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16709.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16710.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16711.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:0DA201CBD9F175D8A26F23333D68298D058CBAE4
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16712.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Alex Henley - Slow Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16713.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16713.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Sueños Medievales - Sueños Medievales (2025) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16714.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:ECFFB84BEE16A8D4C475B7E0D6C45F20A6A7127F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16715.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16715.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Halestorm - Everest (2025) [FLAC|Lossless|WEB-DL|tracks] < Hard Rock, Alt. Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16716.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:9B190C72D7546C131789C8E13BE3B5E7A427BC7D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16717.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:8609C9FB57BC9815A3B6E4329348D25122115057
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16718.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16718.jpg" />
 </div>
 
 

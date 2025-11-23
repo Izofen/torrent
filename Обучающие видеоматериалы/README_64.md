@@ -6,7 +6,7 @@ Merion Academy, Олег Филиппов | Курс по NoSQL (2022) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159956.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ZTM Academy, Andrei Dumitrescu | Bash Scripting: Learn Shell Scripting (2022) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159977.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Yudaev School, Никита Юдаев | Изучаем дизайн с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160018.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:AEBE5C01512622E6D2A154258C7898B8420EFCBA
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160075.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:7462303003BD2ADF469FCE501B6B0873775226A4
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160083.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:39B1A8A79687BE93F545EB817396ADD7F0D3265B
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160371.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Astravisual, Оля Астра | Go_Foto. Тариф Profi (2023) WEB-DL [AD] [R
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160377.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Soshnikova School, Сошникова Елена | Пейзаж. Основы (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160391.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Medvedev Photo, Александр Медведев | Бестселлер. От
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160518.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Tilda school, Антон Командин | Резиновая верстка в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160520.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:D180FF7FC22D6EFB68ECDB7A8DD296AE8980F087
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160522.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:1DE75D2065625CADB2075BD49FD0A79A16410947
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160543.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:24F0C9581D07D6D0CBFA1E8BF4D2ACDA54EF873F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160619.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:CCE422325774843F89541715BEBE2E473484A24D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160721.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:B20A09D3DEB944AEB10C89D8E411C342F63B854B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160724.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160742.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Proglib.Academy, Наталья Кайда, Александр Пупышев | 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160746.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Render.Camp, Daniel Nagaets, Irena Poliakova and etc. | Professional Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160755.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Level One, Анна Петрова | Грамотность без зубреж�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160766.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:8839F860CAF65606FD3FE040A02F7A95FBB16A2A
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160778.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Enterclass, Александра Чу | Линия и цвет (2023) WEB-DL [AD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160799.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Self-Learning, Виталий Трунин | Курс по SQL для начин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160894.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ New Maters Academy, Joe Weatherly | Introduction to Animal Anatomy (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160921.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Udemy, Happy Rawat | JavaScript Interview Masterclass: Top 200 Questions & Answe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160967.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:77500B6BBE8C3658334E6F45E90E36BD89E56A01
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160975.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ JUG Ru Group | Joker 2023. Конференция для опытных Java‑�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160978.jpg" />
 </div>
 
 

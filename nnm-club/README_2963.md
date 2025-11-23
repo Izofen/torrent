@@ -1,3 +1,75 @@
+###  Публикация: 482225   (88027) от 12.04.2012
+
+Глаза дракона / Dragon Eyes (2012) HDRip [ЛД]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый Орлеан, наши дни. Как и любой другой процветающий мегаполис мира, — это город контрастов, где есть и блеск, и грязь, встречаются роскошные дворцы и нищенские трущобы, где есть место великим возможностям и невероятным шансам самореализации, а вместе с тем — рискованным случайностям и проблематичным ситуациям.Жанр: Боевик, Драма, КриминалРежиссер: Джон ХайамсПродюсер: Алан Амиел, Стив Ричардс, Джоэл СилверАктеры: Жан-Клод Ван Дамм, Питер Уэллер, Кунг Ле, Кристофер Ван Варенберг, Луис Да Силва мл., Кристал Мантекон, Моника Акоста, Эрик Браун, Эдди РоусПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4964871FFB8EDF6F8DB5B42218DA29BE0946BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481979   (88031) от 12.04.2012
+
+Conquest: Frontier Wars (RePack) [Ru] 2001 | Pilotus
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Conquest: Frontier Wars — космическая стратегия реального времени. В отличие от других игр этого жанра, уровни в «Conquest» играются на нескольких различных картах одновременно, соединённых точками перехода.Базы могут быть построены на орбите планет любой системы, но для этого игроку необходимо установить линии снабжения между системами. Каждый корабль имеет ограниченное количество единиц снабжения, которые исчерпываются по мере использования оружия и спец-устройств. Корабли истощившие свой запас являются летающими мишенями пока не вернутся на базу для перезарядки. Поэтому использование кораблей снабжения является важной частью эффективного нападения. В кампании присутствуют адмиралы которые функционируют как герои. В многопользовательских играх, адмиралы являются лидерами флота (воеводы для мантисов и магистраты для селареонов). Целые эскадры могут быть сгруппированы челноком адмирала; это даёт определённые бонусы всему флоту и позволяет более успешный контроль кораблей.Тип издания: RePackЖанр: Космическая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481470   (88032) от 12.04.2012
+
+Юрий Шатунов - 3 альбома (2002-2004) [MP3|192 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88032.jpg" />
+</div>
+
+
+###  Подробнее
+
+2002-2004Жанр: PopПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FB5CDF7AF1D207BAC2E795488E599FBF897826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481721   (88033) от 12.04.2012
 
 Алексей Черненко | Лорд Дарк. Наемник [2012] [FB2]
@@ -6,7 +78,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88033.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:B7C8F9F456057208E1F86F56BE85FC48B6B6C1E7
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88035.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:3A6437341F2F25113504DFC9E9140FAFF57E86D3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88037.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:7A50AEFCB2ED18696BAC5C6EE8E64BB08AAF3202
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88039.jpg" />
 </div>
 
 
@@ -113,7 +185,7 @@ magnet:?xt=urn:btih:39F164478E4F3409123C26C2B69099A59EE58F34
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88040.jpg" />
 </div>
 
 
@@ -137,7 +209,7 @@ magnet:?xt=urn:btih:BE07FA118740BCBA806E74B8017F75B7D30AAEE4
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88041.jpg" />
 </div>
 
 
@@ -161,7 +233,7 @@ magnet:?xt=urn:btih:CD3210C7BBFDE19D4DDD22F2F30BD7B5C1FB4D82
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88042.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:CD3210C7BBFDE19D4DDD22F2F30BD7B5C1FB4D82
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88044.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:8835479F7FA12296B6C75A71B6DD691D8E5EF4BF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88045.jpg" />
 </div>
 
 
@@ -235,7 +307,7 @@ magnet:?xt=urn:btih:DEF5096B94E3BAB8431BAEFCFDDE2C2F471E1B07
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88046.jpg" />
 </div>
 
 
@@ -259,7 +331,7 @@ magnet:?xt=urn:btih:DEF5096B94E3BAB8431BAEFCFDDE2C2F471E1B07
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88047.jpg" />
 </div>
 
 
@@ -283,7 +355,7 @@ Sandra - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88048.jpg" />
 </div>
 
 
@@ -316,7 +388,7 @@ magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88051.jpg" />
 </div>
 
 
@@ -341,7 +413,7 @@ magnet:?xt=urn:btih:5325B53EF10DB45BB91AAF87B0A1A070C237E55F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88053.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ magnet:?xt=urn:btih:5325B53EF10DB45BB91AAF87B0A1A070C237E55F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88054.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:5325B53EF10DB45BB91AAF87B0A1A070C237E55F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88055.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ magnet:?xt=urn:btih:CACA1E9359301F5659B1A0DE8C316F3D8478F361
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88057.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:CACA1E9359301F5659B1A0DE8C316F3D8478F361
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88058.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5.1 + NI-VISA 5.1.2 + Device Drivers 201
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88060.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5.1 + NI-VISA 5.1.2 + Device Drivers 201
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88063.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ LabVIEW 2011 sp1 (x86+x64) + NI-DAQmx 9.5.1 + NI-VISA 5.1.2 + Device Drivers 201
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88065.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:E40FF50A4015C29A0EC6A1128E997063EAA7184A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88066.jpg" />
 </div>
 
 
@@ -568,7 +640,7 @@ magnet:?xt=urn:btih:E40FF50A4015C29A0EC6A1128E997063EAA7184A
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88069.jpg" />
 </div>
 
 
@@ -581,78 +653,6 @@ magnet:?xt=urn:btih:E40FF50A4015C29A0EC6A1128E997063EAA7184A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3F850846311E738E76FB268D9621DC062C3FA98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482170   (88070) от 12.04.2012
-
-Дж. Эдгар / J. Edgar (2011) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88070.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение всей жизни Джон Эдгар Гувер поднимался к вершинам власти, чтобы стать самым могущественным человеком в Америке. Будучи главой Федерального бюро расследований, он ни перед чем не останавливался, чтобы защитить свою страну. Пережив восемь президентов и три войны, Гувер вел сражения с угрозами как реальными, так и надуманными, зачастую нарушая правила, чтобы (   Читать дальше...   )Производство: Imagine Entertainment / Wintergreen ProductionsЖанр: Драма, криминал, биография, историяРежиссер: Клинт ИствудАктеры: Леонардо ДиКаприо, Наоми Уоттс, Арми Хаммер, Джош Лукас, Джуди Денч, Джош Хэмилтон, Джеффри Пирсон, Шерил Лоусон, Кейтлин Девер, Брэйди МэтьюзПеревод: ДублированныйПродолжительность: 02:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21387C59073230B9D037447DF0EDF9E62D4F8DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481814   (88073) от 12.04.2012
-
-Сьюзен Коллинз | Голодные игры [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга-сенсация, возглавившая 21 список бестселлеров и удо­стоенная множества литературных наград - теперь в оригинале! Эти парень и девушка знакомы с детства и еще могут полюбить друг друга, но им придется стать врагами... По жребию они должны участвовать в страшных "Голодных играх", где выживает только один - сильнейший. Пока в жестоком квесте остаются хотя бы какие-то участники, Китнисс и Пит могут защищать друг друга и сражаться вместе. Но рано или поздно кому-то из них придется пожертвовать жизнью ради любимого... Таков закон "Голодных игр". Закон, который не нарушался еще никогда!2012Жанр: ФантастикаПродолжительность: 10:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3E25FD8D401BAC240F0762756D0EA2C4912EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481889   (88076) от 12.04.2012
-
-Zолушка (2012) [1080p] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня фильма, Маша Крапивина, — пока еще не красавица, и не то чтобы сказочная умница. Обычная девушка, рискнувшая, подобно тысячам ее сверстниц из самых разных уголков страны, покорить Москву, покинув свой родной провинциальный городок. Вечером учится, а с утра до вечера работает «на вредном производстве» — горничной в очень состоятельной семье. Крупу, конечно, (   Читать дальше...   )Производство: Россия, Централ ПартнершипЖанр: Мелодрама, КомедияРежиссер: Сергей ИвановАктеры: Кристина Асмус, Никита Ефремов, Артем Ткаченко, Елизавета Боярская, Нонна Гришаева, Александр Цекало, Юрий Стоянов, Сергей Бурунов, Анна Шерлинг, Маргарита БычковаПеревод: ОригинальныйСубтитры: ОтсутствуютПродолжительность: 01:27:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4F1279C1D4E7A8F3891C70AB3E69AE4A9D17C92F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167458.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E13F1A1A40616041C750A172B93076245F8A7C77
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167571.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:10B4FED1F132B31B32813BA82A3C9F44DF33A8AF
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168409.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FAEA83517ABA0DD396B1FAB05F7AD5F6D5728E60
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168493.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DA151495F4FA75750914D18E38183E90072CFF1A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169265.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:1EC68E39E5AC8C133CAA156008516184DAAE8C4C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170552.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:EE31B980AD05FAB9B85C1164D0087C51EEEB2DB2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170852.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:770130F584D5AA16832FE776426DE8C01BC91D7A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171306.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:A90EF733F925AC875B56BEB27F64AD571E6AF732
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172024.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:6DAABD2953B03E8E72F9134EA992BDA52F2A5085
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172396.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F536A325205345E0DD86CD4420BBA164A2ADAA42
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172399.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:3408E68ED62CB1C1DA2F034BEB282EDE4B86FF7C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172406.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A5FED1B1CAF714E8897FE2E82FCED46F1EC69ACF
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172409.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:1AD4B2394D36A5F2F4E49F8FC8354A20C5D80F7B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176372.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176372.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:5A212FFFE2F974C34E0275EF31A799CE5F7579A1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179291.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179291.jpg" />
 </div>
 
 
@@ -388,6 +388,30 @@ magnet:?xt=urn:btih:B01BA542A29A90D4D9D5D710A91F0AE7EA8E5978
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 98102   (179568) от 02.12.2020
+
+Сенкевич Генрик | Крестоносцы [1846 - 1916 где-то между этими годами] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический роман классика польской литературы Генрика Сенкевича (1846 - 1916), посвященный борьбе польского народа против Тевтонского ордена, является подлинно национальной эпопеей. В центре книги - Грюнвальдская битва, которая стала важной вехой в истории Польши. "Крестоносцы" - это одно из лучших произведений Генрика Сенкевича - итог его многолетнего (   Читать дальше...   )Жанр: Исторический романПродолжительность: 36:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A61C10953387E0D99CD76ABAAF548860471000C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592583   (182919) от 23.11.2022
 
 Иван Ефремов | Таис Афинская (2022) [MP3, Всеволод Кузнецов]
@@ -396,7 +420,7 @@ magnet:?xt=urn:btih:B01BA542A29A90D4D9D5D710A91F0AE7EA8E5978
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182919.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182919.jpg" />
 </div>
 
 
@@ -420,7 +444,7 @@ magnet:?xt=urn:btih:CCC6702C99D23888C9D167104D88A5A5F8EF23A2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183682.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183682.jpg" />
 </div>
 
 
@@ -446,7 +470,7 @@ magnet:?xt=urn:btih:352D39F8B0A0D5C6429D506B8A27A0712B67863D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184140.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184140.jpg" />
 </div>
 
 
@@ -471,7 +495,7 @@ magnet:?xt=urn:btih:A4D2EFBCBD04EE700A0964CF3D8A72737D56D202
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185219.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185219.jpg" />
 </div>
 
 
@@ -495,7 +519,7 @@ magnet:?xt=urn:btih:8E9E746C62A0DA5FAD45289B671553EB4096448B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188005.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188005.jpg" />
 </div>
 
 
@@ -519,7 +543,7 @@ magnet:?xt=urn:btih:D9E64B40320AD4875106FD5DD071CE800894D1E5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188031.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188031.jpg" />
 </div>
 
 
@@ -543,7 +567,7 @@ magnet:?xt=urn:btih:D0557E1967AD19445BFF0EC21EDC32A2DE614048
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190137.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190137.jpg" />
 </div>
 
 
@@ -569,7 +593,7 @@ magnet:?xt=urn:btih:7F4AC1146F07A3699A69C612819254A05E5584A0
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190929.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190929.jpg" />
 </div>
 
 
@@ -594,7 +618,7 @@ magnet:?xt=urn:btih:10790FFD5E099BABAEC48529F9E7028166AB6505
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192364.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192364.jpg" />
 </div>
 
 
@@ -605,30 +629,6 @@ magnet:?xt=urn:btih:10790FFD5E099BABAEC48529F9E7028166AB6505
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:472D2E7CE875E95459658198E9EE9606B5608E07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657458   (192655) от 03.09.2023
-
-Валентин Пикуль | Слово и дело (Книги 1 и 2) (2013) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый роман-хроника Валентина Пикуля «Слово и дело» состоит из двух томов. Это достаточно жестокое произведение, впрочем, как и сама Россия периода царствования императрицы Анны Иоанновны. Автор книги «Слово и дело» погружает читателя в борьбу аристократии за власть, мир дворцовых интриг и переворотов. Страну в буквальном смысле заселили и сковали иноземцы – (   Читать дальше...   )Жанр: Исторический романИздательство: Нигде не купишьПродолжительность: 64:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E38C9E659B0932C5765470F76DB50B000C1784F
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 594612   (133570) от 26.12.2012
+
+Врачеватель(Архиепископ Лука) (2007) DVDRip
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о святителе Луке (Войно-Ясенецком), в котором ярко сочетались научное подвижничество и служение исповедническое, восходящее к апостольскому. Врач милостью Божией и архиепископ, человек глубокой горящей веры. Он успешно врачевал и тело, и душу людей. В самые жестокие безбожные времена не поступался своей совестью. За подвиг исповедничества был причислен Русской Православной Церковью к лику святых. Фильм может использоваться как рядовым зрителем, так и преподавателем новейшей истории или истории Церкви. Особенно же он трогает тех, в ком трудно уживаются знание и вера.Жанр: ДокументальныйРежиссер: Н. РаужинПродолжительность: 00:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853402178F575F7574C52D8EC8660BA2D0ECAE81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680347   (133571) от 30.11.2023
+
+Пожалуйста, не уничтожай: Сокровище Туманной горы / Please Don't Destroy: The Treasure of Foggy Mountain (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедийная труппа «Пожалуйста, не уничтожай», состоящая из Мартина Херлихи, Бена Маршалла и Джона Хиггинса, представляет свой первый полнометражный фильм «Сокровище Туманной горы». Сюжет фильма рассказывает о трех друзьях детства, которые вместе работают в магазине товаров для активного отдыха в маленьком городке. Однажды они видят в социальной сети карту сокровищ (   Читать дальше...   )Производство: США / Universal Pictures, Apatow Productions, Mosaic, Talent OneЖанр: комедияРежиссер: Пол БригантиАктеры: Martin Herlihy, Джон Хиггинс, Бен Маршалл, Конан О’Брайен, Боуэн Янг, Мэг Штальтер, Икс Майо, Николь Блум, Седрик Ярбро, Chloe TroastПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH), ИспанскиеПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0F30338683EC2752737BBB1975D03753ECADD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592957   (133572) от 26.12.2012
+
+Хождение по мукам: Восемнадцатый год (1958) [H.264] DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй фильм кинотрилогии «Хождение по мукам». В России Гражданская война. Её безжалостный вихрь разметал уже сложившиеся супружеские пары Даши и Ивана, Кати и Вадима Рощина. После смерти ребёнка Даша не находит в себе сил преодолеть ощущение собственной никчемности. Телегин уезжает на фронт в Красную Армию. Катя и Рощин едут на юг, но Вадим решает вступить в Добровольческую армию и расстаётся с Катей.Жанр: Драма, ИсторияРежиссер: Григорий РошальАктеры: Руфина Нифонтова, Нина Веселовская, Вадим Медведев, Николай Гриценко, Майя Булгакова, Виктор Авдюшко, Сергей Яковлев, Павел Винник, Евгений Матвеев, Михаил Козаков,  Евгений Тетерин, Леонид Пархоменко, Владимир Сез, Алексей СмирновПродолжительность: 01:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CAC60FD0EEAB8FA88B010A283385CF27588102
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680674   (133573) от 30.11.2023
 
 Повелитель ветра (2023) WEBRip [H.264]
@@ -6,7 +78,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133573.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133575.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ VA - 100 золотых романтических хитов - 10 (2012) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133576.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:BFEBA97CD3483F7142A68E80D104E6C321322098
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133577.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ IDA Pro 7.7 + IDA Pro 8.3 [x86_64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133579.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:733A9365D45970146DA14226454CBD682431C699
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133580.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:FB5AB515F458BFC6B3C5D52282DB0664098E5A28
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133581.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133582.jpg" />
 </div>
 
 
@@ -207,7 +279,7 @@ magnet:?xt=urn:btih:C959E901C03960B86FADE0D4F73559276528D9CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133583.jpg" />
 </div>
 
 
@@ -231,7 +303,7 @@ magnet:?xt=urn:btih:4CFECE3A27F4C72E5DE43E013737FE8882A616A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133584.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ Forgive Me Father (2022) [Ru/Multi] (1.4.4.60) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133585.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ magnet:?xt=urn:btih:936F13EA122FE3733994D728D7C8D887452D90BE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133586.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ magnet:?xt=urn:btih:936F13EA122FE3733994D728D7C8D887452D90BE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133587.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ Samantha Fish - 11 альбомов (2009 - 2023) [FLAC|Lossless|tracks + .cue|i
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133588.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:847DA89D279FF81C61E48C615DD822E3D7A8A07E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133589.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:890F07FD6D5746E345E2F9ECC90AE5B0203B0FB4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133591.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ magnet:?xt=urn:btih:94E5A5BB9DB396FD5109F15FB87EEBE14F14FD10
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133592.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:18817919D6888A292995EAABE5EC73692328FA65
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133593.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:5DCFC6EA9C9C0C3C2E2ECC3B6C6DCF9F31A14D37
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133595.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133597.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:56E5AC584E29280B788FFF07FA78968443762CE5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133599.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ magnet:?xt=urn:btih:C0177F808C625FF227D345E2EF9C7B4AEACE1626
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133601.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ magnet:?xt=urn:btih:4B4D783008AAF6B2782492A8918DA15DB845B096
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133602.jpg" />
 </div>
 
 
@@ -557,78 +629,6 @@ magnet:?xt=urn:btih:4B4D783008AAF6B2782492A8918DA15DB845B096
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A02EDAC5316CF239996CCBF20AB7AF1A786DBA23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680776   (133603) от 30.11.2023
-
-Убить Риту (2023) WEBRip [H.264] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрупкая с виду учительница химии Рита остается без работы за связи с учеником. Но благодаря своим навыкам ей удается заработать лёгкие деньги уборкой коттеджа. Правда этот коттедж оказывается местом преступления, а сама Рита оказывается в эпицентре криминальных разборок местных бандитов. Однако Рита не так проста — все это время она жила под прикрытием по чужому (   Читать дальше...   )Производство: Россия | «1-2-3 Production»Жанр: Драма, криминалРежиссер: Мария АграновичАктеры: Евгения Борзых, Артём Быстров, Анна Слю, Алексей Агранович, Артём Ткаченко, Александр Мизёв, Алексей Филимонов, Олег Гаас, Игорь Грабузов, Артур БесчастныйПродолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8EED9219942756056A1ED81DA85441A63EACB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594744   (133604) от 26.12.2012
-
-Photo DataBase 4.0 build 575 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Photo DataBase создавалась для помощи в организации коллекций цифровых фотографий. Вы можете добавлять к фотографиям описания, ключевые слова, включать их в группы, а также отмечать на них людей. Отличительной чертой программы является шифрование фото и изображений с поддержкой современных алгоритмов шифрования с ключом до 4096 бит: AES (Rijndael), Blowfish, Twofish, RC4, RC6, 2DES и другие. Полный список Вы можете найти тут. Кроме шифрования поддерживается скрытие данных в изображениях (PNG, BMP и JPEG) - стеганография.Название программы: Photo DataBaseЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680716   (133605) от 30.11.2023
-
-Ходячие мертвецы: Дэрил Диксон / The Walking Dead: Daryl Dixon (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) Red Head Sound
-
->>Зарубежные сериалы
->>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спин-офф известного постапокалиптического проекта «Ходячие мертвецы» — это история о приключениях Дэрила Диксона. Действие происходит во Франции. Дэрил Диксон оказался в Европе, чтобы найти ответы на волнующие его вопросы, связанные с возникновением таинственного вируса. Во Франции герой узнает о новом виде зомби, которые способны открывать двери, перемещаются по (   Читать дальше...   )Производство: США / AMC NetworksЖанр: ужасы, фантастика, драмаРежиссер: Дэниэл Персивал, Грег Никотеро, Тим СоутэмАктеры: Норман Ридус, Клеманс Поэзи, Louis Puech Scigliuzzi, Laïka Blanc-Francard, Анн Шаррье, Ромэн Леви, Адам Нагаитис, Франсуа Делев, Лукерья Ильяшенко, Катрин АрдитиПеревод: Многоголосый профессиональный (Red Head Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FFFF5E96EF315C5F87628981F78A82F972CC16
 ```
 
 

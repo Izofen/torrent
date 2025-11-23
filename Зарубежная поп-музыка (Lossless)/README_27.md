@@ -1,3 +1,94 @@
+###  Публикация: 258410   (246063) от 26.03.2022
+
+Laid Back - Good Vibes - The Very Best Of Laid Back (2008) 2CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_246063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe I'm Crazy
+02. Sunshine Reggae
+03. High Society Girl
+04. White Horse
+05. Elevator Boy
+06. One Life
+07. I'm Hooked
+08. It's A Shame
+09. Bakerman
+10. Highway Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491932   (246647) от 04.05.2012
+
+Alizee - 5 альбомов (2000 - 2010) [APE|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_246647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alizée (Alizée Jacotey) - После победы в телевизионном конкурсе «Начинающая звезда» получила предложение от Милен Фармер (Mylene Farmer) и композитора Лоран Бутонна (Laurent Boutonnat), начать вокальную карьеру.
+Первый сингл «Moi… Lolita» и последовавший за ним альбом «Gourmandises» покорили Францию, а позже и всю Европу. Ализе по итогам 2000 года удостаивается (   Читать дальше...   )Жанр: PopПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492747   (248473) от 07.05.2012
+
+Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Not Unusual (2:01)
+02. With These Hands (2:42)
+03. My Foolish Heart (2:37)
+04. Hello Young Lovers (2:28)
+05. When I Fall In Love (3:16)
+06. (It Looks Like) I'll Never Fall In Love Again (4:14)
+07. I'm Coming Home (3:08)
+08. Only A Fool Braks His Own Heart (2:33)
+09. Why Can't I cry (3:10)
+10. Help Yourself (2:54)(   Читать дальше...   )Жанр: Soul, Rock, PopПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564911   (249563) от 21.07.2022
 
 Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002, Break Records [WavPack|Lossless|image + .cue] <Euro-Disco, Synth-Pop>
@@ -6,7 +97,7 @@ Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002, Break
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249563.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249563.jpg" />
 </div>
 
 
@@ -33,7 +124,7 @@ Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250471.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250471.jpg" />
 </div>
 
 
@@ -60,7 +151,7 @@ VA - 90s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250572.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250572.jpg" />
 </div>
 
 
@@ -87,7 +178,7 @@ VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250587.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250587.jpg" />
 </div>
 
 
@@ -114,7 +205,7 @@ VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250850.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250850.jpg" />
 </div>
 
 
@@ -141,7 +232,7 @@ VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250936.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250936.jpg" />
 </div>
 
 
@@ -168,7 +259,7 @@ Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250966.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250966.jpg" />
 </div>
 
 
@@ -195,7 +286,7 @@ Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250972.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250972.jpg" />
 </div>
 
 
@@ -222,7 +313,7 @@ Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251912.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251912.jpg" />
 </div>
 
 
@@ -249,7 +340,7 @@ Sparks - 26 albums, 3 singles, 56 CD (1972-2023) [FLAC|Lossless|image + .cue] <A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251913.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251913.jpg" />
 </div>
 
 
@@ -276,7 +367,7 @@ Elton John - Japanese Collection (11 CD Original Mastering) (1988 - 2006) [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252096.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252096.jpg" />
 </div>
 
 
@@ -303,7 +394,7 @@ M83 - Hurry Up, We're Dreaming (2011) [FLAC|Lossless]<Electronic, Dream pop, New
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254176.jpg" />
 </div>
 
 
@@ -332,7 +423,7 @@ VA - timeless love tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255301.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255301.jpg" />
 </div>
 
 
@@ -359,7 +450,7 @@ Melanie Martinez - Portals (2023) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255510.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255510.jpg" />
 </div>
 
 
@@ -386,7 +477,7 @@ VA - Fresh Pop Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255933.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255933.jpg" />
 </div>
 
 
@@ -413,7 +504,7 @@ VA - 10s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256323.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256323.jpg" />
 </div>
 
 
@@ -427,6 +518,66 @@ VA - 10s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A0C6B3FC847AAA60FAF66D92F6076CF6DF26D1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499992   (256991) от 22.05.2012
+
+Foster The People - Torches (2011) [FLAC|Lossless]<Indie Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_256991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Helena Beat
+2. Pumped Up Kicks
+3. Call It What You Want
+4. Color On the Walls (Don't Stop)
+5. Waste
+6. I Would Do Anything for You
+7. Houdini
+8. Hustling (Life On the Nickel)
+9. Miss You
+10. Warrant(   Читать дальше...   )Жанр: Indie Pop, AlternativeПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838259   (260055) от 
+
+Tina Turner - Good Hearted Woman (1979) Remaster, 2025, Explore Rights Management LTD [FLAC 24/96|Lossless|WEB-DL|tracks] <Country, Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay It Down  (2025 Remaster) [00:03:38]
+02. Lovin' Him Was Easier  (2025 Remaster) [00:04:23]
+03. Good Hearted Woman  (2025 Remaster) [00:03:30]
+04. If This Is Our Last Time  (2025 Remaster) [00:03:24](   Читать дальше...   )Жанр: Country, Pop, BluesПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4886857F613013A435C6D35D2A23A42B8C51DF34
 ```
 
 

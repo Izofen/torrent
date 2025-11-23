@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88788.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:951697EA6E8271A77024EB7F89C875D8AB5E8C3C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88789.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Process Monitor 3.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88790.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Doppia B Hostility & Sofia Gucci - Un Binario Morto (Uncensored) (2012) [H.264/7
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88798.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:25493AC1B57FE2A7F04355549DDB250A69CD8484
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88804.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3891FEA5ACE33A86D46FA591346675B15DC39690
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88806.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:BF87FE368F1F32AE2058DEF03547306BEA7EC8F9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88813.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:BF87FE368F1F32AE2058DEF03547306BEA7EC8F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88816.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:BF87FE368F1F32AE2058DEF03547306BEA7EC8F9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88818.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:BF87FE368F1F32AE2058DEF03547306BEA7EC8F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88822.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:BF87FE368F1F32AE2058DEF03547306BEA7EC8F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88829.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:BF87FE368F1F32AE2058DEF03547306BEA7EC8F9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88831.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Bruce Springsteen - Wrecking Ball (2012) Special Edition [FLAC|Lossless]<Classic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88833.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Bruce Springsteen - Wrecking Ball (2012) Special Edition [FLAC|Lossless]<Classic
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88842.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Dr.WEB CureIt! 6.0 от 15.04.2012 [русский / английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88854.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Dr.Web CureIt! определяет и удаляет: почтовые и се�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88857.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Dr.Web CureIt! определяет и удаляет: почтовые и се�
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88858.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:5CBB934F4F38012D6EAD38B320F84EB5DC4754E4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88867.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ MediaPortal 1.2.3.0 [Русский (оболочка)/Английский (н�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88868.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Your Uninstaller! Pro 7.4.2012.05 + Portable by BALISTA [Мульти, Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88869.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Your Uninstaller обеспечивает решение задач по деи�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88872.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Your Uninstaller обеспечивает решение задач по деи�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88878.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Terminator Коллекция [En/Ru] (RePack) 1990-2003 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88895.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Terminator Коллекция [En/Ru] (RePack) 1990-2003 | Pilotus
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88899.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Waves Complete 9.0 R1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88900.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Guitar Pro [3.0+Jailbreake]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88909.jpg" />
 </div>
 
 

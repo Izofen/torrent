@@ -6,7 +6,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5-34484/dlc) Repack FitGirl [The Compl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14176.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14179.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.11.7) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14187.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14213.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14335.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14354.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Let'sРlay [Premium Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14376.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14382.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Crow Country (2024) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14437.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14466.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14484.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Multi] (1.0.20250606) Scene
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14558.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14575.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14576.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14661.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14664.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14665.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14672.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rosewater (2025) [Multi] (1.05.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14882.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14883.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14905.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Strangeland (2021) [Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14912.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15016.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15021.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Sinking City (2019) [Ru/Multi] (58246/dlc) License GOG [Remastered Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15108.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15113.jpg" />
 </div>
 
 

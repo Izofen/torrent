@@ -6,7 +6,7 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100856.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100863.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In fo
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100866.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя ге
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100870.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скор
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100874.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100875.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Egao no Taenai Shokuba Desu. / A Mangaka's Weirdly Wonderful Workplace / Раб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101042.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Noda / Мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101043.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Plus-sized Misadventures in Love! | Debu to Love to Ayamachi to! | Пышечк�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101044.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Kao ni Denai Kashiwada-san to Kao ni Deru Oota-kun / Inexpressive Kashiwada and 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101051.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104440.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112390.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112406.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121469.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121471.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125890.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126108.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128882.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128888.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128932.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136951.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Arknights: Fuyukomori Kaerimichi / Arknights: Perish in Frost / Рыцари к�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153701.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173529.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186105.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186105.jpg" />
 </div>
 
 

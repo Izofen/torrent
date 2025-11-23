@@ -1,3 +1,76 @@
+###  Публикация: 1597014   (168042) от 12.12.2022
+
+One Commander Pro 3.26.0.0 Portable  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168042.jpg" />
+</div>
+
+
+###  Подробнее
+
+One Commander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934E807A948F5BFC4D6F832DEFF4CE2B66630E57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596962   (168048) от 12.12.2022
+
+Auslogics Driver Updater 1.24.0.7 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Driver Updater – программа представляющая собой очень простой, удобный и в тоже время эффективный инструмент для обновления драйверов операционной системы Windows. Она просканирует ваш компьютер и после сканирования Вашего компьютера на присутствие драйверов ко всем устройствам, она составит список устройств которые требуют установки драйверов и предложит (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907DC77E3BF1E54F3C5112181AFD9D3F089A896E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431297   (168049) от 13.12.2020
+
+PullTube 1.6.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70176B4BE6AA6F140F8DF9FCEC1FAB0AED91A464
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596919   (168052) от 12.12.2022
 
 Радиоточка Плюс 22.12 + Portable [Ru]
@@ -6,7 +79,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168052.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ SpamSieve 2.9.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168053.jpg" />
 </div>
 
 
@@ -58,7 +131,7 @@ Wirecast 16.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168054.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ Firefox Browser 108.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168055.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ Privatus 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168059.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ FSNotes 4 v4.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168064.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ VA - Goa 2020 Top 40 Hits Best of Progressive Psy Trance EDM Acid Psychedelic Da
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168067.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ Wise Registry Cleaner Pro 10.2.7.687 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168072.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Aiseesoft Video Converter Ultimate 10.6.8 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168076.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ PhotoRoom 4.7.3 Mod by ZackModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168080.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ OmniFocus Pro 3.15.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168084.jpg" />
 </div>
 
 
@@ -275,7 +348,7 @@ Multitouch 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168087.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ FinePrint 11.33 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168091.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ HitmanPro 3.8.23 Build 318 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168096.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ VA - 15 Workout Psy Jams (2019) [MP3|320 Kbps] <Psy-Trance, Goa-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168098.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ Opera 65.0.3467.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168107.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ ZEDGE 8.19.2-beta Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168108.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ Firefox Browser ESR 102.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168126.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ HDCleaner 2.040 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168130.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ Opera 65.0.3467.72 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168134.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ BurnAware Professional 16.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168135.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ TweakPower 2.031 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168141.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ JRiver Media Center 25.0.115 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168143.jpg" />
 </div>
 
 
@@ -555,79 +628,6 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A951E2F3E7F504B03FF7D4B77CEE47B5A97F7E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672685   (168145) от 29.10.2023
-
-Speedtest от Ookla 5.2.2 Mod by 0x7d [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 27.10.2023Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F6246B83AEEB5DEB6600A22073DB740D6DE43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596932   (168152) от 12.12.2022
-
-Sensei 1.5.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Оно включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2021 Oskar Groth / Cindori ABПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B981D71AAD31C674C68D37CD031AF3F5D3CA6CF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431115   (168154) от 12.12.2020
-
-Mirillis Action! 4.14.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
-Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E753A53FEB7C233B7ACD8309EF6B2B4055357F
 ```
 
 

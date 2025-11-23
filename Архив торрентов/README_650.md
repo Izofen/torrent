@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138011.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hirschmann Industrial HiVision 07.0.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138039.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F1B03ADBBE9AF5B8F18400E8AC9903DFDAA2B1D6
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138041.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Epicardiectomy - Abhorrent Stench Of Posthumous Gastrorectal Desecration (2012) 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138048.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Display Driver Uninstaller 17.0.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138049.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:17FC87275D77E9759DE1DBE30ADAC8B1477214B9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138053.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Abattoir - The Only Safe Place (1986) [WavPack|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138054.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ BELOFF 2020.12 Lite (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138055.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Atretic Intestine - Encased (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138061.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Abazagorath - Sacraments Of The Final Atrocity (2004) [WavPack|Lossless]<Black M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138076.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Acrophet - Faded Glory (1990) [WavPack|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138084.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ TablePlus 5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138092.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Sandboxie 5.67.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138101.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ MCShield 3.0.5.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138128.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:04E4C591A600E1A9EB3F0604FBBCE9194E56CB86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138130.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Photo Supreme 5.3.0.2616 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138136.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:BDDF24852FD0B1FAB5470AB4B9CF6148333BC030
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138154.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:04014CC72BD8C99FAC1784901D15FD254C4587A3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138162.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:823C05C3356FF8273E302DB42706C99F99791746
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138163.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:018DC6C692963550C7005E7F92E62FB0A09E57AD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138168.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Daum PotPlayer 1.6.57875 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138172.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VSO ConvertXtoDVD 5.3.0.43 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138192.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:013F4B2195184055BF8BE4CBE4E8089B4618EF3B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138199.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ummet Ozcan - The Final Bang Year Mix 2019 (2019-12-27) [MP3|320 Kbps] <Electro 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138202.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Comedy Woman. Новогодний (2017.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138203.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:EAC3CFD5A18962BD268D6BDA28101AD940324B3F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138206.jpg" />
 </div>
 
 

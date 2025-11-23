@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61335.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5BAB5C742F5D42836E7A2FD1862FD459694FF03A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61336.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:66085872D6B8968745F1B2AEBAB0DBB2FE46A9EE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61337.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:128F06FE147DB8D3A9514589F4CA441FDA21D89C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61338.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:128F06FE147DB8D3A9514589F4CA441FDA21D89C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61339.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61340.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Rick Miller  - 10 Albums (2004 - 2020) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61341.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61342.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Oroka na Tenshi wa Akuma to Odoru | Глупый ангел пляшет с де
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61343.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:87D0485148AE403EC6CF0A46B8DCB28FD911E433
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61344.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Зл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61345.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F1F42223E642692859438BE96378F998F5CEF86E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61346.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:798486142DE3CF282220FFB5BAD6312CCD1318C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61347.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3D1669C715BA38286F199608DC90B50D9BEDE7F0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61348.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Academind Pro, Maximilian Schwarzmüller | ChatGPT - The Complete Guide (2024) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61349.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:0900AF8ECAF11A1F3C3303E15567E678D02ED4F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61350.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:162E8DCFD0F00BD571D0663B944CF28F042EC8C5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61351.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ STAR WARS: Dark Forces Remaster (2024) [Ru/En] (1.0.1308.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61352.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:6E88F434781506699B739EE93CE27D41D251AC90
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61353.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:185CBB9075F153C9448CF858F3E8FCF982BA1907
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61354.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:E1595B1B88327CB98CAD9402EB79B3FD21D041F8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61355.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:45AF8DF5E3A1932D9860E31331B4B26692D85483
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61356.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:BA15F6EFCE5A075FF26DAF57C728477C529FFA05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61357.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:96EBCCB933ECDF90315926F177ABC6A0357C5A88
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61358.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Strange Horticulture (2022) [Ru/Multi] (1.1.26) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61359.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:A4EFF5E0E6B032B63528830D25561CD93F41660F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61360.jpg" />
 </div>
 
 

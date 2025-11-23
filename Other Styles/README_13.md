@@ -6,7 +6,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137715.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137794.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electroni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138081.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138290.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Down
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138721.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139535.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139550.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TV
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139596.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Michael Forster - Christmas Piano Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140629.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140918.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141160.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Paul Hardcastle - The Jazzmasters 4 (2003) [FLAC|Lossless|tracks + .cue] <Smooth
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141439.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142320.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Heather Lynne Horton - Don't Mess with Mrs. Murphy (2017) [FLAC|Lossless|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142476.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Bader Nana - Acoustics A Tribute To Michael Jackson (2009) [MP3|192 кб/с]<Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142928.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143105.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Paul Hardcastle - Jazzmasters V (2006) [FLAC|Lossless|tracks + .cue] <Smooth Jaz
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143309.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Atlas - Breeze (1987) [FLAC|Lossless|tracks + .cue] <Fusion, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144248.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144274.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144324.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144328.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144406.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144430.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144549.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144648.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Richard Clayderman - Love Letters Friends & Family (2021) [FLAC|Lossless|WEB-DL|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145163.jpg" />
 </div>
 
 

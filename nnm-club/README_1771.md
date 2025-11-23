@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46401.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CA4452E5D290D9F83450AB67E2104AB748AB97D4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46402.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1108B94F0641AFEC31322DF66C0CA366DDD69A08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46403.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AE4FF68038E5BB711B43ACEED7700E69C3D9F82A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46404.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4EE5DC7837C7157EE26287D319BC2D5A3B81E21F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46405.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Isekai Suicide Squad | Отряд самоубийц: Исекай [2024, TV, 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46406.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:697090CCA7463FC2866255777E7BB0A6ED8F1ACB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46407.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Just Crow Things / Вредные вороны (2024) [Ru/Multi] (1.0) Scene Ten
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46408.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:7E2D9E6233FFB6A0CEC13695DD8DCA1720A54D14
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46409.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5E613A546B9DB495F6C849DC8FA0CEAEE6EDE3C5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46410.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:0B14FD702832BDB7F3D3C570D5713218C224AD58
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46411.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:6D31592A670EF02D9C2B9AFD39F77897AC53ADBD
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46412.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ OneCommander Pro 3.89.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46413.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Imagine 1.6.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46414.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:20B12ECA0E2288B0878D2EDA8C0DDD70247B16FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46415.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:32DFF0E4E082A18ACA360D3594DEFB0534871442
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46416.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ RollBack Rx Professional 12.7 Build 2710041413 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46417.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:3292279071B6E710DA4CA0B1A0EE6F185A2F7093
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46418.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Optimizer 16.7 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46419.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:53E4CEF78A0ACFC1EE1AAF2DF678DDF9E62669AF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46420.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Arco (2024) [En] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46421.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:D52049A3257ECD757D02F7B80251966DCC82EDA7
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46422.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:ED46A081F8E4069D3BFF0EED08EAD0D50BFDF7E8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46423.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Hidden Through Time 2: Discovery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46424.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Internet Download Manager 6.42 Build 20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46425.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:698F8312BC7F9230BF7358FD3A78ACEC008D85E4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46426.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ WinRAR 7.12 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Youtube Downloader HD 5.9.8.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14968.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIMP 5.40 Build 2682 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14971.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MediaHuman YouTube Downloader 3.9.12 (1006) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14972.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.15.7 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14974.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ O&O SafeErase 20.0.542 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14976.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AIDA64 v2.09 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14980.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Activation Program 1.12 b04  Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14988.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15005.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Windows 7 SP1 7601.27769 x64 3in1 by OneSmiLe [11.06.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15014.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Fast Video Cutter Joiner 6.8.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15064.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D1F062310B0F31D712BC9348E53AFE38E7BFC83E
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15072.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Glary Utilities Pro 6.27.0.31 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15073.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Glary Disk Cleaner 6.0.1.29 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15075.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ The Bat! Professional 11.4.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15086.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DISMTools 0.6.2.25052 (Update 1) + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15087.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ PotPlayer 250514 (1.7.22542) RePack (& Portable) by elchupacabra (10.06.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15090.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ K-Lite Codec Pack 19.0.1 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15094.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ PrivaZer Pro 4.0.106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15182.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ ScreenToGif 2.41.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15184.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Activation Program 1.12 b02  Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15194.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ StartAllBack 3.9.10 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15226.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Plus Messenger (Telegram+)  v11.12.0.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15228.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:39DD106EFAB57B3EBDD4AEADDDE392074B853E2C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15262.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:B12ACE4B14F65237F5DA527E5DB0CE015F65C974
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15264.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:66EC6911875CF4DDC67215DD8AE91E066517BF04
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15265.jpg" />
 </div>
 
 

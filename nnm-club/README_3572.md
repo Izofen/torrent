@@ -1,3 +1,81 @@
+###  Публикация: 1710905   (112554) от 28.03.2024
+
+Jeff Beck Group - Jeff Beck Group (1972) Reissue, 1989, Epic [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112554.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ice Cream Cakes - 5:40
+2. Glad All Over (A. Schroeder, R. Bennett, S. Tepper) - 2:59
+3. Tonight I'll Be Staying Here With You (B. Dylan) - 4:57
+4. Sugar Cane (S. Cropper) - 4:06(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B621083E084801C6B61ECBFA901132C1B2E99E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710809   (112555) от 28.03.2024
+
+Сибирская Благозвонница | Ветхозаветные cотницы (2009) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой краткое содержание важнейших книг Священного Писания Ветхого Завета с объяснением и толкованием главных ветхозаветных событий и пророчеств.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F04A27DAE39E010608C9C66DBEDD9AAB68FE6C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710753   (112556) от 28.03.2024
+
+Eisenwut - Die Herrschaft der Leere (2017) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Auf der anderen Seite der Verzweiflung [1:57]
+02 - Freiheit [6:35]
+03 - Gib mir Kraft [3:23]
+04 - Tod tritt zurück [4:24](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25052429A0C51EB7FFA270645905881F945013E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710944   (112557) от 28.03.2024
 
 Коллин Кембридж | Искусство французского убийства (2024) [MP3, Яна Зиман]
@@ -6,7 +84,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112557.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Fatal Fire - Arson (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112558.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Ne Obliviscaris - Exul (Deluxe) (2023) 2024, Season of Mist [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112559.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Rage - Afterlifelines (1990) Reissue, Remastered, 2024, Steamhammer [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112560.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ magnet:?xt=urn:btih:849D5AEDE71DD774F51A11D35386B2A9EFC00332
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112561.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ Moonspell - Anno Satanæ (1993 Remastered) (2024) Remastered [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112562.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Quill - Wheel Of Illusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112563.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|image + .cue] <Celtic Folk, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112564.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Glyph - Honor. Power. Glory. (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112565.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Jimmy Rosenberg - The One And Only (1998) Hot Club Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112566.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Anita O'Day - Big Band At Carnegie Hall (1985) 2009, Emily Productions [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112567.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Smorrah - Welcome to Your Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112568.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ Skiltron - The Highland Way (2010) [FLAC|Lossless|image + .cue] <Celtic Folk, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112569.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ Photo Studio PRO v2.7.3.2445 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112570.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ magnet:?xt=urn:btih:37FFC8AF978ED4695E1B364555DE68189B58DEB9
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112571.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Deep Purple - Montreux '71 (Live At The Casino, Montreux / 1971) (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112572.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Clipboard Manager 2.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112573.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ Keep It 2.4.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112574.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ magnet:?xt=urn:btih:D880E3008D81FE77B574F0619070B8D3297FB117
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112575.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ EazyDraw 11.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112576.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Emurasoft EmEditor Professional 24.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112577.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ magnet:?xt=urn:btih:9ED03E78F378CA726DE2A19E7CD60F7DF017433D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112578.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Text Edit Plus 14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112579.jpg" />
 </div>
 
 
@@ -591,83 +669,6 @@ Text Edit Plus — это простой, но мощный текстовый �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D241F3C4209426C4ED61BE25AB3366B282B4B121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711009   (112580) от 28.03.2024
-
-URL Manager Pro 6.4.4 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112580.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2024Разработчик: © 2024 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50239307B16CB4B9D08CABA0C6E765A7D8812E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710786   (112581) от 28.03.2024
-
-Молчаливый / Le silencieux (1973) BDRip [H.264/720p] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто такой Антон Халяков, который только что был похищен MI5 в Лондоне? Очевидно, советский ученый. Но шестнадцатью годами раньше у этого человека была другая личность - Клеман Тибер. И другое гражданство - французское. Так что же заставило его стать русским и сменить личность? И почему им заинтересовались британские спецслужбы?...Производство: Франция, Италия / Gaumont International, Medusa Distribuzione, Trianon FilmsЖанр: драма, триллерРежиссер: Клод ПинотоАктеры: Лино Вентура, Лео Генн, Сюзанн Флон, Роберт Харди, Леа Массари, Пьер-Мишель Ле Конте, Анни Дежуа-Жодри, Бернар Деран, Пьер Зиммер, Роже Крузе, Люсьенн Легран, Пьер Колле, Андре Фалькон, Ричард Сайнт-Брис, Габриэль СинкуаПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E27B9167030A4C2EE86E5AED9A848689B140BBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710874   (112582) от 28.03.2024
-
-Валерий Курас - Мужские истории (2021) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А я чё...
-02. Каблучок
-03. Шансон
-04. Жизнь моя - такси(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD071C149FCE076C28CBFC10C2405CD90B3097B
 ```
 
 

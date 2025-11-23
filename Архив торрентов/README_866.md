@@ -1,3 +1,103 @@
+###  Публикация: 1671225   (171571) от 23.10.2023
+
+EditReady 23.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
+Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
+
+Поддерживает контейнеры:(   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2014-2022 The Sync FactoryПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1139832E32EEFC8050CCEF785C69761CACCB66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671230   (171575) от 23.10.2023
+
+Things 3 v.3.19.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2023Разработчик: © 2007-2023 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8946CAC82413F28E89F11212BC1833844D6483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671213   (171576) от 23.10.2023
+
+Get Backup Pro 3 v.3.7.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Get Backup Pro - Универсальная утилита для выполнения резервного копирования, клонирования дисков/разделов и синхронизации файлов и папок. Get Backup Pro предлагает двустороннюю синхронизацию, архивирование только измененных файлов, восстановление отдельных файлов и папок, защиту архивов шифрованием.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2008-2022 BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F6FF2261EEF4E939AA17C36496084DBCAF59EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671112   (171577) от 23.10.2023
+
+PD (Progressive Downloader) 6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Progressive Downloader — теперь уже платный менеджер закачек под Mac.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2023Разработчик: © 2021 Maxim TrushinПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5199AAD8EDEB882BE123B59F80CD33537CA07DAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671249   (171582) от 23.10.2023
 
 Final Draft 12 v.12.0.9 [En]
@@ -6,7 +106,7 @@ Final Draft 12 v.12.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171582.jpg" />
 </div>
 
 
@@ -32,7 +132,7 @@ Mellel 5 v.5.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171585.jpg" />
 </div>
 
 
@@ -57,7 +157,7 @@ AltTab 6.63.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171592.jpg" />
 </div>
 
 
@@ -81,7 +181,7 @@ A Better Finder Rename 12.02 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171593.jpg" />
 </div>
 
 
@@ -106,7 +206,7 @@ Sound Siphon 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171594.jpg" />
 </div>
 
 
@@ -130,7 +230,7 @@ TinkerTool System 8 v.8.86 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171598.jpg" />
 </div>
 
 
@@ -154,7 +254,7 @@ Clipboard Manager 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171600.jpg" />
 </div>
 
 
@@ -180,7 +280,7 @@ EdgeView 4.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171602.jpg" />
 </div>
 
 
@@ -204,7 +304,7 @@ Iris 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171604.jpg" />
 </div>
 
 
@@ -228,7 +328,7 @@ Stats 2.9.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171608.jpg" />
 </div>
 
 
@@ -252,7 +352,7 @@ CCleaner 6.17.10746 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171648.jpg" />
 </div>
 
 
@@ -276,7 +376,7 @@ VPN Russia - VPN сервера в России 1.176 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171676.jpg" />
 </div>
 
 
@@ -300,7 +400,7 @@ Java SE Runtime Environment 8.0.3910.13 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171686.jpg" />
 </div>
 
 
@@ -325,7 +425,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.0.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171693.jpg" />
 </div>
 
 
@@ -349,7 +449,7 @@ Topaz Video AI 4.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171694.jpg" />
 </div>
 
 
@@ -373,7 +473,7 @@ Imagine 1.3.2 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171696.jpg" />
 </div>
 
 
@@ -397,7 +497,7 @@ Fitify: Фитнес тренировки дома 1.58.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171699.jpg" />
 </div>
 
 
@@ -421,7 +521,7 @@ Nitro PDF 14.16.0.13 (x64) Pro Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171701.jpg" />
 </div>
 
 
@@ -445,7 +545,7 @@ Strawberry 1.0.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171711.jpg" />
 </div>
 
 
@@ -471,7 +571,7 @@ Opera GX 102.0.4880.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171734.jpg" />
 </div>
 
 
@@ -497,7 +597,7 @@ GeoGebra 6.0.807.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171740.jpg" />
 </div>
 
 
@@ -521,7 +621,7 @@ Music Tag Editor Pro 7.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171744.jpg" />
 </div>
 
 
@@ -534,106 +634,6 @@ Music Tag Editor - редактор музыкальных тегов помож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B898F02A2F6DAEBB862255C0F6C25AF9BE98698C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670806   (171745) от 22.10.2023
-
-Sublime Text 4.0 Build 4160 Dev for Mac [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2023Разработчик: © 2006-2021 Sublime HQ Pty LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC05EBE7F8FFB078E258B5F1FEE5EDCD5A2FC62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670795   (171750) от 22.10.2023
-
-iNet Network Scanner 3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171750.jpg" />
-</div>
-
-
-###  Подробнее
-
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © BananaGlue GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9F9601362AAF726E19642B4C403165B3C34518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670794   (171762) от 22.10.2023
-
-n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для обеспечения студийного качества записи, редактирования и микширования.
-Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2023Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D96FDF6749D8BD8857D6DDBF8E9A96BBBBB677B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670796   (171778) от 22.10.2023
-
-iShowU Instant (Advanced) 1.4.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
-iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени.Тип издания: macOS SoftwareРелиз состоялся: 05.09.2023Разработчик: © 2022 shinywhitebox ltdПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DABF447BAFBBFE97AA0593D59D75F9EE636F19
 ```
 
 

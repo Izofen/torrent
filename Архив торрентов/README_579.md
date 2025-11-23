@@ -6,7 +6,7 @@ Wise Program Uninstaller 3.1.7.261 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124358.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sandboxie plus 1.12.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124367.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PhotoRoom v4.8.0 b1226 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124368.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ simplewall 3.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124378.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Google Chrome 120.0.6099.200 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124385.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ WPS Office + PDF v18.6 b1486 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124389.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ ASAP Utilities for Excel 8.4 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124401.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v14 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124408.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ KiCad 7.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124422.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ MKVToolNix 82.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124434.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v14 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124445.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Windows 11 Manager 1.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124455.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124463.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lumion Pro 2023.4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124487.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:0A2634E699505A0D6B6BDE0E9A6332943C7F8AC5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124493.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ PhotoDirector 18.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124524.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ StaxRip 2.31.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124551.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ RegCool 1.353 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124555.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ SyMenu 8.00.8766 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124564.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ PrivaZer Pro 4.0.81 RePack (& Portable) by Dodakaedr  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124567.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Telegram Desktop 4.14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124579.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Reface v4.1.1 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124581.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124591.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Photo Studio PRO v2.7.2.2191 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124664.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.000.1431 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124666.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ PrivaZer 4.0.81 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124684.jpg" />
 </div>
 
 

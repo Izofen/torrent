@@ -1,3 +1,81 @@
+###  Публикация: 1691841   (122928) от 14.01.2024
+
+VA - Real Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusty Rockers - Tell Me Why (Deep Mix) [03:14]
+02. Burning Grooves - Deserve It (Original Mix) [03:24]
+03. Incredible Motion - Goodbye (Original Mix) [02:46]
+04. Max Clarke - Stayin Forever (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EE6081D6CDCB1345354882F2BB7DF58057C37C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692001   (122929) от 14.01.2024
+
+Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Temper Trap - Sweet Disposition (ID Remix)
+02. ID - ID
+03. Agents Of Time - Inception
+04. Piero Pirupa - Change Your Mind (Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691957   (122930) от 14.01.2024
+
+Убить императора / Ye yan / The Banquet (2006) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122930.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате дворцового переворота убит императора Танг, и на престол воцаряется его жестокий брат. Молодая вдовствующая императрица принимает предложение стать женой нового правителя. Но у убитого императора есть взрослый сын, законный наследник, бывший возлюбленный своей прекрасной мачехи. Чтобы помочь юноше вернуть престол, императрица надевает маску преданной (   Читать дальше...   )Производство: Китай / Huayi Brothers, Media Asia Films Ltd.Жанр: фэнтези, драма, мелодрама, боевикРежиссер: Сяоган ФэнАктеры: Цзыи Чжан, Гэ Ю, Дэниэл Ву, Сюнь Чжоу, Цзину Ма, Сяомин Хуан, Чжоу Чжонгэ, Цзэн Цюшэн, Сюй Сиянь, Лю ЯньбиньПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4147753A723E1A2935FBA1A3F0BE1273D587753B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691846   (122931) от 14.01.2024
 
 These Days & Those Days - Eminent Pleasurment – Fucked Into Sextasy (2024) [MP3|320 Kbps] <beatdown, death metal>
@@ -6,7 +84,7 @@ These Days & Those Days - Eminent Pleasurment – Fucked Into Sextasy (2024) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122931.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Chris Rea - God's Great Banana Skin (1992) [OGG Vorbis|480 Kbps] <Blues Rock, Co
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122932.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:F36BD2B09F8E266F55EBA199D9E98A1E3B990486
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122933.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ The Tiger Lillies - Onepenny Opera (2022) [MP3|320 Kbps] <Indie Rock, Dark Cabar
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122934.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ magnet:?xt=urn:btih:36324C6671FF9912E07756C6243977C228013EE2
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122935.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Frozen Rain - One Mile From Heartsville (2023) Japanese Edition [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122936.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ Hex - From Dust To Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122937.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ Speedio: Internet Speed Test 3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122938.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ magnet:?xt=urn:btih:E6132FE9A037249289CA03BFF214B7BEB91B2D33
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122939.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ VA - Dance Vibes for Your Ears (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122940.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ magnet:?xt=urn:btih:DF81C3F431652CBE3050E74F4CDE1A4FF534AF42
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122941.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ magnet:?xt=urn:btih:BC5F7AC4F9609B5E8D90375AB5BA8F0690C0A8FA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122942.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Ableton Live Suite 11 v.11.3.20 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122943.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ magnet:?xt=urn:btih:4FEF5976596C93B0BBF5F334158E388281379B12
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122944.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ magnet:?xt=urn:btih:8D0273F056E12C5FA542C2C326B73C81C32C6D2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122945.jpg" />
 </div>
 
 
@@ -395,7 +473,7 @@ UniBook - Аудиокниги v0.8.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122946.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ magnet:?xt=urn:btih:0E02F7CC6987AE058C7BD734899E21E5F3A9A3AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122947.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ magnet:?xt=urn:btih:CDFBC6019F0D0C88B17E1C39415528B6B556E5FB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122948.jpg" />
 </div>
 
 
@@ -468,7 +546,7 @@ magnet:?xt=urn:btih:CDE42669ABCEF0B58B170E7CFE71A21D92770F63
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122949.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ magnet:?xt=urn:btih:1A38A9E47214B4A462D2503328761F025C26C023
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122950.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ Pet Shop Boys - SMASH - The Singles 1985–2020 (2023) 3CD, Remaster [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122951.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ magnet:?xt=urn:btih:651533885025B80851AC6AC1DBAA0DF7A31346DA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122952.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ magnet:?xt=urn:btih:AE918E2816C3ACD9C5166E75358EEEB4D276A1EA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122953.jpg" />
 </div>
 
 
@@ -578,79 +656,6 @@ magnet:?xt=urn:btih:AE918E2816C3ACD9C5166E75358EEEB4D276A1EA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DF5142CE4049D6C087C1FAFB2C35ED838D09E56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691889   (122954) от 14.01.2024
-
-PhotoTune - Улучшитель фото v4.4.8 Mod by Raju054 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свои старые, пиксельные, размытые или поврежденные изображения в фотографии высокой четкости одним касанием! PhotoTune использует современный искусственный интеллект, чтобы размыть, восстановить и улучшить любое изображение, которое вы хотите.Тип издания: ProРелиз состоялся: 13.01.2024Разработчик: Vyro AIПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7BE5970D18773B80EBB59713881D749A3648EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692050   (122955) от 14.01.2024
-
-Алексей Кузнецов | Храм Фемиды. Знаменитые судебные процессы прошлого (2024) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убийство, кража, изнасилование… Преступник схвачен – суд идёт. В суде – храме Фемиды, богини правосудия – стороны спорят в поисках справедливости. Но всегда ли ее находят?.. Ох, как непросто Фемиде, этой героической женщине! В ее руках разящий острый меч, но глаза-то – завязаны, а судьи, юристы и присяжные – все те же люди, не ангелы…
-Алексей Кузнецов, известный (   Читать дальше...   )Жанр: Публицистика, Криминальные хроникиИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4495378CD50B1FA95B53415622F5E4872B33BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692013   (122956) от 14.01.2024
-
-Илья Виницкий | О чем молчит соловей. Филологические новеллы о русской культуре от Петра Великого до кобылы Буденного (2022) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе книги – цикл «детективных» статей и заметок о культовых и незаслуженно забытых авторах, героях и текстах русской литературы от Александра Пушкина, Льва Толстого, Осипа Мандельштама, Даниила Хармса и Велимира Хлебникова до эстонского фантазера Ивана Народного и безымянного создателя трагической украинской народной песни; от разочарованного офицера Печорина, (   Читать дальше...   )Жанр: Филологические науки, Литературоведение и критикаИздательство: ИД Ивана ЛимбахаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F391E9A197273813ECE310B6D8630C0202C673B
 ```
 
 

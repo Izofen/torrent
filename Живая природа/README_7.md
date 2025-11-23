@@ -1,3 +1,99 @@
+###  Публикация: 1645572   (209453) от 09.07.2023
+
+Киты: Стражи планеты / Les gardiennes de la planete (2023) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209453.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета — выбросившийся на берег океана горбатый кит. За спасение громадного животного тут же берётся большая группа энтузиастов. Совместными силами они пытаются не дать млекопитающему погибнуть, а заодно как можно быстрее найти способ вернуть его обратно в океан. Французский режиссёр Жан-Альбер Льевр берёт частную историю кита в качестве рамки для рассказа (   Читать дальше...   )Производство: Франция, Bien Sûr Productions, Canal+Жанр: документальный, природа, фаунаРежиссер: Жан-Альбер ЛьеврУчастники: Жан ДюжарденПеревод: дублированный (Мосфильм-Мастер)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FFFBB6A507CB800C85D43DCA499BDBAB7A25D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644048   (209735) от 04.07.2023
+
+В мире пчел (1953) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о пчеловодстве.Производство: СССР, Свердловская киностудия научно-популярных и хроникальных фильмовЖанр: документальный, научно-популярный, пчеловодствоРежиссер: Гольдин Р. Ю.Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC64425D1FEB2D14D6CFA219309E82ABC5338317
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643581   (209977) от 02.07.2023
+
+Дикие кошки / Lynx (2021) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рысь обыкновенная исчезла во Франции еще в XIX веке. Но лет 50 тому назад их снова сюда завезли. И теперь, хотя эти животные находятся на грани исчезновения, они снова занесли в эти места дух свободы.Производство: Швейцария, Франция / JMH et Filo Films, MC4, La SalamandreЖанр: документальныйРежиссер: Лоран ГесленУчастники: Лоран ГесленПеревод: Дублированный (Pride Production)Язык озвучки: Русский, ФранцузскийСубтитры: РусскиеПродолжительность: 01:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32B6D4F9F4123EC37727BEE40A79F88CA06CD12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642917   (210209) от 29.06.2023
+
+Мир комнатных растений (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект приоткрывает зрителям тайны загадочного мира популярных домашних растений. Каждый эпизод подробно рассматривает воздействие одного из основополагающих природных факторов на жизнь растений как в их естественной среде обитания, так и в неволе. Земля, вода, воздух, свет, насекомые, люди. Какое влияние эти аспекты оказывают на цветы и травы, оказавшиеся в различных (   Читать дальше...   )Производство: Россия / Киностудия им. М. ГорькогоЖанр: документальныйРежиссер: Константин Бушманов, Никита Лойк, Константин РайхУчастники: Елена Носова, Ольга Марченко, Никита Здравчев, Владимир ВаненковПродолжительность: ~00:16:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BCF95B395AFD12F9490002B4FD93B7AD69D702
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642642   (210268) от 28.06.2023
 
 Дикая долина / Untamed Valley (2017) WEB-DL [H.265/2160p] (серии 1-3 из 3)
@@ -6,7 +102,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210268.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210268.jpg" />
 </div>
 
 
@@ -31,7 +127,7 @@ magnet:?xt=urn:btih:B9921FADD4BB33A232140CD6AB744BEA53D96A6B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210677.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210677.jpg" />
 </div>
 
 
@@ -55,7 +151,7 @@ magnet:?xt=urn:btih:735CAC2D7C9A18FD4685CEFF22D3B350194C8341
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210725.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210725.jpg" />
 </div>
 
 
@@ -79,7 +175,7 @@ magnet:?xt=urn:btih:98CD24819AE327669D22979E8098708A9EABB841
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210783.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210783.jpg" />
 </div>
 
 
@@ -103,7 +199,7 @@ magnet:?xt=urn:btih:36ACC8C9127130485A8E02E66BCD4A0ACD487BBB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210901.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210901.jpg" />
 </div>
 
 
@@ -127,7 +223,7 @@ magnet:?xt=urn:btih:27FFF4B51B9C665DA20904B65A01223D592F81D4
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211246.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211246.jpg" />
 </div>
 
 
@@ -151,7 +247,7 @@ magnet:?xt=urn:btih:331D5E7956038A7FD08ACB7ACA4DE83A3F85C7D0
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211529.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211529.jpg" />
 </div>
 
 
@@ -175,7 +271,7 @@ magnet:?xt=urn:btih:C6C9A768D416A1D0655BFE62479569D9D14D898F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211744.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211744.jpg" />
 </div>
 
 
@@ -199,7 +295,7 @@ magnet:?xt=urn:btih:37E637AA21BEF5606A487299839E3391314BD5DD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211888.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211888.jpg" />
 </div>
 
 
@@ -223,7 +319,7 @@ magnet:?xt=urn:btih:D26C35F42FF5962EF0583D3C6C11EFA27472FED7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211921.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211921.jpg" />
 </div>
 
 
@@ -247,7 +343,7 @@ magnet:?xt=urn:btih:32C6749B234CFB0F2CBB55F3304C42111FBC22EB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212040.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_212040.jpg" />
 </div>
 
 
@@ -271,7 +367,7 @@ magnet:?xt=urn:btih:876B0D5A2C8D13923BB800A90B830F5F0BCB034A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212067.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_212067.jpg" />
 </div>
 
 
@@ -295,7 +391,7 @@ magnet:?xt=urn:btih:7651F132430C5B05998AB4E0DEE73C3E2109193C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212095.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_212095.jpg" />
 </div>
 
 
@@ -319,7 +415,7 @@ magnet:?xt=urn:btih:0ED646808E3C4DF3382B0A2227B0F3A8098BC972
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212851.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212851.jpg" />
 </div>
 
 
@@ -343,7 +439,7 @@ magnet:?xt=urn:btih:8B7DBB9D83B2F79E1B7C2BEF2349AF3162DD7C89
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213582.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213582.jpg" />
 </div>
 
 
@@ -367,7 +463,7 @@ magnet:?xt=urn:btih:EEDDD6351D3A9A5E32F5041803394364498477AF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213597.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213597.jpg" />
 </div>
 
 
@@ -391,7 +487,7 @@ magnet:?xt=urn:btih:9B86FB1BC28EEE651DAB34259C39AD3B44389057
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213647.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213647.jpg" />
 </div>
 
 
@@ -415,7 +511,7 @@ magnet:?xt=urn:btih:DB1189D330326F0F67F4625DFFAB0AE6EA39E2A1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213731.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213731.jpg" />
 </div>
 
 
@@ -439,7 +535,7 @@ magnet:?xt=urn:btih:6BCA360C1F524642EE1A9486D8375294B697235E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213925.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213925.jpg" />
 </div>
 
 
@@ -463,7 +559,7 @@ magnet:?xt=urn:btih:7A10C553621D4FE7AA790F3FED4175C0BE5A0A7D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217173.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217173.jpg" />
 </div>
 
 
@@ -487,7 +583,7 @@ magnet:?xt=urn:btih:7D6E0F3E9CD67303600E1A105F7F09376C213C02
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219540.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219540.jpg" />
 </div>
 
 
@@ -511,7 +607,7 @@ magnet:?xt=urn:btih:2B09AF35AD24C90315DC0943F42AB21CCAF85A51
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220680.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220680.jpg" />
 </div>
 
 
@@ -522,102 +618,6 @@ magnet:?xt=urn:btih:2B09AF35AD24C90315DC0943F42AB21CCAF85A51
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD7E4D5C6D97F119F1D75ECAD8DAC695E1FA9B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639325   (220891) от 07.08.2023
-
-Вирусы: Разрушение и созидание / Viruses: Destruction and Creation (2016) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое вирусы? Как они влияют на человека и как распространяются? Врачи, вирусологи и ученые изучают вирус Зика, который распространяется по миру уже в масштабах пандемии. Что может сделать современная медицина, чтобы остановить эпидемию?Производство: США, CuriosityStreamЖанр: документальный, научно-популярныйПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535CC94BAF70811817E2C7E21377951F520C2FA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 89454   (221838) от 13.12.2018
-
-Птицы / Le Peuple Migrateur / Winged Migration (2001) [DVD9+DVD5]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из года в год на протяжении тысячелетий перелетные птицы каждый сезон мигрируют с места на место. Во время перелета их поджидает множество опасностей в виде разбушевавшейся стихии, хищников, человеческого фактора. Но они все равно достигнут своей цели!Жанр: ДокументальныйПеревод: Одноголосый закадровыйПродолжительность: Фильм 01:34:24 + Бонус 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E7F9F8F7565694D210E6DFF74FF5B159355B02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513737   (222520) от 30.11.2021
-
-Долина воды и огня / Valley of Flood and Fire (2017-2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сезонные изменения в долине Луангва чрезвычайно интенсивны. Проливные дожди превращают реку Луангва из мелкого русла в величественный водный путь, где трава становится высокой, а ручьи наполняются обильным набором существ, обеспечивая обильную пищу для многих пасущихся ртов. Это заболоченный рай. Но это недолго. Последует беспощадная и разрушительная засуха, которая (   Читать дальше...   )Производство: Канада / Blue Ant Media Solutions INC., Plimsoll ProductionsЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Ханна ХоаПеревод: Одноголосый профессиональныйПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB170AE32832B0630AA6FD24F89677B4E9130A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513703   (222530) от 30.11.2021
-
-Потрясающие истории слонов / The Great Elephant Tale (2020) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три истории - слоненок путешествует по дельте Окаванго, самец отправляется на поиски пары, а опытная слониха ведет семью через пустыню.Производство: США / MER International, Blue Ant Media Solutions Inc.Жанр: Документальный, Природа, Фауна, ФлораРежиссер: Чарли ЛакокПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A2F58C286038E495723AE7DA2248C45CB7CF24
 ```
 
 

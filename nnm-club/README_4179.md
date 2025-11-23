@@ -1,3 +1,78 @@
+###  Публикация: 1681499   (128341) от 12.12.2023
+
+Журнал | Хакер №10 (295) (октябрь 2023) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128341.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хакер» - журнал рассказывающий о компьютерах, программном обеспечении, железе, технологиях, играх и, конечно же, о хакерах. Но на этом все не ограничивается. В журнале публикуются материалы о стиле жизни, о каких-то абсолютно жизненных вещах, о здоровье, о том, как провести свободное время. Издание отличается от других, наверное, в первую очередь манерой подачи (   Читать дальше...   )Жанр: Компьютерный журналИздательство: ООО «Эрсиа»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19B54194517F0C03A926DF815158C4BFA27EF25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683711   (128342) от 12.12.2023
+
+быдло.jazz | Защищенный и анонимный Андроид телефон (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128342.jpg" />
+</div>
+
+
+###  Подробнее
+
+- работа с кастомными прошивками (выбор прошивки под свои задачи).
+- получение systemless-Root изменение загрузочного образа без внесения изменений в раздел
+/system, нюансы работы с альтернативными сборками Magisk с расширенным функционалом для более эффективного скрытия Root в системе
+- разбираем KernelSU в качестве альтернативы Magisk, сравниваем плюсы и минусы (   Читать дальше...   )Производство: быдло.jazzЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 00:04:21Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA585123DA8F221FADA49B61A9413A80D90A8F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683831   (128343) от 12.12.2023
+
+Отпуск в октябре (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая актриса Света окончила театральную академию, живет в Санкт-Петербурге и мечтает сниматься не в проходных сериалах, а в серьезных фильмах и играть серьезные роли. Ей везет, она попадает в болливудский проект, в котором собраны звезды кино, лучшие диджеи и хореографы страны. Но все оказывается не очень просто. Никто не знает сценария, актеры месяцами живут (   Читать дальше...   )Производство: Россия / Фрут ТаймЖанр: ДрамаРежиссер: Роман МихайловАктеры: Мария Мацель, Геннадий Блинов, Анна Завтур, Евгений Ткачук, Юлия Марченко, Кирилл Полухин, Фёдор Лавров, Виталий Коваленко, Варвара Павлова, Екатерина СтарателеваПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C64C559A21CCB627168837FAF80FBF3796A3678
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588329   (128344) от 12.12.2023
 
 World of Horror (2020) [Multi] (1.01) License GOG
@@ -6,7 +81,7 @@ World of Horror (2020) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128344.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:F5003880A403000BEB4C0E8714FC6737879F0D35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128345.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:E4C420EE6FC756B1138D8409E2A2DE1B0040E791
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128346.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Melon VPN - Secure Proxy VPN 8.1.234 Mod By AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128347.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Pimpinela - Especial de Navidad (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128348.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Dreamwalkers Inc - The First Tragedy Of Klahera (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128349.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ Truculency - The Dome Collector (2022) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128350.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ magnet:?xt=urn:btih:0D044254BC7B1B9E523E7F8398EA81AD43A1D88B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128351.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ magnet:?xt=urn:btih:CC4ABFAFDE6CC7A2A7071C261CE3D9C325C70A24
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128352.jpg" />
 </div>
 
 
@@ -236,7 +311,7 @@ magnet:?xt=urn:btih:EBDE9959A6C483CBDC259A949E982B52C4675055
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128353.jpg" />
 </div>
 
 
@@ -260,7 +335,7 @@ Jessica Williams - This Side Up (2002) MaxJazz [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128354.jpg" />
 </div>
 
 
@@ -287,7 +362,7 @@ Razörschrieck - Black Magick (2023) [FLAC|Lossless|image + .cue] <Depressive Bl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128355.jpg" />
 </div>
 
 
@@ -314,7 +389,7 @@ magnet:?xt=urn:btih:A914DEBAADBD2F56231CB8707B59DEEB94783D06
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128356.jpg" />
 </div>
 
 
@@ -339,7 +414,7 @@ Kalmankantaja - Tekopyhyytta Pyhassa Temppelissa (2011) Reissued 2021 [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128357.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ Treachery - The Key To The Abyss (2022) [FLAC|Lossless|image + .cue] <Death Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128358.jpg" />
 </div>
 
 
@@ -393,7 +468,7 @@ Alchemy Of Flesh - By Will Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128359.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ Cryptic Conversion - Eldritch Echoes (2023) [FLAC|Lossless|image + .cue] <Brutal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128360.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ magnet:?xt=urn:btih:9CF63C45D3D0AECA04FA6F54B121AD33D2020203
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128361.jpg" />
 </div>
 
 
@@ -473,7 +548,7 @@ Morbus V - Aura (2022) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, At
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128362.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ magnet:?xt=urn:btih:A86B31037480826F4E10E632E6722B94583E3033
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128363.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ Helreidh - Fingerprints Of The Gods (2001) Reissued 2002 [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128364.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ magnet:?xt=urn:btih:A5578F90FC492E67C16D84A1C3C2A450F8376634
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128365.jpg" />
 </div>
 
 
@@ -575,7 +650,7 @@ magnet:?xt=urn:btih:72B77B7DFADF42E786884E1F2C8DD3C2EACA536D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128366.jpg" />
 </div>
 
 
@@ -587,81 +662,6 @@ magnet:?xt=urn:btih:72B77B7DFADF42E786884E1F2C8DD3C2EACA536D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98BE33070354A4D86C11C6056C7A08D021DD12F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683495   (128367) от 11.12.2023
-
-Skype 8.110.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3599B927C6AF97B4E7106171F0351E0AADBCFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683409   (128368) от 11.12.2023
-
-Inthuul - Songs From A Dead Winter (2023) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Alust 0:53
-02 Tha Inthuul 4:05
-03 Chath Dro 4:18
-04 Narkuth Ul-ilindith 4:51(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFD8AE12EEB84A8B4925160FFD2CAE3B4DE06D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671019   (128369) от 11.12.2023
-
-Франсуа Шале: искатель приключений нынешней эпохи / Francois Chalais, l'aventurier des temps modernes (2019) DVB [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа Шале (1919-1996) - французский журналист, репортер, писатель и историк кино. Шале был постоянным сотрудником на французском телевидении во время Каннского кинофестиваля, брал интервью у знаменитостей и звезд кино, часто со своей первой женой и коллегой Франс Рош. Он написал 20 книг, в том числе 17 романов и 3 книги воспоминаний. Он также автор нескольких (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, история, биографияРежиссер: Николя ЭнриПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), английские, французские, немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C690F667334C60E32525C8D74B9727B1BE4DA24A
 ```
 
 

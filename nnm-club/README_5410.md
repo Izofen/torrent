@@ -1,3 +1,183 @@
+###  Публикация: 1431806   (166171) от 15.12.2020
+
+Which One's Pink? - Pink Floyd Tribute Just the basic facts (2010) [MP3|320 Kbps] <Rock, Electro>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comfortably Numb
+02. Run Like Hell
+03. Embryo
+04. One of These Days(   Читать дальше...   )Жанр: Rock, ElectroПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48660C7863F8782A3C2D5A3C9C09F07A99AF628B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516522   (166172) от 11.12.2021
+
+Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|tracks + .cue] <Southern Metal,  Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set You Free
+02. Destroy & Conquer
+03. You Made Me Want To Live
+04. Forever and A Day(   Читать дальше...   )Жанр: Southern Metal,  Heavy Metal, Hard RockПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9B92BBA8F6338817CFB47C2207D0EBA400EE8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673055   (166173) от 31.10.2023
+
+Андрей Константинов | Свой-чужой (Книга 3). Реализация (2023) [MP3, Алексей Данков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый роман Андрея Константинова!
+
+Сотрудника уголовного розыска Валерия Штукина внедряют в структуру бывшего криминального авторитета, а ныне крупного бизнесмена Юнгерова. Тот, в свою очередь, направляет на работу в милицию Егора Якушева, парня, которого воспитал, как сына. С этого момента судьбы двух молодых людей начинают стягиваться в тугой узел, развязать который (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига (АСТ)Продолжительность: 07:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BF966DD29D033C3BF122C7F56D3B2E73DD7639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345573   (166174) от 15.12.2019
+
+NG. Потерянный мир Майя / Lost World of the Maya (2019) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166174.jpg" />
+</div>
+
+
+###  Подробнее
+
+В северной Гватемале расположен древний город, в настоящее время весь заросший безжалостными джунглями. Местные жители обнаружили здесь странные холмы, расположенные в виде круга. Археологи предположили, что это был религиозный и культовый центр цивилизации майя. Некоторые из этих руин сегодня уже возрождаются с помощью спутников и технологии лазерного сканирования (   Читать дальше...   )Производство: США, National Geographic, France TelevisionsЖанр: Документальный, познавательный, история, путешествияРежиссер: Джереми ЗипплПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6225AF7FD59F7C14723B1A1153CBD33B839E3EC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673244   (166175) от 31.10.2023
+
+Mirillis Action! 4.38.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
+Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E43F2B03351C7FC63449E163122169F78FF3DAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431588   (166176) от 15.12.2020
+
+Tokyo Motor Fist - Lions (2020) Japanese Еdition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Youngblood (3:29)
+02. Monster In Me (4:33)
+03. Around Midnight (2:48)
+04. Mean It (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3D6FCFF317BFA418338E5C2A19E06A12DB1824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516413   (166177) от 11.12.2021
+
+Живая еда с Сергеем Малозёмовым (11.12.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тиляпия: справедливо ли эту рыбу считают сорной и даже опасной для здоровья? Можно ли на вкус отличить ее от других видов белой рыбы? И что показала лабораторная проверка на предмет наличия в ней вредных веществ? Правда ли дорогие хрустящие вафли вкуснее дешевых? Почему цены на такую простую выпечку могут отличаться в десятки раз? Как определить срок годности домашних (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BD108A8260F00C957F6D2CEFA980082028A968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597357   (166178) от 14.12.2022
 
 Белый лотос / The White Lotus (2022) WEB-DL [H.264/1080p] (сезон 2, серии 1-7 из 7) AlexFilm
@@ -6,7 +186,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166178.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:158955012FE20F1838361357161D0134DE845DB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166179.jpg" />
 </div>
 
 
@@ -54,7 +234,7 @@ VA - Timeless Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166180.jpg" />
 </div>
 
 
@@ -81,7 +261,7 @@ Loopback 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166181.jpg" />
 </div>
 
 
@@ -108,7 +288,7 @@ magnet:?xt=urn:btih:5C494DD1AF8C1093896DFFFA27288D46B864A566
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166182.jpg" />
 </div>
 
 
@@ -132,7 +312,7 @@ Stepik | WEB Парсинг на Python (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166183.jpg" />
 </div>
 
 
@@ -158,7 +338,7 @@ magnet:?xt=urn:btih:76FA3FCAF5BD4E5D3F4EEDB965165336676B46C1
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166184.jpg" />
 </div>
 
 
@@ -182,7 +362,7 @@ iWatermark Pro – Mac Batch Watermarking App 2.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166185.jpg" />
 </div>
 
 
@@ -207,7 +387,7 @@ magnet:?xt=urn:btih:A095C253BA2CD1D14C7DDB519360EF4B85AD5946
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166186.jpg" />
 </div>
 
 
@@ -233,7 +413,7 @@ magnet:?xt=urn:btih:1BB3F072F0CDAEEBC690A8EF9355F81E2157D10C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166187.jpg" />
 </div>
 
 
@@ -257,7 +437,7 @@ magnet:?xt=urn:btih:B660E4B6C1B534A4589D8B5974D5249868AB432B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166188.jpg" />
 </div>
 
 
@@ -281,7 +461,7 @@ magnet:?xt=urn:btih:F7E6AE0CB3C51F62831AE8F6178C5C053B6B2CB9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166189.jpg" />
 </div>
 
 
@@ -305,7 +485,7 @@ Acoustica Premium Edition 7.5.1 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166190.jpg" />
 </div>
 
 
@@ -329,7 +509,7 @@ Carl Sentance - Electric Eye (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166192.jpg" />
 </div>
 
 
@@ -356,7 +536,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166193.jpg" />
 </div>
 
 
@@ -382,7 +562,7 @@ magnet:?xt=urn:btih:1585E665A9E1EE2747EACD1C02336B5F03ED7785
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166194.jpg" />
 </div>
 
 
@@ -406,7 +586,7 @@ magnet:?xt=urn:btih:46C7EC3C4009724698CC2F88722CEC770B4AD5D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166195.jpg" />
 </div>
 
 
@@ -432,7 +612,7 @@ Blue Contagion - Blue Contagion (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166196.jpg" />
 </div>
 
 
@@ -459,7 +639,7 @@ magnet:?xt=urn:btih:639A024930CA8B4B1502A7ED01E0EEEEB8E4F58A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166197.jpg" />
 </div>
 
 
@@ -470,184 +650,6 @@ magnet:?xt=urn:btih:639A024930CA8B4B1502A7ED01E0EEEEB8E4F58A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B779838377638D2F56BEEB740A24B0D2223DD014
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673280   (166198) от 31.10.2023
-
-Neil Young - Chrome Dreams (2023) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pocahontas
-02. Will to Love
-03. Star of Bethlehem
-04. Like a Hurricane(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AEA2E3EBCA945E620D09E41DE3F21507A15D9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345459   (166199) от 15.12.2019
-
-Яна Франк | Будет сила, будет и воля. Как получить доступ к собственным ресурсам (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы четко знаете, чего хотите, но для решающего рывка не хватает здоровья, энергии или мотивации? Тогда эта книга – для вас! Она о том, как стать здоровее, энергичнее и сильнее. Но не при помощи физических упражнений и правильного питания, хотя эти вопросы тоже рассматриваются. Вы научитесь находить контакт с телом и чувствами.
-Автор уверена: только заручившись поддержкой (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ACCC3DDB93AD744459BC33DC337AB72C91FA87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673133   (166200) от 31.10.2023
-
-Наталья Литтера | Суббота Воскресенского (2023) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Полина получила новое задание от руководства, она не предполагала, что вскоре ей предстоит поездка в заброшенную усадьбу и знакомство с историей старинного дворянского рода.
-Когда Ариадна случайно встретила бывшего одноклассника, она не догадывалась, насколько эта встреча изменит ее жизнь.
-Когда Дан согласился на пятничную подработку в ресторане, он и представить (   Читать дальше...   )Жанр: Легкая проза, Современная русская литератураИздательство: У Никитских воротФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5113BB6C1ADC38A57EC55C4FE1D14C9E7C5CA8E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516566   (166201) от 11.12.2021
-
-Мэри Пикфорд. Ближний круг / The Inner Circle (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий вдовец, живущий в итальянском квартале , единственное утешение которого после смерти жены - его маленький ребенок, неохотно, но все-таки становится членом тайного общества, существующего среди его соотечественников. Активные члены этого общества с завистью наблюдают за успехами другого итальянца и хотят, чтобы он делился доходами с их бригадой. Но богатенький (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Адольф Лестина, Джек Пикфорд, J. Jiquel Lanoe, Мэри Пикфорд, Чарльз Хилл Майлз, Джозеф МакДермотт, Альфред Пегит, Кристи Кэбэнн, Дональд Крисп, Глэдис ИганПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955B1C1C252B27797D87B01D4A2D5DA9BB49CE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431752   (166202) от 15.12.2020
-
-Pat O'Bryan and Friends - Boomer's Last Stand (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat O'Bryan and Friends, Elizabeth Lee -- Tell Me the Truth (feat. Elizabeth Lee) (4:26)
-02. Life During Plague Time (3:46)
-03. Chicago (4:50)
-04. Pat O'Bryan and Friends, Carolyn Wonderland-- She Looks Just Like You (feat. Carolyn Wonderland) (3:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984674445E9F0374C7C4DB93B98A9B3FA09BBD76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597466   (166203) от 14.12.2022
-
-Liveclasses, Никита Чесноков | Blender: расширенные возможности (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот класс – продолжение знакомства с популярной программой для создания 3D графики, которая располагает возможностями для моделирования, скульптинга, анимации, симуляции, рендеринга, постобработки и монтажа видео со звуком, а также компоновки с помощью «узлов» и создания 2D-анимаций. Предыдущий класс уже познакомил вас с интерфейсом, рабочим пространством, а также (   Читать дальше...   )Производство: LiveclassesЖанр: Создание видео, 3DЯзык озвучки: РусскийПродолжительность: 02:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB66D4A04647BC1DA209AECACC41AEAECF925AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345454   (166204) от 15.12.2019
-
-В.А. Иванова, З.А. Потихина и др. | Занимательно о русском языке (1990) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная задача пособия - вооружить учителя русского языка национальных школ таким занимательным материалом по предмету, который помог бы пробудить у учащихся живой интерес к изучению русского языка.
-Пособие заинтересует также широкий круг читателей, желающих совершенствоваться в изучении русского языка.Жанр: образование и обучение детей, русский язык, методическое пособиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76998896239C6144BF2661506C98984B34DB4DF2
 ```
 
 

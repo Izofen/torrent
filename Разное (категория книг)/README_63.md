@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111813.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:96605F32607D96C8D07E1D9060B8EDC70BEB81C7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111833.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:57F50AC39ABFABF1C363814CC8FBE10F21EF50E6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112012.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:067AF820955EB0ED1F88C5BF6B5A79A27DD4CC01
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112061.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E01A4277D4C524299270B8AD97006ECF5F4F1C39
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112263.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E03F9B6C5DCF1A8FA130343FAAF193315CB631A0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112326.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:828AA7E3F9B38E5E8CBC6769B3D1BC1FAA4BCE52
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112327.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:722E419C8677AE1EEBE6A3EC6B7332C4F5EE3315
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112555.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:6F04A27DAE39E010608C9C66DBEDD9AAB68FE6C3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112578.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:10EF7B920F7463FFFC4AAC1B3F85327021B7B5B1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112583.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:75F4B701283E385C22C65981ADB9B4A49456E52F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112586.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:BEC494B5E15912E576270744CB0DBB3E4CB21A31
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112629.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4A11D00EDC95A79F5EFF095C46F53E4A9329ABDF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112661.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:1CB2C7AE4CAF621C346A2BBCB34589173C49A58B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112663.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:182D24093D0F99299307A01C77E4FE273B62B6CE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112876.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2851894654A42BA4D11D42F6F4368337CCDB8976
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113264.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:70C1E3CDBB89BD21E4D7FFC6B3A6123F50E8B819
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113266.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:A1E04879E89CD645AC27FAC808D416D00EA0305E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113319.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:3271AD8C61FA7C17D3B3848F4E454CF445D33882
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113336.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6298153021D7B7383F59FD25FFBAE0B8B8DB5922
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113386.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A1BAA5F450421822AB97FC47123930D5F2AB8207
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113403.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C2F33DF9107661F9A1DAA00BAAEE2B45D2BD7637
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113414.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:A753DE8994A79E5E9C9B7AAF35D846124057F9C2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113424.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:A18844298886D5238160099F03BB67363BB484D8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113841.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:C75DCFD2AAA7FE00475C5B4477B01E12DA6AF587
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113843.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:E7CE26CF70786DAB0368E77DEC197E92ECB416DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113853.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Driver Easy Pro 7.0.2.1910 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11268.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 7 SP1 7601.27820 x64 3in1 by OneSmiLe [17.07.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11272.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Rosetta Stone: Изучение языков 8.33.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11316.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Krita 5.2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11317.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ MediaHuman YouTube Downloader 3.9.14 (1407) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11352.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Google Chrome 138.0.7204.158 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11353.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11354.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Adobe Photoshop 2025 26.8.1.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11366.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ CoolUtils Total Movie Converter 4.1.0.67 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11382.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Smart AudioBook Player Pro v11.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11384.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Photo Editor v11.7 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11395.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:EE8169E51050806FC2E319D6A341D0DCC182664E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11400.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ashampoo Music Studio 12.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11401.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Fast Video Cutter Joiner 6.8.5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11402.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Ventusky: Прогноз погоды v46.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11405.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.19.7 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11406.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Telegram Desktop 5.16.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11418.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:38EE424D35A00DC195A32389B143E8529023FE5E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11421.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:38EE424D35A00DC195A32389B143E8529023FE5E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11425.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Cent Browser 5.2.1168.57 Beta Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11432.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VirtualBox 7.1.12 Build 169651 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11434.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ OBS Studio 31.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11435.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (15.07.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11437.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Driver Easy Pro 7.0.1.19430 RePack (& Portable) by elchupacabra (14.07.2025) [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11442.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:772275DFAEFD877136DB13B338C24C9FDFABE3E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11444.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:62F06B83DCF3E6DB71C1491433CB05599253562E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11445.jpg" />
 </div>
 
 

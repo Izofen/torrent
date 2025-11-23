@@ -6,7 +6,7 @@ VA - XXXL Super дискотечный 50/50 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99549.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99603.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Студенческая Вечеринка Русский (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100227.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100481.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Romantic Dreams - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100727.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101071.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Самые горячие новинки этого года (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101992.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Лучшие Хиты Радио Европа Плюс Часть 8 (2012) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102074.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Восточная Сказка (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102414.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Warm Melodies And Rhythms (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106048.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - New Music Releases Week 29 (2024) [MP3|320 Kbps] <Pop, Dance, Rock, Hip-Hop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106059.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - National Pop Dance Music Vol.79 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106065.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107723.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Kovacs - Compilation (2024) [MP3|320 Kbps] <Pop, R&B>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110276.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 07 (2022) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110434.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 05 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110437.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 06 (2022) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110442.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110659.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110677.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110683.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Bohemian Soul (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112058.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Ласковый Май в инструментальных версиях 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114903.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Paloma Faith - Compilation (2024) [MP3|320 Kbps] <Pop, Soul,>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116907.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Winter Ukrainian Calm Songs (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117303.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ magnet:?xt=urn:btih:FFF1821BA420A6B637BF7DACFFD1946DCB1DF34F
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117492.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118634.jpg" />
 </div>
 
 

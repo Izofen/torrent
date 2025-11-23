@@ -1,3 +1,75 @@
+###  Публикация: 482962   (88326) от 14.04.2012
+
+В постели с врагом / Sleeping with the enemy (1991) [1080p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благополучная с виду молодая супружеская пара с первых дней совместной жизни пребывает в атмосфере страха и напряжения… Красавица Лора Берни, доведенная до отчаяния ревностью и агрессивностью обожающего ее мужа Мартина и не знающая, как выпутаться из сетей брака, который стал для нее пыткой и тюрьмой, задумывает рискованную интригу. Она решает сымитировать собственную гибель. И ей действительно удается начать новую жизнь под другим именем, встретить хорошего человека. Но бывший муж узнает правду и начинает преследование...Жанр: Триллер, ДрамаРежиссер: Джозеф РубенАктеры: Джулия Робертс, Патрик Берджин, Кевин Андерсон, Тони Абатемарко, Клодетт Невинс, Элизабет Лоуренс, Марита Герахти, Нэнси Фиш, Кайл Секор, Харли ВентонПеревод: ДублированныйЯзык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:37:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482779   (88330) от 14.04.2012
+
+Я дьявол / Leslie, My Name Is Evil (2009) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перри, молодой инженер — химик, влюбляется в девушку Лесли, истинную «принцессу», красавицу. Неожиданно, он становится участником суда над девушкой, обвиненной в жестоких убийствах и в ее причастности к Культу Смерти, проводимому хиппи.Жанр: Фэнтези, Комедия, КриминалРежиссер: Реджинальд Харкема / Reginald HarkemaАктеры: Кристен Хагер, Грегори Смит, Райан Роббинс, Кристин Эдамс, Питер Келеган, Каньехтио Хорн, Анжелика Сканнура, Трэвис Милн, Сара Гэйдон, Том БарнеттПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 01:21:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482986   (88336) от 14.04.2012
+
+Юрий Глен, Дмитрией Барсуков | Правда о гипнозе, или Тайны искусственного сна [2004] [DJVU]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Глен - гипнотизер, гипнолог и экстрасенс международной категории. Вместе со своим соавтором Дмитрием Барсуковым он в доступной форме объясняет природу различных направлений гипноза, а также подробно описывает существующие методы психотропного воздействия на подсознание человека. Авторы надеются, что эта информация будет полезна как для новичков в области гипноза, так и для людей, которые, используя методы самогипноза, стремятся сами управлять своей судьбой и своим здоровьем.2004Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022724A4176DAB9C1ECC6615EE65A9A870696A15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482929   (88337) от 14.04.2012
 
 Илья Мощанский | 1941-й. Вторжение. 1941.| Битва за Киев. [ 2008-2010] [PDF]
@@ -6,7 +78,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88337.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ VA - Топ 100-ка блатных песен (2012) [MP3|256 кб/с]<Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88342.jpg" />
 </div>
 
 
@@ -64,7 +136,7 @@ magnet:?xt=urn:btih:3E0AC2DBE9C0156A06261EB8B6C32AE9CB476921
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88344.jpg" />
 </div>
 
 
@@ -88,7 +160,7 @@ magnet:?xt=urn:btih:C06A08040E63CDBAF188E76B1935AAEE3935C01E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88345.jpg" />
 </div>
 
 
@@ -112,7 +184,7 @@ Mamono Hunter Youko / Devil Hunter Yohko / Ёко - охотница на дем
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88347.jpg" />
 </div>
 
 
@@ -136,7 +208,7 @@ Alabama Shakes - Boys & Girls (2012) [FLAC|Lossless]<Southern Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88353.jpg" />
 </div>
 
 
@@ -169,7 +241,7 @@ Alabama Shakes - Boys & Girls (2012) [FLAC|Lossless]<Southern Rock, Blues Rock>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88354.jpg" />
 </div>
 
 
@@ -193,7 +265,7 @@ magnet:?xt=urn:btih:A288FF7CC5A90BCE32A8884494EB00C653A01009
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88355.jpg" />
 </div>
 
 
@@ -219,7 +291,7 @@ magnet:?xt=urn:btih:091381F6B67D3944048E8D5BA1FAE2B804ABC25E
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88359.jpg" />
 </div>
 
 
@@ -243,7 +315,7 @@ magnet:?xt=urn:btih:1B0576796E41EAB4CD5C0695A71B43AEEE51B0C6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88361.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:BAFF8BF914A5109CC09473830DA7B779FDD76C7A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88363.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:181CF094D0869297BAB4D2AFD6ECFF1E188C1E8B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88364.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ LюK - 5 Альбомов (2003-2009) Дискография [FLAC|Lossless]<Roc
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88365.jpg" />
 </div>
 
 
@@ -355,7 +427,7 @@ magnet:?xt=urn:btih:C061E7B0EA13A5AD8368A5700A6ACA1071126369
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88367.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ magnet:?xt=urn:btih:E4E9129C10ED941A20F2F52492452F1BAB4BB849
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88368.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ magnet:?xt=urn:btih:7E2FA89197B9493518CEF2E5F02189EABB38664E
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88369.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:67CA8A0A6BBEF534D2DB0231850B7F964B28FA6F
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88370.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ magnet:?xt=urn:btih:D5942CDB611B794752341EC29A47D7DA4474EAA3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88374.jpg" />
 </div>
 
 
@@ -485,7 +557,7 @@ uTorrent 3.1.3 Stable (build 27060) [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88375.jpg" />
 </div>
 
 
@@ -509,7 +581,7 @@ uTorrent 3.1.3 Stable (build 27060) [Мульти, Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88376.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ magnet:?xt=urn:btih:0AA93F4A585C735C1FE113A92460EB50DE9BBF94
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88378.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ UltraEdit 18.00.0.1034 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88382.jpg" />
 </div>
 
 
@@ -586,7 +658,7 @@ UltraEdit - мощный текстовый редактор для написа
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88384.jpg" />
 </div>
 
 
@@ -594,90 +666,6 @@ UltraEdit - мощный текстовый редактор для написа
 
 Том, ведущий местной радиостанции, играя на пляже в американский футбол, неожиданно поражает мячом случайную жертву, которой оказывается Сара. После ее падения на пляжный песок между героями происходит продолжительный обмен извинениями, а уже через несколько недель Том и Сара жизни друг без друга представить не могут, о чем и рассказывают своим родителям.
 В то время (   Читать дальше...   )Жанр: Мелодрама, КомедияРежиссер: Шон Леви / Shawn LevyАктеры: Эштон Катчер Бриттани Мерфи Кристиан Кэйн Дэвид Москоу Монит Мазур Дэвид Раш Тэд Лакинбилл Дэвид Агранов Таран Киллэм Рэймонд Дж. БэрриПеревод: ДублированныйПродолжительность: 01:34:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483053   (88388) от 14.04.2012
-
-VA - Новинки Эфира Love Radio 11 (2012) [MP3|256-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88388.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 5sta Family - Вместе Мы
-002 Emin - Heart Keeps A Beating
-003 Время и Стекло - Гармошка
-004 Michel Telo - Ai Se Eu Te Pego
-005 Наташа Королёва - Небеса
-006 Pitbull feat. Chris Brown - International Love
-007 Макс Барских - Dance
-008 DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California
-009 ВИА Гра - Диско
-010 Madonna feat. Nicki Minaj & M.I.A - Give Me All Your Luvin' (Radio Edit)(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB51D55FD71741F1D1EAFB5AAEA12DFD33DDAC6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482910   (88392) от 14.04.2012
-
-Григорий Лепс - Научись летать Live (2011) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88392.jpg" />
-</div>
-
-
-###  Подробнее
-
-23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
-02. Клуб одиноких сердец подполковника Пеппера
-03. Зима
-04. Настоящая женщина(   Читать дальше...   )Жанр: Концерт, шансонПродолжительность: 01:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E750707147C7A6FCDADEE6CFC38FE0CC79F9A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482318   (88393) от 14.04.2012
-
-Неприкасаемые / Les Lyonnais (2011) [1080p] Blu-Ray
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детство Эдмонда Видаля прошло в нищете в цыганском таборе. Но он знает, что такое истинные семейные ценности и преданная дружба. Он всегда держит своё слово, даже если даёт его своему врагу. Он верный муж и настоящий друг, готовый всегда помочь в беде. И он не любит проливать кровь зря. Именно он стоял у истоков создания самой известной группировки, которая лихо грабила банки во Франции в начале 70-х...Жанр: Драма, КриминалРежиссер: Оливье  МаршальАктеры: Жерар Ланвен, Чеки Карио, Даниэль Дюваль, Дмитрий Стороге, Патрик Каталифо, Франсуа Леванталь, Франсис Рено, Лайонел Астье, Валерия Кавалли, Эстелл СкорникПеревод: ДублированныйПродолжительность: 01:42:06
 
 ## Скачать торент
 ```bash

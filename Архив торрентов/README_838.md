@@ -1,3 +1,79 @@
+###  Публикация: 1431478   (167993) от 13.12.2020
+
+RAW Power 3.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2020Разработчик: Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECC6E81B3BCC2CDAC209F83484F33212ADE7121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656977   (167994) от 13.12.2019
+
+IP Neva - Symbiosis Of Contradictions (2008) Impulsive Art [FLAC|Lossless|tracks+.cue]<IDM, Glitch, Experimental, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Correction (05:19)
+ 02. U-boat Performance (05:54)
+ 03. The Process (05:46)
+ 04. Constellation Of War (05:46)(   Читать дальше...   )Жанр: IDM, Glitch, Experimental, AmbientПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485F5BEC0531388D63149C806A3706848D096DE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516094   (167995) от 09.12.2021
+
+Graphic Inspector 2 v2.5.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graphic Inspector предоставляет исчерпывающую информацию обо всех папках c изображениями и векторными графическими файлами и помогает находить потенциальные проблемы в соответствии с пользовательскими правилами. Graphic Inspector - это профессиональный инструмент проверки, предназначенный для помощи пользователям любой профессии, будь то печать, веб-дизайн, фотография (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 Zevrix SolutionsПоддерживаемая ОС: macOS 10.10 - 12.0Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D8D696B91BBEFF8DF4C2A130BA4959642E65B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596892   (167996) от 12.12.2022
 
 XtraTools Professional 23.0.1 Portable by FC Portables [Multi/Ru]
@@ -6,7 +82,7 @@ XtraTools Professional 23.0.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167996.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ PullTube 1.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167997.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ Librarian Pro 6 v6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167999.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ magnet:?xt=urn:btih:CC9C1A3E3EC5631215A1462F13F229E54A6ED119
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168003.jpg" />
 </div>
 
 
@@ -102,7 +178,7 @@ PerfectTUNES for Mac 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168005.jpg" />
 </div>
 
 
@@ -126,7 +202,7 @@ Hydra 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168006.jpg" />
 </div>
 
 
@@ -152,7 +228,7 @@ SimpleMind Pro 1.25.0 Full Edition [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168007.jpg" />
 </div>
 
 
@@ -178,7 +254,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168009.jpg" />
 </div>
 
 
@@ -202,7 +278,7 @@ KEVU - Live @ Rave Culture Liveset, Dr. Magalhães Pessoa Stadium, Portugal (202
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168011.jpg" />
 </div>
 
 
@@ -229,7 +305,7 @@ FastScripts 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168014.jpg" />
 </div>
 
 
@@ -254,7 +330,7 @@ magnet:?xt=urn:btih:4B6E7756289F9B22BFC4BAB918F35F57C0576E16
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168016.jpg" />
 </div>
 
 
@@ -278,7 +354,7 @@ Invisible 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168019.jpg" />
 </div>
 
 
@@ -304,7 +380,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.5.3 Stable RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168021.jpg" />
 </div>
 
 
@@ -328,7 +404,7 @@ ImageRanger Pro Edition 1.7.8.1679 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168022.jpg" />
 </div>
 
 
@@ -352,7 +428,7 @@ Alarm Clock Pro 13 v13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168025.jpg" />
 </div>
 
 
@@ -378,7 +454,7 @@ Cisdem ContactsMate 5 v5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168028.jpg" />
 </div>
 
 
@@ -402,7 +478,7 @@ Mujuice - Regress (2019) [MP3|320 Kbps] <Electronic, IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168029.jpg" />
 </div>
 
 
@@ -429,7 +505,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.24 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168030.jpg" />
 </div>
 
 
@@ -453,7 +529,7 @@ Calibre 4.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168033.jpg" />
 </div>
 
 
@@ -477,7 +553,7 @@ Data Guardian 6 v.6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168034.jpg" />
 </div>
 
 
@@ -501,7 +577,7 @@ Airtool 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168036.jpg" />
 </div>
 
 
@@ -525,7 +601,7 @@ SoundSwitch 6.4.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168039.jpg" />
 </div>
 
 
@@ -550,7 +626,7 @@ Duplicate Photos SweeperOff 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168041.jpg" />
 </div>
 
 
@@ -561,79 +637,6 @@ Duplicate Photos Sweeper - очень простой и легкий в испо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86CFFAF786FCD0AD822E33004C1A8FBEDD22B97A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597014   (168042) от 12.12.2022
-
-One Commander Pro 3.26.0.0 Portable  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168042.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Commander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
-Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934E807A948F5BFC4D6F832DEFF4CE2B66630E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596962   (168048) от 12.12.2022
-
-Auslogics Driver Updater 1.24.0.7 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Driver Updater – программа представляющая собой очень простой, удобный и в тоже время эффективный инструмент для обновления драйверов операционной системы Windows. Она просканирует ваш компьютер и после сканирования Вашего компьютера на присутствие драйверов ко всем устройствам, она составит список устройств которые требуют установки драйверов и предложит (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907DC77E3BF1E54F3C5112181AFD9D3F089A896E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431297   (168049) от 13.12.2020
-
-PullTube 1.6.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70176B4BE6AA6F140F8DF9FCEC1FAB0AED91A464
 ```
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1425023   (223983) от 19.11.2020
+
+Microsoft Windows 10.0.18363.1198 Version 1909 (Updated November 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_223983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1198.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DF7E227E26A5B476B8F963624FC847C9626320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425018   (223989) от 19.11.2020
+
+Microsoft Windows 10.0.17763.1577 Version 1809 (Updated November 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_223989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1577.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6CCF0F4ADED33562FE9F2C48781B21E89A8DBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584457   (224103) от 19.10.2022
+
+Microsoft Windows 11 [10.0.22000.1098], Version 21H2 (Updated October 2022) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_224103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839D69B63580966905E80E6FD63D2E9A4D40A4B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 851695   (224212) от 20.12.2014
 
 Microsoft Windows Server 2012 R2 with Update 3 [November 2014] - Оригинальные образы от Microsoft MSDN [Ru]
@@ -6,7 +80,7 @@ Microsoft Windows Server 2012 R2 with Update 3 [November 2014] - Оригина�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224212.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224212.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Windows 8.1 Professional VL with Update 3 (х64) [November 2014] - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224215.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224215.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Microsoft Windows Server 2012 R2 with Update 3 [November 2014] & Языковы�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224229.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Windows 8.1 Professional VL with Update 3 (х86) [November 2014] - Оригин�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224273.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224273.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ Microsoft Windows 10.0.19044.2130, Version 21H2 (Updated October 2022)  - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224290.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224290.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ Windows 8.1 with Update 3 [November 2014] - Оригинальные образ�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228080.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228080.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Windows 8.1 N with Update 3 [November 2014] - Оригинальные обра�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228177.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228177.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ Recovery Samsung RC510 Windows 7 Home Premium [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230160.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230160.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ Recovery Toshiba A110-293 / Диск-реаниматор Windows XP Home Editio
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230172.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230172.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ Microsoft Windows 11 [10.0.22621.525], Version 22H2 (Updated September 2022)  - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232270.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232270.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ Microsoft Windows 11 [10.0.22621.382], Version 22H2 - Оригинальные �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234035.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234035.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ Microsoft Windows 11 [10.0.22000.978], Version 21H2 (Updated September 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234050.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234050.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ Microsoft Windows 10.0.19044.2006, Version 21H2 (Updated September 2022)  - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234083.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234083.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ Microsoft Windows 10.0.19043.2006, Version 21H1 (Updated September 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234114.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234114.jpg" />
 </div>
 
 
@@ -353,7 +427,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.707 (Updated May 2022) - Ор
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234619.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234619.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ Microsoft Windows 11 [10.0.22000.675], Version 21H2 (Updated May 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234745.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234745.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ Microsoft Windows 10.0.19044.1706, Version 21H2 (Updated May 2022)  - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234789.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234789.jpg" />
 </div>
 
 
@@ -428,7 +502,7 @@ Microsoft Windows 10.0.19044.2846, Version 21H2 (Updated April 2023) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239600.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239600.jpg" />
 </div>
 
 
@@ -455,7 +529,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.643 (Updated April 2022) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240584.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240584.jpg" />
 </div>
 
 
@@ -479,7 +553,7 @@ Microsoft Windows 10.0.19042.1645, Version 20H2 (Updated April 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240686.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240686.jpg" />
 </div>
 
 
@@ -506,7 +580,7 @@ Microsoft Windows 11 [10.0.22000.613], Version 21H2 (Updated April 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240693.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240693.jpg" />
 </div>
 
 
@@ -530,7 +604,7 @@ Microsoft Windows 10.0.19044.1645, Version 21H2 (Updated April 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240726.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240726.jpg" />
 </div>
 
 
@@ -557,7 +631,7 @@ Microsoft Windows 10.0.19043.1889, Version 21H1 (Updated August 2022) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241125.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241125.jpg" />
 </div>
 
 
@@ -571,81 +645,6 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5CA17B95C87EABC73C86FF6A857E3298D45C8C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620780   (245458) от 21.03.2023
-
-Microsoft Windows 10.0.19044.2728, Version 21H2 (Updated March 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
-
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.2728.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B80F9756DC802D7658130BCB61ED726B87B5342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620784   (245478) от 21.03.2023
-
-Microsoft Windows 11 [10.0.22000.1696], Version 21H2 (Updated March 2023) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D7ADE0B2ED1CCB7473923A341F0BAA0D22423E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647465   (246870) от 20.07.2023
-
-Microsoft Windows 11 [10.0.22621.1992], Version 22H2 (Updated July 2023) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15274F6D4443D88568104D77A7D394B55670DB7D
 ```
 
 

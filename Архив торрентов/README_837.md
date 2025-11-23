@@ -1,3 +1,76 @@
+###  Публикация: 1672741   (167813) от 29.10.2023
+
+CamScanner 6.51.0.2310160000 Mod by maxi123444 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167813.jpg" />
+</div>
+
+
+###  Подробнее
+
+CamScanner - Мощное приложение для сканирования. Оно представляет собой способ сканировать любые документы с максимальным качеством, автоматическим определением границ, программным улучшением изображений и прочими техническими особенностями, что понравятся всем кому необходим данный спектр возможностей. Так же пользователи смогут удобно создавать надписи, комментарии, (   Читать дальше...   )Тип издания: PremiumРазработчик: INTSIGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6909BDA0516395FF746CD78D94B69A52039D08C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516097   (167828) от 09.12.2021
+
+SoundSource 5.3.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167828.jpg" />
+</div>
+
+
+###  Подробнее
+
+SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
+Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего Mac, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: © 2021 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FBF72057577249EBF3E6CFDB08F085D4F4AE35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345088   (167843) от 13.12.2019
+
+VirtualBox 6.1.0 Build 135406 RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167843.jpg" />
+</div>
+
+
+###  Подробнее
+
+VirtualBox - специальная программа для создания в памяти ПК виртуальных компьютеров. Каждый виртуальный компьютер может содержать произвольный набор виртуальных устройств и отдельную операционную систему. Область применения виртуальных компьютеров очень широка - от выполнения функций по тестированию ПО до создания целых сетей, которые легко масштабировать, распределять (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AB02AAE44389F1188B4176F7115D39D55F627B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431444   (167848) от 13.12.2020
 
 Phil K & Habersham - Cloudbrake (2005) Single [MP3|320 Kbps] <Progressive Breaks, Progressive House>
@@ -6,7 +79,7 @@ Phil K & Habersham - Cloudbrake (2005) Single [MP3|320 Kbps] <Progressive Breaks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167848.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167856.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:A6C5B01EE16908717EEFF6489F3FE1E23A3C578D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167860.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Duolingo: изучай языки 5.126.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167868.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:B06B4128FAB695883C465D31841CA3A1C3B4854B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167873.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ macOS Server 5.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167878.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ IrfanView 4.62 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167880.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Root Explorer / Root Проводник 4.12.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167886.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ magnet:?xt=urn:btih:F559E082CFA57DD31877BB495FEF6CCEB57CF8CC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167891.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ magnet:?xt=urn:btih:D0E8A0A10F29F681459E612B9BFFB2D5CAB1710D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167903.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ LibreWolf 119.0-5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167917.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ Balabolka 2.15.0.763 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167920.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ Bartender 4 v.4.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167925.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ iThoughtsX 5.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167929.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Resume Templates - Design 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167930.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ magnet:?xt=urn:btih:3F09C148DEE38C6D9209EA5F2556E50B2ED2B4A7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167931.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ Downie 4 v4.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167943.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ Bartender 4 v4.0.32b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167944.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ Infix PDF Editor Pro 7.4.4 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167955.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ Malwarebytes AdwCleaner 8.0.1.0 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167963.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ SophiApp 1.0.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167970.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ Display Driver Uninstaller 18.0.5.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167979.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Tixati 3.14 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167988.jpg" />
 </div>
 
 
@@ -555,82 +628,6 @@ Tixati — это полноценный и бесплатный клиент с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89DC09AE940CC59794B495675C25D0A7DCFBBD60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431478   (167993) от 13.12.2020
-
-RAW Power 3.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2020Разработчик: Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECC6E81B3BCC2CDAC209F83484F33212ADE7121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656977   (167994) от 13.12.2019
-
-IP Neva - Symbiosis Of Contradictions (2008) Impulsive Art [FLAC|Lossless|tracks+.cue]<IDM, Glitch, Experimental, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Correction (05:19)
- 02. U-boat Performance (05:54)
- 03. The Process (05:46)
- 04. Constellation Of War (05:46)(   Читать дальше...   )Жанр: IDM, Glitch, Experimental, AmbientПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485F5BEC0531388D63149C806A3706848D096DE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516094   (167995) от 09.12.2021
-
-Graphic Inspector 2 v2.5.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graphic Inspector предоставляет исчерпывающую информацию обо всех папках c изображениями и векторными графическими файлами и помогает находить потенциальные проблемы в соответствии с пользовательскими правилами. Graphic Inspector - это профессиональный инструмент проверки, предназначенный для помощи пользователям любой профессии, будь то печать, веб-дизайн, фотография (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 Zevrix SolutionsПоддерживаемая ОС: macOS 10.10 - 12.0Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D8D696B91BBEFF8DF4C2A130BA4959642E65B9
 ```
 
 

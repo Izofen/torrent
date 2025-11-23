@@ -6,7 +6,7 @@ Q-Dir 11.69 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51393.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4B63F5912390508C060740CC251CEA3464159B7F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51394.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Telegram Desktop 5.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51395.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51396.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B69EB5B3C2953CBC93ED2F4B3A7183171E275644
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51397.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B69EB5B3C2953CBC93ED2F4B3A7183171E275644
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51398.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Change MAC Address 24.06 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51399.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ CCleaner 6.25.11131 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51400.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Nightshade Mysteries: Eternal Moon (2024) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51401.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:368B73240551DC5E5596C535D490E90973693C5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51402.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ WinScan2PDF 8.88 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51403.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Topaz Video AI 5.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51404.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:1A79CE5D15F76C3C0B010139B455CAD20CA2D2A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51405.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Adguard 7.17.2 (7.17.4712.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51406.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ nthLink 6.4.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51407.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:5C2BD58A145B460FE02FB38D0FB1107DA46AB9EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51408.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ashampoo Photo Optimizer 10.0.4.11 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51409.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:C36D8A922CD1071963EEF432051CAA91593F3692
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51410.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:AA01512F086019500F3891DEED9C3990800CC2C2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51411.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C79D23C9E3407005750C86ED1FFD5E5E1BF4B3C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51412.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Resource Tuner Business 2.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51413.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Artweaver Plus 7.0.17.15576 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51414.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:9F1295667F5477D72B4821D9984D746EE47A55A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51415.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:46995BC847B13C7DF20262737C4ACACDC77EF6A1
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51416.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:3E66451E50B7F266425BFBDFDE0EF587471EEE13
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51417.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:093F5E06441348BB9D370C4DCC82337C4043F63E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51418.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1725584   (108966) от 25.05.2024
+
+Заклятье. Мертвые воды / Mulgwisin (2023) WEB-DLRip [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108966.jpg" />
+</div>
+
+
+###  Подробнее
+
+По древнему преданию вода в проклятом озере отделяет потусторонний мир от нашего. Демон из потустороннего мира хочет вселиться в сестру девушки, чтобы разорвать границу миров. Если это произойдет, ее душа навсегда останется в царстве мертвых.Производство: Корея ЮжнаяЖанр: ужасыРежиссер: Лим Джи-хунАктеры: Пак Сон-хе, Пак Ран, Юн И-рэ, Щин Дон-нёкПеревод: Профессиональный (многоголосый) (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:44Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0182C2FEF1741572D2D17851AF7DB133DD227A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725741   (108967) от 25.05.2024
+
+Telegram Desktop 5.0.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AC93545C3768FD2BD5713185D077716926077F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725593   (108968) от 25.05.2024
+
+Rosetta Stone: Изучение языков v8.25.1 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему приложение Rosetta Stone? Потому что лучший способ выучить новый язык — окружить себя им, и метод Dynamic Immersion® от Rosetta Stone делает именно это. Интерактивные и контекстуальные уроки сочетаются с функциями расширенного обучения, которые буквально у вас под рукой — в любое время, в любом месте и на любом устройстве; онлайн или оффлайн и совершенно без (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.05.2024Разработчик: Rosetta Stone LtdПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3469C7092E40766F5CEBEBCB09AFB38AEE886C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725774   (108969) от 25.05.2024
 
 Александр Зелёный | Дар Божий (2024) [MP3, Вадим Кривошеев]
@@ -6,7 +80,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108969.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ n7player Music Player 3.2.10-3002010 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108970.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:4BC7994BD63507517E4450DD4425A3D9B249F887
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108971.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ VA - Радио новинки 2024, Часть 4 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108972.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ magnet:?xt=urn:btih:AB24E964C01709E25369D6CBA08BD329A9D097D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108973.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ magnet:?xt=urn:btih:B139D527F9D553777275D94D2FE95630343A2E49
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108974.jpg" />
 </div>
 
 
@@ -154,7 +228,7 @@ O&O Defrag Professional 28.1 Build 10015 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108975.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ Evildead - Toxic Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108976.jpg" />
 </div>
 
 
@@ -206,7 +280,7 @@ Knights Of The Realm - Darker Than Leather (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108977.jpg" />
 </div>
 
 
@@ -233,7 +307,7 @@ magnet:?xt=urn:btih:62A61960F3B35805F7AE8F12ADD1E9E9BBE3C640
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108978.jpg" />
 </div>
 
 
@@ -258,7 +332,7 @@ Skeletal Throne - Barbaric Torment (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108979.jpg" />
 </div>
 
 
@@ -285,7 +359,7 @@ PhotoRoom 4.9.7 (b1411) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108980.jpg" />
 </div>
 
 
@@ -309,7 +383,7 @@ Kenny Burrell - When Lights Are Low (1978) 1997, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108981.jpg" />
 </div>
 
 
@@ -336,7 +410,7 @@ Kenny Burrell & The Jazz Heritage All-Stars - Live At The Blue Note (1996) Conco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108982.jpg" />
 </div>
 
 
@@ -363,7 +437,7 @@ Howard Alden, Frank Vignola, Jimmy Bruno - Concord Jazz Guitar Collective (1995)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108983.jpg" />
 </div>
 
 
@@ -390,7 +464,7 @@ Cypecore - Innocent (2008) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108984.jpg" />
 </div>
 
 
@@ -417,7 +491,7 @@ magnet:?xt=urn:btih:68142C362FDDF4746530D48520C2336D602139F6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108985.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ Lucky Patcher 11.3.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108986.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ Battle Symphony - The Empire Of God (2024) [MP3|~245 Kbps (V0)] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108987.jpg" />
 </div>
 
 
@@ -495,7 +569,7 @@ Night Laser - Call Me What You Want (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108988.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ magnet:?xt=urn:btih:7F5145CB40C61BC0333AC644947BBB7BD374470E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108989.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ Hit Hits - 12 Top Hits Superbly Recorded. Anonymous cover versions of current hi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108990.jpg" />
 </div>
 
 
@@ -573,7 +647,7 @@ FolderSizes 9.6.484 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108991.jpg" />
 </div>
 
 
@@ -584,82 +658,6 @@ FolderSizes 9.6.484 Enterprise [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:420D9415282C1B932A2EA0DC262630EE1D19AF9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725517   (108992) от 24.05.2024
-
-Arrows - First Hit (1976) Reissue CD, 2000, Repertoire Records [MP3|320 Kbps] <Pop Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108992.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Arrows были группой из Лондона, Англия. Участники и основатели группы Arrows: Пол Варли (1952-2008), Джейк Хукер (1953-2014) и Алан Меррилл (1951-2020).01. Onec Upon A Time (4:30)
-02. First Hits (4:25)
-03. Thanks (4:16)
-04. What's Come Between Us (3:35)(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E056576D320A97AE7AF6AD3C39416628DD3AD061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725427   (108993) от 24.05.2024
-
-НХЛ. Кубок Стэнли 2024. Запад - Финал. 1-й матч. Эдмонтон Ойлерз - Даллас Старз (23.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108993.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 мая 2024, пятница. 03:30 МСК. Финал - Запад. 1-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3D20B3B2BAE12DBEEECD8B2EDA208C26EC2CDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725496   (108994) от 24.05.2024
-
-Не задерживайте движения (1930) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108994.jpg" />
-</div>
-
-
-###  Подробнее
-
-После Октябрьской революции 1917 года в России уравняли в правах женщин и мужчин: теперь они могли выполнять одну и ту же работу и получать за нее одинаковую зарплату. Советские власти даже агитировали женщин обучаться «мужским» профессиям, чтобы увеличить рабочую силу. Однако не все были готовы к таким изменениям, поэтому власти начали снимать пропагандистские фильмы. (   Читать дальше...   )Производство: СССР / УкраинфильмЖанр: агитфильм, социальная драма, немое киноРежиссер: Павел КоломойцевАктеры: Николай Пальников, Вячеслав Гомоляка, Семен Грабин, Борис ЗагорскийСубтитры: русские (интертитры)Продолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9E6CEE6EACA1B6B41D2D262983CE60A66BB590
 ```
 
 

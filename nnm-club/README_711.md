@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18810.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18811.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8BD1AADB65F518BC430A3CC36EDBF42993968BCB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18812.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Compilation Part 160 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18813.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:2F268236721880404772A7EFA4C522F0890CC39B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18814.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18815.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B1F2513AD03B008A3FF93529A5D9B1AC2EF62E00
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18816.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Relax & Unwind: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18817.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Berserk Golden Age Arc: The Egg of
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18818.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18819.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Magic Eraser / Магический ластик v2.21.16 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18820.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:429E5E3AF043A71F744594B279FF97A05BAFC7A5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18821.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Beegie Adair - The Great American Songbook (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18822.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:23FA34D487C25EB12EA3607981119CAC1AC8F5EC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18823.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Nightfall - Children of Eve (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18824.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:81037400DB93B02713798151DED153F60B5D3225
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18825.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:24CF05146F134191436810FDFAE2A87D42FC1089
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18826.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Probot - Probot (2004) Japanese Edition [FLAC|Lossless|image + .cue] <Hardcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18827.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Joe Newman - Quintet At Count Basie's (1961) 2005, Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18828.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18829.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Game Over - Face the End (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18830.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:72BD9598F012007F82088C829AFC53F2BADED0A8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18831.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18832.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:2B137BCBB0AD0875B88F9151987906EB15A1DE81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18833.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:E895C1B1218F07192F2FB5556CDEF4624DB0938F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18834.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:6F5E603E7B0D8B1293B0EC05C988459E2F3F0431
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18835.jpg" />
 </div>
 
 

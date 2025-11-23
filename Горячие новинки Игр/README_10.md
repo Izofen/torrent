@@ -6,7 +6,7 @@ Earth vs Mars (2025) [Ru/Multi] (001.000.4207100) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250436.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250436.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Onirism (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250467.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250467.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GODBREAKERS (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Juice Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250481.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250481.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250504.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250504.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16494r) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250565.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250565.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250575.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250575.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Realms of Madness (2025) [En] (1.0.1) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250635.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250635.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E2AC3BA22EB048268B55FF054133AD34A5B2CB61
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250750.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250750.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250873.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250873.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250875.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250875.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250877.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250877.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250913.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250913.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250923.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250923.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251271.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251271.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251700.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251700.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Second Sun (2025) [En] (1.0.5b) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251707.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251707.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251714.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251714.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ No Players Online (2025) [Ru/Multi] (6000.024f1) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251746.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251746.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Second Sun (2025) [En] (1.021) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251786.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251786.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251799.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251799.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ SPARTA 2035 (2025) [Ru] (1.1.0(29)/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252290.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252290.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Restaurats (2025) [Ru/Multi] (20727795) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252410.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252410.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252454.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252454.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252467.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252467.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Pioneer [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252468.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252468.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Bench (2025) [Ru/Multi] (1.0.107) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252570.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252570.jpg" />
 </div>
 
 

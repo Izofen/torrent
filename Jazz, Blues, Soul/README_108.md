@@ -6,7 +6,7 @@ Ella Fitzgerald - Three Classic Albums Plus (1960, 1961) 2CD, 2014, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121860.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Miss Velvet & The Blue Wolf - Bad Get Some (2018) [MP3|320 Kbps] <Blues, Funk Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121866.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Michael Nadolny - Heart Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121985.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121990.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121993.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Crowsroads - Spaceship (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Blues, Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121999.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122000.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Richard Santos - Playing the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122002.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wonderful Bluffer - Torn By Reflection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122004.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Catfish John Tisdell - Sinkin' Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122012.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Quiet Storm Soothing Easy Listening Warm Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122151.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Joe Taylor - Westside Chill - Joe Taylor - Westside Chill (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122153.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mildred Bailey - 1932 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122321.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Freddie Hubbard - Music Is Here (1973) 2022, Wewantsounds [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122345.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ran Blake Trio - Sonic Temples (1998) 2CD, 2001, GM Recordings [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122346.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Chris Rea - Santo Spirito Blues (2011) [OGG Vorbis|480 Kbps] <Blues Rock, Soft R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122373.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [MP3|320 Kbps] <S
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122378.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hannah Wicklund - 3 Releases (2018-2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122386.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Chris Rea - The Return Of The Fabulous Hofner Bluenotes (2008) [OGG Vorbis|480 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122387.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mildred Bailey - 1938 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122492.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122501.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Nu Urban Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122503.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Caro Emerald - Live In Glasgow (2015) Remaster, 2024, MVKA/Grandmono Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122505.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Chris Rea - The Blue Jukebox (2004) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122522.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Chris Rea - Blue Street (Five Guitars) (2003) [OGG Vorbis|480 Kbps] <Blues Rock,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122525.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Remaster, 2023, MVKA/Grandmono R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122535.jpg" />
 </div>
 
 

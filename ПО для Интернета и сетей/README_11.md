@@ -6,7 +6,7 @@ PicoTorrent 0.25.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159964.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ USBoNET 1.0.1.1793 Beta [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160728.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Complete Internet Repair 11.1.3.6508 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161033.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VCap Downloader 0.1.38.6764 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161934.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MyLanViewer 6.6.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162092.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Any Video Downloader Pro 9.6.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162179.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ChromePass 1.58 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163842.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3014F4E060E1AB5EF447C207CD21A1BC93736E9F
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164211.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Wi-Fi Scanner 4.7.1.189 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164797.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ YTD Video Downloader Pro 7.6.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164908.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Vkontakte Online 6.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168779.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9DE01F3CCC4A8D5295B2EC06923C4C24FA0E4D9C
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170139.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AnyViewer Professional 3.3.0 (Акция COMSS от 2022.12.09) [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170204.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Auslogics Video Grabber 1.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172595.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Edge 118.0.2088.46 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173138.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Slimjet 48.0.0.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173441.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ MAX Desktop 25.13.4 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173445.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ MyLanViewer 6.6.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173492.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ DVDFab Video Downloader 2.0.0.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173723.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173723.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Viber 21.1.0.11 (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175115.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ RarmaRadio Pro 2.75.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175174.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ TapinRadio 2.15.96.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175197.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ LIII BitTorrent Client 0.1.1.20 (Pre-Release) + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177198.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ RarmaRadio Pro 2.75.4 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177454.jpg" />
 </div>
 
 
@@ -579,6 +579,30 @@ magnet:?xt=urn:btih:98E8EE2CB116D20C6D8A5B4E187346F1C40C3F24
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428801   (178106) от 04.12.2020
+
+CCleaner Browser 86.1.6938.201 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178106.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner Browser – быстрый, конфиденциальный и безопасный браузер для Windows от разработчиков программы для очистки и оптимизации системы CCleaner на базе Chromium.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F9A09ADE0B664B986468BBA6C21F41B60DD467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665806   (181056) от 01.10.2023
 
 USB Network Gate 10.0.2450 [Multi/Ru]
@@ -587,7 +611,7 @@ USB Network Gate 10.0.2450 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181056.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181056.jpg" />
 </div>
 
 
@@ -598,30 +622,6 @@ USB Network Gate (бывший USB to Ethernet Connector) легко подкл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB02BE3448B7E028956BF8C1EFDEA2840F756675
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592931   (182357) от 24.11.2022
-
-Waterfox Classic 2022.11 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF560FC7401B8D3B93E12EDD3A76E3C80BE04BF
 ```
 
 

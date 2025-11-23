@@ -1,3 +1,92 @@
+###  Публикация: 590345   (145938) от 16.12.2012
+
+Бокс. А.Хан - К.Молина, бой за титул чемпиона мира / WBC: Amir Khan vs Carlos Molina (16-12-2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145938.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПРОФЕССИОНАЛЬНЫЙ БОКС. Бой за титул чемпиона мира.  А.Хан - К.Молина
+
+Разогревочные поединки:
+ALFREDO ANGULO vs. JORGE SILVA / MIDDLEWEIGHTS
+ DEONTAY WILDER vs. KEVIN PRICE / WBC CONTINENTAL AMERICAS  HEAVYWEIGHT TITLE
+
+Основной бой:
+AMIR KHAN vs. CARLOS MOLINAЖанр: СпортТелекомпания: СпортПеревод: Одноголосый закадровый, Владимир Гендлин младший.Формат: tsПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC6DB76C78DD840281FD7BD6A083D0CF673EEF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969846   (145939) от 28.12.2015
+
+Фигурное Катание. Чемпионат России 2015. Женщины. Короткая программа. (25.12.2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В четверг в Екатеринбурге стартует чемпионат России по фигурному катанию, который станет отборочным турниром к чемпионату Европы, стартующему в конце января в Братиславе.
+"Девочек у нас много, и все хорошие, - сказала Тарасова по телефону. - Женя Медведева очень здорово выступала в серии Гран-при, шла на мировой рекорд в Финале Гран-при. У нее хорошие шансы (   Читать дальше...   )Телекомпания: HD СпортЖанр: СпортПродолжительность: 02:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE22013CD7F9914DFF16BACE36E21905905EE4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589531   (145945) от 16.12.2012
+
+MJG - Bitches Money Guns (2012) [MP3|320 кб/с]<Dirty South, Southern Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BMG Intro
+02. BMG
+03. By Myself (feat. TMack & Young Buck)
+04. F*ck That (feat. Wooh Da Kid & Pastor Troy)
+05. Smokin Chokin Skit
+06. Smokin Chokin (feat. 8ightball & Snoop Dogg)
+07. Smoke Out (feat. GC Eternal)
+08. Interlude
+09. Free
+10. YNS (feat. Lil Rickey of PBZ & 2 Deep)(   Читать дальше...   )Жанр: Dirty South, Southern RapПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7566C143AEDB8E5925D095ABD0FABC3626FA879E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087117   (145952) от 27.12.2016
 
 Проекты - VideoHive - The Unique Broadcast / Show Package - 15802835 [AEP]
@@ -6,7 +95,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145952.jpg" />
 </div>
 
 
@@ -30,7 +119,7 @@ MarsEdit 4 v4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145959.jpg" />
 </div>
 
 
@@ -54,7 +143,7 @@ magnet:?xt=urn:btih:A8031F729CD9B7284F7FCE035E2EBFAC97BE7E33
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145972.jpg" />
 </div>
 
 
@@ -78,7 +167,7 @@ magnet:?xt=urn:btih:9A9B2ED853E4A8BD4969CCC37D7BE0614EEF0BBE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146006.jpg" />
 </div>
 
 
@@ -102,7 +191,7 @@ Kargol's - Invertébré (2002) Sampler [FLAC|Lossless|tracks + .cue] <Ska, Hardc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146017.jpg" />
 </div>
 
 
@@ -128,7 +217,7 @@ Radmin VPN 1.2.4457.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146025.jpg" />
 </div>
 
 
@@ -154,7 +243,7 @@ ATOM RPG: Post-apocalyptic indie game v1.11 (2019) [Multi/Ru] [macOS Native game
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146030.jpg" />
 </div>
 
 
@@ -179,7 +268,7 @@ Me Vs Hero - Days That Shape Our Lives (2010) [FLAC|Lossless|tracks + .cue] <Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146034.jpg" />
 </div>
 
 
@@ -206,7 +295,7 @@ Folx Pro 5 v5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146053.jpg" />
 </div>
 
 
@@ -233,7 +322,7 @@ Viber 6.5.4.461 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146071.jpg" />
 </div>
 
 
@@ -257,7 +346,7 @@ Winter landscapes Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146083.jpg" />
 </div>
 
 
@@ -281,7 +370,7 @@ Elmedia Player Pro 7.8 (build 1897) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146088.jpg" />
 </div>
 
 
@@ -307,7 +396,7 @@ Allegorithmic Substance Painter 2019.3.1 (build 3547) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146115.jpg" />
 </div>
 
 
@@ -331,7 +420,7 @@ Winter Wallpapers (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146133.jpg" />
 </div>
 
 
@@ -355,7 +444,7 @@ Dashcam Viewer 3.6.2 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146135.jpg" />
 </div>
 
 
@@ -380,7 +469,7 @@ eMail Address Extractor 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146147.jpg" />
 </div>
 
 
@@ -405,7 +494,7 @@ Downie 3 v3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146148.jpg" />
 </div>
 
 
@@ -431,7 +520,7 @@ VA - The Best of Play Me Too Volume 1 (2011) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146151.jpg" />
 </div>
 
 
@@ -464,7 +553,7 @@ Technical Itch - The Failed Evolution EP (2012) [MP3|320 кб/с]<Drum and Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146160.jpg" />
 </div>
 
 
@@ -492,7 +581,7 @@ magnet:?xt=urn:btih:DF32D08DC4074CFEEB2044E817987FBBEB15B294
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146161.jpg" />
 </div>
 
 
@@ -516,7 +605,7 @@ Icecream PDF Editor PRO 2.06 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146169.jpg" />
 </div>
 
 
@@ -540,7 +629,7 @@ XMind 7 Pro 3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146170.jpg" />
 </div>
 
 
@@ -564,7 +653,7 @@ Alfred 3 Powerpack 3.7.1(948)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146173.jpg" />
 </div>
 
 
@@ -578,78 +667,6 @@ Alfred Powerpack - Лаунчер приложений для Mac OS X.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9416EB4E6E3821276582081AF7378252586315F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969632   (146178) от 27.12.2015
-
-Adguard Премиум 5.10.2051.6368 DC 28.10.2015 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C6FCBA5AFBEC16CA2809868CEEA38AB32B0BEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590097   (146198) от 16.12.2012
-
-Извлечение / Extracted (2012) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, ДрамаРежиссер: Нир ПанириАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара ТомкоПеревод: Любительский (двуголосый)Язык субтитров: АнглийскийПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348086   (146201) от 26.12.2019
-
-Garden Planner 3.7.28 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garden Planner - удобное приложение для проектирования сада Вашей мечты или ландшафта для вашей фазенды. Расположите растения, деревья, постройки и объекты, используя удобный 'drag and drop' интерфейс. Используйте различные инструменты, чтобы быстро создать мощение, дорожки и заборы. Цвет листвы можно изменять. План легко масштабируется. В завершение, вы можете произвести (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: Artifact InteractiveПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C329DCE45DEAEAFBF2B11760EB2D3B9AAB916906
 ```
 
 

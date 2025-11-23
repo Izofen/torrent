@@ -1,3 +1,93 @@
+###  Публикация: 480765   (99254) от 10.04.2012
+
+Королевство океанов. Между Сушей и Морем / Kingdom of the Oceans. De La Terre A La Mer (2011) BDRip [сезон 1 серия 4]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о безграничности и свободе подводного мира, о королевстве живого разумного существа по имени Океан станет еще одной познавательной страницей в жизни нашего космоса.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный - А. ДасевичПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66984FC3C07CF03AE39BB1E153D98776597D3791
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480481   (99255) от 10.04.2012
+
+Sunny Crimea & Physical Illusion - Soulful Nights LP (2012) [MP3|320 кб/с]<Drum & Bass, Soulful>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunny Crimea & Physical Illusion - Soulful Nights (06:51)
+02. Sunny Crimea & Physical Illusion - Your Lovers Tear Across The Kiss (06:31)
+03. Sunny Crimea & Physical Illusion - Too Hot (06:35)
+04. Sunny Crimea - Underneath (06:04)
+05. Physical Illusion - Desperately (07:19)
+06. Physical Illusion - Brilliants (05:28)
+07. Sunny Crimea - Lounge - Lizards (06:00)
+08. Sunny Crimea & Physical Illusion - Fading Shadows (05:51)
+09. Sunny Crimea & Physical Illusion - Way Out (06:17)
+10. Sunny Crimea & Physical Illusion - Fading Shadows (Stunna Remix) (06:52)2012Жанр: Drum & Bass, SoulfulПродолжительность: 1:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D591D99421B391351D4C4033ACD43F431D45E9B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480716   (99256) от 10.04.2012
+
+Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alles Was Du Brauchst
+ 02. Volkerball
+ 03. Gnadenlos
+ 04. Doktor
+ 05. Radioaktiv
+ 06. Weichen Und Zunder
+ 07. Foltergeist
+ 08. Gammelfleisch
+ 09. Heldmaschin
+ 10. Konigin(   Читать дальше...   )2012Жанр: Industrial MetalПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B2CA35806D19C41B39E92BB5A4D98A3F2A676C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480897   (99257) от 10.04.2012
 
 Ковалева из провинции (1975) SATRip
@@ -6,7 +96,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99257.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #81 (10.04.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99269.jpg" />
 </div>
 
 
@@ -63,7 +153,7 @@ Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99270.jpg" />
 </div>
 
 
@@ -90,7 +180,7 @@ Hugh Coltman - Stories From The Safe House (2008) [FLAC|Lossless]<Acoustic, Pop 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99271.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99271.jpg" />
 </div>
 
 
@@ -123,7 +213,7 @@ VA - Хиты на радио клубнячек и попса vol.3 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99274.jpg" />
 </div>
 
 
@@ -148,7 +238,7 @@ magnet:?xt=urn:btih:DE9011DDB762F9325AF8FA35383F3512BF9D70CB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99275.jpg" />
 </div>
 
 
@@ -176,7 +266,7 @@ VA - Хиты на радио клубнячек и попса vol.4 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99276.jpg" />
 </div>
 
 
@@ -209,7 +299,7 @@ magnet:?xt=urn:btih:96FC54D4FA477278E80AF18CD46A69DF3F264271
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99277.jpg" />
 </div>
 
 
@@ -233,7 +323,7 @@ magnet:?xt=urn:btih:3F316618C859C78AE6D55E4B5FD2BBC9E35131DC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99278.jpg" />
 </div>
 
 
@@ -257,7 +347,7 @@ magnet:?xt=urn:btih:3D468344EAB640FDD4C905B8E3C236F533212055
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99279.jpg" />
 </div>
 
 
@@ -281,7 +371,7 @@ magnet:?xt=urn:btih:11529345C6B18FCB6ADDCD00AD3A8678EC355A0B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99280.jpg" />
 </div>
 
 
@@ -314,7 +404,7 @@ VA - Звездный клубный драйв (2012) [MP3|160-256 кб/с]<Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99281.jpg" />
 </div>
 
 
@@ -347,7 +437,7 @@ Various Artists - Tranceffect 9 (2011) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99284.jpg" />
 </div>
 
 
@@ -380,7 +470,7 @@ The Book of Desires (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99290.jpg" />
 </div>
 
 
@@ -404,7 +494,7 @@ VA - Clubничка Хит FM 50\50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99293.jpg" />
 </div>
 
 
@@ -437,7 +527,7 @@ magnet:?xt=urn:btih:595A3A717A6893B18509D48832B4F6FC33130B80
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99295.jpg" />
 </div>
 
 
@@ -461,7 +551,7 @@ Upon A Burning Body - Red. White. Green. (2012) [MP3|~245 кб/с (V0)]<Metalcor
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99298.jpg" />
 </div>
 
 
@@ -494,7 +584,7 @@ magnet:?xt=urn:btih:A3035EDC57753ABA97B00B7DBBE743786839F60D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99299.jpg" />
 </div>
 
 
@@ -518,7 +608,7 @@ Gary Boyle - Electric Glide (1993) [FLAC|Lossless]<Jazz-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99301.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99301.jpg" />
 </div>
 
 
@@ -549,7 +639,7 @@ Murder Bay - Never Was An Angel (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99302.jpg" />
 </div>
 
 
@@ -582,7 +672,7 @@ St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 кб/с]<Hard Rock, S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99303.jpg" />
 </div>
 
 
@@ -615,7 +705,7 @@ iO and Goshva - Lazy Time EP (2012) [MP3|320 кб/с]<Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99304.jpg" />
 </div>
 
 
@@ -642,7 +732,7 @@ magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99305.jpg" />
 </div>
 
 
@@ -657,88 +747,6 @@ magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D460370FFDE8D0D6E5600DFAB4F7F8A0C7F2296B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480835   (99306) от 11.04.2012
-
-Andreas Vollenweider - Air (2009) [MP3|320 кб/с]<Electronic, New Age, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Airdance
-    02.Prescious Smile
-    03.Oxygenia & Icarus
-    04.Windseeds
-    05.Milonga Magica (Thematic Improvisatoin)
-    06.World Inside A Grain Of Sand
-    07.Tumbleweed Dreams
-    08.One Breath
-    09.Keep On Dancing (For Heavens Sake!)
-    10.Liebeslied(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0E4163BBC2D493F6E7EDA21DDA4A574542D0E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481309   (99308) от 11.04.2012
-
-[Wallpapers] Wallpaper Sexy Girls 0.4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на рабочий стол.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E1A98867791D6D2BAF27893C541E8A2DF2643F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481545   (99309) от 11.04.2012
-
-Ричард Пратер | Дорогой, это смерть [2005] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из серии о частном детективе Шелле Скотте.
-Шелл Скотт приехал в Акапулько по своим детективным  делам. И надо же такому случиться - именно здесь собрались гангстеры со всей Америки, а объект его расследования погибает загадочной смертью...Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4893FCA754D17071C6FC678A3FD75E8EE142D7F
 ```
 
 

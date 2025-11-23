@@ -6,7 +6,7 @@ Daryl Hall - Three Hearts In The Happy Ending Machine (1986) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105012.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kendji Girac - Kendji (2014) Limited Edition, 2024, Universal Music Division [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105099.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vanessa Williams - Survivor (2024) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105131.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105173.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Duran Duran - Planet Earth (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105179.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Duran Duran - The Reflex (1984) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105199.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Duran Duran - Duran Duran (1981) Deluxe Edition, 2010, Parlophone UK [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105229.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105471.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Amy Shark - Sunday Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105585.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ David Hasselhoff - Crazy For You  (1990) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105601.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Duran Duran - Do You Believe in Shame? (1989) Remaster, 2024, Rhino [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105943.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106047.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106099.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listen
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106325.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106396.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106437.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106560.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106646.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Dalida - La Dolce Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson franç
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106670.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Zucchero - Overdose D' Amore Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106806.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106859.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106942.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106968.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Rah Band - Orkestronique (2024) [FLAC|Lossless|WEB-DL|tracks] <synthpop, spa
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106984.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Maya Vik - Hustlebot (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Soul & Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106986.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107104.jpg" />
 </div>
 
 

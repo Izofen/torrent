@@ -6,7 +6,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18105.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:821DBFAF99F6539DDFF50F80975D82D37EEFD1BA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18106.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:ABDC310012C3251B9E24CE8D8254A12B3C414A2F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18107.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Dire Straits - Brothers In Arms (40th Anniversary) (1985) 2 x CD, Reissue, 2025,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18108.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:B229F767FA6BD91C0C0827F284AD59A054952B79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18109.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:A52CDBDD78DC97AC2169CFCBFBCCDB95F4827368
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18110.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:8C43E1FC3F90B0C79DABC0527C3923C9A2B35C69
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18111.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Sexy Bath 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18112.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B5EF09482328781018ECB6725CDF41D1315B09CB
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18113.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Any Video Downloader Pro 9.2.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18114.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:94D7B2A5AEDD5580A0C2F909C50050D30B465327
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18115.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:B650A49B652E16CB926B54F0303B77D66DD20E1A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18116.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18117.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:8C57DE5F35DF2D1A14ACBDEC688E8A14E5DD755C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18118.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:09377BF183684D2E15AED9DE835C91125A883D2E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18119.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:2AA557A067C5CE785AB9AA9C2247BD4181439397
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18120.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:D6BCB78FE7A4116766CEF181942EE157A4747C99
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18121.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ EasyUEFI Technician 5.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18122.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:2DB990D16834418C1F58E5A4D6DA490221C08A64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18123.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:D5AED0F5CE6BE901E046845C6A8AB6D7C5CB5DBA
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18124.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:C79A3E367B4AF29DBD6400B138087BFD67BBFE53
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18125.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C79A3E367B4AF29DBD6400B138087BFD67BBFE53
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18126.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:9643639484A2904E6A5C6DB541434978EA07CB30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18127.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18128.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:A57F0486C439F60B68F39CBED403638A7C0F111B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18129.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.16/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18130.jpg" />
 </div>
 
 

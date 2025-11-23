@@ -1,3 +1,81 @@
+###  Публикация: 1727077   (108628) от 31.05.2024
+
+Coldrain - Final Destination  & Vengeance (Xv Re Recorded) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Modern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FINAL DESTINATION (XV RE:RECORDED) [00:03:22]
+02. COUNTERFEITS & LIES (XV RE:RECORDED) [00:03:33]
+03. SOMEDAY (XV RE:RECORDED) [00:03:57]
+04. FICTION (XV RE:RECORDED) [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Modern RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F46A8ED59E554CC4ED65C16063FC60E588585C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726958   (108629) от 31.05.2024
+
+Марина Серова | Телохранитель Евгения Охотникова. Угнать за 30 секунд (2024) [MP3, Валентина Куликова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Везет Жене Охотниковой на неожиданности! К ней пожаловал… брат, о существовании которого она и не подозревала! Да, сын ее отца, только с другой фамилией. У Жени, профессионального телохранителя, в прошлом студентки секретной военной школы, брат оказался… автоугонщиком-рецидивистом! И угораздило же его на пару с дружком увести дорогущую машину, принадлежащую недавно (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 08:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57997B1AE62C5CC0F8DE1BD45A73ACF356B2C4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727078   (108630) от 31.05.2024
+
+The Troops Of Doom - A Mass To The Grotesque (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solve Et Coagula - Introduction
+02. Chapels Of The Unholy
+03. Dawn Of Mephisto
+04. Denied Divinity(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CACAAF1FC72B831163AFA4A92550D72A1F9611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726806   (108631) от 31.05.2024
 
 The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -6,7 +84,7 @@ The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108631.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Rod Ellis | Understanding Second Language Acquisition (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108632.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ magnet:?xt=urn:btih:28494274DC632D6D0D9CFE4B3CF32AB197E0EE74
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108633.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:032B4698B1131A0F124E0EA7B40E182A776C0023
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108634.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ Pamela J. Sharpe | Barron's TOEFL iBT. Fourteenth edition (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108635.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ Eguana - Future Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient | 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108636.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Black Sabbath - Tyr (1990) Remaster, 2024, BMG Rights Management [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108637.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ magnet:?xt=urn:btih:82DBE3AEA77B820138E67D67C27529A5A89763B0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108638.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ magnet:?xt=urn:btih:15F605AF8C3B26D0333E4DACB6D7CDFB0AEE368B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108639.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108640.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108641.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ magnet:?xt=urn:btih:834A949E492440E99CD840D82B0AFD63501E38F0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108642.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Don Carroll - Blues Organ (2008) [MP3|320 Kbps] <Hammond, Blues, Organ>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108643.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Black Sabbath - Forbidden (1995) Tony Iommi Remix, 2024, BMG Rights Management (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108644.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Chris Avantgarde - Tomorrowland Friendship Mix (2024-05-30) [MP3|320 Kbps] <Melo
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108645.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ magnet:?xt=urn:btih:BEDE3E08CDC1E0FBC671B94CE410F1792D7B79C5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108646.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108647.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ magnet:?xt=urn:btih:7CA5B1CFCCDEFAC5442862473401B007722F1458
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108648.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ magnet:?xt=urn:btih:354B8B2CDC9BA01B3082DF0FBA65998D9ADD4044
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108649.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ magnet:?xt=urn:btih:BF7307FD13AF7F2729EAB404ADF689178EB13CBE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108650.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ D'Ercole - Near Death Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108651.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ Witherfall - Sounds of the Forgotten (2024) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108652.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Tormentor Bestial - Eternal Nightmare (2024) [MP3|320 Kbps] <Thrash Metal, Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108653.jpg" />
 </div>
 
 
@@ -598,86 +676,6 @@ Tormentor Bestial - Eternal Nightmare (2024) [MP3|320 Kbps] <Thrash Metal, Heavy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:223C05D177BFB8A13C63631CE0AF3CBDF43D58FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726760   (108654) от 30.05.2024
-
-Suffersystem - Disintegration Of The Individual (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feast of Souls 04:17
-02. Disintegration of the Individual 04:19
-03. Obliteration Predicted 04:40
-04. Mangled Corpse 04:31(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E2BBCDB87981A1DF3A2720F0893051FE9174BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726811   (108655) от 30.05.2024
-
-Феликс Зальтен | Бемби (Инсценировка) (2008) [MP3, Александр Вилькин и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям, Сказка за сказкой.
-В сказке известного австрийского писателя Феликса Зальтена вы встретитесь с интересными героями: Бемби и его подругой Фалиной, жестоким властелином леса, девочкой Анютой и ее друзьями, живущими в мире добра и гармонии с природой.
-Перевод Юрия Нагибина. Инсценировка Александра Вилькина.
-Запись 1980 года.(   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0091B9892A00F6FE8A25669ED19090A22383DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726797   (108656) от 30.05.2024
-
-Теодор Драйзер | Гений (Книги 1-3) (2011) [MP3, Станислав Иванов, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-Теодор Драйзер (1871–1945) американский писатель, журналист и общественный деятель. Яркий представитель американского течения натурализма и критического реализма. Мировую славу ему принесла трилогия «Титан», «Стоик» и «Финансист», а вершиной творчества стала «Американская трагедия».
-Герой романа «Гений», талантливый художник Юджин (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 10:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB97D76488085A0C7E89FBAD3F655ACE82558D88
 ```
 
 

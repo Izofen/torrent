@@ -1,3 +1,84 @@
+###  Публикация: 1717235   (111228) от 19.04.2024
+
+Pat Martino - Starbright (1976) 2008, Warner Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbright [3:42]
+02. Eyes [2:41]
+03. Law [3:38]
+04. Fall [2:07](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC38836120658612B309AB418F31F02F7A1B76C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717233   (111229) от 19.04.2024
+
+Elvin Jones - Earth Jones (1982) 2003, Quicksilver [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Card Molly [8:04]
+02. Is Seeing Believing? [7:58]
+03. The Top of the Middle [3:57]
+04. Earth Jones [7:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF39AC9FD0C01BDE90499C45DD4DDD646D062D04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717137   (111230) от 19.04.2024
+
+Atoll - Inhuman Implants (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autonomic Autosarcophagy (03:03)
+02. Vomit Altar (03:14)
+03. Gay For God (04:06)
+04. Berdella Of Blood (03:26)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84400E97C8F2F9B8155AA3A7B7B951C17B3AC337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717123   (111231) от 19.04.2024
 
 Atoll - Zoopocalypse (2019) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
@@ -6,7 +87,7 @@ Atoll - Zoopocalypse (2019) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111231.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Atoll - The Gathering Swarm (2016) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111232.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Atoll - Prepuce (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111233.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.35 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111234.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111235.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ magnet:?xt=urn:btih:A700B14117FFBC1A1ECE496B0C6F7731988C2203
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111236.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ magnet:?xt=urn:btih:767B9288A9801FDEF7DC42DC5E65A97AE218E9BD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111237.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ magnet:?xt=urn:btih:5D6766D47531223CC3C86D7015B518A7FA7B3597
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111238.jpg" />
 </div>
 
 
@@ -210,7 +291,7 @@ Various Artists - The Power of the Heart: A Tribute to Lou Reed (2024) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111239.jpg" />
 </div>
 
 
@@ -237,7 +318,7 @@ VA - Rooftop Lounge, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111240.jpg" />
 </div>
 
 
@@ -264,7 +345,7 @@ magnet:?xt=urn:btih:5B0D92CEF1863023B08D395AE55E88F31F858471
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111241.jpg" />
 </div>
 
 
@@ -288,7 +369,7 @@ Letters Sent Home - Forever Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111242.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ magnet:?xt=urn:btih:E8A3D2B006CD8546D22548F286C847DD78EB4C78
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111243.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ magnet:?xt=urn:btih:0202DB1099C0ECD766784C8628F05BB46262BF55
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111244.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111245.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ CudaText 1.213.0.1 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111246.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ magnet:?xt=urn:btih:60F58DBCFEED66125D145179B5F5765DA58030B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111247.jpg" />
 </div>
 
 
@@ -442,7 +523,7 @@ Amalgama - Mastermind (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111248.jpg" />
 </div>
 
 
@@ -469,7 +550,7 @@ magnet:?xt=urn:btih:BD7CC3E9E0E90AE058ECFEBDF64462A5062BE426
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111249.jpg" />
 </div>
 
 
@@ -493,7 +574,7 @@ Lights & Motion - Wonder (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambien
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111250.jpg" />
 </div>
 
 
@@ -520,7 +601,7 @@ Vanden Plas - The Empyrean Equation of The Long Lost Things (2024) [FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111251.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ Whalefall - Foxblood (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111252.jpg" />
 </div>
 
 
@@ -574,7 +655,7 @@ magnet:?xt=urn:btih:6609F0781A721DEB429C5721B6A52B05FA57EB89
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111253.jpg" />
 </div>
 
 
@@ -586,78 +667,6 @@ magnet:?xt=urn:btih:6609F0781A721DEB429C5721B6A52B05FA57EB89
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A125AA82550E72CC7E65670CB89A1B2D617A5704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717350   (111254) от 19.04.2024
-
-Mozilla Thunderbird 115.10.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758610A933BC8CEE7EB2A92D3A6EFBDD7329D59B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717338   (111255) от 19.04.2024
-
-Calibre 7.9.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A699245288934DB04983549DF76BE2751665F4F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717184   (111256) от 19.04.2024
-
-Глеб Кащеев | Мастер реальности (2018) [MP3, Илья Веселов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван лишился родителей в младенчестве и проживает в школе-интернате. Каждую ночь ему снится одна и та же девушка. Однажды учитель выдает ему странный прибор, а Иван, несмотря на предостережение друга, нажимает на нем кнопку и оказывается в мире Нави. Поскитавшись по улицам, он находит новых друзей, выясняет, что вся история его детства – ложь и он, скорее всего, (   Читать дальше...   )Жанр: мистика, книги для подростковИздательство: ЛитРесПродолжительность: 12:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4FABB5F3C5ACF1E7576D235484B6B936498647
 ```
 
 

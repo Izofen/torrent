@@ -6,7 +6,7 @@ Andry - Skies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114006.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F3706AF9AD3C3C99FBC90AB8CCD7CC4885C65BA1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114018.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:39ED83346B49088FF2ADF07D0BC7F29EC076C01F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114020.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Walter Trout - Broken (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] < Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114027.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ivo Linna - Поёт Иво Линна (1983) [FLAC 24/192|Lossless|tracks] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114032.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jimmy Goings & Santa Esmeralda - Green Talisman (1982) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114033.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Silveroller - At Dawn (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114034.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Solitude Aeturnus - Hour of Despair (2007) hand made remaster [FLAC 16/44.1|Loss
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114102.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mr. Smood - You'd Better Leave Now (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114108.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Omar Coleman - Strange Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114110.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Mighty Howlers - Back on Track (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114112.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mama Kandy - The Whitening (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114114.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D15507985B6BF7DA7CC0090FCAEC3ED031C46559
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114120.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк и Пауэлл (1986) 1988 [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114124.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tinsley Ellis - Naked Truth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114125.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Requiem - A Cure To Poison The World (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114127.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ CJ Redan - VOL. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114132.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nadir - Standing at the Cosmic Horizon (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114144.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114145.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114149.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kid Colling Cartel - Living On The Wild Side (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114152.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:031B54656433AD95FD9C3746F4D2A50A6BA59A7D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114153.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114155.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114158.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114200.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Alan Parsons - From The New World (2022) [WavPack|Lossless|image + .cue] <Sympho
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114230.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ EchøNova - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100902.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - 60 minutes. Old School Dance Music vol.27 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100919.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Blues & Gentlemen's - Compilation (2025) [MP3|320 Kbps] <Blues, Slow Blues, Inst
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100922.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DIAZZA - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100925.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Music News For Forum vol.138 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100928.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Adex - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101015.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101071.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Compilation Part 195 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101582.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Feel My Vibe - Feel My Vibe (2025) [MP3|320 Kbps] <Electronic, Easy listening, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101715.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Лучшие Зарубежные Треки (2012) [MP3|224 кб/с]<Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101744.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - New Top Зайцев.нет 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101977.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Самые горячие новинки этого года (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101992.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Beautiful Dubstep v.3 (2012) [MP3|256-320 кб/с]<Dubstep/Chillout/Longe>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102032.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Лучшие Хиты Радио Европа Плюс Часть 8 (2012) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102074.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Лучшие Хиты Радио Шансон Часть 8 (2012) [MP3|256 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102359.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - Дя, Я пьяна! Девишник (2012) [MP3|320 кб/с]<Шансон
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102377.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Восточная Сказка (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102414.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Музыка в дорогу и для себя (2012) [MP3|96-320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102486.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:213303B01513CC5CBD202EDE1CBC2724C4F81520
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102529.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102704.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102816.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Hamidshax - Compilation Cd 4 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103018.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103323.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Co
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103991.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Vintage Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104007.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104009.jpg" />
 </div>
 
 

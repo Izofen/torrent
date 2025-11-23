@@ -6,7 +6,7 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12814.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13091.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F92DB91FC156D30B261AB40D2827BD6A8B17858D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13121.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13196.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13287.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9E775DA4700D36CD193963419712E7CC8090A45E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13419.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:FE5395C5900F433F93EC3CB7ACBEA265131A56F2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13431.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:957A21865608F76699342B97AAE4620736010C00
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13469.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D66E5457511FD0D8CE46B9044857A025C7C9EA47
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13622.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Katainaka no Ossan, Kensei ni Naru | From Old Country Bumpkin to Master Swordsma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13653.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ore wa Seikan Kokka no Akutoku Ryoushu! | Я злoй лoрд мeжгaлaктич
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13658.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:9109C7C64DB9B720F1D454AD4A73A0EDAC8885A7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13817.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Isshun de Chiryou Shiteita no ni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Y
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13836.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:497DF086B6B2BD57C3E6CC091207B65A1404F4A5
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13846.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13881.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:7BE91537E545B5B28B2A197E56F72C21A5E5F34B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14058.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:4A2F9D632859AC2BFDAB0BFE5E6EB73DD6854D6A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14162.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:6A10E5988CBDA884B98675949B1EF0F48575669A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14357.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Beyblade Burst QuadStrike | Бейблэйд Взрыв — Квадроудар
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14499.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ginga Tetsudou no Yoru | Night on the Galactic Railroad | Ночь на Гала
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15045.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16033.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Devil May Cry | Adi Shankar's Devil May Cry | И дьявол может пла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16396.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:5179C426982094991CD6BE2805E0C8E317270C53
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16705.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ NEET Kunoichi to Nazeka Dousei Hajimemashita | Somehow, I Started Living With a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17613.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Undead Unluck | Нежить и Неудача [2023, TV, 24 из 24] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17977.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 из 24] BDRip 1080p H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18224.jpg" />
 </div>
 
 

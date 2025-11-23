@@ -1,3 +1,75 @@
+###  Публикация: 1681392   (133048) от 02.12.2023
+
+Ventusky: Прогноз погоды v30.0 (b3000) Mod by Alex.Strannik [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.12.2023Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A6452A6E7176987B71C7AB0EE68DC37C78348C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595172   (133049) от 27.12.2012
+
+Извлечение / Extracted (2012) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, Триллер, ДрамаРежиссер: Нир Панири / Nir PaniryАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара Томко и др.Перевод: Любительский |двухголосый закадровый| den904 & DeadSno + Одноголосый закадровый |Kerob|Продолжительность: 01:28:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681200   (133050) от 02.12.2023
+
+Джон Кеннеди: Один день из жизни Америки / JFK: One Day in America (2023) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1960 году Джон Кеннеди стал самым молодым президентом в истории США. Три года спустя, 22 ноября 1963 года его убили. В этой программе вы узнаете историю того дня и последовавшего за ним событий из уст последних живущих ныне свидетелей...Производство: Великобритания, 72 Films LimitedЖанр: документальный, история, биографияРежиссер: Элла РайтУчастники: Клинт Хилл, Сид Дэвис, Пол Э. ЛэндисПеревод: двуголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1465E2165BC2F3466D67C546D83A01D7E6394A30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681297   (133052) от 02.12.2023
 
 VA - Covers the Rock Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +78,7 @@ VA - Covers the Rock Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133052.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ PhotoScape 3.6.3 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133053.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Apeaksoft iPhone Eraser for Mac 1.0.20 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133054.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:611CCC8B00654D2F46799936A372971E4C283777
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133055.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:C053EF61F339520E9AAC72BD6D84B904BADA8224
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133056.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Remote Desktop Manager Enterprise 8.0.11.0 Final [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133057.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133058.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:FD33523BBBF6D3AEB87F3CA00AAEE0F03037F66D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133059.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Blank & Jones - Chilltronica EP 6 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133060.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ Fate - Ghosts From The Past (2011) remastered version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133062.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ magnet:?xt=urn:btih:D63413FBB2E4E98EDE61C092C8678D2E8ADE394D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133063.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ Emurasoft EmEditor Professional 23.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133064.jpg" />
 </div>
 
 
@@ -307,7 +379,7 @@ Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133066.jpg" />
 </div>
 
 
@@ -334,7 +406,7 @@ Chet Atkins with Tommy Emmanuel - The Day Finger Pickers Took Over The World (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133067.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ Chet Atkins with Tommy Emmanuel - The Day Finger Pickers Took Over The World (19
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133068.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ magnet:?xt=urn:btih:5D188288F630DD225052AEACA4155E11C0334029
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133069.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ magnet:?xt=urn:btih:80C246B92D1CC5EF5E442E159AD203274BA81D64
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133073.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ magnet:?xt=urn:btih:AF9A4861E8BF060CD76DCB9328939F7D90FFD9F8
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133074.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ PhotoRoom v4.7.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133075.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ magnet:?xt=urn:btih:C0055F78825E5DCC4B8E9BE2C0E3D229116BDC96
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133076.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133077.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ Black Sabbath - Deep Black (The Massachusetts Broadcast 1983) (2023) Live [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133078.jpg" />
 </div>
 
 
@@ -566,7 +638,7 @@ magnet:?xt=urn:btih:655B0BD172741AF2FF5F9D924CE1FAA80C18D027
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133079.jpg" />
 </div>
 
 
@@ -577,90 +649,6 @@ magnet:?xt=urn:btih:655B0BD172741AF2FF5F9D924CE1FAA80C18D027
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25B5C784133428ADC20709220D7F5D585C094F4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681138   (133080) от 02.12.2023
-
-Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Come Back (Evolution Extended Edit) [4:14]
-02. Chicane & Ferry Corsten feat. Christian Burns - One Thousand Suns (Extended Edit) [5:09]
-03. Chicane - Hiding All The Stars (Evolution Extended Edit) [4:45]
-04. Chicane - No Ordinary Morning (Edit) [5:09](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3141CDAF30B3483A6A4D49D25969B060606FB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681304   (133082) от 02.12.2023
-
-VA - Forever Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linkin Park - Talking to Myself (3:51)
-02. Red Hot Chili Peppers - Parallel Universe (4:29)
-03. Coldplay - Every Teardrop Is a Waterfall (4:01)
-04. Paramore - Daydreaming (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 03:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E13FBEF82FCCFF54E232698850A14706714F537
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681230   (133084) от 02.12.2023
-
-Billy's Band - В шляпе (2023) [WavPack|Lossless|image + .cue] <Rock, Jazz, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Billy’s Band выпустила новый альбом «В шляпе». Пластинка стала седьмой в дискографии коллектива и была записана в новом составе.
-
-«В шляпе» — альбом, в котором постоянные участники группы, Билли и Михаил, знакомят слушателей с Марсом Ковалевским, который в феврале 2023 вошел в состав группы в качестве гитариста.
-(   Читать дальше...   )01. Старомоден
-02. Ты мерещишься мне
-03. Фонари
-04. Мама, забери(   Читать дальше...   )Жанр: Rock, Jazz, BluesПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24595D1AEC3B3DAE7BA5FD49853FAB499ACBAE67
 ```
 
 

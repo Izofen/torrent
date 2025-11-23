@@ -1,3 +1,149 @@
+###  Публикация: 1347593   (143520) от 28.12.2019
+
+Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143520.jpg" />
+</div>
+
+
+###  Подробнее
+
+360° Visualizer Music VideoЖанр: Technical Death MetalПродолжительность: 00:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520306   (143521) от 27.12.2021
+
+Гарри Гаррисон | "Стальная Крыса" Книга 10. Стальная крыса на манеже (2021) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный Джим ди Гриз — знаменитый межзвездный преступник — получил за свою изобретательность и решительность меткое прозвище «Крыса из нержавеющей стали».
+Рожденный богатой творческой фантазией Гарри Гаррисона, отчаянный и симпатичный герой из далекого будущего приобрел необыкновенную любовь и популярность поклонников фантастики во всем мире, щедро поделившись (   Читать дальше...   )Жанр: ФантастикаПеревод: Геннадия КорчагинаПродолжительность: 09:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8740CEE8AD027AACC016A67651B5E56FE7B86762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970345   (143522) от 29.12.2015
+
+Эдвард Смит | Вторая Стадия. Дети Линзы (1994) [PDF, DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143522.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вторая Стадия» и «Дети Линзы» являются соответственно пятой и шестой книгами знаменитого сериала Э. Э. «Дока» Смита о Ленсменах, стражах галактической безопасности и порядка, носителей Концентратора-Линзы, которая предназначена для усиления их ментальных способностей. В пятой книге эпопеи продолжается рассказ о Кимболе Киннисоне, Сером Ленсмене, неподсудного никому (   Читать дальше...   )Жанр: Фантастические романыПеревод: М. С. Нахмансон, И. Коробова, Г. Выдревич, Н. В. Эдельман, А. Антошульский, Т. ФилатоваФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D7570EF625928B8398DDE34C2F288A7D2DDB95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678510   (143524) от 22.11.2023
+
+Собака Баскервилей / The Hound of the Baskervilles (1959) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143524.jpg" />
+</div>
+
+
+###  Подробнее
+
+В восемнадцатом веке богатый землевладелец Хьюго Баскервиль похитил местную девушку и запер ее в своем поместье. Однажды во время гулянки он рассказал своим друзьям о девушке, но те не поверили ему. Он отправился в подвал и обнаружил, что девушке удалось убежать. Тогда Хьюго вскочил на свою лошадь и бросился в погоню. Неожиданно возникшее "чудовище из ада" (   Читать дальше...   )Производство: Великобритания / Hammer Film ProductionsЖанр: Детектив, Криминал, УжасыРежиссер: Теренс ФишерАктеры: Питер Кушинг, Андре Морелл, Кристофер Ли, Марла Ланди, Дэвид Оксли, Френсис Де Вулф, Майлз Маллесон, Ивен Солон, Джон Ле Мезюрье, Хелен ГоссПеревод: Двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA438EC1C6A4BEF396E5368D7D64F9850AF2566
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195377   (143525) от 28.12.2017
+
+Растровый клипарт - Fotolia - Sensual attractive lady posing in studio [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушки с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3920x5792-8688x5792
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B94F60FA6F2CBF63DCFBF8B2FEE209DF2BDB253
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678650   (143526) от 22.11.2023
+
+Viber 21.4.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber - десктопная версия популярного мобильного приложения для IP-телефонии, с помощью которого можно свободно отправлять сообщения, совершать голосовые и видеовызовы (HD качество) другим пользователям Viber, вне зависимости от того каким устройством они пользуются, к какой сети подключены и в какой стране находятся.
+Программа автоматически синхронизирует с мобильным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F32CCB4FA2F36B3854B22571B5FA0E9787507D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348553   (143527) от 28.12.2019
 
 Гобелен Апокалипсис. Анжуйский шедевр / La Tenture de l'Apocalypse, le chef d'euvre angevin (2011) DVBRip
@@ -6,7 +152,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143527.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ magnet:?xt=urn:btih:C13437B54E45CD777C1B385110E13FDB5B391036
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143528.jpg" />
 </div>
 
 
@@ -54,7 +200,7 @@ Return to Castle Wolfenstein (2001) [En/Ge] (1.41) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143529.jpg" />
 </div>
 
 
@@ -78,7 +224,7 @@ MediaHuman YouTube Downloader 3.9.9.51 (1412) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143530.jpg" />
 </div>
 
 
@@ -102,7 +248,7 @@ magnet:?xt=urn:btih:74B74F95D85601D77B101A792E1283C6B43283AC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143532.jpg" />
 </div>
 
 
@@ -126,7 +272,7 @@ magnet:?xt=urn:btih:3437F9C7445E9F3E013F2C9885FB51CAC8A86528
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143533.jpg" />
 </div>
 
 
@@ -150,7 +296,7 @@ magnet:?xt=urn:btih:D344C59AD8DFD2094CEA0AFE473CB714A37EA7A3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143535.jpg" />
 </div>
 
 
@@ -174,7 +320,7 @@ magnet:?xt=urn:btih:CFB163553B9097709FC9F35A3F7FC409C9ECCA49
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143537.jpg" />
 </div>
 
 
@@ -198,7 +344,7 @@ Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143538.jpg" />
 </div>
 
 
@@ -225,7 +371,7 @@ magnet:?xt=urn:btih:8A90AD8805A238A07F739DAAED49E0E3D71740F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143539.jpg" />
 </div>
 
 
@@ -249,7 +395,7 @@ magnet:?xt=urn:btih:FAC6939521FEE105383ECBA1FFACA0763B6B5CA4
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143541.jpg" />
 </div>
 
 
@@ -274,7 +420,7 @@ magnet:?xt=urn:btih:30F2F14B2C1F9F674CE9BE133ADC758B67846341
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143542.jpg" />
 </div>
 
 
@@ -299,7 +445,7 @@ magnet:?xt=urn:btih:99B057ED7ED77865B61BC19282708F89EC9C15AC
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143543.jpg" />
 </div>
 
 
@@ -323,7 +469,7 @@ magnet:?xt=urn:btih:AFB71617DD4A39454CF24EEB4A95758EE8229829
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143544.jpg" />
 </div>
 
 
@@ -348,7 +494,7 @@ magnet:?xt=urn:btih:CC63AC9F3774ED390194C6D249D062E5918931D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143546.jpg" />
 </div>
 
 
@@ -372,7 +518,7 @@ AnyMP4 Mac Blu-ray Ripper 8.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143547.jpg" />
 </div>
 
 
@@ -396,7 +542,7 @@ magnet:?xt=urn:btih:16BB229DF289AB9A29E7961A24620046FC7190D2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143549.jpg" />
 </div>
 
 
@@ -420,7 +566,7 @@ Lost Society - Braindead (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143550.jpg" />
 </div>
 
 
@@ -447,7 +593,7 @@ LibreWolf 120.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143551.jpg" />
 </div>
 
 
@@ -473,7 +619,7 @@ magnet:?xt=urn:btih:E72680699D5273C886C7B9A6D175D1E8A9653282
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143553.jpg" />
 </div>
 
 
@@ -484,159 +630,6 @@ magnet:?xt=urn:btih:E72680699D5273C886C7B9A6D175D1E8A9653282
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A17EE57233D54BCDEC356835B457F552BBE00E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435448   (143554) от 28.12.2020
-
-Оверлеи - GraphicRiver - Snow Effect Overlays - 25262884 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143554.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 Snow Effect Overlays - красивые наложения для ваших фотографий, сделайте быструю и легкую зимнюю сказку на ваших фотографиях. Эта коллекция изолированных декоративных текстур поможет вам добавить реалистичный эффект снега на ваши фотографии и работы. Добавьте снежного настроения за несколько секунд!.Формат: JPGРазрешение файлов: 5000x5000-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8F0C17F1E4B67AF495C8D052B3B542B9F5BE08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970330   (143556) от 29.12.2015
-
-Газета | Морфей №26 (324) (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите посмотреть на мир с высоты? А как увидеть добрый сон, знаете? Нужно избавиться от ссор и склок? Читайте наш журнал и вам улыбнется удача!Жанр: Сны, гадания, приметыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B489BF2F516E55F1AD28922419C0A7DF0331BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348666   (143557) от 28.12.2019
-
-VA - German Top 100 Single Charts 27.12.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mariah Carey - All I Want for Christmas Is You (4:01)
-2.Wham! - Last Christmas (4:25)
-3.Tones and I - Dance Monkey (3:29)
-4.Apache 207 - Roller (2:38)(   Читать дальше...   )Жанр: PopПродолжительность: 05:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301A7EBF2740C44313EDBCA19756AC7E5F3BA92C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061385   (143558) от 28.12.2016
-
-Keijo!!!!!!!! / Кейджо !!!!!!!! [2016, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в альтернативной Японии, где существует спорт под названием кейдзо. Два противника стоят на платформе, плавающей в воде, и пытаются столкнуть друг друга, используя только груди и задницы. Гениально! Главная героиня Нодзоми Каминащи — старшеклассница, которая после окончания школы планирует профессионально заняться этим, хм, спортом. Девушка (   Читать дальше...   )Жанр: комедия, этти, траваРежиссер: Такахаси ХидэяПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C4A4606A3FCED0DFDA746B15662D84D8C579EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435462   (143561) от 28.12.2020
-
-Новогодние детские песни - Новогодние Песни (2020) [MP3|320 Kbps] <Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В Лесу Родилась Ёлочка (1:09)
-02. Расскажи, Снегурочка (1:25)
-03. Маленькой Ёлочке Холодно Зимой (1:31)
-04. Новый Год К Нам Идёт (2:05)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2611FDFEA1E4209A0F22D73876F102F915EE39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678647   (143562) от 22.11.2023
-
-VA - Disco Fantasy '79 (1979) 2LP [MP3|320 Kbps] <Funk / Soul, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gala Gypsy Orchestra - The Stranger (3:44)
-02. Fantastic Sounds Orchestra - Macho (A Real, Real, One) (4:00)
-03. Fantastic Sounds Orchestra - Fantasy (4:06)
-04. Hollywood - Don't Treat Me Like Your Sister (3:38)(   Читать дальше...   )Жанр: Funk / Soul, Pop, DiscoПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E90CEB345060B46EB406F29894629B4C77BE27
 ```
 
 

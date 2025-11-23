@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EC8374DDACD73C389995E0CED1C726D3EF84FA19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12384.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12385.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0.1 Build 6 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12386.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Echo Paradox (2025) [En] (19081580) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12387.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CPU-Z 2.16.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12388.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Macrium Reflect Free Edition 8.0.7783 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12389.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:7EE24B4FDAEA8D720D6B4183964DB72BC6E52121
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12390.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12391.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Dreadful River (2023) [En] (0.9.1.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12392.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ MSI Afterburner 4.6.6.16591 Beta 6 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12393.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:5E9723660031F6E483556259160020AF820B715E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12394.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12395.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:62948E91210E53EB3148186B2FFB873007F483C1
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12396.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:A94D4BA69B4C8C47A39317455730771C1EF5E5B7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12397.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:986EC026B035BB5C937FD920D8399047EC0978F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12398.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:AAD81806AEB1EAB5625BF792E1CC3949C8D0915D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12399.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:75C24E0EA6802967E9F3979C2C7FFAAE4795D8F7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12400.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:B256180ABCCB863817DCB404942A1D79C3788A26
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12401.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:F093475F9EDF2A16977F17EABD0AF0F161672173
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12402.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12403.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Heart of the Machine (2025) [Multi] (0.660.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12404.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12405.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:FA2CAA35993590DA3458F7B38B73E763426CCBD0
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12407.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:FA2CAA35993590DA3458F7B38B73E763426CCBD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12408.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ ByeByeDPI v1.5.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12409.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 604095   (138068) от 31.12.2013
+
+С наступающим... [H.264] (2013) SATRip [Московский театр "Современник"]
+
+>>След.
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный телеведущий и продюсер Кирилл Цандер, возвращаясь домой в самый канун Нового года, узнаёт, что от него ушла жена, прихватив ребёнка. Он вытаскивает праздничный стол прямо на лестничную клетку, чтобы отпраздновать новогоднюю ночь в компании двух комфортабельных лифтов. Но не тут-то было: из лифта выходит Дед Мороз и оказывается, что он — однокашник Цандера по театральному институту — Михаил Громов.
+
+То, что они рассказывают друг другу на лестничной клетке за накрытым столом, похоже на все истории, которые могут рассказать два уже не молодых человека, успевшие устать и разочароваться во многом. Но есть и особенности. Они — актеры. И пусть один — успешный и веселый, а другой – неудачливый и мрачный, они лицедействуют со всей своей актерской страстью …Жанр: ДрамаРежиссер: Родион ОвчинниковАктеры: Сергей Гармаш, Леонид Ярмольник, Николай Попков, Виктория Романенко, Дмитрий Смолев, Александр Кахун, Виктор Тульчинский, Янина Романова, Владимир Суворов, Голос Маши - Чулпан ХаматоваПродолжительность: 02:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51900EA0B9C2C8ABB91E3D23D28FB2164D3A717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970371   (138069) от 31.12.2015
+
+VA - Зимний марафон № 216: Новогодний Фейерверк (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (29.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
+P/S: Добавлены новинки с Новогодними клипами.01. Akcent ft. Sandra N - Amor Gitana (Official Video) (00:03:02)
+02. Ariana Grande - Focus (Live AMA 2015) (Official Video) (00:03:35)
+03. Diana Gloster - Buona Sera (Official Video) (00:03:10)
+04. Дуэт Свои и Прохор Шаляпин - Зима (Новогодний клип!) (00:03:46)(   Читать дальше...   )Жанр: Pop, Dance, Latino, ReggaetonПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604095   (138070) от 31.12.2013
+
+С наступающим... [H.264] (2013) SATRip [Московский театр "Современник"]
+
+>>След.
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный телеведущий и продюсер Кирилл Цандер, возвращаясь домой в самый канун Нового года, узнаёт, что от него ушла жена, прихватив ребёнка. Он вытаскивает праздничный стол прямо на лестничную клетку, чтобы отпраздновать новогоднюю ночь в компании двух комфортабельных лифтов. Но не тут-то было: из лифта выходит Дед Мороз и оказывается, что он — однокашник Цандера по театральному институту — Михаил Громов.
+
+То, что они рассказывают друг другу на лестничной клетке за накрытым столом, похоже на все истории, которые могут рассказать два уже не молодых человека, успевшие устать и разочароваться во многом. Но есть и особенности. Они — актеры. И пусть один — успешный и веселый, а другой – неудачливый и мрачный, они лицедействуют со всей своей актерской страстью …Жанр: ДрамаРежиссер: Родион ОвчинниковАктеры: Сергей Гармаш, Леонид Ярмольник, Николай Попков, Виктория Романенко, Дмитрий Смолев, Александр Кахун, Виктор Тульчинский, Янина Романова, Владимир Суворов, Голос Маши - Чулпан ХаматоваПродолжительность: 02:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51900EA0B9C2C8ABB91E3D23D28FB2164D3A717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273254   (138071) от 31.12.2018
 
 Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossless|image + .cue] <Mainstream Jazz, Swing>
@@ -6,7 +86,7 @@ Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138071.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ PixelLab Pro - Text on pictures 2.1.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138072.jpg" />
 </div>
 
 
@@ -57,7 +137,7 @@ CGMA, Pete Zoppi | Создание персонажа для фильмов/с�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138073.jpg" />
 </div>
 
 
@@ -81,7 +161,7 @@ John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138074.jpg" />
 </div>
 
 
@@ -108,7 +188,7 @@ Abazagorath - Sacraments Of The Final Atrocity (2004) [WavPack|Lossless]<Black M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138076.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ Sven Erik Lundeqvist Trio - First & Foremost (2018) Storyville Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138078.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ magnet:?xt=urn:btih:5A42D03C12CB340C9400E38F6C7BC65A80C36F04
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138080.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electroni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138081.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ magnet:?xt=urn:btih:06983BA2DF9330B979F489ECE883B6F49F2B9769
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138083.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ Acrophet - Faded Glory (1990) [WavPack|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138084.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ Acrophet - Faded Glory (1990) [WavPack|Lossless]<Thrash Metal>
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138086.jpg" />
 </div>
 
 
@@ -301,7 +381,7 @@ magnet:?xt=urn:btih:7D3ED4705446CAD272E7D083B3D2ABAD4040DCC8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138088.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ magnet:?xt=urn:btih:6E02E1363EB2D37C9BB3282DC8452B9B2814A9DF
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138089.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ VA - Organica - Sound Tales 1 (2021) [AAC|~305 Kbps] <Deep House, Dub Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138090.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ magnet:?xt=urn:btih:D5CD5DA15D19DB7AD7E0817A47A97C683A4702EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138091.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ TablePlus 5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138092.jpg" />
 </div>
 
 
@@ -427,7 +507,7 @@ magnet:?xt=urn:btih:8E8213E29C396DAA4E6CCE828BE9CE4ECFC466F2
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138093.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ magnet:?xt=urn:btih:306AB12056575B4BD0EBA83EEC413E8B4CF68860
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138094.jpg" />
 </div>
 
 
@@ -479,7 +559,7 @@ magnet:?xt=urn:btih:7C4F143EC4DE56B6C5A7AA88C47126674B02D5C6
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138097.jpg" />
 </div>
 
 
@@ -503,7 +583,7 @@ magnet:?xt=urn:btih:2FD09D97F3035EA0D01F3C08FC8B442870B87784
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138099.jpg" />
 </div>
 
 
@@ -527,7 +607,7 @@ Sandboxie 5.67.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138101.jpg" />
 </div>
 
 
@@ -551,7 +631,7 @@ magnet:?xt=urn:btih:C5C7838C70E16045B2F1C7AFDA5E502461F2CDB7
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138103.jpg" />
 </div>
 
 
@@ -577,7 +657,7 @@ magnet:?xt=urn:btih:48B9278B23BC6F58C5803D6C025C0E80306F5EF1
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138104.jpg" />
 </div>
 
 
@@ -588,86 +668,6 @@ magnet:?xt=urn:btih:48B9278B23BC6F58C5803D6C025C0E80306F5EF1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D6383288EC9D1E662DA580D4AFA842A442F7508
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521048   (138105) от 31.12.2021
-
-VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ChubaChiki - Jazz Improvisation (Marcus Raute Mallets Mix) (6:29)
-02. kamosoul - Shine (BNinjas Basement Mix) (7:12)
-03. Toni Young - Impossible To Imagine (5:49)
-04. JOFF. - Sunday Picture (5:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C346221D00658F6C8378B8ABEB79765E59AFB61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414317   (138107) от 30.12.2020
-
-Noblesse | Дворянство [2020, TV, 13] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рейзел пробудился после 820 лет сна. Он — чистокровный дворянин, обладатель особого титула защитника.
-
-Верный слуга Франкенштейн в попытке защитить господина переводит его в корейскую старшую школу, где одноклассники помогают Рейзелу познать человеческий мир.
-(   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: приключения, фэнтезиРежиссер: Тада СюнсукэПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F39CD3715B7958A3821400AA0B844088944A3ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679419   (138108) от 25.11.2023
-
-Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Herald of Darkness [13:35]
-02 - Herald of Darkness (Video Edit) [8:38]
-03 - Herald of Darkness (Radio Edit) [3:40]Жанр: Metal, Heavy MetalПродолжительность: 00:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D98D321DFE4B900D86604718F346467064EBAEB
 ```
 
 

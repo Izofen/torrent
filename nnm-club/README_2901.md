@@ -1,3 +1,84 @@
+###  Публикация: 475153   (85301) от 30.03.2012
+
+Мегамикс Philizz Video YearMix 2011 Vol. 5 Пиратская Вечеринка HD x264 1080p 5,7Gb
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
+И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2011! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 57 мин 54 сек (00:57:54)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED35EDAE2BDFE441BD987C9B79C2A13368FA399
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475765   (85303) от 30.03.2012
+
+Вирусный фактор / The Viral Factor / Jik zin (2012) [H.264] HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество победило оспу давно и навсегда. По-крайне мере мир привык так думать. Но это не так. Есть на земле места, где всё ещё хранятся образцы вируса. Один из таких образцов похитил учёный Кеннер с целью создания нового биологического оружия. Американским военным удалось схватить Кеннера, но он готов отдать образец только после того, как его вместе с семьёй доставят в Норвегию.
+Полицейскому Джону во время перестрелки пуля попала в голову и не существует безопасного способа её извлечь. Джон медленно умирает, у него осталось только две недели, чтобы решить кучу проблем: найти старшего брата, о существовании которого он и не подозревал, остановить спятившего спецназовца и спасти мир...Жанр: БоевикРежиссер: Данте ЛамАктеры: Джей Чоу, Николас Тсе,  Энди Он, Бинг Бай, Тинь Чи ХунгПеревод: Одноголосый закадровый, любительский (Язык субтитров: РусскийПродолжительность: 02:02:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475755   (85304) от 30.03.2012
+
+«Фламинго» | Пять сказок. Снежная королева [2009] [Pdf]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Пять Сказок» — в каждую книгу входят по пять сказок.
+ Хорошо иллюстрированные сказки для детей. Художник И.Приходкин.
+ В книгу «Пять сказок. Снежная королева» входят сказки:
+• “Снежная королева”,
+• “Принцесса на горошине”,
+• “Спящая красавица”,
+• “Горшок каши”,
+• “Гензель и Гретель”.Жанр: Сказки (иллюстрации), детская литератураФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC7DDCA76C11FA6FA660B91930DE9882B803B0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475387   (85305) от 30.03.2012
 
 Wolfgang Amadeus Mozart-Requiem in D minor, K 626: VA, conductor Bernard Labadie (1791)/2002/[APE|Lossless]<Classsical>
@@ -6,7 +87,7 @@ Wolfgang Amadeus Mozart-Requiem in D minor, K 626: VA, conductor Bernard Labadie
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85305.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85306.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ magnet:?xt=urn:btih:39756A4D56C587AB1872A31D5054C923DB22F00A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85307.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85308.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85309.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85313.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ magnet:?xt=urn:btih:6FCC3B5E1D35DFE4738A71F44A965B2719E0E93E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85314.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ Johann Sebastian Bach-The Organ Works vol.6: organ Peter Hurford (1982-1985)/198
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85315.jpg" />
 </div>
 
 
@@ -225,7 +306,7 @@ magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85318.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85324.jpg" />
 </div>
 
 
@@ -275,7 +356,7 @@ magnet:?xt=urn:btih:65B42396879703F5B2ABDB2A041C54883F01E0A6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85328.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ magnet:?xt=urn:btih:60F74EF12BB82DDD808D018A2C9961482F35AEF9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85329.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ OSGeo-Live 5.5 (Дистрибутив для географов, картогр
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85331.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ magnet:?xt=urn:btih:6CC5623FE115F3DA427C4DF4A50F81B802360ACE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85332.jpg" />
 </div>
 
 
@@ -371,7 +452,7 @@ magnet:?xt=urn:btih:6CC5623FE115F3DA427C4DF4A50F81B802360ACE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85334.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ magnet:?xt=urn:btih:9DA18785805E9B6FA2158129AA2E7402E6FFCB79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85335.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ magnet:?xt=urn:btih:9DA18785805E9B6FA2158129AA2E7402E6FFCB79
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85337.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ magnet:?xt=urn:btih:C399A20B5395A3C8FC6D1789E1DC466D882A570B
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85338.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ magnet:?xt=urn:btih:05B4C5E6E9BA1662C70717A8E310122A1DFD75EA
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85340.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ magnet:?xt=urn:btih:E976CF41E150E035823D074028F574E0A5B4EA0F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85342.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ magnet:?xt=urn:btih:7AA2F4AEEAC7F4E1E1A005A6B591D1080D0FD164
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85344.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ magnet:?xt=urn:btih:3A0ECDA1E1F0317C0786F1A35687F4DB02854ED9
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85346.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ Annihilator - The Best Of Annihilator (2004) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85347.jpg" />
 </div>
 
 
@@ -608,82 +689,6 @@ Annihilator - The Best Of Annihilator (2004) [MP3|320 кб/с]<Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE36403F1704AAB1E1FCD55B2C258322D3EE398B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475584   (85348) от 30.03.2012
-
-Чужая нация / Alien Nation (1988) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85348.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пустыне Мохаве потерпел крушение огромный инопланетный космический корабль, перевозивший 250 тысяч рабов из разных концов Галактики. Пришельцы стали жить среди людей, многие из которых были очень враждебно настроены по отношению к «отбросам Вселенной».
-
-Среди них — детектив Мэттью Сайкс, напарник которого погиб в перестрелке с бандой пришельцев. Перебирая бумаги погибшего друга, Мэттью делает открытие: его убили за то, что он пытался выяснить, почему пришельцы так слепо повиновались своим бывшим хозяевам.
-
-Когда в городе начинают находить трупы пришельцев, умерших от странной болезни, а на страницы газет попадает снимок чудовищной насекомообразной твари, Мэттью и его новый напарник, пришелец Джордж, вынуждены работать рука об руку, чтобы раскрыть тайну этих событий…Жанр: Фантастика, Триллер, КриминалРежиссер: Грэм БейкерАктеры: Джеймс Каан, Мэнди Пэтинкин, Теренс Стэмп, Кевин Мейджор Ховард, Лесли Бевис, Питер Джейсон, Конрад Данн, Джефф Кобер, Роджер Аарон Браун, Тони СаймотсПеревод: Многоголосый закадровыйПродолжительность: 01:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E961551942F7F311667223C436FD83D115646C3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475521   (85349) от 30.03.2012
-
-Тройная проверка (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85349.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1943 году на Ленинградском фронте советский офицер Климов в бессознательном состоянии попадает в плен. Он соглашается пойти в школу немецкой военной разведки, постепенно входит в доверие к ее руководству и добивается отправки для работы в советский тыл. Здесь он является в советские органы госбезопасности, где ему после соответствующей проверки дают задание дезинформировать (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Алоиз БренчАктеры: Игорь Ледогоров, Виктор Чекмарев, Виктор Тарасов, Валентина Егоренкова, Вия Артмане, Дзидра Ритенберга, Паул Буткевич, Игорь Владимиров, Улдис Думпис, Владимир Козел, Ирина Куберская, Геннадий Нилов, Лаймонас Норейка, Гурген Тонунц, Георгий Шевцов, Татьяна Игнатова, Станислав Фесюнов, Игорь Боголюбов, Раднэр Муратов, Виктор Плют, Владимир Эренберг, Людмила Аржаникова, (   Читать дальше...   )Продолжительность: 01:31:14
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475522   (85350) от 30.03.2012
-
-Варькина земля (4 серии) (1969) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионный сериал о молодежи, которая выбирает трудовой путь, о выборе профессии и места в жизни. Героиня фильма Варя Кравец после окончания школы остается в родном колхозе. Пришла к ней и первая любовь. Тем неожиданней для нее гибель любимого. Преодолеть кризис помогают односельчане. События фильма разворачиваются на фоне колхозного села с его повседневными заботами (   Читать дальше...   )Производство: СССР, киностудия им. А. ДовженкоЖанр: Драма, МелодрамаРежиссер: Анатолий БуковскийАктеры: Нина Антонова, Александра Данилова, Петр Любешкин, Валентина Владимирова, Светлана Кондратова, Майя Булгакова, Валентин Грудинин, Николай Пишванов, Анатолий Грачёв, Владимир Дорофеев, Маргарита Кошелева, Агафья Болотова, Борислав Брондуков, Владимир Волков, Лилия Дзюба, Лидия Чащина, Евгений Гуров, Федор Панасенко, Николай ЯковченкоПродолжительность: 4 серии (01:01:37 + 00:49:31 + 00:57:42 + 01:00:59)
-
-## Скачать торент
-```bash
-нет
 ```
 
 

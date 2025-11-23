@@ -6,7 +6,7 @@ Toxikk Deception - Harsh Reality (2024) [MP3|204-260 kbps VBR (V0)] <EBM, Dark E
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107879.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Armin van Buuren - A State Of Trance 1177 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107940.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Black Hole House Music 06-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107942.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Black Hole Trance Music 06-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107965.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Broken English Club - Decade (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108019.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Nothing But... Trancetopia Vol. 15 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108021.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ LuLa Featuring Papa Joe - Last Night A DJ Saved My Life [While A DJ Gave Me Trou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108025.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Travel In The Universe, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108076.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Sunset Dreamer: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108135.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Bidoben - Cobalt Blue Rust (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108200.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - This Is Chill Music 2024 (2024) Original Mix [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108208.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Future Funk Squad - SIX (2024) [FLAC|Lossless|WEB-DL|tracks] <BreakBeat, Breaks,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108247.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Summer Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108277.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Booka Shade - Link To The Invisible (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108281.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - The Deep Collective -  Rhythmica (2023) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108285.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Mosimann - Axtone House Party (2024-06-07) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108295.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - The Deep Collective - Deep Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108329.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Armin van Buuren - A State Of Trance 1176 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108339.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - drama (2024) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108354.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Anjunadeep 15 (Mixed By Jody Wisternoff & James Grant) - 2024 [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108357.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Ibiza Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108360.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Lounge Rendezvous, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108384.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Nightmares On Wax - Carboot Soul (1999) Deluxe Edition, 2024, Warp Records [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108404.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Aphex Twin - Digeridoo (1992) Expanded Edition 2024, R&S Records [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108432.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Ibiza Season Opening 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108442.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Laserdance - Laserdance Orchestra Vol. 1 (1994) Reissue, 2024, ZYX Italo [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108501.jpg" />
 </div>
 
 

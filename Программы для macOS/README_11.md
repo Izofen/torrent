@@ -6,7 +6,7 @@ Blocs 5.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113729.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Aiseesoft iPhone Cleaner 1.0.30 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113730.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ DJ Mix Pads 2 - Remix Version 6.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113737.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FocusSee for Mac 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113786.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ DropDMG 3.6.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113808.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ RightFont 8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113811.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ EagleFiler 1.9.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113854.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Feeder 4 v.4.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113874.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Debit & Credit Premium 6.3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113878.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ SideNotes 1.4.14 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113879.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.10 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113910.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.56 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113920.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Stay 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113927.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Disk Graph 3.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113953.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ ToothFairy 2.8.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113955.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Navicat Data Modeler Essentials for Mac 3.3.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113956.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PopChar for Mac 10.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113959.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ AutoCrypt 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113968.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Calendar 366 II 2.15.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113976.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NextChat for Mac 2.11.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113978.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ One Switch 1.34.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113983.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Navicat for SQL Server on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113986.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ SimpleMind − Mind Mapping 2.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113991.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Nova 11.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113996.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ A Better Finder Attributes 7 v.7.31 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114005.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Boinx FotoMagico Pro 6 v.6.5.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114025.jpg" />
 </div>
 
 

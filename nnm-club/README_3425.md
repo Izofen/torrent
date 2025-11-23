@@ -1,3 +1,84 @@
+###  Публикация: 1726415   (108732) от 28.05.2024
+
+Ирвинг Вашингтон и др. | Сказки американских писателей. Храбрый Братец Опоссум (2012) [MP3, Владимир Левашёв, Станислав Федосов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Сказки любят все, потому что каждый человек до конца жизни остается немножко ребёнком. В сказках заключена мудрость народа, они помогают понять самые сокровенные устремления народной души.
+Музыка Саши Артишок и Геннадия Медведева.
+(   Читать дальше...   )Жанр: Зарубежная детская литература, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 06:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FDA063CDD108DDE98E036AE9E74042676D58DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726346   (108733) от 28.05.2024
+
+Mad Hatter - Oneironautics (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oneironautics
+02. Lord Of Dragons
+03. Death In Wonderland
+04. I Will Find My Way(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7BE6E6DF86D384488FCE8DEA0AE8A7B64024DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726350   (108734) от 28.05.2024
+
+Phil Woods - Into The Woods: The Best of Phil Woods (1987 - 1995) 1996, Concord Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Bird's Children [7:12]
+02. Hal Mallet [5:12]
+03. Bop Stew [7:31]
+04. Misirlou [7:04](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A3C4A65FBE4580ACD9946D27800185F3E94D27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726333   (108735) от 28.05.2024
 
 Armed Cloud - Nimbus (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
@@ -6,7 +87,7 @@ Armed Cloud - Nimbus (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108735.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Horace Parlan - Musically Yours (1979) 1994, SteepleChase [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108736.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Gerry Wiggins - Live at Maybeck Recital Hall, Vol. 8 (1990) 1991, Concord Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108737.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:B23655EDEFA61C793EBDF53BD9BE769ACAA65AA7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108738.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Telegram Desktop 5.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108739.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ magnet:?xt=urn:btih:00F61A6C36A9942EF65711A3DED26A0C963F7E58
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108740.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ magnet:?xt=urn:btih:23A3A2ED5C58205382C1520A6F2E4E87628AD109
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108741.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ magnet:?xt=urn:btih:EDD2C69D78AC0422C8DC46F7CE8C92631A695B0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108742.jpg" />
 </div>
 
 
@@ -210,7 +291,7 @@ GeoGebra 6.0.843.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108743.jpg" />
 </div>
 
 
@@ -234,7 +315,7 @@ Skype 8.120.0.207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108744.jpg" />
 </div>
 
 
@@ -258,7 +339,7 @@ magnet:?xt=urn:btih:4A1EF5C2BE8006C5AD99B24D0FB3087A9116AE1F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108745.jpg" />
 </div>
 
 
@@ -283,7 +364,7 @@ VA - Uplifting Only Top 15: May 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108746.jpg" />
 </div>
 
 
@@ -310,7 +391,7 @@ magnet:?xt=urn:btih:F60F41AFBBCC5A7C841613CA5B5A35DCD5C54E1F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108747.jpg" />
 </div>
 
 
@@ -334,7 +415,7 @@ Photo Lab PRO v3.13.10 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108748.jpg" />
 </div>
 
 
@@ -358,7 +439,7 @@ magnet:?xt=urn:btih:AFFB3DE8BDC730E64CD8204EFA3FE631F7DC413D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108749.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ Vasco Rossi - Greatest Hits (2002) [WavPack|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108750.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ Night's Music Zone - Soothing Night of Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108751.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ Theater of Malum - Edge of The Unknown (2024) [FLAC|Lossless|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108752.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ magnet:?xt=urn:btih:B14BDBBDB9A4BC55A6A0133C5A933E5DE697154C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108753.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108754.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ magnet:?xt=urn:btih:65DABCD965CE38B96A0D5832E146B763619C5EF8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108755.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ Silver Horses - Electric Omega (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108756.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ magnet:?xt=urn:btih:BEC42802F68C1944B8A9703D46C4480D8E6C9563
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108757.jpg" />
 </div>
 
 
@@ -579,79 +660,6 @@ magnet:?xt=urn:btih:BEC42802F68C1944B8A9703D46C4480D8E6C9563
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:248810DCC42F7140FCE1B86A2F1B7D0B2640E83C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726385   (108758) от 28.05.2024
-
-Skype 8.120.0.207 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286A3E58356677B4B5877749C08B4B245AC7A5F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726453   (108759) от 28.05.2024
-
-Взорванные дни / Вибухлi днi (1930) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попытка воссоздать образ ближайшего будущего села в виде агрогорода с остроумным пародированием штампов бытовой деревенской драмы середины 1920-х годов.
-По сюжету один украинский завод выделяет трактор, который будут использовать на съемках кинофильма о деревне. Доставить в павильон его должен рабочий. На съемочной площадке он отмечает, что фильм получается неправдоподобным, (   Читать дальше...   )Производство: СССР / УкраинфильмЖанр: агитфильм, драма, немое киноРежиссер: Александр СоловьевАктеры: Иван Сизов, П. Костенко, Алексей Харламов, Дж. Ростов, Владимир Чувелев, Семён Свашенко, Иван Твердохлиб, Степан Васютинский, Г. Ростов, А. БеловСубтитры: украинские (интертитры), русскиеПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319D0638C13EFAB1F48D9B54E0CE395871DC65F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726409   (108760) от 28.05.2024
-
-Журнал | Linux Format №314 (2024) [PDF][EN]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Format — первый ежемесячный журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Future Publishing LimitedФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8362114256B384A665772DC9361D3896644F296B
 ```
 
 

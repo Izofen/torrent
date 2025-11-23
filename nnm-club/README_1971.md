@@ -6,7 +6,7 @@ The Orbweavers - New Moon / Silver Moon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51601.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ Hits Vol. 122 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51602.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Guided By Voices - Strut Of Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51603.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cold Wives - Self-Titled (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <noise-rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51604.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Radio Slave - Venti (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51605.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:A5D84A6734525F98C775E031F2435D562BDB9B3D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51606.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:AD412732EE169E353299F0953FB96C7CEB423189
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51607.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:08AB529365A04366CF820533F8A96445E35ABC1A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51608.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:5ACC52632823A826186DF872E9E14B19A1D5BB19
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51609.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:5ACC52632823A826186DF872E9E14B19A1D5BB19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51610.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:E267BF5898F2BD02B93E45D73321F99B6D55B1C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51611.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:E267BF5898F2BD02B93E45D73321F99B6D55B1C4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51612.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:C8D525C3D83C8137E8CDA828249348D3F4F7D5E5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51613.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:5C73E800279EC4ECCDE6F28B0DF725E3B1BEF133
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51614.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:17F82560B0CF11EBAE9131FFFAA56A0930ED93A9
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51615.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:BF6C04854607BD564B4101CEF577FD832B3A243F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51616.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:414ABEC4A943930A9E7EE3BAA2B690B336061318
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51617.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51618.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:3C2C65835422E1FA7AFAA26ED403B9992AAA2D57
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51619.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:1689999C8FC47A475684DAC620FF9C6BE7C29556
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51620.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:B92C2263CAA71F82923D771CA91369925C1DAB50
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51621.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:68D7A3C712C5E89AE3508B60AF6FEB9D5B60FF25
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51622.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:1B4B92A9DDAE7B55875AF96B09726CFF890DB517
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51623.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:7E823B8C43A92C9279064F6A99C4841D2905521E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51624.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Markus Schulz - Sunrise Set 2024 (Emotional Dance Mix) (2024) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51625.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Al Di Meola - Eden (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51626.jpg" />
 </div>
 
 

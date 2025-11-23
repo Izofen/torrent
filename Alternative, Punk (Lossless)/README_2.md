@@ -6,7 +6,7 @@ Neezi - Replica (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronicore, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65454.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Awaken I Am - The Only Way Out Is Through (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65604.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65609.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pretenders - The Pretenders (1979) CD, Album, Reissue 1980 [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66031.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The B-52's - Good Stuff (1992) CD, Album, Club Edition, Denon Pressing [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66170.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Exies - Head for the Door (2004) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66174.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Pretenders - The Singles (1987) [FLAC|Lossless|tracks + .cue] <Rock, New Wave, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66239.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The B-52's - Cosmic Thing (1989) CD, Album, Club Edition, Columbia House [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66267.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66362.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66498.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66502.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ King Hannah - Big Swimmer (2024) [FLAC|Lossless|tracks+ .cue] <Indie Rock, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66775.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Area - Crac! (1975) Japanese Edition, Reissue, 2007, Strange Days Records [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67003.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67284.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67309.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Polaris - Collection (2017-2023) 3CD [FLAC|Lossless|tracks + .cue] <Metalcore, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67807.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mindslip - Patient IV (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67816.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Izzy Reign - Izzy Reign (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67842.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Black Country, New Road - Forever Howlong (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67948.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Moon Destroys - She Walks By Moonlight (2025) [FLAC|Lossless|WEB-DL|tracks] <psy
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68174.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kinetikill - Echoes of Oblivion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68360.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ New Model Army - Live at SO36 16.07.2022 (2025) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68536.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ The Vapors - Wasp in a Jar (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, New 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69895.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Tori Amos - The Music of Tori and the Muses (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69938.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Bad Omens - Сollection (2016-2022) [FLAC|Lossless|tracks + .cue] <Metalcore, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70825.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Alter Bridge - One Day Remains (2004) Deluxe Edition, Reissue, 2024, Craft Recor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71697.jpg" />
 </div>
 
 

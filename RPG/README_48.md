@@ -1,3 +1,51 @@
+###  Публикация: 1224211   (220284) от 14.12.2018
+
+Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Multi] (4.0.0.0034/dlc) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преследуйте беглого бога на земле и по морю в сиквеле Pillars of Eternity — ролевой игры, заслужившей высокую оценку критиков. Отправьте свой корабль в опасную экспедицию через огромный неизученный архипелаг Дэдфайр.Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: Role-playing, Adventure, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C21BAE8971416368DF28D13E5CF8388E81AB9E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568060   (220990) от 22.10.2022
+
+Hard West 2 (2022) [Ru/Multi] (1.0.2.0.4192) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard West 2 - это отдающее порохом погружение в загробные тайны Дикого Запада. Вы - знаменитый бандит Джин Картер, опаснее которого не сыщешь на всем Диком Западе. Вы давненько хотели как следует навариться и очень кстати прослышали, что в ваши края движется легендарный "Призрачный поезд" нагруженный государственным золотом. Такой момент упускать нельзя.Тип издания: LicenseРазработчик: Ice Code GamesЖанр: Ролевая игра, Стратегия, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5EEC11C7432332075636971ADC5966C3E795C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584784   (223991) от 19.10.2022
 
 Eastward (2021) [Multi] (1.1.5) License GOG
@@ -6,7 +54,7 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223991.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223991.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Knights of Braveland (2023) [Ru/Multi] (1.1.4.50/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224434.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224434.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224969.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224969.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Stirring Abyss (2020) [Ru/Multi] (1.06.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225798.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225798.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228082.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228082.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Repack DjDI [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229622.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_229622.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Forspoken (2023) [Ru/Multi] (1.21/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229641.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_229641.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230422.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230422.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.04.80648/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230618.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230618.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Kung Fu Grand King (2022) [Multi] (2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233091.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233091.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233314.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233314.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233451.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Legend of Grimrock 2 (2014) [En] (2.2.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234642.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234642.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237068.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237068.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ The Swindle (2015) [En] (1.061) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243869.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243869.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_246580.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_246580.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246737.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246737.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ God of War (2022) [Ru/Multi] (1.0.13) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246956.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246956.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247446.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247446.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Citizen Sleeper 2 Starward Vector (2025) [Ru/Multi] (1.2.21/dlc) Repack Let'sРl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248545.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248545.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250339.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250339.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250517.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250517.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ DELTARUNE (2025) [Ru/Multi] (1.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251701.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251701.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251789.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251789.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4233A59D34626AB330D26ED06D18765296B781F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636991   (251836) от 02.06.2023
-
-The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064) Scene FAIRLIGHT
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте за Голлума в его поисках своей Прелести. Взберитесь на горы Мордора, прокрадитесь через Лихолесье и сделайте нелегкий выбор. Кто одержит верх: хитрый Голлум или невинный Смеагол? The Lord of the Rings: Gollum™ - это официальная адаптация, основанная на литературных произведениях Дж. Р. Р. Толкина. Ему больше нечего терять… Как далеко он зайдет, чтобы вернуть (   Читать дальше...   )Тип издания: SceneРазработчик: Daedalic EntertainmentЖанр: Action, Adventure, RPGЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C369E8339C29FECB6BB2A873407FF9F2255EA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192586   (251879) от 31.05.2023
-
-Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.0b_update) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Галактику ждут тяжелые времена. Яростная гражданская война почти уничтожила Орден джедаев, и обессиленной Республике грозит гибель. Через пять лет после событий, описанных в Star Wars™ Knights of the Old Republic™, в то самое время, когда джедаи оказались на краю гибели, бывший рыцарь-джедай, изгнанный из Ордена, отправляется в полное опасностей путешествие, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Obsidian Entertainment, AspyrЖанр: Ролевая игра, Приключение, ФантаcтикаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E1779CDC0C5A40242531A627DF01ED8409E10E
 ```
 
 

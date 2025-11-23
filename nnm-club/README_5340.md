@@ -1,3 +1,183 @@
+###  Публикация: 1429164   (164322) от 17.12.2020
+
+Николас Спаркс | Последняя песня (2009) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164322.jpg" />
+</div>
+
+
+###  Подробнее
+
+История сложных взаимоотношений, определяющих судьбы и формирующих характеры.
+История любви, навсегда изменившей жизнь.
+Любви, для которой нет преград.
+Любви, ради которой мы готовы на все.(   Читать дальше...   )Жанр: Художественный вымысел, Любовный роман, Трагедия, Роман воспитанияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71474DB7E787996B52FB96F726F73509FE65F5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346244   (164323) от 18.12.2019
+
+Черноморские берега. Турция / The Black Sea. Turkey (2018) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Черное море находится на границе между Европой и Азией. Это настоящая жемчужина, которую со всех сторон обрамляют берега удивительной красоты. Жизнь на черноморских берегах полна контрастов. Здесь уживаются старые традиции и смелый взгляд в будущее.Производство: ЕС, VincentTV, ZDF, ARTEЖанр: Документальный, познавательный, путешествияРежиссер: Надя ФренцПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4BC5610A8366074EE8A03673A54DBE13B0362B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516942   (164324) от 13.12.2021
+
+Artlantis 2021.2 v9.5.2.29009 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artlantis  – профессиональный набор инструментов, предназначенный для создания изображений и видеороликов высокого качества на основе 3D-моделей. В процессе работы пользователь может применять различные текстуры, изменять цвета проекта и параметры источников света. Программа также включает в себя инструменты, позволяющие редактировать свойства существующих материалов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: AbventПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC6DA591B8F35AECE09154A97BD96BD2B82F8C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549571   (164325) от 02.11.2023
+
+Soniq Circus - Chapter 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cruise (Prelude) [00:02:58]
+02. Let The Game Begin, Pt. I [00:06:16]
+03. Let The Game Begin, Pt. II [00:02:00]
+04. Let The Game Begin, Pt. III [00:08:07](   Читать дальше...   )Жанр: Heavy Progressive Rock |Продолжительность: 2 CD, 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF512B65CE6F4C74307A09F27460712BB93B3DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597942   (164326) от 17.12.2022
+
+Tol Galen - Swamp Castle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misty Way [00:02:58]
+02. Forest Path [00:04:19]
+03. Hill of Dark Sorcery [00:04:56]
+04. Eryn Galen [00:05:42](   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB6FC4179F21C1EECFBBC43C6882BE10F003B1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432471   (164327) от 17.12.2020
+
+Биатлон. Кубок Мира 2020-2021. Этап 3. Хохфильцен (Австрия). Мужчины. Гонка преследования 12,5 км (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+12 декабря 2020, суббота. 16:45 МСК
+Этап 3. Хохфильцен (Австрия)
+Мужчины. Гонка преследования 12,5 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA308140FC44AF1B3268E0452641DAA48DA5C673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346113   (164328) от 18.12.2019
+
+Протоиерей Николай Германский | Притчи духовного странника. Ехал я как-то по дороге (2017) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путевые заметки духовного странника — это избранные притчи о нашем жизненном пути. Эти краткие истории — яркие зрительные картинки, возбуждающие наши глубокие и почти забытые сокровенные чувства. Нанизываясь друг на друга, эти чувства воскрешают душу, наполняют её детской радостью, надеждой, верою и любовью.Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7D0AC07C25786B341287C76C9B1C45580F4272
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598027   (164329) от 17.12.2022
 
 Kenny Drew - The Classic Albums (1953 - 1961) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -6,7 +186,7 @@ Kenny Drew - The Classic Albums (1953 - 1961) 4CD, 2020, Enlightenment [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164329.jpg" />
 </div>
 
 
@@ -33,7 +213,7 @@ ApowerREC 1.5.3.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164330.jpg" />
 </div>
 
 
@@ -57,7 +237,7 @@ magnet:?xt=urn:btih:9E1534D71ADC14167D18369C2A381821592819F2
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164331.jpg" />
 </div>
 
 
@@ -83,7 +263,7 @@ magnet:?xt=urn:btih:530A0312520E017B186B47363BB98ADDC5EF27DB
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164332.jpg" />
 </div>
 
 
@@ -110,7 +290,7 @@ iStatistica Pro 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164333.jpg" />
 </div>
 
 
@@ -134,7 +314,7 @@ magnet:?xt=urn:btih:C7DB77EAA3AFEB2CA5E3798BB2013D62FE61D84F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164334.jpg" />
 </div>
 
 
@@ -158,7 +338,7 @@ DCommander 3 Premium v3.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164335.jpg" />
 </div>
 
 
@@ -184,7 +364,7 @@ magnet:?xt=urn:btih:CED01ECC980E5D36EECFFA1F8F406D67ADAF0A35
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164336.jpg" />
 </div>
 
 
@@ -209,7 +389,7 @@ magnet:?xt=urn:btih:CB6F5E36D01A0A40A135B1C58406D78821057F94
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164337.jpg" />
 </div>
 
 
@@ -233,7 +413,7 @@ Apeaksoft Android Toolkit 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164338.jpg" />
 </div>
 
 
@@ -257,7 +437,7 @@ magnet:?xt=urn:btih:FB1069984E323A53992E9729F46A47366DEF0DA9
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164339.jpg" />
 </div>
 
 
@@ -284,7 +464,7 @@ Things 3 v3.13.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164340.jpg" />
 </div>
 
 
@@ -309,7 +489,7 @@ Clouds of Clarity - Superficial Society (2022) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164341.jpg" />
 </div>
 
 
@@ -336,7 +516,7 @@ magnet:?xt=urn:btih:DF40840407C67C3670EDDED7F950E62887D47A70
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164342.jpg" />
 </div>
 
 
@@ -363,7 +543,7 @@ Zucchero Sugar Fornaciari - Discover (2021) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164343.jpg" />
 </div>
 
 
@@ -390,7 +570,7 @@ magnet:?xt=urn:btih:4B59CC11C61E93CDA119D2890E8D10ADE9997E06
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164344.jpg" />
 </div>
 
 
@@ -417,7 +597,7 @@ VA - Techno Club Vol. 64 (Mixed by Talla 2XLC, Alessandra Roncone & Madwave) (20
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164345.jpg" />
 </div>
 
 
@@ -444,7 +624,7 @@ Q-Dir 7.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164346.jpg" />
 </div>
 
 
@@ -469,7 +649,7 @@ BBoy Звезда - Удар по невежеству (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164347.jpg" />
 </div>
 
 
@@ -483,182 +663,6 @@ BBoy Звезда - Удар по невежеству (2022) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:107DC09FACEC5EE143E0407F5227730D3C51EEFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431986   (164348) от 17.12.2020
-
-Vega - Grit Your Teeth (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind (3:46)
-02. (I Don't Need) Perfection (4:11)
-03. Grit Your Teeth (3:41)
-04. Man On A Mission (3:24)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDF015F4F60F73E361ACDF5BDF6FF57B58218A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673730   (164349) от 02.11.2023
-
-Easy Data Transform 1.44.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 15.09.2023Разработчик: © 2022 Oryx Digital LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CFC3CA33E35B5A0FA90C8F3E0E98F10E829F25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346346   (164350) от 18.12.2019
-
-Настя Понедельник | Пряничные домики и не только (2019) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы привыкли к тому, что в новогодний день снимаем мундиры с картошки, нарезаем салаты почти ровными кубиками, слой за слоем прикрываем селедку шубой. В новогодний вечер сервируем стол, распушаем елку еще разок, суетимся, пытаясь успеть все до боя курантов.
-
-Новогодняя ночь пролетает незаметно, и вот уже настал следующий год! Как же вернуть магию и трепет, которых (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9294146ABB30A3212DB262544A862DEA9CA47FD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597916   (164351) от 17.12.2022
-
-Прогресс деградации - Геноцид умов (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Патриот [00:02:33]
-02. Космо [00:03:24]
-03. Зомбоящик [00:02:33]
-04. Маньячелло [00:03:16](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839AFAAD03374BE3410B5A5846DC78396F583448
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673404   (164352) от 02.11.2023
-
-Благовест | Апокалипсис. Опыт подстрочного комментария. На основании учения Священного Писания и святых отцов (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164352.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге святого апостола и евангелиста Иоанна Богослова, – Апокалипсисе, – завершающей Новый Завет, таинственно приоткрываются грядущие судьбы человечества и всего мира. Это Божественное откровение составляет неотъемлемую часть промысла Господня о людях. Но чтобы правильно понять эту книгу и получить духовную пользу от ее прочтения, всякий христианин должен ознакомиться (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E51626BF366D00690F8D9B864A11E2CF7E5E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598155   (164353) от 17.12.2022
-
-iStatistica 6.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Statistica - подробный монитор системных ресурсов для macOS. В приложение входит виджет для Notification Center и меню статистики в области часов. Просто откройте Notification Center, чтобы увидеть подробную статистику по загрузке памяти, процессора, диска или посмотреть карту сети и скорость передачи данных.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2015-2022 Andrey TsarkovПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D98DE2FAF0BF298EF9C3EABC9DE17FC27DB77B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598149   (164354) от 17.12.2022
-
-Чарли Чейз. Жертва популярности / Publicity Pays (1924) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая жена Джимми Джампа увлекается любительским театром. Ее замечает продюсер с интересной фамилией Фиаско. Это итальянская фамилия? Он начинает продвигать девушку, устраивает пышную рекламную компанию для начинающей звездульки. Очень пышную рекламную компанию - с лимузином, страусинными перьями, с экзотическими животными. Успех обеспечен! Ну, что могло пойти (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Бет Дарлингтон, Эдди Бэйкер, Ной Янг, Лайл ТайоПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2901A9EF07972497E1C4F15DA73429B0996D7417
 ```
 
 

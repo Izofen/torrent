@@ -1,3 +1,84 @@
+###  Публикация: 1768157   (101138) от 24.12.2024
+
+Dave Williams - Disciple (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messiah (3:32)
+02. His Blood Can Make You Whole (3:48)
+03. No Pain No Gain (3:24)
+04. Put Your Trust in Him (7:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D18E47EF05CA36AF2E0AB37EA90F7F3F61B97B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768155   (101139) от 24.12.2024
+
+Brad Gillies - Juxtapose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting & Hoping (3:41)
+02. Waltz & Sway (3:54)
+03. Mark Jeffrey (3:00)
+04. La Groove (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C456CAFCC35039B157757C600CC56171C4CE3C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768150   (101140) от 24.12.2024
+
+Bluesblocket - Potatismos & Skandinavisk Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. POTATISMOS OCH SKANDINAVISK BLUES (4:09)
+02. BLUES ÄR INTE GRATIS (5:24)
+03. DJÄVULEN I FLASKAN (4:20)
+04. EN MAN SOM HETER LASSGÅRD (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C57D743835A6D0D509D3E9EE79F06E275032771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768145   (101141) от 24.12.2024
 
 3to1-Cigarboxblues - Live Today (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +87,7 @@
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101141.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:724E4CBB4AF5474CF1F6B6BEB72D832033FDA115
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101142.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ magnet:?xt=urn:btih:F0DB834B6FCEC3CE17E8623DBEB41E4A8EBB3267
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101143.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ magnet:?xt=urn:btih:D7D9CCB2709BDF5C13D767CBF3C9F83CDA52FD9B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101144.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ magnet:?xt=urn:btih:764A205E42C5FDC15C3841CCD5DD782E995DB21D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101145.jpg" />
 </div>
 
 
@@ -131,7 +212,7 @@ Pomante - Frames (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101146.jpg" />
 </div>
 
 
@@ -158,7 +239,7 @@ Lights To Remain - Damnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101147.jpg" />
 </div>
 
 
@@ -185,7 +266,7 @@ VA - Funky For A Sunny Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101148.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ Bruce Springsteen - The Live Series: Songs Under Cover Vol. 3 (2024) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101149.jpg" />
 </div>
 
 
@@ -239,7 +320,7 @@ Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101150.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ magnet:?xt=urn:btih:86B8C919C0CE688D8C455230CB54BC237ACE1A9E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101151.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ Høstsang (Hostsang) - I-II (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101152.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101153.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ magnet:?xt=urn:btih:3316B6BC92FBCACB3F432F23D2450132E304E75F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101154.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ magnet:?xt=urn:btih:5F61223373C3734E5A3D1CBBF3565FC2A5DD22CA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101155.jpg" />
 </div>
 
 
@@ -395,7 +476,7 @@ magnet:?xt=urn:btih:01D91364433A74B0BCB7534F098CBEBE60CA9CD3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101156.jpg" />
 </div>
 
 
@@ -419,7 +500,7 @@ Yuri Sosnin - Frank Conversation (2024) [MP3|320 Kbps] <Italo-Dance, Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101157.jpg" />
 </div>
 
 
@@ -446,7 +527,7 @@ magnet:?xt=urn:btih:DA223B3EC590BF96BFA7D2180E766195AAF6091D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101158.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ Michael Simon, Tibetania - Umami (Tibetania Records) (2024) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101159.jpg" />
 </div>
 
 
@@ -497,7 +578,7 @@ magnet:?xt=urn:btih:AB552A35306B6758A531403D1D3796B7948ECB16
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101160.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ Sports.ru - все новости спорта v6.12.3 Mod by Dymonyxx [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101161.jpg" />
 </div>
 
 
@@ -548,7 +629,7 @@ magnet:?xt=urn:btih:45D91FAEADC911B247F2860A1B686F941B70E11E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101162.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ magnet:?xt=urn:btih:7A754A76D46E994FF70461D0B6B986D80B163BF3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101163.jpg" />
 </div>
 
 
@@ -586,83 +667,6 @@ magnet:?xt=urn:btih:7A754A76D46E994FF70461D0B6B986D80B163BF3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C922FAC2675A92ADB3C41C4D0CEE7A1FE92869E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767478   (101164) от 22.12.2024
-
-Waldorf - Blofeld 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генерация звука плагина Blofeld обеспечивает типичный насыщенный и богатый звуковой характер Waldorf, который так любят многие пользователи Waldorf по всему миру, когда они играют на своих Blofeld, Q, Q+, Microwave, Microwave II/XT или даже на флагмане Wave. Секрет его звука заключается в мощном движке волновой таблицы, который позволяет создавать эти интенсивные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734CC3B77E7C689770637ADF2CD1E5CBBD91C9E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767542   (101165) от 22.12.2024
-
-Сергей Богачук – Ишмаэль Дэвис / Serhii Bohachuk vs. Ishmael Davis (21.12.2024) WEBRip [H.264/720p] [50fps] [En]
-
->>Спорт и активный отдых
->>Бокс
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101165.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 декабря 2024 года в Эр-Рияде (Саудовская Аравия) состоялся вечер бокса серии Riyadh Season, в рамках которого претендентский бой по версии WBC в первом среднем весе (до 69,9 кг) провели бывший "временный" чемпион мира организации украинец Сергей Богачук (25-2, 24 КО) и британец Ишмаэль Дэвис (13-2, 6 КО).
-
-Изначально Богачук должен был встретиться с (   Читать дальше...   )Телекомпания: Великобритания, DAZNЖанр: спорт, боксПеревод: ОтсутствуетЯзык озвучки: английскийПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0ADD9DDA7BD622FBCF033B56D183889AF9F1AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767564   (101166) от 22.12.2024
-
-VA - Jazz Vocalists (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scarlett Johansson - Summertime (3:54)
-02.  Donny Hathaway - Misty (3:39)
-03.  Max Mutzke - Season (feat. Max Mutzke) (4:46)
-04.  Leona Berlin - Nothing Compares 2 U (4:12)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFA88B3E6C6057CFA60BDE8A3D3E0C7CF7C5067
 ```
 
 

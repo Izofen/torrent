@@ -6,7 +6,7 @@ Ableton - Live 12 Suite 12.1 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41203.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:0BC93B4E3B7DDD5FE54C6C7AFA325DC1367AE7E9
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41240.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FolderSizes 9.6.492 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41254.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PrivaZer Pro 4.0.94 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41255.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ TikTok 36.7.3 Mod by Dmitry Nechiporenko + Plugin 1.54 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41263.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tablacus Explorer 24.10.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41265.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.2 Build 7 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41268.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:AA889E98DAE9314B880B8E10C52EA59F67BCCA26
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41269.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Topaz Video AI 5.3.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41276.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Topaz Gigapixel AI 7.4.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41279.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Topaz Gigapixel AI 7.4.5 Beta (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41289.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Topaz Photo AI 3.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41290.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v21 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41301.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41302.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:48E7ED2041762A5F725BE97F3C0CC20C67E07B0D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41311.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v21 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41321.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:A4EECBABE5D4FEC4BD498538DB9ABE9D6971D9EA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41322.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Chaos Enscape 4.1.1.35 + Offline Assets and Materials [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41326.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Topaz Video AI 5.3.4 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41346.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ K-Lite Codec Pack Update 18.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41348.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ CherryTree 1.2.0.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41352.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.6.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41387.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ LibreOffice 24.8.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41398.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Microsoft PowerToys 0.85.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41402.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ KMSoffline 2.4.4 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41448.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Hazure Waku no Joutai Ijou Skill | Hazurewaku | Failure Frame | Я стал си
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41450.jpg" />
 </div>
 
 

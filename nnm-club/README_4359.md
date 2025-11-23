@@ -1,3 +1,76 @@
+###  Публикация: 559973   (134310) от 24.12.2012
+
+Сплетница / Gossip Girl (Сезон 06 полный (10)) (2012) WEB-DLRip (RG.Paravozik)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестой сезон начнется с объединения обитателей Верхнего Ист Сайда в поисках исчезнувшей. Серена пропала, оказавшись вне зоны досягаемости даже Сплетницы. Ее друзья готовятся к худшему, но рассчитывают на лучшее, но даже они не могу представить, где в конечном итоге обнаружат ее. Тем временем Блэр возвращает свое сердце Чаку, но достаточно ли будет ее любви, чтобы (   Читать дальше...   )Производство: СШАЖанр: Мелодрама, драма, молодежный, интригаРежиссер: Марк ПизнарскиПеревод: Любительский многоголосый закадровый - RG.ParavozikПродолжительность: ~ 00:45:00 мин серия
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593458   (134312) от 24.12.2012
+
+Со мною вот что происходит (2012) SATRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134312.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 декабря. Московские невозможные пробки. Спешка без результатов, помощь, от которой никому не становится легче. Разговоры о бесконечных мелочах, в которых проходит жизнь – а может, уже и прошла. Об отце, которому осталось всего ничего, и ничего не сделаешь. О планах пятнадцатилетней девочки на жизнь: можно стать онкологом, можно – дизайнером еды. О том, что было, и что теперь.
+ Это не сюжетный фильм, это лирика суеты под музыку Таривердиева и воспоминание о счастье, о времени, когда «Ирония судьбы» на самом деле могла утешить и обнадежить и пообещать в Новом году новую жизнь.Жанр: Мелодрама, КомедияРежиссер: Виктор ШамировПродюсер: Эдуард Илоян, Гоша Куценко, Андрей НовиковАктеры: Гоша Куценко, Виктор Шамиров, Александра Петрова (II), Олеся Железняк, Николай Чиндяйкин, Маргарита Шубина, Александр Робак, Михаил Шульц, Александр Гришаев, Павел СборщиковПеревод: Не требуется (Русский)Продолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9570AA4A66660CAD021A1DAF6FBCF591B845A0D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593627   (134314) от 24.12.2012
+
+Храбрая сердцем / Brave (2012) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испокон веков мифы и легенды окутывают загадочной пеленой живописные отроги Шотландских гор. Искусной лучнице Мериде приходится выбирать свой путь в жизни самостоятельно, и однажды она отказывается следовать древним традициям королевства, бросая вызов могущественным шотландским кланам и их предводителям: нескладному лорду МакГаффину, угрюмому лорду Макинтошу и сварливому (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Марк Эндрюс, Бренда Чэпман, Стив ПурселлПерсонажи: Келли Макдоналд,  Эмма Томпсон,  Билли Коннолли,  Джули Уолтерс,  Робби Колтрейн,  Кевин МакКидд,  Крэйг Фергюсон,  Сэлли Кингхорн,  Эйлид Фрайзер,  Пейджи БаркерПеревод: ДублированныйПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E48FAE6DB6E8F357A843ACE4EDB7A173993190
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593966   (134315) от 24.12.2012
 
 Экранная Камера 1.25  Portable By Valx [Rus]
@@ -6,7 +79,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134315.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ Dash 7.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134316.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ JixiPix Artista Impresso Pro 1.8.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134317.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:56BB1D0CCE5C2D2ED661D5F4D2BCBB8F096B6C68
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134319.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:105D657FC01CDF26A01DCA931D8A185D0D3A0568
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134320.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:99DC5445DA2B5778A5D20953424A906B1A0E6BB1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134321.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ PhotoRoom 4.7.5 (b1174) Lite-Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134322.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ magnet:?xt=urn:btih:167F7788BE8C1462DC7459C1C81516DF1B7F7C2F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134324.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ Princess Thailand - Golden Frames (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134325.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ Orange Stable - Nichts für ungut (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska & Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134326.jpg" />
 </div>
 
 
@@ -257,7 +330,7 @@ magnet:?xt=urn:btih:667E8959E13F419F30625F5B297E14AC83D9CC94
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134327.jpg" />
 </div>
 
 
@@ -281,7 +354,7 @@ magnet:?xt=urn:btih:78DA02790CBA59328DBB9E4977846C924322A7E3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134328.jpg" />
 </div>
 
 
@@ -305,7 +378,7 @@ Mike Vickers - I Wish I Were A Group Again (1968) Remaster, 1999, Parlophone UK[
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134329.jpg" />
 </div>
 
 
@@ -332,7 +405,7 @@ U.S. Highball - No Thievery, Just Cool (2023) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134330.jpg" />
 </div>
 
 
@@ -359,7 +432,7 @@ VA - ROCK para el trabajo (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134332.jpg" />
 </div>
 
 
@@ -386,7 +459,7 @@ Logitech Gaming Software 8.40.83 [Русский] [x32\x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134333.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134333.jpg" />
 </div>
 
 
@@ -410,7 +483,7 @@ Logitech Gaming Software 8.40.83 [Русский] [x32\x64]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134334.jpg" />
 </div>
 
 
@@ -434,7 +507,7 @@ magnet:?xt=urn:btih:C32AFBC9B1F0339333B620548FE60E8F1CDD2BE0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134335.jpg" />
 </div>
 
 
@@ -461,7 +534,7 @@ ESET NOD32 Offline Update 6.x/5.x/4.x/3.x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134336.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134336.jpg" />
 </div>
 
 
@@ -486,7 +559,7 @@ Widespread Panic - Boone 1999 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134337.jpg" />
 </div>
 
 
@@ -513,7 +586,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Stea
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134338.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ magnet:?xt=urn:btih:FDB26200383A0A6310139C3C69B824C7BD53FA76
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134339.jpg" />
 </div>
 
 
@@ -565,7 +638,7 @@ Alarm Clock Pro 15 v.15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134340.jpg" />
 </div>
 
 
@@ -577,81 +650,6 @@ Alarm Clock Pro представляет собой многофункциона
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD3816AAB72B1B4595C91BEE8886D648A3B4BDB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592887   (134341) от 24.12.2012
-
-Record of Lodoss War [Dreamcast] [PAL] [RUS] [CDI] (2001)
-
->>Консольные Игры
->>Другие приставки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры Record of Lodoss War начинается вскоре после концовки первого сезона аниме, и включает в себя несколько главных героев оттуда. Ты был возрожден Wart'ом с единственной целью - помешать Wagnard'у вернуть к жизни Kardis, Богиню Разрушения. Во время игры ты получишь помощь со стороны таких знакомых персонажей, как Parn, Deedlit, Slain, Leila, Pirotess, Ashram, и черного дракона Narse. Поклонники аниме должны чувствовать себя как дома, но и поклонники игры Диабло II должны испытать то же самое чувство. В то время как игра происходит во вселенной Lodoss War, она играетcя на подобие Диабло II.Жанр: RPGЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3752A1D455CBF98067778BC2925F9255C4BA0C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680305   (134343) от 29.11.2023
-
-Meija - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, progressive metal, trip-hop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grim [00:04:10]
-02. Aporia [00:04:02]
-03. Limbo [00:05:47]
-04. Penelope [00:04:26](   Читать дальше...   )Жанр: Alternative, progressive metal, trip-hopПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21C2806B3F4C70AE7ADA5443E7AD9F3A8D0D300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680543   (134345) от 29.11.2023
-
-JaSFTP13 for Mac 13.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134345.jpg" />
-</div>
-
-
-###  Подробнее
-
-JaSFTP - автоматизированный протокол безопасной передачи файлов (SFTP). Безопасный протокол передачи файлов (SFTP), разработанный с учетом требований автоматизации, чтобы вам не приходилось тратить время на интерактивную передачу файлов. Для Windows, Mac OSX, Linux и других Unix-платформ.Тип издания: macOS SoftwareРелиз состоялся: 11.10.2023Разработчик: © 1999 - 2014 Hitek Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92E4DFD58A2FF473B15C5F590563F25088023B5
 ```
 
 

@@ -6,7 +6,7 @@ Computer Desktop Wallpapers Collection (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134858.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Best HD Wallpapers Pack (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134861.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Duolingo: изучай языки 5.129.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134871.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FX Player Pro 3.7.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134873.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Waterfalls Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134874.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Square Home Launcher 3.0.5 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134875.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A94571C5A4B705E54DECD21AD0C03856E41FC8E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134876.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sunrises and sunsets Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134878.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ WPS Office + PDF 18.4.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134883.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Smart Launcher 6.3 build 036 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134885.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Easy Data Transform for Mac 1.45.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134888.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Best HD Wallpapers Pack (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134891.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Desktop Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134900.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Arty - Together We Are 027 (22.12.2012) [MP3|320 кб/с]<Trance, Progressive Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134902.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Fort Firewall 3.10.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134903.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Birds Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134906.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Nature Wallpapers (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134908.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ France Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134914.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Rodents wallpaper (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134918.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Animal Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134920.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Wallpapers Sexy Girls (23.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134922.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Computer Desktop Wallpapers Collection (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134924.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ PhotoRoom 4.7.5 (1174) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134926.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Lyn 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134927.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Nature Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134932.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:D951882DD24E20646E64F6A3DA492938C5C38339
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134938.jpg" />
 </div>
 
 

@@ -1,3 +1,87 @@
+###  Публикация: 1680619   (133635) от 30.11.2023
+
+VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Электроников - Песня о снежинке (04:05)
+002. ABBA - Happy New Year [04:24]
+003. Bee Gees - Thank You For Christmas [01:54]
+004. Потап И Настя - Новый год [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 11:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594608DC8450428CFFF758FD9470956A749375D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594742   (133636) от 26.12.2012
+
+VA - New Age Style - Greatest New Age Hits, Vol. 9 (2012) [MP3|320 кб/с]<New age, Enigmatic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messiah Progect - Error Maya.Life Goes On.(21.12) (4:00)
+02. Vasim - Hiking (3:28)
+03. Kokohana - Mononoke Hime (4:56)
+04. Strannik - Terra Incognita (5:00)
+05. Nicholas Gunn - The Swallows Of Na' Lu'um (5:29)
+06. Twins In Mind - Fallacy Of Faith (5:17)
+07. Sergey Sirotin & Golden Light - You're With Me (3:23)
+08. Anthony Island - Fill My Dreams (7:14)
+09. Helen Jane Long - Passes (3:56)
+10. Innerlande - Mystic River (3:15)Жанр: New age, EnigmaticПродолжительность: 02:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC59B22ADC56237BEB359804CDADB30672896336
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594373   (133637) от 26.12.2012
+
+Жозе Сарамаго | Каин [2012] [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жозе Сарамаго, великий португальский писатель и лауреат Нобелевской премии по литературе, в своем творчестве - с одной стороны, убежденный марксист и член коммунистической партии, а с другой — несравненный философ современности - занимался вопросами религии и, можно так сказать, переписывал Библию. Его «Евангелие от Иисуса» предложило непривычный взгляд на сюжет, (   Читать дальше...   )Жанр: современная проза, роман, зарубежная прозаИздательство: Нигде не купишь
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E79322B9FF5DC62099C2330C2538078D089F609
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594479   (133638) от 26.12.2012
 
 Фотография - Beautiful Girls Part 4
@@ -6,7 +90,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133638.jpg" />
 </div>
 
 
@@ -30,7 +114,7 @@ magnet:?xt=urn:btih:36DB4E30960033E0B003AB681AD9E4BBD36E4CD0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133640.jpg" />
 </div>
 
 
@@ -56,7 +140,7 @@ World of Portraits | Master Retouch Collection (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133643.jpg" />
 </div>
 
 
@@ -80,7 +164,7 @@ magnet:?xt=urn:btih:1219EA03EA5AA70864DB016F101E61493D887198
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133645.jpg" />
 </div>
 
 
@@ -104,7 +188,7 @@ magnet:?xt=urn:btih:0A7315EB25D73AA98E2CD4D11344C30BF3FE7124
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133646.jpg" />
 </div>
 
 
@@ -130,7 +214,7 @@ Spotify 1.2.25.1011 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133647.jpg" />
 </div>
 
 
@@ -155,7 +239,7 @@ magnet:?xt=urn:btih:32E6722B69B25CB4980842C8702743D9DFFCC9C7
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133649.jpg" />
 </div>
 
 
@@ -182,7 +266,7 @@ magnet:?xt=urn:btih:C859FE991F20C17DB20227D04F2156C215876BAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133651.jpg" />
 </div>
 
 
@@ -206,7 +290,7 @@ magnet:?xt=urn:btih:B59652B8D3E39C06ED0D0689D4E56BB27E062155
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133652.jpg" />
 </div>
 
 
@@ -230,7 +314,7 @@ Wynardtage - Sleepless in Heaven (2012) [MP3|320 kbps] <EBM / Dark Electro>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133654.jpg" />
 </div>
 
 
@@ -259,7 +343,7 @@ R-Studio Technician for Mac 7.3.191246 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133655.jpg" />
 </div>
 
 
@@ -283,7 +367,7 @@ Adobe Photoshop 2024 25.2.0.196 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133657.jpg" />
 </div>
 
 
@@ -307,7 +391,7 @@ Hinder - 3 альбома (2003, 2008, 2010) [MP3|320 кб/с]<Hard-rock, Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133658.jpg" />
 </div>
 
 
@@ -340,7 +424,7 @@ magnet:?xt=urn:btih:25688080B2A7AEA444C40A934E766196527D742F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133659.jpg" />
 </div>
 
 
@@ -365,7 +449,7 @@ magnet:?xt=urn:btih:DD7420F9952BDAE70C47722DCA9A1A0317A6B42E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133660.jpg" />
 </div>
 
 
@@ -389,7 +473,7 @@ magnet:?xt=urn:btih:F69BA0495D249300E771FEB02DEBE9EE08C58DA4
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133661.jpg" />
 </div>
 
 
@@ -414,7 +498,7 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133662.jpg" />
 </div>
 
 
@@ -438,7 +522,7 @@ magnet:?xt=urn:btih:BE23A1C3F0BD7C3805D95DB2C2602E4CB862F9FF
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133664.jpg" />
 </div>
 
 
@@ -465,7 +549,7 @@ magnet:?xt=urn:btih:1135B1C2102213E0B3315629D5B95CF9C8C68F49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133665.jpg" />
 </div>
 
 
@@ -489,7 +573,7 @@ magnet:?xt=urn:btih:2F03CE25E540754A3AB2CCF8D87D32138864F681
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133666.jpg" />
 </div>
 
 
@@ -513,7 +597,7 @@ Psiphon 3 build 180 (29.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133667.jpg" />
 </div>
 
 
@@ -537,7 +621,7 @@ Inkscape 1.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133668.jpg" />
 </div>
 
 
@@ -563,7 +647,7 @@ Capture One 23 Enterprise 16.3.2.1789 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133669.jpg" />
 </div>
 
 
@@ -574,91 +658,6 @@ Capture One - один из лучших профессиональных кон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A032D2902F4ED81676FE2BE93C7B0A96F381823E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680804   (133671) от 30.11.2023
-
-Чисто английское убийство (1974) DVDRip [H.265/1080p] [10-bit] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133671.jpg" />
-</div>
-
-
-###  Подробнее
-
-В замке старого и больного лорда Уорбека гостит доктор Ботвинк. На Рождество приезжают избранные родственники и близкие друзья. В полночь праздник прерывается неожиданной смертью сына хозяина - Роберта.
-Доктор Ботвинк берется за расследование. Все персонажи связаны между собой сложными и не самыми приятными отношениями. Но доктору удается распутать клубок преступлений.Производство: СССР, киностудия: МосфильмЖанр: криминал, детективРежиссер: Самсон СамсоновАктеры: Алексей Баталов, Леонид Оболенский, Георгий Тараторкин, Борис Иванов, Файме Юрно, Эугения Плешките, Иван Переверзев, Ирина Муравьёва, Эйнари КоппельСубтитры: отсутствуютПродолжительность: 02:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEEA02480E20701890EBD43D1B00D0B76683B0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680601   (133674) от 30.11.2023
-
-Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись нового концертного тура  группы «Original ΣNIGMA Voices», организованного тремя вокалистами, которые помогали Мишелю Крету в создании этой культовой музыки. Ямайский музыкант Эндрю Дональдс, немецкий исполнитель Angel X и латвийская певица Fox Lima продолжают втроём гастролировать с живыми версиями песен ENIGMA.1 Intro
-2 Gravity Of Love
-3 The Rivers Of Belief
-4 Beyond The Invisible(   Читать дальше...   )Жанр: New Age, Worldbeat, Chill-outПродолжительность: 01:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B5F7EB010B8399804D080DFE7FB9BD316FB18D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594131   (133675) от 26.12.2012
-
-VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceana - Endless Summer (UEFA Euro 2012 oficial song) [03:29]
-02. Dan Balan - Не любя [03:15]
-03. Alex Ferrari - Bara Bara Bere Bere [03:39]
-04. Митя Фомин - Хорошая песня [03:02]
-05. Loreen - Euphoria (WINNER of EUROVISION 2012-SWEDEN) [03:00]
-06. Стая - Сердце [03:06]
-07. Junior Caldera feat.Natalia Kills & Far East Movement - Lights Out [03:08]
-08. Artik feat.Asti - Облака [03:39]
-09. Tonic feat.Erick Gold - Lead The Way [03:35]
-10. A-Dessa - Fire [03:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B2D329EBA259ECBB5DBF2BCF4948763F5C5B99
 ```
 
 

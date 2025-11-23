@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17059.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17059.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dj Cult Music - Blues Dreams on the Horizon (2025) [FLAC 24/192|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17060.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dead Romantic - Stay High (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17061.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17061.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Charlie Slavik - A Nice Reminder (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17062.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Broke Oracle - Shackle and Weight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17063.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:484E8D218735F8AB1C338D73FF3B6BD0A867471E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17064.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:D6DF108E8073892DAC12523339864EAB1871E193
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17065.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:96B6D933983A97D43D05E963DCB7269AC2909068
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17066.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.09.1/dlc) Scene Tenoke [De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17067.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:EFB436741F26224B6CB5CCEA177F18B0E0D2F916
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17068.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C58185D85BDF0C93BEC8B19AB2823544A525D874
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17069.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:01B1E8BA96B453F8180A0F8466340ACA17020B24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17070.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:F2DF58EDB332D7E9E2F8712B7C58712EBF791FE5
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17071.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:3E8DF2F304ACA15DA157FD0D22C1DA699DA384F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17072.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:1A966473996F1047B2D3FCF7A03D3507E1BDA62A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17073.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:8B133FD1143DDFFD0B9C9D79D7E00EB8B7324C06
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17074.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Mazda возобновила продажи автомобилей в Росси
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17075.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17076.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D2A36B3613AE6AEF7E782887577B31726C60C6E4
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17077.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:17D690D1A050671010F9B6068F07C2EAF404CC7C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17078.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:3CD598CA3B7E575E2B25C48BB81F32801AC4B454
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17079.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17080.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:00E3A85B6B4C832A708663491790DAAFD13396D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17081.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17082.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:32F273DB6F779F0F6D67BC11EB6E4BEA40CFDAF9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17083.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Big Shoes - King Size (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17084.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96093.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96093.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96094.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Mushroom Trance Vol 3 (1999) [FLAC|Lossless]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96095.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96095.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ CD1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96097.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:23A7DA0FE0BBC7B7B621B9DB662EB21C781302A0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96099.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Dark Matters - Fallen Feathers (2011) [FLAC|Lossless]<Electronic, Downtempo, Lou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96100.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96100.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Sunstryk - Pure Essence (2010) [FLAC|Lossless]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96103.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96103.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Autopoiesis - Cytherean Dreams (2002) [MP3|192 Kbps] <Electronic, Berlin School,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96116.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:AD7028CD4C067E17FA43C1C78EE19F19997648E6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96131.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ The Dwindlers - Allegories (2012) [MP3|~245 Kbps (V0)]<Ambient,Female vocal, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96147.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ MoShang - Further East (2010) [FLAC|Lossless]<Chillout, Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96174.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96174.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Trance Maniacs Party: Uplifting Breeze #35 (09.03.2012) [MP3|320 кб/с]<U
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96176.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Звезды Танцевальных Хитов. Зарубежный (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96178.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - High Big DubStep (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96181.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Space Cat - The Remixes (2010) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96183.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Obscura - Illegimitation (Compilation) (2012) [FLAC|Lossless]<Technical Death,Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96187.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96187.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Illegimitation (Demo 2003):
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96189.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:2716B309F3E7B5300482E041253510FE0B8DA2D2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96194.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Lord of Speed vs DJ Kaos - Split (2012) [MP3|320 кб/с]<Speedcore, Noise>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96196.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:DED9B5C665EE7403E3CBD8414A855638C7388551
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96198.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96200.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Ashley Wallbridge - The Inner Me (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96201.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - A State Of Trance 2012 (Mixed by Armin van Buuren) (01.03.2012) [FLAC|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96202.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96202.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Narco - La Rave Del Infierno: Alita De Mosca Remixes (2012) [MP3|320 кб/с]<El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96204.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96208.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96208.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ VA - Armada Presents The Miami Soundtrack 2012 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96213.jpg" />
 </div>
 
 

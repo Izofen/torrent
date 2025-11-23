@@ -6,7 +6,7 @@ VA - The Orient Collective: Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36759.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:38426D882EA44B77325FE7CB3786E90C44E328A3
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36775.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:9B63681F62551B737233941E71762D70551BEF77
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36787.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Me
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37081.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gregorian - 25/2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Crossover, Sy
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37115.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Afro Celt Sound System - OVA (2024) [MP3|320 Kbps] <Folk, Ethnic Fusion, Worldbe
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37281.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - OST Ласковый май (2009) Саундтрек к кинофильм
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37394.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:36A14C76C9A08E19820D3C7FE969CCA3EDDAC70A
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37471.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:89F4B9800E2FE7C40925AEBF49B5FFA2BAEDD6FB
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37884.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:661F7B7CDC752A014AAD74028F5A2EC4A967A02D
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37919.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A383786756C1C4F41C53B556F47B561669E94EC7
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38291.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Medwyn Goodall - Rhythm of the Ancients 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38926.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ David Arkenstone - Fairy Fantasy (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38981.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Orient Collective: Mandala (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39074.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Klaus Wunderlich - The Collection Volume 2 (1987) [FLAC|Lossless|tracks + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39270.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:135C360E1586EBDC871D0164E75A56AEF12E1116
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39741.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - The Orient Collective - Forest Spirits (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40052.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - The Orient Collective - Ethernal (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40780.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - The Orient Collective - Divine Oracle (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40870.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Chris Conway - Guiding Light (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40958.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_40958.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - The Orient Collective - Blossoms (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41151.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pregnant Women Music Company - Calm Raining: Relaxation for Pregnant Woman (2024
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41778.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Pregnant Women Music Company - Harmony for Two: Music to Soothe Pregnancy Stress
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41780.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42293.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:558B3D1BDA5ADE91D5A348A0135E2031C8C96958
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42923.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43993.jpg" />
 </div>
 
 

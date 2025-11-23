@@ -1,3 +1,79 @@
+###  Публикация: 1633854   (252206) от 17.05.2023
+
+Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_252206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы начнете с изучения основ и внутренних компонентов Node.js, а затем узнаете, как разделить свой код на модули и пакеты. Далее вы познакомитесь с наиболее популярными менеджерами пакетов и их применением, а также узнаете, как использовать TypeScript и другие варианты JavaScript в Node.js. Знание того, какой инструмент когда использовать, имеет решающее значение, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246   (252211) от 16.05.2023
+
+Руководства и Книги. Часть 1 [RU]
+
+>>След.
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_252211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаю вашему вниманию 1 часть руководств и книг.101 Oracle Настройка производительности.pdf		39 609 737
+	Adobe Photoshop CS за 24 часа. Карла Роуз.pdf		46 349 026
+	AlexWebKnacKer.Bistro_i_legko.Hacking_i_antihaking.Zaschita_i_napadenie.pdf		44 439 218
+	Alpha_-_The.Complete.Idiot's.Guide.to.Digital.Photography.3rd.Edition.RUS.pdf		21 561 971(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10368E934B922EC1C5C1871D08B146336B917FBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633278   (252262) от 14.05.2023
+
+В.В. Кангин и др. | Разработка SCADA-систем (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_252262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даны рекомендации по проектированию SCADA-системы с использованием среды визуального программирования Delphi. Приведен обзор существующих SCADA-систем с анализом принципов их работы. Рассмотрены возможности SCADA-системы как инструмента для просмотра тегов. Освещены вопросы организации распределенных систем управления с развитым диспетчерским уровнем.
+Для программистов, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95001E17347523590C5EE9B48FEAA47402E6DCEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633245   (252263) от 14.05.2023
 
 Илья Кантор | Современный учебник JavaScript [3 части] (2023) [PDF, EPUB]
@@ -6,7 +82,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252263.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252263.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:8AE03E36522385AF9E92FFB08FA08121373704D0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254088.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254088.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ Stack Overflow | CSS для профессионалов. Руководство
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254325.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254325.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:7357D913639D93528C77FBDFF2F5B73CEABE3521
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254409.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ magnet:?xt=urn:btih:C765CF2B796291B1062500256D9662E17EB2E3D7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254424.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254424.jpg" />
 </div>
 
 
@@ -127,7 +203,7 @@ magnet:?xt=urn:btih:4976615980E53A1DD0DF3ADF8C87378DF2D7A14D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254436.jpg" />
 </div>
 
 
@@ -151,7 +227,7 @@ Jaime Buelta | Python Automation Cookbook, 2nd Edition (2020) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254525.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254525.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ Alberto Gonzalez | Linux Server Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254531.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254531.jpg" />
 </div>
 
 
@@ -201,7 +277,7 @@ Robert Benefield | Lean DevOps: A Practical Guide to On Demand Service Delivery 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254532.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254532.jpg" />
 </div>
 
 
@@ -225,7 +301,7 @@ Marian Montagnino | Building Modern CLI Applications in Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254583.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254583.jpg" />
 </div>
 
 
@@ -249,7 +325,7 @@ Eric Sarrion | JavaScript from Frontend to Backend (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254735.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254735.jpg" />
 </div>
 
 
@@ -273,7 +349,7 @@ Dylan Meeus | Functional Programming in Golang (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254907.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254907.jpg" />
 </div>
 
 
@@ -297,7 +373,7 @@ Maxime Labonne | Hands-On Graph Neural Networks Using Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255048.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255048.jpg" />
 </div>
 
 
@@ -321,7 +397,7 @@ magnet:?xt=urn:btih:AF89E92EF792EDBF0FA9F309258DA116C649E9E0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255182.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255182.jpg" />
 </div>
 
 
@@ -345,7 +421,7 @@ magnet:?xt=urn:btih:DBAD85C578A5B26E0AA32582525F4696EBB1EF7F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255242.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255242.jpg" />
 </div>
 
 
@@ -369,7 +445,7 @@ Stephen DeStefano | Animating SwiftUI Applications (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255502.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255502.jpg" />
 </div>
 
 
@@ -393,7 +469,7 @@ magnet:?xt=urn:btih:B6D5CA99800EEB22B48A346FE6BAEA6F822D7779
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255584.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255584.jpg" />
 </div>
 
 
@@ -417,7 +493,7 @@ magnet:?xt=urn:btih:8F0C1302666D924353D2AA32E289BD44804E49F1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255585.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255585.jpg" />
 </div>
 
 
@@ -441,7 +517,7 @@ magnet:?xt=urn:btih:268DF3FDBC07C2472378ECD57B0AC1270B0CC5E7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256780.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256780.jpg" />
 </div>
 
 
@@ -465,7 +541,7 @@ magnet:?xt=urn:btih:B1B3AE4CD8E60D1B3F4A307E62980DF4F30A90A7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256802.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256802.jpg" />
 </div>
 
 
@@ -489,7 +565,7 @@ magnet:?xt=urn:btih:1E067253EE863507B6E13834F0DE8F7167650358
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257660.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257660.jpg" />
 </div>
 
 
@@ -516,7 +592,7 @@ magnet:?xt=urn:btih:2C12B7BDAD11C96D07403A491065E5EA9661E003
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257661.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257661.jpg" />
 </div>
 
 
@@ -540,7 +616,7 @@ magnet:?xt=urn:btih:6B92518D775F1239FA0D6754F2855F509F53BD50
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257662.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257662.jpg" />
 </div>
 
 
@@ -552,81 +628,6 @@ magnet:?xt=urn:btih:6B92518D775F1239FA0D6754F2855F509F53BD50
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF32713B2AF38551667085D1963EBB8B478401AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837770   (257677) от 18.11.2025
-
-Е.А. Бордаченкова | Задачи и упражнения по языку ассемблера MASM. Учебное пособие для студентов I курса (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит задачи и упражнения по языку ассемблера MASM 6.14, необходимый для решения теоретический материал и ответы к некоторым задачам. Во второе издание были добавлены задачи, расширен теоретический материал и исправлены опечатки первого издания. Пособие может быть использовано на семинарских занятиях по курсу «Архитектура ЭВМ и язык ассемблера».
-Издание (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Издательство Московского университетаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68970D784A650447488BE983133E79E58AAF117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837650   (257696) от 18.11.2025
-
-И. Куликова | Нейросети на Python. Основы ИИ и машинного обучения (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга является практическим комплексным гидом по изучению ИИ и применению нейросетей. В ней вы найдете информацию о различных типах нейросетей, их архитектуре, принципах работы и различных возможностях использования. Примеры использования библиотек NumPy, PyTorch, Matplotlib, SciPy, NetworkX, TensorFlow, OpenCV, Pandas, scikit-learn, nltk помогут вам лучше понять (   Читать дальше...   )Жанр: ПрограммированиеИздательство: "Наука и Техника"Формат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A23E0A9DC4A92124111B9F946273DA803AF4A9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837645   (257699) от 18.11.2025
-
-Х. Адкинс, Б. Бейер, П. Бланкиншип и др. | Безопасные и надежные системы. Лучшие практики проектирования, внедрения и обслуживания как в Google (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может ли быть надежной небезопасная система? Можно ли считать безопасной ненадежную систему?
-Безопасность имеет решающее значение для разработки и эксплуатации масштабируемых систем в реальных условиях, поскольку вносит важный вклад в качество, производительность и доступность продукта.
-В этой книге эксперты Google делятся передовым опытом, позволяющим разрабатывать (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5516F5FF2B08028F3CD6F55B54743C6F02967E
 ```
 
 

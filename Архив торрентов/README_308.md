@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73511.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F183C69348D0F415BB096F0ADDDD9F7E7D34D54E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73600.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E8BBDAA62B092020E169F6FD562E95392A8FDEC6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73754.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E8BBDAA62B092020E169F6FD562E95392A8FDEC6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73822.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B4E802794413064D18B8EC1967ABEA899B02A20D
 >>Архив Авто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73863.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5AF4FB02A8FC0AD96ED1EFFC347F730CB03824BD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73886.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Salix Live XFCE 13.37 [x32 + x64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73999.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:96630C6EF9A754B26FEE0120496AC45E153C6576
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74005.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:96630C6EF9A754B26FEE0120496AC45E153C6576
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74056.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:AEC13D661A5C6F1721D6F10D61AD23BE53D14BBF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74100.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:AEC13D661A5C6F1721D6F10D61AD23BE53D14BBF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74120.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Chase – быстро развивающаяся драма, которая п�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74182.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:FAD3A2BFDF4D301B05EC48EA5ECEFAEC301096A1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74235.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:84369A2D3FF39B72287CA11090B73F3A3E9E99EE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74251.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:58E5E168AA66816AE9A451BA3B92A9DBC4262121
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74268.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:58E5E168AA66816AE9A451BA3B92A9DBC4262121
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74354.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:58E5E168AA66816AE9A451BA3B92A9DBC4262121
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74375.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:58E5E168AA66816AE9A451BA3B92A9DBC4262121
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74422.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:58E5E168AA66816AE9A451BA3B92A9DBC4262121
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74514.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:B871761511E0472DBF65842D9C8388C2D0E7C0FD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74557.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:812EF4F243CBAA093FF5307B9BBCD661C894C4A7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74584.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ McAfee Avert Stinger Portable 10.2.0.502 [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74598.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ McAfee Avert Stinger - это бесплатный, не требующий ус
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74625.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:980A8B9E68921B74EF8AA1509A29985C431EB25F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74658.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:980A8B9E68921B74EF8AA1509A29985C431EB25F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74683.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74723.jpg" />
 </div>
 
 

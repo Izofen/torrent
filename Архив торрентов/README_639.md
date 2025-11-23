@@ -6,7 +6,7 @@ A New Beginning - Final Cut [En] (L/1.4.4) 2012 | *HI2U*
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135743.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCleaner 3.26.1888 [Rus/Ukr/Eng] Business | Professional Edition RePack/Рortabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135748.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135748.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ CCleaner - утилита для чистки мусора в операцион
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135752.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135752.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Zentyal 3.0.1 [Сервер для дома и малого бизнеса] [i38
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135762.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135762.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Zentyal может быть развёрнут в качестве шлюза, �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135770.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DCDC1AE7B6C74FDCF0B048BBBFCDECC665737AE1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135780.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Gentoo Linux 20121221 LiveDVD [x86 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135782.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135782.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Live DVD доступен в двух вариантах: гибридное и�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135784.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Realtek High Definition Audio Driver (3.60) 6.0.1.6782 [Мульти/Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135789.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135789.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Mutant Roadkill 1.1.2 [Игра] (Android 2.1+)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135794.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135794.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ The Dark Eye: Chains of Satinav [Ru/En/Multi6] (Steam-Rip/1.1) 2012 | R.G.Origin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135799.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:7BB8F1C975929A8528BD353349185212F8244176
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135807.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135807.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ AIMP 3.20 Build 1165 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135810.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135810.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Romance of Rome [Игра] (Nokia Symbian^3)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135813.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135813.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Tell Me v.1.1 - Ответы на вопросы [Программа] (Android 2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135818.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135818.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Opera 12.12 Build 1707 Final RePack (& Portable) by D!akov [Rus/Ukr/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135819.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135819.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 9 из 12] HD
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135835.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ inventory 1.2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135837.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135837.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ CCleaner 3.26.1888 + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135840.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135840.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ CCleaner - утилита для чистки мусора в операцион
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135843.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135843.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ USB Disk Security 6.2.0.18 DC 20.12.2012 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135844.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135844.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mежиздательская серия | Бестселлер года (32 т�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135845.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ WebcamMax 7.6.8.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135850.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135850.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ WebCamMax - продвинутая утилита для работы с веб-
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135851.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:23FBA38C9C1FEED27C44B0FBBFA8848BE83CA005
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135854.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135854.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Placebo - B3 (E.P.) (2012) [FLAC (tracks+.cue)|Lossless]<Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135858.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135858.jpg" />
 </div>
 
 

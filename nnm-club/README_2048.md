@@ -6,7 +6,7 @@ VA - Top 7 May 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53613.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53614.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Toronzo Cannon - Shut Up & Play! (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53615.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Magic Hat - Get Off My Lawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53616.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Warren Wolf - Black Wolf (2009) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53617.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Lee Ritenour - The Very Best Of Lee Ritenour (2003) GRP [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53618.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Royal Rage - Evolve (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53619.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Vredehammer - God Slayer (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53620.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Grand Slam - Wheel Of Fortune (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53621.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Weedevil - Profane Smoke Ritual (2024) [FLAC|Lossless|WEB-DL|tracks] <Occult Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53622.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Jack Walrath - Neohippus (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53623.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Horrified - Crematorium Mist (2022) [FLAC|Lossless|image + .cue] <Death Metal, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53624.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Mildred Bailey - 1940 - 1942 (2002) Classics [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53625.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Thronehammer - Incantation Rites (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53626.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Mildred Bailey - 1939 - 1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53627.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mildred Bailey - 1939 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53628.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Митьки. 8 Альбомов (1995-2023) [MP3|320 Kbps] <Rock, Folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53629.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:AE7A611EF2A77442274DF4AFE3A64DF210B07340
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53630.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ NetLimiter 5.3.14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53631.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:F6F0C9519BC60D9D87FA209D59413BDD2DC17D8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53632.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:168ED8C22B550861BC612CDE66337817BA706A39
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53633.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:1DE363B59BF77CB0DA4562C04C2E874C73C182C7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53634.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PrivaZer Pro 4.0.86 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53635.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Carol Fehringer | German Grammar in Context. Third edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53636.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ GeoGebra 6.0.845.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53637.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:B5564DA5C69ED8B9A255F3066C5CF3C3C6DFD1ED
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53638.jpg" />
 </div>
 
 

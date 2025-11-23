@@ -6,7 +6,7 @@ CyberLink AudioDirector Ultra 14.4.4024.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:97540CBC418F92CB6DC092868D1F9C785B69B2D4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58034.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C81C611190AEB961D8426B4D640110B417ED01F3
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58035.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2CD12F5B8717222741F79F9E2BE1719E8E64E61C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58036.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Electronic compilation part 74 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58037.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9F0ACDC77304214EB97EF1EC2ECF4FD44F606D77
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58038.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A765AB346E3C88942C6B201CE6AC20B75C97BA57
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58039.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1A2F8C314400E127F12025C568D89E354CE30329
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58040.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EC25528F2C703A89BC710EAAFCBB6B5179D7CA84
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58041.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ PDF-XChange Editor Plus 10.3.0.386 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58042.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vit Registry Fix Pro 14.9.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58043.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Xeno Operations Legacy (2024) [Ru/En] (0.97.06) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58044.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:2463F004C7A0C5442754CCD0D8C7B38B2604A68D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58045.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Paul Mauriat - Windy & You Don't Know Me (1986-1990) SACD, 2023, Vocalion [DST64
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58046.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe Acrobat Pro 2024.002.20687 (x32) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58047.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Two Steps From Hell - Europe Tour 2023 (2024) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58048.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:7DBEFA9CCCD88A95011AF8170459A587B7D66CCE
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58049.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:57EF281903BA07281BDB75DA52DC02F32C9C8D4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58050.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:D4F7B757C686CE405D3BDE0A930CC7AF88DF6DA4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58051.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:A807F1AB638BBF3232E1219CFF3784EB3F2AC99A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58052.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Gaia GPS (Topo Maps) v2024.4 b7878 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58053.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VCap Downloader 0.1.21.6023 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58054.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B675ED310C47F66523EC251D58BF0808C70E7AB3
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58055.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ TechSmith Snagit 2024.1.2 build 2333 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58056.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:9DC53C8E4C578A2D53A0504F25D228D836D2B4FB
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58057.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:E58B2D86AAB9C80E74ADE3BE0CD40D6CEAA66A0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58058.jpg" />
 </div>
 
 

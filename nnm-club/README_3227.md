@@ -1,3 +1,84 @@
+###  Публикация: 1755847   (103583) от 18.10.2024
+
+Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [MP3|320 Kbps] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103583.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Письмо
+2. Позабытые детства друзья
+3. Королева аптеки
+4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F764C501B00E02F7696E162020127B1F5E1F05CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755849   (103584) от 18.10.2024
+
+Твин Пикс - Что ты делаешь на крыше среди ночи (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103584.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Письмо
+2. Позабытые детства друзья
+3. Королева аптеки
+4. Последний автобус(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAA04E8A3A4AA1A8A8FCB91C05D0C35AC3FFF53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755856   (103585) от 18.10.2024
+
+Aries Descendant - From The Ashes Of Deceit (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From the Ashes of Deceit (1:47)
+02. Aflame the Cold (4:48)
+03. Oblivion (5:18)
+04. Symphony of Demise (4:17)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9A0FD06F5673ACF644D851E5B3EB5F67E0DE67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755878   (103586) от 18.10.2024
 
 Журнал | Дачный сезон №10 (октябрь 2024) [PDF]
@@ -6,7 +87,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103586.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:A67FFA86E5FAEBBF97407B04225220E36D353FA8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103587.jpg" />
 </div>
 
 
@@ -56,7 +137,7 @@ magnet:?xt=urn:btih:3020007AFC53F718F10F687C0680AB9C9F1104E0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103588.jpg" />
 </div>
 
 
@@ -80,7 +161,7 @@ Fate - Reconnect N' Ignite (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103589.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ magnet:?xt=urn:btih:F1AD0324F733B85E744E7551D1A1FE7A49E51055
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103590.jpg" />
 </div>
 
 
@@ -131,7 +212,7 @@ magnet:?xt=urn:btih:63A5CA9B74406789A0AE2A9B53A46F0CF5E23212
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103591.jpg" />
 </div>
 
 
@@ -155,7 +236,7 @@ Agoria - Unshadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103592.jpg" />
 </div>
 
 
@@ -182,7 +263,7 @@ magnet:?xt=urn:btih:F03622CF4CA1327CBE681DBDEB49BBA78BC55546
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103593.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ Cold Cave - Passion Depression (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Syn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103594.jpg" />
 </div>
 
 
@@ -233,7 +314,7 @@ VA - Jazz Para Trabajar Y Estudiar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103595.jpg" />
 </div>
 
 
@@ -260,7 +341,7 @@ BoomChank - GobabyGO! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103596.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ Mama's Blues Joint - Happy Dude (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103597.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ Khalif Wailin’ Walter - Phoenix Risin (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103598.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ Michelle Malone - Southern Comfort (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103599.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ James Cooke - Halfway There (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103600.jpg" />
 </div>
 
 
@@ -395,7 +476,7 @@ Mr Hardearly - Redemption & Bad Habits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103601.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ Tas Cru - Tas Cru Band LIVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103602.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103603.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ magnet:?xt=urn:btih:0DAE7D856932D069E8775D24B82C87B1AFB8FB76
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103604.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ magnet:?xt=urn:btih:C72B9FA4EFC5529B9B56D5F2702C98AD61C71270
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103605.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ magnet:?xt=urn:btih:D24062E2C30F5B894491D78D02E2D884E97ACA10
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103606.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ magnet:?xt=urn:btih:55D238C875DD42DCB7B91BEDF37F59D382BC0F91
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103607.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ magnet:?xt=urn:btih:D19EFB770572D3AAE5156A4068E732910E38F097
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103608.jpg" />
 </div>
 
 
@@ -593,84 +674,6 @@ magnet:?xt=urn:btih:D19EFB770572D3AAE5156A4068E732910E38F097
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9DE08DBEDB533D6312B473539FFF190F418701A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754973   (103609) от 13.10.2024
-
-Белый город | Акафистник семейный (2020) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103609.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны акафисты, которые христиане могут читать, молясь о создании семьи и о семейном благополучии. Здесь представлены девять акафистов: Святой Троице, Богородице в честь иконы «Млекопитательница», Ангелу-хранителю, а также святым – от праведных Иоакима и Анны до праведного Алексия (Мечёва), пресвитера Московского.Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202DCDC5390D147CCDDDB8F7EF7198EF13487841
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754956   (103610) от 13.10.2024
-
-Hydra - Rehydration (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Belong (5:37)
-02. Marionette (5:10)
-03. Still The Same (4:59)
-04. Eye Of The Storm (5:04)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48120E6B162C1079A11D45CCC13BBDACAD5D434E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754987   (103611) от 13.10.2024
-
-Бранимир (Александр Геннадиевич Паршиков) - Ждут домой (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Acoustic, Dark-Folk-Rock, Dark-Chanson>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты меня где-то ждёшь [00:03:49]
-02. Вахтовик звонит домой [00:03:52]
-03. Провожал я друга на войну [00:03:41]
-04. Стёпка украл гуся [00:03:20](   Читать дальше...   )Жанр: Acoustic, Dark-Folk-Rock, Dark-ChansonПродолжительность: 00:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247368BED278E525A98929B8F7BA460981E379C0
 ```
 
 

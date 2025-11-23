@@ -1,3 +1,75 @@
+###  Публикация: 475187   (85133) от 29.03.2012
+
+Алексей Гладкий | Как быстро восстановить потерянные компьютерные данные. [2012] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный человек уже не может представить свою жизнь без компьютера. С каждым днем растет количество информации, которую мы доверяем своему электронному другу. Однако не стоит забывать, что никто не может стопроцентно гарантировать сохранность имеющихся в компьютере данных. Причин, по которым они могут быть утеряны или испорчены, существует великое множество: беспечность и ошибочные действия пользователей, аппаратные сбои, внезапное отключение электричества, деятельность вредоносных программ, нестабильная работа операционной системы, и т. д.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF76E6DE6CC7A4321921890984BF67AFB2050E66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474937   (85136) от 29.03.2012
+
+В компании мужчин / The Company Men (2010) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм расскажет о влиянии экономического кризиса на судьбы людей и компаний. Аффлек сыграет энергичного карьериста, который получает крупный пост в солидной корпорации, но совсем скоро теряет и шестизначную зарплату, и новенький «Порше», когда оказывается на улице. Ему помогает родственник в исполнении Кевина Костнера, который нанимает уволенного бизнесмена к себе на работу в строительную фирму.Жанр: ДрамаРежиссер: Джон УэллсАктеры: Бен Аффлек, Томас Ретт Ки, Крэйг Мэтерс, Гари Галоун, Томми Ли Джонс, Крис Купер, Сюзанн Рико, Эдриан Крштански, Льюис Д. Вилер, Селеста ОливаПеревод: Одноголосый закадровыйЯзык субтитров: английский, испанскийПродолжительность: 01:44:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473225   (85138) от 29.03.2012
+
+Syphon Filter [PS1] [NTSC] [RUS] [Vector] (1999)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о специальном агенте Гейбе Логане, который получает опасное задание устранить международного террориста Эрика Румера. Но вскоре Логан понимает, что Румер разработал смертельно опасный вирус "Syphon Filter". Теперь обычная карательная операция превратилась в миссию спасения мира. Примите участие в масштабных перестрелках с самыми коварными злодеями мира.Жанр: Stealth-ActionПеревод: ОтЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBBFFAED08628D817A127F4FF9E7B324EEE6AF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475410   (85139) от 29.03.2012
 
 Зомби по имени Шон / Shaun of the Dead (2004) [1080p] Blu-Ray
@@ -6,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85139.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85141.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85142.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:D7EA5D1C39167CE29C2E4386D9325A513FF12FD8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85143.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:F45D3AC2BA87D49443F486942FF46ED22CE513BB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85144.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:5180FA3F3333C0A3DC40DBE4BC5F4239B5EB1C58
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85145.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:7FAC0C22FBE2C85B6C31866AA56E582E258C2388
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85146.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:E6355AC2072DBD14C528ABC65B93BF619B116C73
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85147.jpg" />
 </div>
 
 
@@ -207,7 +279,7 @@ magnet:?xt=urn:btih:E6355AC2072DBD14C528ABC65B93BF619B116C73
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85149.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ magnet:?xt=urn:btih:CB4188FE4A0CA22B3BCA4A4283BA6D1C0ED9E4B6
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85150.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ magnet:?xt=urn:btih:1E5AE027A51A801D32F47904FC3D44321F98A6B1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85151.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ magnet:?xt=urn:btih:1E5AE027A51A801D32F47904FC3D44321F98A6B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85155.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ magnet:?xt=urn:btih:1E5AE027A51A801D32F47904FC3D44321F98A6B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85156.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ magnet:?xt=urn:btih:7C2D3987DCB12A45C02C2F819EA2607ACD3F557E
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85157.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ magnet:?xt=urn:btih:722E0501B6B7B1C560387C4D843C7121F932397C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85158.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:C9A2E8385727760E2EC38550A880F923859C3AD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85161.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ Autodesk AutoCAD Electrical 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85163.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ AutoCAD® Electrical – это AutoCAD® для проектировщиков 
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85164.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ The Allman Brothers Band - [40 альбомов] Дискография (1969-20
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85165.jpg" />
 </div>
 
 
@@ -484,7 +556,7 @@ magnet:?xt=urn:btih:E1662BAA294D2D9C2995D5E4A3EB5B070133B55A
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85166.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ magnet:?xt=urn:btih:E1662BAA294D2D9C2995D5E4A3EB5B070133B55A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85167.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ Autodesk AutoCAD Electrical 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85169.jpg" />
 </div>
 
 
@@ -556,94 +628,13 @@ AutoCAD® Electrical – это AutoCAD® для проектировщиков 
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85173.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Преуспевающий бизнесмен Андрей Каморин несчастлив в семейной жизни. Он бы давно бросил жену Лизу, но когда-то супруги вместе начинали бизнес, и все движимое и недвижимое имущество было записано на Лизу. Так что расстаться с ней безболезненно Андрей никак не может. На стороне у него есть другая женщина, к которой он пылает безумной любовью. Не так давно она родила (   Читать дальше...   )Производство: Star MediaЖанр: ПриключенияРежиссер: Эдуард ПарриАктеры: Дмитрий Ульянов, Эльвира Болгова, Александр Панкратов-Черный, Нелли Пшенная, Константин Милованов, Екатерина Стулова, Александр Робак, Павел Трубинер, Юлия Силаева, Игорь Воробьев, Людмила Степченкова, Сергей Чирков, Галина Звягинцева, Ольга Кабо, Елена Коренева, Максим Лагашкин, Георгий Пицхелаури, Всеволод Хованский-Померанцев, Алла Мартынюк, Дмитрий СуржиковПродолжительность: ~ 00:43:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474899   (85175) от 29.03.2012
-
-VA - Romantic Collection Disco 80 vol. 2 (2012) [MP3|256 kbps]<Disco>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - Senza Una Donna
-02. Al Bano & Romina Power - Sharazan
-03. Abba - Eagle
-04. Celine Dion - Pour Que Tu M'aimes Encore
-05. Black - Wonderful Life
-06. Eruption - One Way Ticket
-07. Joe Dassin - Salut
-08. Paul Mauriat - Symphony № 40 (Mozart)
-09. Elton John - The One
-10. The Beatles - Yesterday(   Читать дальше...   )2012Жанр: DiscoПродолжительность: 06:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B55D80EB0411645704F33CD041BAE5E59A1F8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475247   (85176) от 29.03.2012
-
-Windows Longhorn SkinPack 1.0 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Longhorn - это как бы кодовое название Windows Vista во время разработки. Но в первую очередь Longhorn - это концептуальная операционная система Microsoft, которая должна была заменить Windows XP. Несмотря на приличное количество времени, которое было потрачено на её создание, проект развалился и система не была закончена. С пакетом оформления Longhorn Skin Pack вы можете переделать Windows 7 в Longhorn. Пакет имеет опцию безопасного удаления, так что если он вам надоест, вы легко его удалите через Панель управления.Название программы: Windows Longhorn SkinPackЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475126   (85177) от 29.03.2012
-
-Искатели могил / Grave Encounters (2011) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85177.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Искатели» — телевизионное шоу охотников за привидениями. Во главе с Лэнсом Прэстоном они соглашаются провести ночь в психиатрической больнице, легенды о странном феномене которой, ходят давно.Жанр: Ужасы, триллерРежиссер: Вишес БразерсАктеры: Шон Роджерсон, Хуан Ридингер, МакКензи Грэй, Артур Корбер, Мишель Камминс, Луис Хавьер, Шоун МакДональд, Мервин Мондесер, Боб РафиПеревод: Многоголосый закадровыйПродолжительность: 01:33:33
 
 ## Скачать торент
 ```bash

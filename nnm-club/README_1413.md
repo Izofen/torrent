@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37091.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37092.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Mp3tag 3.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37093.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Firefox Browser ESR 128.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37094.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1435C7E7D93E69A062DEC890B5831C8B5A510B3D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37095.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:71BF2DBE070FF9686B15F2DBC3A53ABFE295F14E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37096.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:673AA483373399F7C0888EA6155B383001CFA693
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37097.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37098.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:88349F02A16D226611E27685D68AE7B281D64B66
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37099.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:A03B0DD78364D402BEDF75813919B13AEC3D2138
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37100.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:C8E6E38DF097F10E25069C8367D54FCCF173CD7A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37101.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ DigiKam 8.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37102.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kasimoff - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37103.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:4F38E8075FB7869119D61E890DCC72AB10B73D55
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37104.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Topaz Photo AI 3.3.3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37105.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:01C54DB37351779B8A34FB02D716A6A592DEC565
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37106.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Aquarist (2024) [Ru/Multi] (20241113/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37107.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D607BF576C7C61624A758FAFA57E3909FAB7D508
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37108.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:69BD1A176D557C189AF600E95E1FE6C4CE435272
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37109.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:58E7D351C568A8E6024AD2E233BD0C5650D3DEFA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37110.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:4D7F93E450E50622AB0BE6743A17B1BA778ACFBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37111.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37112.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ IM-Magic Partition Resizer 7.3.0 Professional |Server | Unlimited Edition RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37113.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37114.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Gregorian - 25/2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Crossover, Sy
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37115.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:5FA78AA1BBF0DB1C06D37B2B36C245C9C875348C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37116.jpg" />
 </div>
 
 

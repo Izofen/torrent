@@ -1,3 +1,84 @@
+###  Публикация: 1748612   (104546) от 10.09.2024
+
+Gotfire - Free Again (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Do Your Want Fire?
+2. The Escape (Liberation Pt. III)
+3. She's This Way
+4. Hide Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16589225808CDB784A36CB0DFF6A947983D0AF4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748472   (104547) от 10.09.2024
+
+VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat System - What's Going On (In Your Mind)
+02. Amen U.K. - Passion
+03. Celvin Rotane - Back Again
+04. U 96 - Seven Wonders(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBE48B644BA1AE6189817CBE089FE2BE76B52EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748210   (104548) от 10.09.2024
+
+VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clueless - Don't Speak
+02. Party Jam - Don't Stop The Music
+03. N. E. O. N. - Living In The Jungle
+04. Rytmica - Swing Da Thing(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D26498D5C8D5E2A34050D002BC12F7D076B68B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748585   (104549) от 10.09.2024
 
 Ruby Braff & Scott Hamilton - A Sailboat In The Moonlight (1986) Concord Jazz [APE|Lossless|image + .cue] <Mainstream Jazz>
@@ -6,7 +87,7 @@ Ruby Braff & Scott Hamilton - A Sailboat In The Moonlight (1986) Concord Jazz [A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104549.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Carmeria - Tragedie D'amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104550.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Lenny Kravitz - Human (Remixes Edits) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104551.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Lenny Kravitz - Human (Paul Woolford Remix) (2024) EP [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104552.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Aircoach - Prism (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104553.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Obscene - Agony & Wounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104554.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ magnet:?xt=urn:btih:708CE23097DDCE8DA84C542D626289415C7757E9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104555.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ magnet:?xt=urn:btih:907FA999DB3B7952F55EE86F41E14BCAC3B2D75B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104556.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ Aphelion - Humanoid World (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104557.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ u-he - Bazille 1.1.3 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104558.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ magnet:?xt=urn:btih:67EF609048E8F3C9C4DD3849A774445B980812C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104559.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ Sandboxie 5.69.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104560.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ magnet:?xt=urn:btih:4EEE7CA6BC0F0A11B7F04979A5E734E87FBD448C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104561.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ Ellende - Todbringerin (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104562.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ Many Eyes - The Light Age (2024) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104563.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ VA - Ablazing Autumn Sessions 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104564.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ Transcendent - Awaken (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104565.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ VA - Ablazing Summer Sessions 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104566.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104567.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ VA - ADE Inside (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104568.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ Ellende - Todbringerin (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104569.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ Ruby Braff And Scott Hamilton - A First (1985) Concord Jazz [APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104570.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ magnet:?xt=urn:btih:B91990268FD1F9F6397E214E003F551675DAB564
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104571.jpg" />
 </div>
 
 
@@ -603,87 +684,6 @@ magnet:?xt=urn:btih:B91990268FD1F9F6397E214E003F551675DAB564
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68314BE17BE92217869B392BBF39FDEAAA742EAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747990   (104572) от 08.09.2024
-
-VA - Cool & Groovy (Blues, Jazz, Funk) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Otto Young - See the Light (4:21)
-02. Bob Russell - Heaven Can Wait (2:46)
-03. JJ Soul Band - Really Wild (2:49)
-04. Memphis Nights - Texas (3:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CB445F138EC26AAE173628D2EDE95D6697E96A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748136   (104573) от 08.09.2024
-
-Leprous - Studio Albums (10 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Leprous — норвежская группа, играющая в стиле прогрессивный метал. Основана в городе Нутодден, Норвегия, в 2001 году.2004 - Silent Waters (demo)
-2006 - Aeolia (demo)
-2009 - Tall Poppy Syndrome
-2011 - Bilateral(   Читать дальше...   )Жанр: Progressive Rock/MetalПродолжительность: 09:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF4F9BB3042A0A3FB0992FEEB4C1C35CABC92A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748129   (104574) от 08.09.2024
-
-VA - Urban Nightlife Sounds (Downtempo Funk Soul Jazz) (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polose - Daydreamer (3:38)
-02. Maddalena Conni - The Sound Of The World (2:30)
-03. Pyma - Landscape (2:10)
-04. P. A. Jeron - Look At You (3:23)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C775E6A69466CBC70CE012825C6F97D18A76022
 ```
 
 

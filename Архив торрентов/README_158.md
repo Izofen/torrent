@@ -6,7 +6,7 @@ K-Lite Codec Pack 18.6.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38861.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RustDesk 1.3.2 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38866.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Adobe After Effects 2025 25.0.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38873.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Adobe Illustrator 2025 29.0.1.192 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38883.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Acrobat Pro 2024.004.20220 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38884.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ QOwnNotes 24.10.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38889.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ TechSmith Camtasia 24.1.2 Build 4607 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38909.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Firefox Browser 132.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38916.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ FanControl V207 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38917.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Topaz Gigapixel AI 8.0.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38931.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C6EB63CE5D7F05A3017E86C024C92C526915B149
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38935.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ HWiNFO 8.14 Build 5580 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38938.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.7.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38942.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Topaz Photo AI 3.3.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38944.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ TweakPower 2.064 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38947.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adguard 7.19.0 (7.19.4853.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38956.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ qBittorrent 5.0.1 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38966.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ qBittorrent 5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38967.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Light Image Resizer 7.0.9.54[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38977.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ XYplorer 26.50.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38984.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ XRecode 3 1.158 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38998.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ PDFsam Basic 5.2.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39000.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ WizTree Enterprise 4.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39003.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:0C484A22D623664925A97FB0D3C7F6672D0DD378
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39008.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Picture Mushroom - Mushroom ID v2.9.27 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39014.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ NirLauncher Package 1.30.15 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39023.jpg" />
 </div>
 
 

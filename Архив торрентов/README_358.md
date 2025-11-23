@@ -6,7 +6,7 @@ Philter - Beyond the Perimeter (2009) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85664.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Photo Magician 2.1.0.0 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85667.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Photo Magician – отличная программа для быстрого �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85669.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Photo Magician – отличная программа для быстрого �
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85677.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:7340DF2F290D040B37981B110E0F5A04151E622F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85680.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:7340DF2F290D040B37981B110E0F5A04151E622F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85693.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:9521A454256F3BE7304D1A6660860B6388310754
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85696.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:9521A454256F3BE7304D1A6660860B6388310754
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85698.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:F23D023CE3F6E3CF973D695CCB17A09658772F7C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85704.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ History Channel: Добро пожаловать в 80-е (серии 1-6 из 6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85716.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fedora Electronic Lab 16 [i686 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85721.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:5630EB3DF0AC5CEA035DB14BDEA3C6DC564C1040
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85723.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Wood Мастер - журнал, ориентированный на людей
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85724.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Windows 7 Manager 4.0.3 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85729.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows 7 Manager - это системная утилита, которая п�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85736.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:2F38B45F7F9D8F409B3ACDB11EF722F05F371D3E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85738.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Toontrack - Number 1 Hits EZX®[английский]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85739.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ AIDA64 Extreme Engineer v.2.30.1900 (x32/x64/ML/RUS) - Тихая установ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85741.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Comice OS 4 KDE [i386] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85748.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ ABBA - In Concert 1979 / ABBA in Concert (29 Mar 2004) DVD5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85751.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ DVD "ABBA In Concert" был сделан в 1980 году и включает �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85755.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ True Sword 5.4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85762.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ True Sword 5.4 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85794.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ True Sword 5.4 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85802.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:0FDF05D8DDD147FEB9DD561A69F1CA635117B764
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85813.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:D33453A21CE0CB2F853AF1214C2FBE3E9916F556
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85814.jpg" />
 </div>
 
 

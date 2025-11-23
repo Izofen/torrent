@@ -1,3 +1,81 @@
+###  Публикация: 1088683   (137690) от 31.12.2016
+
+Камеди Клаб. Karaoke Star / Комеди Клаб / Comedy Club (2016.12.31-2017.01.01) SATRip (части 1-2 из 2)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137690.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ТНТ решили отказаться от банальных голубых огоньков и устроили новогодний музыкальный баттл. Включайте ТНТ ровно в 23.00, накладывайте салаты, и с набитым ртом подпевайте своим любимым звездам! В вокальном новогоднем баттле сойдутся звезды «Дома-2», шоу «ТАНЦЫ», актеры комедийных проектов «Импровизация», «Однажды в России», Comedy Woman, ситкомов «Ольга» и «Универ», (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAC81D5271F0B9255289146ACE0EA59D33E2514
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601178   (137691) от 31.12.2022
+
+Бондарь - Вторая попытка стать популярными (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:39]
+02. Skit Кирилл [00:01:17]
+03. Пока меня нет [00:03:37]
+04. Шрамы [00:02:46](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD11F93E9DDA5687A3DFBD4DDE92F342C991A3FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679457   (137692) от 25.11.2023
+
+Enterclass, Сергей Курбатов | Тихая река (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как передать воздушность снега и гладкость поверхности речной воды и не запутаться при этом в отражениях?
+Какими живописными средствами выразить на бумаге тишину природы?
+Всё это узнаем в прямом эфире с Сергеем Курбатовым 20 ноября в 18:00 часов!
+В первой, бесплатной, части урока Сергей разберет композиционные особенности зимнего пейзажа, расскажет, на что обратить (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:25:23Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B5D15CA87154BFF6BAB272371D2D082B5014B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 61449   (137693) от 31.12.2015
 
 Шерлок Холмс и доктор Ватсон: Двадцатый век начинается (1986) DVD 9 (Крупный план).
@@ -6,7 +84,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137693.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Memoirs of Murder 3: Behind the Scenes / Воспоминание об убий�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137694.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ Rockets - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137695.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ Glary Utilities Pro 5.199.0.228 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137697.jpg" />
 </div>
 
 
@@ -107,7 +185,7 @@ reaConverter Pro 7.468 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137698.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137699.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137700.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ magnet:?xt=urn:btih:CCC511DE1239ED0C893FC52ECE8D514528D3B53E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137702.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ Punto Switcher 4.1.9 Build 903 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137703.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ Tommy Dorsey - Tenderly: The Best Of The Decca Years (1950 - 1953) 3CD, 2018, Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137704.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ Ninja Gaiden Sigma Plus (2012) [PSVita] [EUR] [HENkaku] [Unofficial] [Ru] | R.G.
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137705.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ Loftschool, Дмитрий Полос | Разработка сайта на CMS
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137706.jpg" />
 </div>
 
 
@@ -310,7 +388,7 @@ Calibre 7.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137708.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ magnet:?xt=urn:btih:63D062ED2B9461A8CE497437ACEC73D64E156B62
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137709.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ magnet:?xt=urn:btih:23972438106F4AF2A2DC1051C45379421CDC0572
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137710.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ magnet:?xt=urn:btih:61C1B25150A0245BC91D6ECDA02AC802592153EA
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137711.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ magnet:?xt=urn:btih:F982A5F784BA6D3F9F64F2F6E902B53C996CEC96
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137712.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ Devil’s Train - 3 Studio Albums (2012-2022) 3xCD [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137713.jpg" />
 </div>
 
 
@@ -462,7 +540,7 @@ magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137715.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137716.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ magnet:?xt=urn:btih:61359EA004E439AB475026DFDBDBBF414E432C7B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137717.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ magnet:?xt=urn:btih:7E74EEDA187CD25047FE1D16A3195C9C191CC93B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137718.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Hades (2020) [Ru/Multi] (1.37133) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137719.jpg" />
 </div>
 
 
@@ -572,83 +650,6 @@ Hades (2020) [Ru/Multi] (1.37133) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C910BB2AAAF6E2C5E5B2D75A99CCEB5C39F0A188
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273350   (137721) от 31.12.2018
-
-VA - Italo Disco Extended  Versions Vol. 10 - Italo Holiday (2018) [MP3|320 Kbps] <House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137721.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beach Club Band - Italian Girl (Extended Vocal Mix) 05:57
-2. Lana Love - Tell Me Why (Extended Vocal Disco Mix) 05:50
-3. Captain Apollo - When Time Went By (Extended Vocal Mix) 06:54
-4. Prima Ballerina - Don't Say Goodbye (Extended Vocal Mix) 06:03(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349242   (137722) от 31.12.2019
-
-Очередное достижение: 3000 релизов от hali1960 !!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 3000 релизов от hali1960 !!!Друзья!
-Рад сообщить - что наш одноклубник и мой коллега, Активный Релизер, Верный Сид hali1960 скромно перешагнул рубеж 3000 релизов!!!
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970853   (137723) от 31.12.2015
-
-Новогодняя ночь на Первом (2015.12.31-2016.01.01) SATRip (части 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такого зрелищного и захватывающего шоу еще не было! Подробности праздничного эфира держатся в строжайшем секрете, и лишь 31 декабря, за час до боя Курантов, все тайны будут раскрыты, а главные герои торжества снимут маски.Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 04:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BDCD30519A91A21C43492CDBF096A3417B2D4A
 ```
 
 

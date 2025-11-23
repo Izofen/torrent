@@ -1,3 +1,177 @@
+###  Публикация: 1600592   (154941) от 28.12.2022
+
+Scorpions - Best Of Scorpions (1979) Remastered, 2017, Audio Fidelity [OGG Vorbis|520 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steamrock Fever
+02. Pictured Life
+03. Robot Man
+04. Backstage Queen(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076C50B4C1B1B0A60BB6368A7C916B82008B5A62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518316   (154942) от 19.12.2021
+
+Стефан Шогелид | Raspberry Pi для секретных агентов (2015) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой Raspberry Pi в собственный набор инструментов секретного агента с помощью этого набора захватывающих проектов. Здесь представлен перевод книги "Raspberry Pi for Secret Agents 2ed". Эта книга предназначена для всех озорных владельцев Raspberry Pi, которые хотели бы, чтобы их компьютер превратился в изящный шпионский гаджет, который можно (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A064F7BFBBDF7DF0C1E0FC455FCCC51DE4647A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194372   (154943) от 25.12.2017
+
+Volume2 1.1.5.403 RC + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volume2 — альтернативный регулятор громкости, который полностью заменяет стандартный регулятор громкости Windows и обеспечивает простую настройку горячих клавиш и событий мыши.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34F1A8802DFFA1127538C025C6B3A541EFBA90C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130826   (154944) от 20.12.2018
+
+Axel Rudi Pell - The Ballads V (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love's Holding On (feat. Bonnie Tyler)
+02. I See Fire (Ed Sheeran cover)
+03. On the Edge of Our Time
+04. Hey Hey My My (Neil Young cover)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342D669805951493FE36DD02BFC2AC50B2BBD1B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676646   (154945) от 14.11.2023
+
+PotPlayer 231113 (1.7.22038) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34F26DDF87A060D17BD61F1543A2C78EE0C8AF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194516   (154946) от 25.12.2017
+
+Принц на Рождество / A Christmas Prince (2017) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154946.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества начинающая журналистка Эмбер отправляется в королевство Алдовию, чтобы сделать репортаж о вступлении на престол наследного принца. Хитростью задержавшись при дворе, она попробует узнать всю правду о будущем короле — ведь пока прессе скрытный наследник известен только громкими расставаниями с девушками.Производство: США / Motion Picture Corporation of America (MPCA)Жанр: МелодрамаРежиссер: Алекс ЗаммАктеры: Том Найт, Тео Девани, Сара Дуглас, Дэниэл Фазерс, Вон Джонсеф, Хонор Книфси, Элис Крайдж, Бен Лэмб, Эми Марстон, Роуз МакАйверПеревод: Профессиональный многоголосый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:30:59Реклама: Присутствуют вставки текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290E4534686BCDA0599E22E48F9E72DF1EEB349D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518366   (154947) от 19.12.2021
+
+Ричард Пулин | Школа дизайна: шрифт. Практическое руководство для студентов и дизайнеров (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт - одна из самых эффективных форм коммуникации и визуальной выразительности. Сочетая его с изображениями, цветом и другими элементами дизайна, в него можно вложить запоминающееся послание, которое всегда будет ассоциироваться с конкретными человеческими эмоциями. Из практического пособия "Школа дизайна. Шрифт" вы узнаете основные правила и методы работы (   Читать дальше...   )Жанр: ДизайнПеревод: Е. ПетроваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1116F6297DCFEA368F66E537B41F043669C7C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600633   (154948) от 28.12.2022
 
 Ламборгини: Человек-легенда / Lamborghini: The Man Behind the Legend (2022) BDRip [H.264/1080p]
@@ -6,7 +180,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154948.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:16E61A485B3D6A407E3697FCA0F7551C0712399B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154949.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ The Beach Boys - The Platinum Collection (2005) 3CD [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154950.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ New Masters Academy, Erik Olson | Perspective 17: Drawing the Figure in Perspect
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154951.jpg" />
 </div>
 
 
@@ -102,7 +276,7 @@ magnet:?xt=urn:btih:D3CEB84C42A1944BCDA90AC2A8141190D1E7BD80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154952.jpg" />
 </div>
 
 
@@ -126,7 +300,7 @@ RAM Saver Professional 17.9 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154953.jpg" />
 </div>
 
 
@@ -150,7 +324,7 @@ Serato DJ Pro Suite 2.5.8 (x64) RePack by VR [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154954.jpg" />
 </div>
 
 
@@ -174,7 +348,7 @@ Def Leppard - Diamond Star Halos (2022) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154955.jpg" />
 </div>
 
 
@@ -201,7 +375,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154956.jpg" />
 </div>
 
 
@@ -225,7 +399,7 @@ Permute 2.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154957.jpg" />
 </div>
 
 
@@ -250,7 +424,7 @@ magnet:?xt=urn:btih:8B8B3A4D43CA9FA4773E79A0F4D0677C3B6020D8
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154958.jpg" />
 </div>
 
 
@@ -275,7 +449,7 @@ magnet:?xt=urn:btih:57B1BF0A725312FC5581F22B98D9DFA592D73E93
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154959.jpg" />
 </div>
 
 
@@ -300,7 +474,7 @@ VA - The Best Of Suanda True 2016 (Mixed By Mark W) (2016) [MP3|320 Kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154960.jpg" />
 </div>
 
 
@@ -327,7 +501,7 @@ Lula Galvao - Alegria de viver (2019) [FLAC|Lossless|tracks + .cue] <Latin Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154961.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154962.jpg" />
 </div>
 
 
@@ -378,7 +552,7 @@ magnet:?xt=urn:btih:1D0DECF16B882096EC6C10CE63E3619F16207332
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154963.jpg" />
 </div>
 
 
@@ -402,7 +576,7 @@ AOMEI Backupper Technician Plus 5.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154964.jpg" />
 </div>
 
 
@@ -426,7 +600,7 @@ magnet:?xt=urn:btih:784CBF9A958C6AF1B9AF17E14F98A906C3454C10
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154965.jpg" />
 </div>
 
 
@@ -450,7 +624,7 @@ magnet:?xt=urn:btih:E69BAED00170B8C7249669597278264BA05834DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154966.jpg" />
 </div>
 
 
@@ -461,183 +635,6 @@ magnet:?xt=urn:btih:E69BAED00170B8C7249669597278264BA05834DE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84F8F379A0690748745658B6F22101EE15781988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347080   (154967) от 21.12.2019
-
-Ян Агеенко | Как стать дизайнером с нуля (2019) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга написана специально для новичков, делающих свои первые шаги в освоении профессии дизайнера. Автор делится многолетним опытом, даёт советы, рассказывает о распространённых среди молодых дизайнеров проблемах и способах их решения. На страницах книги вы найдёте рекомендации по обучению, поиску работы и построению карьеры в сфере дизайна.Жанр: Карьера, кадрыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C958961C3C642C7B205675C99BC8A25E5F3EC6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085798   (154968) от 23.12.2016
-
-Charlie Mingus - Epitaph (1946-1959) 2CD, 2009, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154968.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Shuffle Bass Boogie [02:57]
-02.Pipe Dream [03:18]
-03.Mingus Fingers [03:10](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C26F2981B07C2B3F8EBAB67C2AA8197AC62E79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433832   (154969) от 22.12.2020
-
-Биатлон. Кубок Мира 2020-2021. Этап 4. Хохфильцен (Австрия). Женщины. Спринт 7,5 км (2020) WEB-DLRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок мира по биатлону 2020-2021
-18 декабря 2020, пятница. 16:15 МСК
-Этап 4. Хохфильцен (Австрия)
-Женщины. Спринт 7,5 км(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D640754773A04BAE81917D5C1D3B45F5DA1E6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676151   (154970) от 14.11.2023
-
-КамАЗ показал беспилотный самосвал по прозвищу "Робокоп"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_154970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автозавод "КамАЗ" приступил к испытаниям прототипа беспилотного тяжёлого самосвала "Атлант 49″ с колёсной формулой 8×4. Сообщение об этом вместе с фото новинки появилось в Telegram-канале автопроизводителя. Самосвал планируют использовать в угольных карьерах. На заводе он получил прозвище "Робокоп".Глава пресс-службы "КамАЗа" (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085794   (154971) от 23.12.2016
-
-Saxes, Inc. - Saxes, Inc. (1959) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fugue For Tinhorns [02:11]
- 02.Broadway [03:38]
- 03.The Gypsy [03:04]
- 04.Night In Tunisia [04:36](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1E0F7EDB710276D2A99033996142E8DA99A7F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513193   (154972) от 19.12.2021
-
-Элис Хоффман | Практическая магия [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман "Практическая магия" сразу стал бестселлером - магические чары этой блистательной прозы ни кого не оставили равнодушными. Роман лег в основу одноименного фильма компании "Warner Bros." с участие таких звезд мирового кино, как Сандра Баллок и Николь Кидман. Житейская история трех поколений семейства Оуэнс по женской линии разворачивается, (   Читать дальше...   )Жанр: Мистика, роман
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887878450D5F7FD330D655942A2E619340F0AB4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343720   (154973) от 21.12.2019
-
-Маша Трауб | Второй раз в первый класс (2017) [PDF, FB2, EPUB, MOBI]
-
->>Художественная литература
->>Сатира, Юмор
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154973.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента выхода «Дневника мамы первоклассника» прошло девять лет. И я снова пошла в школу – теперь с дочкой-первоклассницей. Что изменилось? Всё и ничего. «Ча-ща», по счастью, по-прежнему пишется с буквой «а», а «чу-щу» – через «у». Но появились родительские «Вотсапы», новые праздники, новые учебники. Да, забыла сказать самое главное – моя дочь пошла в школу не (   Читать дальше...   )Жанр: Современная русская литератураФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D27E6374EEDC15D5ADC026C24BE9514209919A
 ```
 
 

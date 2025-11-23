@@ -1,3 +1,57 @@
+###  Публикация: 1622963   (244009) от 30.03.2023
+
+Rudolf Buchbinder, Strauss, Schubert, Schumann, Beethoven, Chopin - Soirèe De Vienne (2022) [FLAC|Lossless|image + .cue] <Classical, piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Johann Strauss / Alfred Grünfeld
+[1] Soirée de Vienne, Op.56
+Johann Strauss / Otto Schulhof
+[2] Pizzicato-Polka, Op.9/2(   Читать дальше...   )Жанр: Classical, pianoПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3807B63FA63B67C2449A128D1180EE5E52659E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540491   (245218) от 30.03.2022
+
+Johann Sebastian Bach, Bernard Foccroulle - Toccaten & Passacaglia (2008) Reissue, 2020, Ricercar [FLAC|Lossless|image + .cue] <Classical, Organ Solo>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Toccata Und Fuge In D Minor, Bwv 565 8:55
+2. Toccata, Adagio Und Fuge In C, Bwv 564 15:23
+3. Fantasia Und Fuge In G Minor, Bwv 542 11:59
+4. Toccata Und Fuge In F Major, Bwv 540 14:22(   Читать дальше...   )Жанр: Classical, Organ SoloПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65088B1F1A337460445734F6BF09955F586B2456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620194   (249458) от 19.03.2023
 
 Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -6,7 +60,7 @@ Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249458.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249458.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [F
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251122.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251122.jpg" />
 </div>
 
 
@@ -66,7 +120,7 @@ Nebelkorona - 3 albums (2006-2010) [FLAC|Lossless] <Neoclassical, Ambient, Neofo
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251123.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251123.jpg" />
 </div>
 
 
@@ -96,7 +150,7 @@ Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Ne
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251372.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251372.jpg" />
 </div>
 
 
@@ -129,7 +183,7 @@ Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252326.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252326.jpg" />
 </div>
 
 
@@ -156,7 +210,7 @@ Johann Sebastian Bach - Three Concertos for Flute: Ars Rediviva Orchestra, VA, J
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252661.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252661.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ Wolfgang Amadeus Mozart – Mozart, Music for oboe and strings: VA, Virtuosity o
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252929.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252929.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Pink Floyd - Us And Them Symphonic Pink Floyd: The London Philharmonic Orchestra
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252984.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252984.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ Johann Sebastian Bach - Violin Concertos BWV 1041, BWV 1042, BWV 1043, BWV 1060:
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253218.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253218.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ Johann Sebastian Bach - Violin Concertos Nos.1&2 Double Concerto (BWV 1041-43, 1
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253742.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253742.jpg" />
 </div>
 
 
@@ -313,7 +367,7 @@ Johann Sebastian Bach – Violin Concertos BWV 1041-1043: VA, La Petite Bande, v
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253771.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253771.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ VA - Niccolo PAGANINI - Complete Chamber Music (2007) [APE|Lossless]<Classical, 
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253866.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ Andre Rieu and his Johann Strauss Orchestra - Thank You, Johann Strauss! (2025) 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254287.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254287.jpg" />
 </div>
 
 
@@ -397,7 +451,7 @@ Rondo Veneziano - Rondo Veneziano - My Best (8CD) (2010) [FLAC|Lossless]<Neoclas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254407.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254407.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ VA - Uplifting Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255668.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255668.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ Louisa John-Krol - 7 albums (1996-2008) [FLAC|Lossless] <Ethereal, Folk, Neoclas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255709.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255709.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ Daemonia Nymphe - 4 albums (2002-2007) [FLAC|Lossless] <Neofolk, Neoclassical, E
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255724.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255724.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ VA - The Classical Album (2011) 2CD [MP3|320 кб/с]<Classical, Vocal, Choral M
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256125.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256125.jpg" />
 </div>
 
 
@@ -528,6 +582,178 @@ VA - The Classical Album (2011) 2CD [MP3|320 кб/с]<Classical, Vocal, Choral M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A914B4200805807B78532F557E79C6B9A214F584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501421   (258619) от 26.05.2012
+
+Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumental Guitar Rock>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preludia d-moll (Bach, BWV 596)
+02. Presto (Marcello)
+03. Rondo (Mozart, KV 525)
+04. Le Campanella (Paganini)
+05. Allegro (Vivaldi, RV332)
+06. Sonata C-Dur (Mozart, KV 545)
+07. Menuet (Bach, BWV 115)
+08. Toccata Dorian (Bach, BWV 538)
+09. The Nutcracker (Tchaikovsky, Op. 71a)
+10. Preludia c-moll (Bach, BWV 847)(   Читать дальше...   )2012Жанр: Neoclassic/ Instrumental Guitar RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CC5100397A33998F9B385817DF0285DFF31F6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501697   (258824) от 27.05.2012
+
+Мишель Плассон, Дрезденский Филармонический Оркестр - Ференц Лист, Симфонические Поэмы (2010) (Диск 2)[FLAC|Lossless]<Classical Music>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прометей (Симфоническая поэма № 5)
+2. Что слышно на горе (Симфоническая поэма № 5)
+3. Праздничные звучания (Симфоническая поэма № 7)2010Жанр: Classical MusicПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CD764A7BEB2E55BC3418BB5E4D2A6FDDDAEE18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501907   (258955) от 27.05.2012
+
+VA - Золотая классика. Популярные версии (5CD) (2003) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258955.jpg" />
+</div>
+
+
+###  Подробнее
+
+2003Жанр: ClassicalПродолжительность: 05:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99343724C4DA7A80B1721984915D5F8C5EC5016B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503230   (259384) от 29.05.2012
+
+Dargaard - 4 albums (1998-2004) [FLAC|Lossless] <Darkwave, Ethereal, Neoclassical, Ambient>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise And Fall (10:47)
+02. Bearer Of The Flame (04:50)
+03. Niobe (04:40)
+04. Takhisis Dance (03:58)
+05. Winter (07:01)
+06. Ave Atque Vale (06:12)
+07. Queen Of The Woods (06:42)
+08. Ancestors Of Stone (06:02)1998-2004Жанр: Darkwave, Ethereal, Neoclassical, AmbientПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838253   (259868) от 
+
+Víkingur Ólafsson, Beethoven, Bach, Schubert - Opus 109 (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bach - The Well-Tempered Clavier, Book I
+01. Prelude No. 9 in E Major, BWV 854 (1:44)Жанр: ClassicalПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA887CBDA6632089AFE081D66BFFC4ED10F0DAA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503484   (259870) от 31.05.2012
+
+Ophelia's Dream - 3 albums (1997-2004) [FLAC|Lossless] <Neoclassical, Ethereal, Ambient>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Magdalen (06:57)
+02. Egredimini (03:05)
+03. Exsolutio (04:05)
+04. Saltarno (03:41)
+05. De Torrente (05:29)
+06. Amica Mea (05:13)
+07. All Beauty Is Lost (02:40)
+08. Il Vecchio Castello (05:01)
+09. Interlude I (01:09)
+10. Ladonna Wosh (04:10)(   Читать дальше...   )1997-2004Жанр: Neoclassical, Ethereal, AmbientПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31033.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CCFA773FA16E47F6E48C5DD2D20A5E12BC7A8871
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31034.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31034.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BB2EE38DF8E5770277F0249706AA8095C999FFFB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31035.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31035.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Trance In Motion Vol.384 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31036.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31036.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Essential Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31037.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31037.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:802125168D3EADCE13003AD4A2617652D452DC6A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31038.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31038.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:E6A8A0CCC4A63286DD4AA7F1A58B9ACFAA1F5B90
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31039.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31039.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:69E91F24F08C1C5F6F70F1B6D76037C5F42F2049
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31040.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31040.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Echolyn - Time Silent Radio vii II (2025) 2 x CD [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31041.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Text Editor Pro 31.3.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31042.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Judas Priest - Sad Wings of Destiny (1976) Remaster, 2025, Exciter Records [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31043.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31043.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Clouds - Desprins (2025) [MP3|320 Kbps] <Melodic  Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31044.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31044.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Sun Kissed, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31045.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31045.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Flirts - Castle Gold Collection, Vol. 18 (1991) [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31046.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31046.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ The Flirts - Castle Gold Collection, Vol. 18 (1991) [AAC|320 Kbps] <Electronic, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31047.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31047.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Markus Schulz - Global DJ Broadcast World Tour (DPRTMNT Toronto, Canada) (2025-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31048.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Top 11 November 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31049.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ The Last Sentinel - Riftborn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31050.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:4F7BCB2A56FB6B58944115DA670AD4DF554401FD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31051.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ The Last Sentinel - Eternal Blade Chronicles (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31052.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Essence - Caverns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31053.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:7F4987A8E3DFFBE609FC7A2F105E0FFC633CD6EF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31054.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Anabasi Road - Ecce Homo (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31055.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Wlodek Gulgowski - Soundcheck (1976) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31056.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31056.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Soulstance and Lo Greco Bros - The Cinematic Sound Of Soulstance (2025) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31057.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Conniption - The Theatre of Invention (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31058.jpg" />
 </div>
 
 

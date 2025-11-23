@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9096.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sting - ...Nothing Like The Sun (1987) 2025 2CD Japan Expanded Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9097.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B69109374AC872D0035387CF514111EF1F2061A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9098.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:19732219FF25BC4D9B43C79A375F5B5505C95962
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9099.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:22AD3DDC0EFFCCEACA8EC237EE887DF28AB87FF5
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9100.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ui Kits - UI8 - Synapz - AI Task Collaboration App UI KIT [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9101.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CD227DED033226859C4AFE3FCD37638D42EC62DF
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9102.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ YT Downloader 9.15.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9103.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:014A714F9F0642EF28185032065646E1C7E5A64B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9104.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:CCC9115F14EC46C97C53114C994F54637C6DBA5F
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9105.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:607F13D6291A13FB4AA88CC8A18CFEC87C2632E5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9106.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Heavy Rock - Heavy Guitars (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9107.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:AE74BD34680D4D85138E094EE978A7898744ABEE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9108.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sting - The Soul Cages (1991) 2025 Japan 2CD Expanded Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9109.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:F2CAA8EC515FD1C885B551A1FF0761D001FE1324
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9110.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C6B6B5D927F7D5DD4C1AB9ACF8D719147AE6FEE0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9111.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:2A1DA8E3549FE2F1F4F21C7431CFDEF350DA305F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9112.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:574518904B2704F04D5DDBBE5FA74FED8EE2E26D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9113.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:5EE659D1B9D9C271683DC35E317D548468FB3AA0
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9114.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:45E4F4BA325BA1A4128D7D2BBDB2A59611B95E45
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9115.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ohmforce - Ohmboyz Infinity 1.1.3 VST, VST 3, AAX (x64) RePack by Tracer [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9116.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:ECF4485B5A22EFAB1030BC93106990CC885E6F58
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9117.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Tall Trails (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9118.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ PBS: Первые люди / First Peoples (2015) WEB-DL [H.264/1080p] (сезо
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9119.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ WWE: За кулисами / WWE: Unreal (2025) WEB-DLRip [H.264/1080p-LQ] (се
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9120.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Mars Base (2022) [Multi] (1.107) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9121.jpg" />
 </div>
 
 

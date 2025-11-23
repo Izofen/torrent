@@ -6,7 +6,7 @@ The Idolmaster Shiny Colors 2nd Season | Идолмастер: Яркие цве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33469.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mahou Tsukai ni Narenakatta Onnanoko no Hanashi. | История девушки
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33587.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sayonara Ryuusei, Konnichiwa Jinsei / Goodbye, Dragon Life / Прощай, жи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33607.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mecha-ude (2024) | Mechanical Arms | Механические руки [2024, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33617.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ NegaPosi Angler | Negative Positive Angler | Негативный позитив
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33619.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Sword Art Online Alternative: Gun Gale Online II / Мастера меча он�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33637.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Kekkon Surutte, Hontou Desuka / 365 Days to the Wedding / Вы правда же
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33690.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming S2 | A Herbivorous Dragon of 5,000 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33813.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:BF5A481E8CEF0A0A89688492C8013BB9F389FD61
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33840.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34027.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Tsuma, Shougakusei ni Naru. / If My Wife Becomes an Elementary School Student. /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34132.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Король демонов, поп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34215.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Hitoribocchi no Isekai Kouryaku / Loner Life in Another World / Нападени
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34231.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ MF Ghost | MF Призрак [ТВ-1] [2023, TV, 12 эп.] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34412.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Acro Trip | Плохая поездка [2024, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34561.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Megami-ryou no Ryoubo-kun. | Mother of the Goddess' Dormitory | Комендан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35065.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Delico's Nursery | Детская Делико [2024, TV, 13 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35824.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Murai no Koi | Murai in Love | Любовь Мураи [2024, TV, 12 эп.] WebR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36370.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Ariel Deluxe | Deluxe Ariel | Роскошная Ариэль [1991, OVA, 2 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36860.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Ariel Visual | Ариэль [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36863.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйве�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37169.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ eX-Driver the Movie | Экс-драйвер: фильм [2002, Movie + 3 SP] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37207.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ eX-Driver | Экс-драйвер [2000, OVA, 6 эп.] DVDRip 480p raw+eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37307.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38037.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Shin Megami Tensei: Tokyo Mokushiroku | Tokyo Revelation | Новое вопло
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38587.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Houkago Shounen Hanako-kun (2024) | After-school Hanako-kun (2024) | Ханак�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39004.jpg" />
 </div>
 
 

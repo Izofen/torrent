@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2169.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vivaldi 7.6.3797.52 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2170.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ InnoExtractor Ultra 11.1.0.152 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2171.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:BBD6D81FD101B13932BE465B71EF6D8361CEB0F0
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2172.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EAEF1BA51B6EEF7066C397D5FE228A46B859D51E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2173.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:124A3B2725531872B45F54D9807B3A33C213A6D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2174.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2227BCB49894825C13CAB7DE710F831FBB753386
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2175.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:CAA8612322FB80EA88E86768D9724621A7379F6E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2176.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:9F51566C121F92FBF7C481C9A88FB99FA8B02D0B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2177.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:BFDB0CC195FE7C61FF5C7D148C684678751EC269
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2178.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ YT Downloader 9.17.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2179.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:21500CEA65F47BC0B6FFF1FFE9B204C42E7D958E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2180.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:6E10BF9B2EBECAA6C4D23CA2FD42562AC38EFD5D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2181.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:9E0A02E2E9779AB6130B513D578AA94ACBFD176A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2182.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:9FC47F46A7D34978672997E30438837CAC7A4426
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2183.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Gorillaz - The Happy Dictator ft. Sparks (2025) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2184.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:E1A34B29E37AF71F5798CA132A2AAA95AB688D5D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2185.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Internet Download Manager 6.42 Build 43 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2186.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:30023509FFE1FD98CBD16660D4A79733BAA7E696
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2187.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:7CDC87E5C12DA4E2DB92960F2141D6F8F2DB411F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2188.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:C4CEDC57528B70A32DCD7D54ED5FBFA20F4F8C65
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2189.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:68870C2EC1FB4A198146B0A686C5D1E23CFBE14C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2190.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:5B28FBE1BF246921C5EB8DD5E3E481C08AB31DFA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2191.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:6E8890DDF39270295A1EA0C71C1882CCFCEE84ED
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2192.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:ADA8DDA3071D3A173834450D461088828665157B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2193.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:1035EEB1B66CC32AC86EDCE1D0BE78A946DD50AF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2194.jpg" />
 </div>
 
 

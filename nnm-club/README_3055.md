@@ -1,3 +1,92 @@
+###  Публикация: 468565   (96780) от 16.03.2012
+
+[Wallpapers] Animals Full HD Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96780.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Animals Full HD Wallpapers Pack 2 
+Название:  Animals Full HD Wallpapers Pack 2 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47ABD00ED1E11C5EA0AD13F32B890BE02099E3F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468558   (96781) от 16.03.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96781.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 3 
+Название:  Girls Desktop Wallpapers Pack 3 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 2560х1920
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE813C78E28CEEDA8E4136EB1D61446D70DCD3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467706   (96784) от 16.03.2012
+
+Cindy Blackman - Someday... (2001) [FLAC|Lossless]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_96784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine (4:51)
+02. Call To the Ancentors (1st Interlude) (1:13)
+03. Someday My Prince Will Come (5:46)
+04. Walkin' (4:20)
+05. Heaven Sent (7:02)
+06. Call To the Ancentors (2nd Interlude) (1:23)
+07. Eternal Justice (10:31)
+08. Peebow's Vibe (3:34)
+09. Glass Slippers (6:12)
+10. Paradise Island (8:29)(   Читать дальше...   )2001Жанр: Hard BopПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467997   (96785) от 16.03.2012
 
 [Wallpapers] Desktop Wallpapers Pack 7
@@ -6,7 +95,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96785.jpg" />
 </div>
 
 
@@ -34,7 +123,7 @@ magnet:?xt=urn:btih:1087BBC68E2C340440796D798631B610A22010A3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96789.jpg" />
 </div>
 
 
@@ -58,7 +147,7 @@ magnet:?xt=urn:btih:2944AD01392F92AC793E1717D6B26FA9F8870880
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96791.jpg" />
 </div>
 
 
@@ -86,7 +175,7 @@ magnet:?xt=urn:btih:11FBD8FBBBF0518F8E095E93068E1338330A2291
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96792.jpg" />
 </div>
 
 
@@ -111,7 +200,7 @@ magnet:?xt=urn:btih:49B6113402C550A5C92A6F461374036008A191F8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96793.jpg" />
 </div>
 
 
@@ -140,7 +229,7 @@ Zyce And Flegma - 8 Cell (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96795.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96795.jpg" />
 </div>
 
 
@@ -172,7 +261,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96796.jpg" />
 </div>
 
 
@@ -204,7 +293,7 @@ magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96797.jpg" />
 </div>
 
 
@@ -232,7 +321,7 @@ magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96798.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96798.jpg" />
 </div>
 
 
@@ -256,7 +345,7 @@ magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96800.jpg" />
 </div>
 
 
@@ -281,7 +370,7 @@ Juliette Katz - Tout Va De Travers (2012) [MP3|320 кб/с]<Chanson, Pop, French
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96801.jpg" />
 </div>
 
 
@@ -314,7 +403,7 @@ magnet:?xt=urn:btih:8C60BEC267C0CFB8AFA66DA1A923B0668723075A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96804.jpg" />
 </div>
 
 
@@ -338,7 +427,7 @@ magnet:?xt=urn:btih:06311FE9C3489238A0A6AD1D926CAF44ADF252E4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96806.jpg" />
 </div>
 
 
@@ -363,7 +452,7 @@ magnet:?xt=urn:btih:2D7BE2F08BC1ADC10393322863BD448C51D6B156
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96810.jpg" />
 </div>
 
 
@@ -391,7 +480,7 @@ magnet:?xt=urn:btih:F5E9111784F751FD33711792A7F6B36F32EF0838
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96813.jpg" />
 </div>
 
 
@@ -415,7 +504,7 @@ magnet:?xt=urn:btih:904F94D5196412D1A4A2F54822CC7A40531D4A58
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96814.jpg" />
 </div>
 
 
@@ -443,7 +532,7 @@ Soulfly - World Scum (2012) HDRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96815.jpg" />
 </div>
 
 
@@ -467,7 +556,7 @@ magnet:?xt=urn:btih:67E0CBD3D2EF65AA1FD342289B1AED5BADB48219
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96816.jpg" />
 </div>
 
 
@@ -492,7 +581,7 @@ magnet:?xt=urn:btih:BA332975A8BB211C5101D3A11C30E98ABA7A74E7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96817.jpg" />
 </div>
 
 
@@ -517,7 +606,7 @@ magnet:?xt=urn:btih:B2271600727F3E93A05D4DD6850A2D904BF0CCBA
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96818.jpg" />
 </div>
 
 
@@ -545,7 +634,7 @@ magnet:?xt=urn:btih:BA9146DB94A18AF015043AB526D066A1FFB4385E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96819.jpg" />
 </div>
 
 
@@ -569,7 +658,7 @@ The Lefty Collins Band - The Lost and Found (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96820.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96820.jpg" />
 </div>
 
 
@@ -600,7 +689,7 @@ The Lefty Collins Band - The Lost and Found (2012) [FLAC|Lossless]<Blues>
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96825.jpg" />
 </div>
 
 
@@ -615,93 +704,6 @@ The Lefty Collins Band - The Lost and Found (2012) [FLAC|Lossless]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CC37B8A34964679E7A3C09DD3BC414CA06713E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468680   (96826) от 16.03.2012
-
-VA - Звездная Дискотека. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Sava feat. Andreea D & J. Yolo - Money maker
- 002. Dj Antoine Feat. The Beat Shakers - Ma Cherie (Dj Antoine Vs. Mad Mark 2k12 Radio t)
- 003. Linkin Park - Wretches And Kings
- 004. Sandro Monte feat. Mischa Daniels & J-Son - Simple man
- 005. Nicole Scherzinger - Try With Me (Cahill Radio Edit)
- 006. Housemaxx Project - Let The Music Play (Radio Edit)
- 007. Lady Tom - All I Ever Needed
- 008. Sasha Lopez Feat. Broono & Ale Blake - Weekend (Radio Version)
- 009. Big City Angels - Top Of The Stars (Justin Corza Meets Greg Blast remix)
- 010. Chuckie feat. Gregor Salto - What happens in vegas(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57A07BAAAF9D0FD92C6A395561218C6B14D3B3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468504   (96827) от 16.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 15
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96827.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 15 
-Название:  Desktop Wallpapers Pack 15 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080D10C9C3707990C3E16F2809283B1390853103
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467266   (96831) от 16.03.2012
-
-Журнал | Зарплата в бюджетном учреждении №1,2 [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание предназначено для бухгалтеров государственных (муниципальных) учреждений.
-О журнале:
-В журнале приведена информация, связанная с расчетом и налогообложением заработной платы, доплат, надбавок и компенсаций, а также с оформлением трудовых отношений. В частности, рассказано, как рассчитать налоги и взносы с зарплаты, применять новый порядок исчисления пособий. (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6BE738C17F59F2A5FE4F79C9E3AFE26E58888C
 ```
 
 

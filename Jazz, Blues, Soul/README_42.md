@@ -6,7 +6,7 @@ John Bunch Trio - Love Songs (1997) 2001, LRC [FLAC|Lossless|tracks + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70760.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hal Galper And The Youngbloods - Live At The COTA Jazz Festival (2017) Origin Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70764.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70765.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - fun and funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul/Funk/R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70767.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70770.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Slow and Smooth Jazzy Beats and Songs (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70771.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Afro Funky House 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70773.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Jazz House Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70774.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Jazz Collection Tracks For Stress Relief (Volume 1) (2025) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70775.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Latin Jazz House & Beats (2025) [FLAC|Lossless|WEB-DL|tracks] <Latin Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70776.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Electro Swing Back to Old School (Jazzy Electro and Vintage Swing Reloaded)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70799.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Max Greger - Super Tanzmusik (1985) Polydor [FLAC|Lossless|tracks + .cue] <Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70813.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Todd Cochran TC3 - Then And Again, Here And Now (2021) Sunnyside [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70814.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ V.A. - Pop International Hits Vol. 2 (Bossa Nova Lounge Jazz Covers) (2025) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70817.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Jazz for a Crime vol. 1-3 (2024) Signora Ward Records [FLAC|Lossless|Web-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70834.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Free Wheeling Blues - Train Ain't Gonna Stop (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70870.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Tom & His Free Mockingbirds - All Shades of Blues & Dreams (2025) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70871.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Max Greger und sein Orchester - Sax In Love (1992) Polydor [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70872.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Matt "The Rattlesnake" Lesch - Blues Cut Like Glass (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70873.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Frank Bey - Peace (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70876.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Chris Sutherland - Heaven (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70877.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Bill Abel - Waiting At The Station (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70878.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Teri Thornton - Sings Open Highway (1963) 2001, Koch Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70879.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Jimmy Raney - Here's That Raney Day (1980) 1990, Black & Blue [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70880.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ John Tho - Truth Be Told (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70888.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Mick Clarke - Bad Whisky Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70889.jpg" />
 </div>
 
 

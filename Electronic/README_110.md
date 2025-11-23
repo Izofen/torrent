@@ -6,7 +6,7 @@ VA - Phil K Pres: Y4K - Distinctive Breaks (2005) [FLAC|Lossless]<Progressive Br
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167415.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Progressive Miami (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167526.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Sensual Winter Chill Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167532.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ben Böhmer - Live At The Roundhouse London (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167564.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Trance Party 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167610.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Milk & Sugar Winter Sessions 2021 (2020) [MP3|320 Kbps] <House, Funky House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167729.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Phil K & Habersham - Cloudbrake (2005) Single [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167934.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Vocal Trance 2020 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168002.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Ultra Mood - X Planet X​-​420 (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyl
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168043.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Kölsch - I Talk To Water (2023) [FLAC|Lossless|WEB-DL|tracks + .cue] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168046.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - A State Of Trance Year Mix 2022 - Selected by Armin van Buuren (2022) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168060.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - EDM Rave 2020 Electronic Dance Trance Dubstep Techno House (2019) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168148.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Chilling Christmas 2019 [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168185.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Malik Djoudi - UN (2017) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <Fr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168213.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Xmas Hot Wishes 2019 [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168253.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - House 2020 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168266.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Gate to Eternity: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168477.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - Vocal Trance 2021 (2020) [MP3|320 Kbps] <Trance, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168776.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - The Perfect X-Mas Chillout Playlist 2022 (2022) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168922.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Vocal Trance 2023 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168957.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Lofi & Chillout Xmas Wishes (2022) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169009.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Lounge & Chill Out Moods, Vol. 1 (2022) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169010.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Knobs - Discography 14 Releases (2009-2016) Nachtstrom Schallplatten [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169017.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Goa Psy Trance - The Hits 2024 (2023) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169027.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ BT - Everything You’re Searching For Is On The Other Side Of Fear (2019) Black
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169079.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - House 2023 (2022) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169113.jpg" />
 </div>
 
 

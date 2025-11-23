@@ -6,7 +6,7 @@ Singlets Labarca - Foggy River (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71832.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MC BabaYaga - Leader’s Flame (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71833.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:385A8A7877AF3D0149B86C39D8C4DDD5846B23D0
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71834.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C1ECE847BAAF57E54E70E30A760451D0D471BE6B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71835.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DAF6B1087B0EFE46D89861D073EAB1CAE7DBCA36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71836.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:08B7D6B5CF2F276FA9757E9306821D0D16FFAB4C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71837.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - When Time Stops: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71838.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ John Haydock - Best Of The Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71839.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:4ACA9B623A27F35FEC9813D66DC09E655E7C1F94
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71840.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Kira Lao - Тревожный опыт (2019) [FLAC|Lossless|tracks] <Experiment
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71841.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ John Haydock - Change in the Weather (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71842.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:D1DF6C2BA59BFABB6E8B72EAEED7233EBD7B97BA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71843.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Abora Progressive: Best of 2021-2024 (Mixed by Ori Uplift) (incl. Original 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71844.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Roadhouse Dogs - Duggan's Conversation Bar (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71845.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2 Hour Indie Dance Mix) (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71846.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:278943E7D12C0D0DD6E93317E14EAB9A768E3462
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71847.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:F08959DB23B77A800A1A039ADC88CCB325AD5B54
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71848.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Reog - Reog (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71849.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Telegram Desktop 5.10.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71850.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:3EA50288E9AE9B4C68E7010A0A49E18DB0800957
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71851.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:2D9C56B399E4E79C3A654C4C0761D8A622E5B62D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71852.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ CudaText 1.220.5.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71853.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:1F3DB36A2F5ED5AB59052C05D61094CB8A82A1A4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71854.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:8E0BA11F361E28BF3209524C79BB36C4C7BF88DA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71855.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ DJJireh - Heavenly Trance Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71856.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:48417255EA15AD13E3403697EA33681806EE47B5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71857.jpg" />
 </div>
 
 

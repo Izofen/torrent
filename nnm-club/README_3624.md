@@ -1,3 +1,81 @@
+###  Публикация: 1705352   (113906) от 08.03.2024
+
+Кипелов - Весы Судьбы (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Весы Судьбы
+3. Ночь в душе твоей
+4. Твой путь(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE74A07D4A394B2BE6FA24845AE6BBDBB945AB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705301   (113907) от 08.03.2024
+
+Александр Михайловский, Юлия Маркова | Прогрессоры (Книга 4). Второй год новой эры (2024) [MP3, Борис Павлюков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Племя Огня благополучно встретило Новый год, он же Праздник Зимнего Солнцестояния. Теперь впереди предстоят новые опасные путешествия: лыжный поход на Большую Охоту в тундростепи и летнее плавание за каолином и оловянной рудой. И на фоне увлекательных приключений происходит удивительное преображение закоренелой феминистки Люси, а племя неожиданно обретает новых членов (   Читать дальше...   )Жанр: Исторические приключения, Попаданцы, Социальная фантастикаИздательство: ЛитРес: ЧтецПродолжительность: 12:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE850E866D40CEA79786D5C1FC3314D83C673591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705364   (113908) от 08.03.2024
+
+Александр Лаэртский и Карабас - Как будто пришли в гости (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113908.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Заклинило
+2. Певица
+3. Вязьма
+4. Мутанты(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B577C0A2F2FB77122AC2B1BD3093567D05584262
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705386   (113909) от 08.03.2024
 
 Лестница в небо / Вопрос жизни и смерти / A Matter of Life and Death (1946) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113909.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.10 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113910.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ Alphaxone - Interdimensional (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113911.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ Moon+ Reader Pro v9.2 b902001 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113912.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ VA - Cover Sanremo 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113913.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ Icecream Photo Editor Pro 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113914.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113915.jpg" />
 </div>
 
 
@@ -184,7 +262,7 @@ USB Device Tree Viewer 4.0.5.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113916.jpg" />
 </div>
 
 
@@ -208,7 +286,7 @@ Icecream Video Editor Pro 3.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113917.jpg" />
 </div>
 
 
@@ -232,7 +310,7 @@ Icecream Screen Recorder PRO 7.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113918.jpg" />
 </div>
 
 
@@ -256,7 +334,7 @@ Icecream Video Converter Pro 1.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113919.jpg" />
 </div>
 
 
@@ -280,7 +358,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.56 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113920.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ magnet:?xt=urn:btih:139B5B132C4F580F1C27348FC09E0E4370846186
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113921.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ GIMP 2.10.36-1 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113922.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ magnet:?xt=urn:btih:99887377BB98D6BA337A86E08C95A9BED6BF0386
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113923.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ magnet:?xt=urn:btih:E308FC2009FB18D164C8A7061AA5F885070B3667
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113924.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ magnet:?xt=urn:btih:C7B8F4630080AD512050796E0059657D0D00658E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113925.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ ToonMe v0.7.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113926.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Stay 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113927.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ Google Chrome 122.0.6261.112 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113928.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ magnet:?xt=urn:btih:85539170070B8B20F792E85DC4F72CB08879D4A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113929.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Judas Priest - Invincible Shield (2024) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113930.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ IceCream Ebook Reader Pro 6.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113931.jpg" />
 </div>
 
 
@@ -565,79 +643,6 @@ IceCream Ebook Reader Pro 6.48 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A2AC0DA44B68BE4B3F0A389C782C3A48BF26A11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705375   (113932) от 08.03.2024
-
-Календарь рабочих смен v2.0.6.8 Mod by Timozhai [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение предназначено для рабочих смен и людей, которым необходимо организовывать свою повседневную работу, чтобы не пропустить ни одной встречи.
-Вы можете быстро и легко контролировать ваш рабочий день и ваши доходы благодаря нашей статистической системе.Тип издания: ProРелиз состоялся: 23.12.2023Разработчик: LRHSoftПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454CF4CB10C763E458A4E972FAD1C21FF90EEE89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705436   (113933) от 08.03.2024
-
-Не смотри туда / Don't Look Away (2023) WEBRip [H.264] [звук с ТS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113933.jpg" />
-</div>
-
-
-###  Подробнее
-
-После ужасной автомобильной аварии Фрэнки пытается убедить друзей, что произошедшее не было случайностью. Она уверена, что в аварии виновата чудовищная сущность, которая теперь преследует ее. Друзья поднимают девушку на смех, но вскоре они начинают погибать. Ужасная особенность в том, что все, кто хоть раз увидит это создание, обречен на ужасную смерть. У Фрэнки (   Читать дальше...   )Производство: Канада / 	IndustryWorks StudiosЖанр: ужасыРежиссер: Майкл БафароАктеры: Келли Бастард, Майкл Миттон, Колм Хилл, Рене Лаи, Абу Дукули, Бриттани Пилгрим, Софи Том, Джейсон Хейни, Ванесса Ностбаккен, Майкл БафароПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:09Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B557F5F5E70137B4F38B3FBD9B54B576784F2451
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705459   (113934) от 08.03.2024
-
-LibreOffice 24.2.1.2 Stable Portable by PortableApps [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113934.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F6B36C7D115C16A058428198F62E4732465F93
 ```
 
 

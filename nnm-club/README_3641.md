@@ -1,3 +1,78 @@
+###  Публикация: 1704407   (114348) от 04.03.2024
+
+Наталья Калинина | Агентство "Мистерио" (Книга 1). Вечеринка Смерти (2024) [MP3, Александр Иванов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114348.jpg" />
+</div>
+
+
+###  Подробнее
+
+На таинственной вечеринке погибают шесть популярных блогеров. За поиск причин трагедии берется команда из молодых и талантливых людей. У них нет опыта в расследованиях, но с их способностями можно заглянуть туда, куда простым обывателям вход закрыт. Медиум, ведьма, экстрасенс, хакер, рунолог и малозаметная девушка, которая умеет четко организовать работу. Новое дело (   Читать дальше...   )Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 11:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08B1A274A277B0E7FF998D67583C8C34CCD8753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704475   (114349) от 04.03.2024
+
+Aiseesoft Audio Converter for Mac 9.2.22 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Audio Converter for Mac Конвертер аудио файлов, поддерживающий практически все распространенные форматы файлов, включая AAC, AC3, AIFF, AU, FLAC, MP3, M4A, OGG, WAV, WMA и т.д. Так же эта программа позволяет извлекать аудио-дорожки из видео-файлов в формате MPEG, MOV, MP4, M4V, RM, WMV, ASF, MKV, TS, MPV, AVI, 3GP, FLV и т.д. Помимо конвертирования аудио (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2024 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF21D13DA1C0345E2BF0286E9CA817D3758268A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704215   (114350) от 04.03.2024
+
+Black Sabbath - Sabotage (1975) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+01 - Hole In The Sky.
+02 - Don't Start (Too Late).
+03 - Meglomania.(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134DA743B3E5EA056A658A993E824857432432C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704474   (114351) от 04.03.2024
 
 VA - Chillout Mood (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -6,7 +81,7 @@ VA - Chillout Mood (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114351.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ VA - Rhapsodic Night Rythm (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114352.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:1258FABE3C4DB3696EEE37902B7097A3029A5A8A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114353.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114354.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ VA - Love & Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114355.jpg" />
 </div>
 
 
@@ -138,7 +213,7 @@ magnet:?xt=urn:btih:AA9B46B61A62B6263CB3FC4E4FA9789B2247ABE3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114356.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ magnet:?xt=urn:btih:66C94EB286ACA5AB714E122F22589ED94CF1A3F2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114357.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ magnet:?xt=urn:btih:201F12C70AC374879240DB38BFC4E77CEADE9928
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114358.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ Viber 22.1.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114359.jpg" />
 </div>
 
 
@@ -235,7 +310,7 @@ magnet:?xt=urn:btih:B24E2E98CABD2270FE63777559249B073F1D3580
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114360.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ Deep Purple - Дым над водой. Архив популярной музы
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114361.jpg" />
 </div>
 
 
@@ -286,7 +361,7 @@ VA - Electronic compilation part 61 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114362.jpg" />
 </div>
 
 
@@ -313,7 +388,7 @@ VA - Асса (1996) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114363.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ magnet:?xt=urn:btih:84114092D7C1A1ACE5229B77E1A14DBEAB858E4B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114364.jpg" />
 </div>
 
 
@@ -364,7 +439,7 @@ magnet:?xt=urn:btih:892D27739A3F671EF6F9A34424749DAD542F8271
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114365.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ LibreOffice 7.6.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114366.jpg" />
 </div>
 
 
@@ -412,7 +487,7 @@ magnet:?xt=urn:btih:5226E2D440434B66ADC1A3828FF70C27846BC996
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114367.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ magnet:?xt=urn:btih:3E3F1864F94816289255FF5BEF0046B440CAD5A3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114368.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ magnet:?xt=urn:btih:9202D179DFE1B0A29B53B2E56224393935B38D54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114369.jpg" />
 </div>
 
 
@@ -489,7 +564,7 @@ OneCommander Pro 3.70.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114370.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ magnet:?xt=urn:btih:B198F1D16EDED0A633415FB977D4F43EBEFB1901
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114371.jpg" />
 </div>
 
 
@@ -538,7 +613,7 @@ Dire Straits (Даэр Стрэйтс) - Love Over Gold (Любовь дорож
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114372.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ FinePrint Software (FinePrint 11.42 / pdfFactory Pro 8.42) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114373.jpg" />
 </div>
 
 
@@ -576,81 +651,6 @@ FinePrint - это многофункциональный драйвер для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74A1031E47CA179F9F4331A8CE7A0CC4FB66F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704248   (114374) от 04.03.2024
-
-Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожаловать в Сэтон [2020, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в частную школу Сэтон, где вся жизнь — сплошной естественный отбор, ведь обучаются здесь всевозможные представители фауны! Есть и зебры с лошадьми, и медведи, учитель — тирранозавр, а директор вообще аномалокарис. И вот, в эту странную школу поступают целых два человека, Дзин Мадзама и Хитоми Хино... но это далеко не все странности, которые ждут (   Читать дальше...   )Производство: Studio GokumiЖанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: Японский, русский (AniLibria, Crunchyroll)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4FE4080650F3A1579607A32EC3BA4F950E6B77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704246   (114375) от 04.03.2024
-
-Madis - 4 Альбома, 1 Сингл (2022-2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - Sail (Edits)
-2022 - Sail
-2023 - Conquest of Paradise(   Читать дальше...   )Жанр: Electronic TechnoПродолжительность: 5 CD, 04:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621F058D576ABB38C045EFE6EC2A692346E3961A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704480   (114376) от 04.03.2024
-
-Сад изящных слов / Kotonoha no Niwa / The Garden of Words (2013) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юноша по имени Такао встречает таинственную молодую женщину. Их случайные и как будто ни к чему не ведущие встречи в парке, где Такао прогуливает занятия, работая над достижением своей странной мечты — посвятить жизнь конструированию и изготовлению обуви — повторяются снова и снова, правда, только в ненастные дни. Сердца молодых людей начинают приоткрываться друг (   Читать дальше...   )Производство: Япония / CoMix Wave Inc.Жанр: аниме, мультфильм, мелодрамаРежиссер: Макото СинкайПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18713B920C4F814D762784B0C621F09A2F4575A0
 ```
 
 

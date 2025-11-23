@@ -6,7 +6,7 @@ Devious Machines - Complete Effects Bundle 2025.6.10 VST, VST 3, AAX RePack by T
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14921.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Promare | Промар [2019, Movie] Blu-ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14922.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Photomath v8.44.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14923.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Some Great 20s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14924.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Classic Soul Music (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14925.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:F6F89F883075137BEDA6574A3A32E3B7236D1822
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14926.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:CD9CFB1774FAC3A16C944B0EB7A04EDB43CB1251
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14927.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:F29E4B6F6827983E3689DA2C9B208FDC9158E65D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14928.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:875FBD2B0525773350E49B9F3DEA78BCDA754720
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14929.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:2E4A17CE559B382DA8A6E1ECD2A3843721B3FFE3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14930.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:D06B785B42885B0A01EAC3E1A1CF094E2E9262A1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14931.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:F5DCEE84F2FACEF86417503DEAC31E8DAA3521AA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14932.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ TuneIn Radio Pro v38.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14933.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:BF7BE4E17F8DBAB18E7491435482C9C2FA876FBD
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14934.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Deep House Summer Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14935.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:B33E46EEBA4FF45D9EFA5C620555EF69234FF0DF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14936.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:9452083458F1C208AFB40C252F54853CC5DC7A41
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14937.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:720EA3417F6140E6A8BEA6B3F91900D8EF381501
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14938.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:8EA91C3EAB2932CF949A42BE7AF9BBF8DB041724
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14939.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:94151BED127A583C5C8E0A4907AC66BAF19D7171
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14940.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Katatonia - Nightmares As Extensions Of The Waking State (2025) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14941.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ O&O DiskImage Premium 21.0.1074 RePack by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14942.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B651CF4B8DD543845DE515750E37A312089EFC31
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14943.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.5.56393 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14944.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:C0BF0D4B70F5C1A3F18DDB690E03A78AB003A662
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14945.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:6FDD746B85E9C8F3B0FFC07BBC8F6E83CC6BAD3C
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14946.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Gliding Faces - Veritas (2025) [MP3|320 Kbps] <Electropop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67074.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:15F84501F958667804F90A9E98B182975EC862BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67075.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:15F84501F958667804F90A9E98B182975EC862BB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67076.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Christopher Cross - Christopher Cross (1979) Expanded Edition, 2025, Warner Reco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67077.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ The Love Dogs - Get Off My Lawn (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67078.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adam Beyer & Vintage Culture - Drumcode Radio 769(The Drumsheds London, United K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67079.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67080.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Tankard - For A Thousand Beers (2022) Box Set, 7xCD, Compilation, Deluxe Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67081.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ The DownShifters - Blues / Roots / Wellness (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67082.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Oli Zangl - Take me home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67083.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mark Murphy - Jazz Standards (1972 - 1991) 2CD, 1998, 32 Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67084.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Honey Badgers - Live in Noarlunga (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67085.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Roberto Lessa - Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67086.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kaskade - Live @ We Belong Here (Historic Virginia Key Beach Park Miami (2025-03
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67087.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Kurt Rosenwinkel & Jean-Paul Brodbeck - The Brahms Project (2025) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67088.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67089.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:760D7F93ED04DF444399E2ACCC0E9560CCE2F032
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67090.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67091.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:B2A02C3C5CAD8F6E0A1B172F0D850B27646EC733
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67092.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:0EC9FE1EBB305DA33838E5B3C0D98E396FBD70B6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67093.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Virgin Birth - Total Annihilation (2025) [MP3|320 Kbps] <Industrial, Industrial 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67094.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:4F17E49E75A13B809232B278FBD38A1B90D9B5BB
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67095.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:BF1A34475B800B6832D16390E8C75DAE139AFCF6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67096.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:657EE56E9AC137FE1FDD33DC79D20061C717F089
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67097.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Ibiza Beach Vibes (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67098.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:ABD31A5254DD1EB24D10F469D7000645A2B86DE8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67099.jpg" />
 </div>
 
 

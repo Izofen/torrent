@@ -1,3 +1,79 @@
+###  Публикация: 1681851   (132301) от 04.12.2023
+
+Грязные фото для дамы вне всяких подозрений / Le foto proibite di una signora per bene (1970) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая жена бизнесмена по имени Мину во время прогулки по ночному городу подвергается нападению со стороны какого-то странного человека, который говорит, что знает об убийстве, которое совершил её муж. После этого он исчезает. Через несколько дней ночью в квартире Мину раздается звонок, это звонит маньяк, который представляет доказательство виновности её мужа – (   Читать дальше...   )Производство: Италия, Испания, Produzioni Cinematografiche Mediterranee (PCM), Trébol Films C.C.Жанр: детектив, триллерРежиссер: Лучиано ЭрколиАктеры: Дагмар Лассандер, Пьер Паоло Каппони, Симон Андреу, Освальдо Дженаццани, Сальвадор Хьюгет, Нивз НаварроПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, итальянский, английскийСубтитры: русские, английские (2 варианта)Продолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AFE2D3FD4AED4EE4C5DD0AA2E8C8CCC414258D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595845   (132302) от 29.12.2012
+
+[Wallpapers] Selection of Wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132302.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Selection of Wallpapers (29.12.12)
+Название: Selection of Wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CBC2360E97082CE0BEC590AE27F759446C0650
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681485   (132303) от 04.12.2023
+
+The Land of Miracles / Shen Lan Qi Yu Wushuang Zhu / The Magic Kingdom of the Gods | Страна чудес: Бесподобная жемчужина [2022-2023, Web, 1-3 сезон, серии 01-45 из 45] WEBRip 720p HS+rus
+
+>>Аниме разное
+>>Аниме хардсаб
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история вращается вокруг двух подростков разной идентичности и разного культурного происхождения, Фа Хуа и Лан Ге, которые благодаря волшебному оружию под названием «Бесподобная Жемчужина» объединились вместе, чтобы спасти человечество.Производство: Китай / Beijing 72 Creative Culture MediaЖанр: мультфильм, приключения, фэнтезиРежиссер: Чжэн СюйЯзык озвучки: Русский, любительский многоголосый (ПВА Шоу)Субтитры: китайские  (неотключаемые), русские, английские (отдельной папкой)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46CE59D034B8DA89CA838106B2915A9415F1568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681771   (132305) от 04.12.2023
 
 Андрей Ткачев | Сильнейший ученик (Книга 4) (2023) [MP3, Александр Чайцын]
@@ -6,7 +82,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132305.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:9A2CBAC217D7076C67F7545A72171AA043AAC58C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132307.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ Nature Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132308.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:A3DDA9E74C11B83FF4E4D55F828DE4FF9528FE15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132309.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ magnet:?xt=urn:btih:5EB6E50940EB26EB6470DFD9BA5CD644C718BFC7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132310.jpg" />
 </div>
 
 
@@ -131,7 +207,7 @@ Topaz Video AI 4.0.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132311.jpg" />
 </div>
 
 
@@ -155,7 +231,7 @@ VA - Aropa Records - Best Of 2012 (2012) [MP3|320 kbps]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132312.jpg" />
 </div>
 
 
@@ -188,7 +264,7 @@ Fitify: Фитнес тренировки дома 1.61.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132313.jpg" />
 </div>
 
 
@@ -212,7 +288,7 @@ magnet:?xt=urn:btih:380306BBDD634D173D54BAA708C94617654D7217
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132314.jpg" />
 </div>
 
 
@@ -236,7 +312,7 @@ Animal Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132315.jpg" />
 </div>
 
 
@@ -260,7 +336,7 @@ VA - Planet Love Records: Best Of 2012 (2012) [MP3|320 kbps]<Trance, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132316.jpg" />
 </div>
 
 
@@ -293,7 +369,7 @@ magnet:?xt=urn:btih:70AA7ED9E3BCE4097E958615DC3CE326ABA2FAD7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132317.jpg" />
 </div>
 
 
@@ -321,7 +397,7 @@ Andrew Lu - Club Universe Radioshow 053 (27.12.2012) [MP3|320 кб/с]<Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132320.jpg" />
 </div>
 
 
@@ -354,7 +430,7 @@ OCCT 12.1.12 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132322.jpg" />
 </div>
 
 
@@ -378,7 +454,7 @@ magnet:?xt=urn:btih:7ED2796801C10C939D7176276E265CFB901C454E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132324.jpg" />
 </div>
 
 
@@ -405,7 +481,7 @@ Miami Guns | Пушки Майами [2000, TV, 13 из 13] DVDRip 576p 10-bit r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132326.jpg" />
 </div>
 
 
@@ -429,7 +505,7 @@ magnet:?xt=urn:btih:109DC7A1E7B19BBEDD28D1877AD30DD206F369D4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132328.jpg" />
 </div>
 
 
@@ -453,7 +529,7 @@ Christmas Wonderland 14 (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132330.jpg" />
 </div>
 
 
@@ -477,7 +553,7 @@ magnet:?xt=urn:btih:98826ACB6C83F243557EE3E7802FFDB27E0A2DFF
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132332.jpg" />
 </div>
 
 
@@ -501,7 +577,7 @@ magnet:?xt=urn:btih:18904D2565F85E74CFDC5C285956B670E5734DF4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132334.jpg" />
 </div>
 
 
@@ -525,7 +601,7 @@ magnet:?xt=urn:btih:3D3FF290DA765ABBD1EB7CBA3605AB160F23B84F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132335.jpg" />
 </div>
 
 
@@ -549,7 +625,7 @@ K-Lite Codec Pack Update 17.9.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132336.jpg" />
 </div>
 
 
@@ -573,7 +649,7 @@ Topaz Photo AI 2.1.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132337.jpg" />
 </div>
 
 
@@ -584,86 +660,6 @@ Topaz Photo AI — это универсальный инструмент для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E803F305963643E16513BE6684254E43A54FA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681698   (132338) от 04.12.2023
-
-Квартирник у Маргулиса. Группа «25/17» (03.12.2023) WEBRip [H.264/1080p] [PR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Речь пойдет о группе, которая одной ногой в рэпе, одной в русском роке.
-«25/17» – российская группа, играющая альтернативную музыку. В начале творческой деятельности коллектив играл традиционный рэп, однако по мере взросления музыканты стали00:00:05 Подорожник
-00:04:27 Русская
-00:09:42 Пограничник
-00:18:19 Шей меня(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Альтернативный рок, хип-хопЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC30CD4BC90B7E1F0C9727102AD8180CB157D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681748   (132339) от 04.12.2023
-
-VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma - Save Me (3:33)
-02. Gordo - With You (5:29)
-03. Franky Wah - Lost In Space (7:33)
-04. John Summit - Where You Are (3:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB0AB297683EC5E4F9C3F35F080E91FE5EB3994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681762   (132340) от 04.12.2023
-
-NIUBI Partition Editor 9.9.0 Pro / Unlimited / Technician Edition RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132340.jpg" />
-</div>
-
-
-###  Подробнее
-
-NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
-В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662A38A16A7411EE94093F49339830C2E19027F4
 ```
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8975.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3489CC89EE2A2BBDF9B8C2C7D6CEFEDD768B6CD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8976.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.0.3.0/01.020.000/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8977.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:81E2C8B903F8BCCDFA0747C1C7981EA893C82FAD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8978.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:81E2C8B903F8BCCDFA0747C1C7981EA893C82FAD
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8979.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C15ED0C2683DD16C915D773F51A5F56550F45368
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8980.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:9422C9603FA76799AC8CA92A73595EB8378484B9
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8981.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:587E8AE9B8F4D59AE7DDB4DECA00C2B13063FE82
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8982.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:532C9A8F1778A8CE913E755AB57805B88C0592D3
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8983.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A080AC000B81D397B701EB816307F080A202012F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8984.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8985.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:B50C1D26E92A1A54B48BFB716F1399638B60FBAD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8986.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:B744738482BF1EA4F7ED14A75E4B0ABBE68AD747
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8987.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:46ACB5E55F55DD920BB7243BAB0670233CEEE1C6
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8988.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:C36D5FE0128CDF0C83815436D34AB399BB6C1A55
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8989.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:5A1F755DD86AE49F20E70B0F3ABFC2F20E524597
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8990.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Radio Mix - A Nice Selection (2025) [MP3|320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8991.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ ARES Electrical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8992.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Castle Crashers (2012) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Complete Bundle]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8993.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:9043A90D91D4ABB1A4810BFE2D2F347D3E0885B0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8994.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ AIMP 5.40.2690 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8995.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:EC6EF51DB0546558A20E32B06DF4E7A235EF1223
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8996.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:236EF64207184E671D748DD3D7A5F8D12CBBDD43
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8997.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Graebert ARES Commander 2026.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8998.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:EF0B0824E9276330CC38C7D09E15FC296D2F4D5B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8999.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:7C22C83336FBF1EFD72B1BA638CB7BB1FC2672BC
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9000.jpg" />
 </div>
 
 

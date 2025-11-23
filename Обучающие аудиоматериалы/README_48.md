@@ -6,7 +6,7 @@
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135501.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:696EDAFF958A694EB16FAFE2A59F48DAEB67C3FD
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135548.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E3E7B0B3200A6BCA54F4F1EA56674B297BCEB9CE
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135767.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:80DE9E09C4A76F63EB641B5EA247C24B1E622EB7
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135772.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:CCE63052AF19905B71BB473F48B8BC7E21C30FE6
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135787.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Berlitz | Португальский язык. Базовый курс [APE+JPEG
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135798.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Goethe Verlag | Book2. Аудиокурс чешского языка [2011] [PD
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135808.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:0C4C46EA769790EB537DF368B4D8F43F53B5B8B5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135857.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:820540E99B4E1E8DC4E680EBA6AC691B86401FFF
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136055.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Berlitz | Греческий язык. Базовый курс [PDF + MP3] [2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136064.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Goethe Verlag | Book2. Аудиокурс испанского языка [2011]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136071.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Berlitz | Хорватский язык. Базовый курс [MP3+DJVU] [200
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136110.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:4603D2F20DC3105EAC2632432773F8C721BBB3B8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136179.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Berlitz | Чешский язык. Базовый курс (3CD) [MP3+PDF] [2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136354.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:31CA46686F41EF8392C3212558CD5DEC5BAFAC3E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136822.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:BE27EBA79828501EF1FED4E0C0FB02C95519FC24
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136828.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F64BA04DC54059B711F74A73D1DD44DAD991EF83
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136910.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:53740B0C0570714E3B66AE223F7ABB89B3263C20
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136977.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:10D8D4D3A9DDB59A4F693A649EE255117273D0E0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136979.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:996C0315024BF59ABCCDABA0BC5D205C4B9E9C20
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136982.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:DCEF2DC6C69B55D98A1726A86CD5646483385B06
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137096.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:FFE4A9DE42D773545B1CE47DF848546003D3D667
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137467.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:0C8D1F605CF770C750E9CF3733E2687108ED748F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137505.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:FA9272D3197616B3C707172EDD550B66D5EE4BBC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137700.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:CCC511DE1239ED0C893FC52ECE8D514528D3B53E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137727.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:C4BCFA13467A24876C3D83FE751D9860D4C1E5FB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137737.jpg" />
 </div>
 
 

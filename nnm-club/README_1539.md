@@ -6,7 +6,7 @@ Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40368.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40369.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Andrea Bignasca - Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40370.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Indian Spirit - Fire Dance (2024) Compilation [MP3|320 Kbps] <Native American, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40371.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40372.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:7D1738461AB73FF03163965EB876B1CA5658BE31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40373.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Advanced Renamer 4.04 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40374.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:6F7BA00F2FE682C712CDBC6E4028E03A61571F69
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40375.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CudaText 1.218.0.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40376.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:6AF510C3E543B174A6F99C489768FCD192BF3563
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40377.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:3354CE4E770807C17AEF8E7CFB575BCAD3C9FFFD
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40378.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Gino Di Felice | Chess Competitions (1824-1970) (2013) [En] [DJVU]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40379.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:7B5F280C0000F324F581181A9E6669763F52F4CF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40380.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Tim Harding | Correspondence Chess in Britain and Ireland, 1824-1987 (2011) [En]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40381.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Marina Viotti / Fred Chappuis / Vincent Flückiger - Melankhôlia: In Darkness T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40382.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:FCFACB03D3DF017E1605904266E5330F398A0321
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40383.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:AD647A84CCF2A24B8DFF6E204BBCF7357EF51317
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40384.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:592089097A8E20367822B30CCDDBBD8B23DAE4C5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40385.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:7C09CE9F9F01352EC00B91B018C2ED575BEFA52E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40386.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:EF7F36D20D64BC551D86172AB2CD1A97D849A6C2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40387.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:9A034468E3C232E09B3AAB1513AFAE710B292D58
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40388.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ October London - October Nights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40389.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:84CC8422696C367B89F59E48F88360CBE55DD66C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40390.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:8AA8D2090EBB02C7CAC568D3FD4A229FD65DCC2A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40391.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:A323E562B6986AF37E943586F734A5B02EC23431
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40392.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Magic Eraser / Магический ластик v2.10.11 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40393.jpg" />
 </div>
 
 

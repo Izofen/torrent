@@ -1,3 +1,80 @@
+###  Публикация: 1680271   (134486) от 28.11.2023
+
+М.С. Рубин, В.И. Кияев | Основы ТРИЗ и инновации: применение ТРИЗ в программных и информационных системах (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются основные инструменты теории решения изобретательских задач (ТРИЗ) и их применение для решения творческих, изобретательских задач в области создания и развития программных продуктов и информационных систем. В пособии впервые системно излагаются методы ТРИЗ, обобщенные с позиций возможности их использования не только в технике, но и в программировании, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СПГУФормат: PDFКачество: OCR с ошибками
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7748CCCCC3EC7960506327F965CDA05B40C3948
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680202   (134488) от 28.11.2023
+
+Венера Хабирова | Антистресс для ЖКТ (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекционный Клуб "Антистресс для ЖКТ" - это не про болезни и диагнозы!
+Клуб - это про БАЗУ: понятные для каждого знания и практические советы о том, как нормализовать работу ЖКТ, а с ним и наладить почти все процессы в организме и начать уже Жить!
+Если по состоянию души и тела у вас:
+Ощущение, что разваливаюсь(   Читать дальше...   )Жанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 11:17:08Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A783DB84620EE4D9C6BDBA8B2DF254A61E323B48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680167   (134489) от 28.11.2023
+
+CADlogic Draft IT 5.0.15 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Cadlogic специализируется на разработке недорогого программного обеспечения и программ для САПР, и нашим флагманским продуктом является Draft it. Эта мощная система 2D CAD с четырьмя вариантами версий позволяет создавать, сохранять и распечатывать собственные чертежи.
+
+Мы верим в то, что недорогое программное обеспечение для САПР - это не компромисс между (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77741A3C02FFDD4AC2348BC15636AD20F39B2E4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680157   (134491) от 28.11.2023
 
 Артур Лео Загат | Пьем до дна (2023) [FB2]
@@ -6,7 +83,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134491.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ magnet:?xt=urn:btih:F63244191DF533DA23FE346B7470E3AF9E19C2FD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134492.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ Picsart: редактор фото и видео 23.6.6 Mod by Mixroot [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134493.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ magnet:?xt=urn:btih:9E3FB94DCDF52D6A0B5289178CB8CDE73F49A9FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134494.jpg" />
 </div>
 
 
@@ -102,7 +179,7 @@ Lindsey Stirling - Best Of Christmas Classics (2023) [FLAC|Lossless|WEB-DL|track
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134495.jpg" />
 </div>
 
 
@@ -129,7 +206,7 @@ magnet:?xt=urn:btih:4BDB115AEA91B1D2711D539EB104BF7A1D381663
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134496.jpg" />
 </div>
 
 
@@ -154,7 +231,7 @@ magnet:?xt=urn:btih:183D3AF5ADE919C6EC2E71358AF0746467356013
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134497.jpg" />
 </div>
 
 
@@ -178,7 +255,7 @@ Mystery Case Files 26: A Crime in Reflection / За семью печатями 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134499.jpg" />
 </div>
 
 
@@ -202,7 +279,7 @@ Full Uninstall 2.12 Final Portable [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134500.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134500.jpg" />
 </div>
 
 
@@ -230,7 +307,7 @@ VA - Ministry of Sound - The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134501.jpg" />
 </div>
 
 
@@ -257,7 +334,7 @@ magnet:?xt=urn:btih:FC24D75FE33BEF8120FDC125920C7790DD71CAF3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134502.jpg" />
 </div>
 
 
@@ -282,7 +359,7 @@ magnet:?xt=urn:btih:3058A413CDDD1854F0C4B96056022822195028AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134503.jpg" />
 </div>
 
 
@@ -309,7 +386,7 @@ magnet:?xt=urn:btih:752261341FD53AF133E773D91A543C0A3A4075F0
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134504.jpg" />
 </div>
 
 
@@ -335,7 +412,7 @@ RS Explorer / RS Проводник 2.0.7.1 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134505.jpg" />
 </div>
 
 
@@ -359,7 +436,7 @@ USB Disk Security 6.2.0.30 RePack by KpoJIuK [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134506.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134506.jpg" />
 </div>
 
 
@@ -385,7 +462,7 @@ Memento Database Pro 5.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134507.jpg" />
 </div>
 
 
@@ -409,7 +486,7 @@ magnet:?xt=urn:btih:0865D2727D88FCA3269183D0EBA9AD88CD8E279A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134509.jpg" />
 </div>
 
 
@@ -434,7 +511,7 @@ WPS Office + PDF 18.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134511.jpg" />
 </div>
 
 
@@ -458,7 +535,7 @@ magnet:?xt=urn:btih:F4D2470B6B706987A2414AA4E1E1B1A9E8D605AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134512.jpg" />
 </div>
 
 
@@ -482,7 +559,7 @@ VIP Notes 9.9.77 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134513.jpg" />
 </div>
 
 
@@ -506,7 +583,7 @@ magnet:?xt=urn:btih:0EDB0242A3B58626A999CB3B7F0295067A9771F9
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134514.jpg" />
 </div>
 
 
@@ -530,7 +607,7 @@ magnet:?xt=urn:btih:B9DAA57A56AFC3AE4BAED041F9130744631BF2EB
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134516.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134516.jpg" />
 </div>
 
 
@@ -563,7 +640,7 @@ magnet:?xt=urn:btih:B9DAA57A56AFC3AE4BAED041F9130744631BF2EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134518.jpg" />
 </div>
 
 
@@ -574,94 +651,6 @@ magnet:?xt=urn:btih:B9DAA57A56AFC3AE4BAED041F9130744631BF2EB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:241D7D6D1ED915D50BA1F782B21B34E1ED4C1F55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593591   (134519) от 24.12.2012
-
-SILKYPIX Developer Studio Pro 5.0.28.0 [Английский + Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134519.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro - программа которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. Программа обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате. С помощью этого мощного инструмента вы сможете решить множество проблем, связанных с конвертацией RAW в различые форматы и откроете для себя целый новый мир цифровой фотографии. Программа поможет вам настроить цветовой баланс, тон, насыщенность, яркость и контраст, покажет EXIF информацию выбранной фотографии, позволит произвести конвертацию в различные форматы изображений и многое другое.
-
-Список поддерживаемых камер:
-
-(   Читать дальше...   )Название программы: SILKYPIX Developer Studio ProЯзык интерфейса: Английский + Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593734   (134520) от 24.12.2012
-
-Joe Cocker - Greatest Hits (1998) [FLAC|Lossless]<Blues Rock / Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer In The City (3:48)
-02. Could You Be Loved (4:12)
-03. The Simple Things (4:47)
-04. N'oubliez Jamais (4:40)
-05. Have A Little Faith In Me (4:15)
-06. What Becomes Of The Broken Hearted (4:10)
-07. Don't Let Me Be Misunderstood (3:53)
-08. Delta Lady (3:17)
-09. You Are So Beautiful (2:44)
-10. That's All I Need To Know (Live) Duet with Eros Ramazotti (4:01)(   Читать дальше...   )Жанр: Blues Rock / Pop RockПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680186   (134522) от 28.11.2023
-
-The Dwarves - Concept Album (2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blast On
-2. Feeling Great
-3. Voodoo
-4. Terrorist(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EE80643028CF975B52D1FBF4DE76372BCF9A40
 ```
 
 

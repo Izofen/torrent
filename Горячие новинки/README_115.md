@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117541.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:04DA34F230A182C3AD3A1951990AA0054DC1D8CF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117550.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:24F74FB512C25E6A201C14E63862B785D3561AAE
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117584.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DFFC569F5A31A451A6015E05CF613C2A02C04667
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117604.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7E84D7A77E8B7C21BA387A8CA8ACA7A5EB1218AF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117612.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F3F92D7CF1CE5045EC15B1A017DDEB10FA5EFF19
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117614.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C45DC38149A097666A5CFA1E1E3A4EA06E86D1C8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118177.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9A625F51E5B612222E6057FF55D59B6B231CA082
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118303.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:9B55035C8C4B14BC28D92E9CDC3FC81BEB074211
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118332.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F0A9DA1ADCBBC9CAD2669C11279C5C14B617DAF0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118486.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:D6CCB0E3A7975B596E62713393E62B22E195932C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118513.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:E929CC6A80FA1D78EE58173B628138C299D85763
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119036.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:458C7D7899B888FE1EE52B76B63EF2AEF50F9B94
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119066.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:ACAE1E8C0C5E796390FABFEAD43D4C3F88E4861C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119138.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1269837A5B1B87593714537A91F2DE8D90ED2489
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119171.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:C1E6BD470B4671E4C8AAA3127E853CCD9C6E6C36
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119199.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:9172E2D20D738285AE8D894B4F5EAABCCED675EA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119227.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:5DCF1D778EA197A820630D5EC44ACD0427395468
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120663.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:8DFE2661EDF4AE8BD891BB8BF1E958A3597007A1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120681.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) BDRip [H.264] [UKR звук с ТS] [AD]
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120698.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) BDRip [H.264/1080p] [UKR звук с ТS]
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120712.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:A1C057A237023DEE19FE1482380BCE359CA03175
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120828.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:2F8F391DB0C9036C27A8A6FFA1848991A7E0DE27
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120880.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:C07C1B2C15E924EC0804C1EEBE232AFEF828B196
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120897.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:643AE7474B2175E5F38AA75B27A6AB6EBED0D8AD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120903.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:EE355A60CFB61FB942843DDD2F03BE6B4F0A7410
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121410.jpg" />
 </div>
 
 

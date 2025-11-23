@@ -6,7 +6,7 @@ BBC: Морские гиганты / Ocean Giants (2011) BDRemux [VC-1/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58902.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ BBC: Вена. Империя, династия и мечта / Vienna: Empire, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58956.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ BBC: Мир природы. Водопад Виктория - Гремящий �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59028.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ BBC: История Индии с Майклом Вудом / The Story of India
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59973.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ BBC: Твое тело. 10 секретов сна / 10 Things You Need To Know 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60056.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ BBC: По странам и континентам. Южная Америка / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60163.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60167.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ BBC: Тайны Китая / Secrets of China (2015) HDTVRip [H.264/1080p] (Се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60195.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60293.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ BBC: Силы природы / Wild Weather (2002) DVDRemux (серии 1-4 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60372.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ BBC. Как устроены шикарные отели. Kulm Hotel, St Moritz 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60384.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ BBC: Последние царственные воины Европы. 1066: Г
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60397.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BBC: По странам и континентам. Индонезия / Wild In
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60507.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC: Путеводитель по Марсу / Mars: A Traveller's Guide (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60604.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Гении древнего мира / Genius Ancient World (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60694.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ BBC: После смерти. Загадочная наука разложени
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60740.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ BBC: Реальная история научной фантастики / The R
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60797.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ BBC. Горы - жизнь над облаками / Mountain: Life at the Extre
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60924.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ BBC. Византий: сказания о трёх городах / Byzantium: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60930.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ BBC. Турки-османы. Мусульманские властители Е
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61009.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ BBC: Самое опасное место для работы / Toughest Place t
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61118.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ BBC: Секреты ухода за волосами / Hair Care Secrets (2017) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61124.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61129.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ BBC: Революции: Идеи, изменившие мир / Revolutions: Id
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61131.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ BBC: Мир природы. Очковые медведи: Лесные тени
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61137.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ BBC: Реальная история научной фантастики / The R
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61156.jpg" />
 </div>
 
 

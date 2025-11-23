@@ -1,3 +1,81 @@
+###  Публикация: 477900   (98623) от 04.04.2012
+
+Журнал | Золотая коллекция рецептов № 22. Сытные блюда без вреда для фигуры [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Золотая коллекция рецептов» - это журнал, созданный по лучшим рецептам читателей.
+В этом номере вы найдете вкуснейшие блюда:
+• Селедочный салат с хреном
+• Грибы тушеные с помидорами
+• Закуска «Посейдон»
+• Рассольник грибной
+И множество других вкуснейших рецептов.март 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEEF150A9C5A3A98661B7ABA9A10A639E4BD5BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476218   (98625) от 04.04.2012
+
+[Wallpapers] Обои для рабочего стола
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев различной тематики(природа,животные,креатив),хорошего качества.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB793A0AC39AFEA0A462D305A7AD6D720A42E06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476944   (98628) от 04.04.2012
+
+[Wallpapers] Обои для рабочего стола
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола,  в темных тонах
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F606D5A64ED6957F6F464140E39C90E980E74BDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476237   (98630) от 04.04.2012
 
 Джонни Белинда / Johnny Belinda (1948) DVDRip
@@ -6,7 +84,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98630.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:F11CAB4E9A1AD38BD94D4B65E21A86302C6E90FD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98631.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ magnet:?xt=urn:btih:51E362DBF18566C102C8C14922124EF3745CD99F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98632.jpg" />
 </div>
 
 
@@ -79,7 +157,7 @@ magnet:?xt=urn:btih:D903726D14975E06D9DC916D87A9A09CFBA1534B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98637.jpg" />
 </div>
 
 
@@ -107,7 +185,7 @@ magnet:?xt=urn:btih:A9E4CB1A398561BEA947286644492456265812AF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98639.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98639.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:A9E4CB1A398561BEA947286644492456265812AF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98641.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ magnet:?xt=urn:btih:199907B1F2C6DC610997F8E26891E5BD6CB59C8A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98642.jpg" />
 </div>
 
 
@@ -187,7 +265,7 @@ magnet:?xt=urn:btih:87CA956ED5C49574A4BFDF1706508C44ACF5F8F7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98644.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ magnet:?xt=urn:btih:FB1084DFC8BA8E065E2EB7FF3D51BF9F08D9CE36
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98646.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ magnet:?xt=urn:btih:5F5E3B0CFBD79BDDBA397B968D1B48B0F7993900
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98647.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ Arnett Cobb With The Red Garland Trio - Blue And Sentimental (1960) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98648.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98648.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ Arnett Cobb With The Red Garland Trio - Blue And Sentimental (1960) [FLAC|Lossle
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98651.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ magnet:?xt=urn:btih:169E7BE15C7C412235C91E4059DED06349C4DBBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98653.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ magnet:?xt=urn:btih:A536E1EF41E9334194D922F6890B8F76CBB445CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98654.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ VA - Platin Chill Out & Bar Grooves (25 Wonderful Island Lounge Tunes) (2012) [M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98655.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ VA - Гуляночка блатного радио (2012) [MP3|256 кб/с]<Ш�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98658.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ magnet:?xt=urn:btih:29651C9206FBB1D8BE097806A725157DB6A26D61
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98661.jpg" />
 </div>
 
 
@@ -467,7 +545,7 @@ magnet:?xt=urn:btih:90A2ACDA5A604021A17EFDF3B712C33ACB6D47CA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98663.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ magnet:?xt=urn:btih:6BBAA4A1C98145F6753A29CF666BD6A193CD4156
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98664.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ VA - Танцевальный клубный поп хит vol.3 (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98666.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ magnet:?xt=urn:btih:056A26A3E012EBB7904E6E3F7BACE53145FA250E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98667.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ magnet:?xt=urn:btih:2BBA4795946E7E0BA8093F53805048ED9467E18B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98668.jpg" />
 </div>
 
 
@@ -608,7 +686,7 @@ VA - Club music for Djs vol.11 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98669.jpg" />
 </div>
 
 
@@ -628,105 +706,6 @@ VA - Club music for Djs vol.11 (2012) [MP3|320 кб/с]<Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0FE177AA451677857C37FD2558DF6657D6DD425
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478122   (98670) от 05.04.2012
-
-VA - EveryBody Dance Now! Весна (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astero & Inusa Dawuda - I don't know
-02. Azuro feat. Elly - Toca me (Video Edit)
-03. Radio Killer - You and me
-04. Drei Ros feat. Diedra - Crazy
-05. Mohombi - Maraca
-06. Offbeat Orchestra feat. Sunstroke Project - Epic sax
-07. David Guetta feat. Jennifer Hudson - Night of your life
-08. Nirvana - Smells like teen spirit (Larin Disco Fever remix)
-09. Deepside Deejays - Never be alone
-10. Slam DJ's feat. Zeni - Touch(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EB52D9DB2A4CD4AFBB31F6451D4E1E02FAB16C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478354   (98671) от 05.04.2012
-
-VA - Absolute Dance April (2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vincent Voort - Driven (original mix)
-02. Rico Bernasconi & Beenie Man feat. Akon - Girls (T & K remix)
-03. Dazzle - Global Forcast (original mix)
-04. Sander Van Doorn - Outro (Edx's festival mix)
-05. Rene Rodriguez & DJ Antoine feat. MC Yankoo - Shake 3X (radio edit)
-06. Infected Mushroom - Pink Nightmares
-07. Cut & Run - Bangkokd (original mix)
-08. Stan Kolev & Matan Caspi - Nirvana (original mix)
-09. Alexey Romeo & Plage feat. Alateya - Summer Night (Dabruck & Klein remix)
-10. Fresh - Hot Pursuit (Dave Lebon remix)2012Жанр: DanceПродолжительность: 05:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4692B90BC96A07F216EA20C5930E3A7FF02CFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478254   (98672) от 05.04.2012
-
-VA - Громкий Успех Megapolis (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98672.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ВИА Гра - Диско
-002 Like Chocolate feat. Alex Mica - Maria Maria (Radio Edit)
-003 Никита - Прости
-004 LaRoxx Project - Jabba Jabba (Radio Edit)
-005 Бурановские Бабушки - Party For Everybody (Евровидение 2012 Россия)
-006 DJ Project feat. Adela - Bun Ramas (Radio Edit)
-007 Алина Гросу - Взрослая
-008 Sean Paul feat. Ester Dean - How Deep Is Your Love
-009 Иракли & Даша Суворова - Нелюбовь
-010 Rihanna - Birthday Cake2012Жанр: PopПродолжительность: 05:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B82ACE9A585D770355E52183C0F1DE022F258B
 ```
 
 

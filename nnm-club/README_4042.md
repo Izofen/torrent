@@ -1,3 +1,83 @@
+###  Публикация: 1689357   (124774) от 01.01.2024
+
+Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts [00:04:26]
+02. Götter in Weiss [00:03:52]
+03. Lost My Mind [00:03:48]
+04. King of the Cold [00:04:06](   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689304   (124775) от 01.01.2024
+
+Ане Риэль | Зверь (2023) [MP3, Константин Панченко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательная и вместе с тем жуткая история, которая поражает до глубины души. Роман о подлинной дружбе, предательстве, издевательствах и смерти; о мальчике с генетической мутацией, но одновременно и о каждом человеке – ведь на любого можно повесить клеймо «не такой, как все».
+Леон – необычный мальчик.
+Как и все дети, любит играть на ферме, гладить пушистых зверьков (   Читать дальше...   )Жанр: Детектив, триллерПеревод: Анна ФедороваИздательство: INSPIRIA / ЭксмоПродолжительность: 12:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C1E7102A3880B7F8A4F6B52D68905B53102085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689252   (124776) от 01.01.2024
+
+Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield, Experimental, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clocktower Époque [00:03:55]
+02. Savage Grin [00:02:55]
+03. Afterimage [00:03:41]
+04. Cruel [00:03:56](   Читать дальше...   )Жанр: Ambient, Leftfield, Experimental, DowntempoПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D53255D8D3C1931ACDC5EE5A4AE2CBBE024201
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689262   (124777) от 01.01.2024
 
 Александр Пушкин | Медный всадник и другие поэмы (2015) [MP3, Сергей Гармаш]
@@ -6,7 +86,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124777.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:CE22196E630A01FFB870F7FB1E1EB294BE009594
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124778.jpg" />
 </div>
 
 
@@ -57,7 +137,7 @@ magnet:?xt=urn:btih:FB36C8C937B2A33F911A741D25EBBFDAA8758D38
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124779.jpg" />
 </div>
 
 
@@ -81,7 +161,7 @@ magnet:?xt=urn:btih:86697D5B577492D931BEAB300BCE13EF5CF4ED02
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124780.jpg" />
 </div>
 
 
@@ -108,7 +188,7 @@ magnet:?xt=urn:btih:EAA125CDBAB91F0B2C0980CC709EC87AC7FE3636
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124781.jpg" />
 </div>
 
 
@@ -132,7 +212,7 @@ magnet:?xt=urn:btih:513514D0F94A114C226DCCF6D1CF4BA737598746
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124782.jpg" />
 </div>
 
 
@@ -159,7 +239,7 @@ Todd Grubbs - Inside Your Brain (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124783.jpg" />
 </div>
 
 
@@ -186,7 +266,7 @@ magnet:?xt=urn:btih:D22364CA61E8E725149F1EBC59284A0A9A4EF6A3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124784.jpg" />
 </div>
 
 
@@ -210,7 +290,7 @@ magnet:?xt=urn:btih:A8E7FBFF97E7E5244D0DEA05C2D64576A38FF011
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124785.jpg" />
 </div>
 
 
@@ -235,7 +315,7 @@ magnet:?xt=urn:btih:6A21AF08DCDD44523F52C434564859231120949B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124786.jpg" />
 </div>
 
 
@@ -259,7 +339,7 @@ Chase The Bear - Honey (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124787.jpg" />
 </div>
 
 
@@ -286,7 +366,7 @@ Public Memory - Elegiac Beat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124788.jpg" />
 </div>
 
 
@@ -313,7 +393,7 @@ magnet:?xt=urn:btih:349B1C177947457DABD2FAF057DD487F795833E8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124789.jpg" />
 </div>
 
 
@@ -337,7 +417,7 @@ magnet:?xt=urn:btih:667F320F1E9359C1941AB65854EEBD0D91E43272
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124790.jpg" />
 </div>
 
 
@@ -362,7 +442,7 @@ magnet:?xt=urn:btih:DD7324833F28C3911C34B3DDD7F29F8CF8DF23BD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124791.jpg" />
 </div>
 
 
@@ -386,7 +466,7 @@ magnet:?xt=urn:btih:89F476118443DF228E44CA664946B1240BABB081
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124792.jpg" />
 </div>
 
 
@@ -410,7 +490,7 @@ magnet:?xt=urn:btih:18CB2CBA68D9B45CEA7A2BB2FA52B2D0C77EFD30
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124793.jpg" />
 </div>
 
 
@@ -434,7 +514,7 @@ magnet:?xt=urn:btih:487BA7D8A7319ED3E55301048634CB38E6E961D1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124794.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ ToonMe 0.6.102 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124795.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124796.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124797.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ Fraction Calculator Plus v5.7.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124798.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ magnet:?xt=urn:btih:0A282590C9D14990A9021B745F45EFE93F4BBE20
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124799.jpg" />
 </div>
 
 
@@ -571,81 +651,6 @@ magnet:?xt=urn:btih:0A282590C9D14990A9021B745F45EFE93F4BBE20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94CEEF955239E2CBAC48CCC2A778ABC6FA83BBF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689287   (124800) от 01.01.2024
-
-Ventusky: Прогноз погоды v30.3 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.12.2023Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C677AB204DFA0FADB750E6AC0B68DEA713CCFBDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689278   (124801) от 01.01.2024
-
-Охотники на монстров / Monsterjaegerne / Monster Busters (2009) DVD9 [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дедушка 12-летнего Оливера любил рассказывать истории из своего прошлого о том, как он охотился на монстров, но внук не очень-то верил деду. Когда же родители Оливера резко меняются в своем поведении, мальчик вместе с младшим братом Лассе обнаруживает, что из подвала, где дед хранил все самое ценное, исчез разбуженный от долгой спячки грозный монстр. И именно этот (   Читать дальше...   )Производство: Дания / M&M ProductionsЖанр: семейныйРежиссер: Мартин ШмидтАктеры: Карл Уинтер, Токе Бьярке, Матиас Мандруп Ларсен, Сара Меринг, Lærke Janken, Петер Мюгинд, Метта Агнета Хорн, Кьельд Норгаард, Джошуа Берман, Роберт ХансенПеревод: одноголосый любительский (Вячеслав Прошин)Язык озвучки: русский, датскийСубтитры: русские, датские, финские, норвежские, шведские, английскиеПродолжительность: 01:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2AF8CDBEDE99A2D93FE343E104F0AF61DAD245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689369   (124802) от 01.01.2024
-
-Оксана Авдеева | Марафон Погружение в цвет. Нейрографика с Оксаной Авдеевой (2021) HDRip [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марафон для тех, кто уже знаком с нейрографикой и проходил хотябы один полный курс
-
-–Как правильно выбрать цвет?
-–Что значит красный, желтый, оранжевый....?(   Читать дальше...   )Жанр: Саморазвитие, Психология, НейрографикаЯзык озвучки: РусскийПродолжительность: 05:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794D285EF02C86A91652D5701D730C7DEDC9CB93
 ```
 
 

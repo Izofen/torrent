@@ -6,7 +6,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21155.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21155.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AI Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21170.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21170.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Reignbreaker (2025) [Ru/Multi] (1.0.1 HotFix) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21406.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) Repack Let'sРlay [Final Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21480.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21480.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dead Age 2 (II) (2020) [Ru/Multi] (1.118) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21492.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21500.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21500.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14932/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21501.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Into the Necrovale (2024) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21521.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Sandwalkers (2024) [Ru/Multi] (2.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21536.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21536.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ PROGRESS ORDERS (2025) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21560.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21560.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ FATE: Reawakened (2025) [Multi] (1.0.0-94fe67e9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21572.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21572.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Rogue Loops (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21574.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21574.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wigmund (2022) [En] (1.4.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21578.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21581.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.1.3/dlc) Repack FitGirl [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21585.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21586.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21586.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21594.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21594.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Bleak Faith: Forsaken (2023) [En] (4036071) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21606.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21714.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21717.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21880.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21880.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21892.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21904.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22004.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22219.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22219.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Vagrus: The Riven Realms (2021) [Ru/Multi] (1.2.00.0402Q/dlc) Repack FitGirl [Ce
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22245.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1701958   (116116) от 23.02.2024
+
+Forgiveness (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forgiveness – отправьтесь навстречу типичному приключению с видом от 1-ого лица, сюжет которого разворачивается в 80-е годы. Герой только что развелся со своей женой и решает переехать в старый дом, где раньше жил с матерью. Но как только он туда переезжает, то сразу понимает, что там происходит нечто странное. Попросту говоря, окунитесь с головой в достаточно атмосферный (   Читать дальше...   )Тип издания: RepackРазработчик: GAZЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Польский, Турецкий, СловацкийЯзык интерфейса: Английский, Польский, Турецкий, Словацкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11E9AEEF908A432BEE071C3C882D180A6071238
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700420   (116117) от 23.02.2024
+
+Изгоняющий дьявола: Верующий / The Exorcist: Believer (2023) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две 13-летние подружки после школы пошли в лес, чтобы вызвать дух погибшей мамы одной из них, и пропали. Их семьи ставят на уши полицию и расклеивают объявления, когда вдруг через три дня потеряшки внезапно обнаруживаются в фермерском сарае в 30 км от дома. Родители вне себя от радости, но с девочками что-то не так — обе начинают вести себя очень агрессивно.Производство: США / Universal Pictures, Morgan Creek EntertainmentЖанр: ужасыРежиссер: Дэвид Гордон ГринАктеры: Лесли Одом мл., Лидия Джюэтт, Оливия О’Нилл, Энн Дауд, Норберт Лео Бац, Дженнифер Неттлз, Рафаэль Сбардж, Оквуи Окпоквасили, Дэнни Маккарти, Эллен БёрстинПеревод: Дублированный (Bravo Records Georgia, TVShows), Профессиональный многоголосый (TVShows, LineFilm)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), испанские, французские, иврит, португальские, украинские (Forced, Full)Продолжительность: 01:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883FF17B71E3E826E25819AA440B8AF266C37723
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695346   (116118) от 23.02.2024
+
+Настоящий детектив / True Detective (2024) WEB-DL [H.265/2160p] [4K, HDR10, DV P8, 10-bit] (сезон 4, серии 1-6 из 6) LostFilm, HDRezka, TVShows, Iyuno-SDI Group, NewComers, Ю. Сербин
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сезона происходит в городе Эннис (Аляска). Бесследно исчезают шестеро мужчин, работавших на научно-исследовательской станции, и расследовать это загадочное дело приходится двум женщинам-полицейским.Производство: США / Anonymous Content, HBO Entertainment, PassengerЖанр: детектив, криминал, триллер, драмаРежиссер: Кэри Дзёдзи Фукунага, Исса Лопес, Дэниэл СакхаймАктеры: Джоди Фостер, Кали Реис, Фиона Шоу, Финн Беннетт, Isabella LaBlanc, Джон Хоукс, Дайан Э. Бенсон, Aka Niviâna, Ангуннгуак Ларсен, Торстейнн БахманПеревод: Многоголосый профессиональный (LostFilm, HDRezka Studio, TVShows, Iyuno-SDI Group, NewComers, DniproFilm, Sunnysiders), Авторский (Ю. Сербин)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, 2 x Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF527F8D407D06B5FF3FDF5F1ACABDAE7984270
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701972   (116119) от 23.02.2024
 
 Территория зла / Land of Bad (2024) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision, 10-bit] [DVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116119.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:379874A14CEB09DCB2F674692E190D22B66EE7E8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116120.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:379874A14CEB09DCB2F674692E190D22B66EE7E8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116121.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Universal TV Remote / Универсальный ТВ пульт v2.6.3 Mod by d
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116122.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:1AC9B33992527BFD65B9EEAC1BB94022A8D5C55F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116123.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:59BA8C7F9BA3A2E741AEE409AC64E140678D8D87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116124.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Killer Instinct (2017) [Ru/Multi] (3.11.3111.1.294202/dlc) Repack dixen18 [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116125.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:C0DFCF504C2C00387CA9F55E4840DE9E40435343
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116126.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ GoodbyeDPI 0.2.2 Launcher 6.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116127.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:8A5F57DD8A5BA4B4D9EE28C446B419805506FA75
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116128.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:AFC8D7BC8CC907E6F9F6465C8657D7CEE511D44E
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116129.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:ABC8B3125CFA315E682138AF14C55D7381C05E97
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116130.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Garmin: TOPO Active Russia v.5.00 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116131.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:EFC447BDBA02B38D1C9910DF9237301452DD33CB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116132.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:610513E278EF8E4034AD590FD2BF9BAE2F987EC9
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116133.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ Moon+ Reader Pro v9.1 build 901001 Mod by Balatan + Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116134.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116135.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ magnet:?xt=urn:btih:D7B5AFE109B8F6FA907273242259B889CFDF5312
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116136.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ magnet:?xt=urn:btih:C754B43913862A22F393D1AA9D8D683AF577A09A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116137.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ magnet:?xt=urn:btih:5F60920695AEBC80CFFAD5531F9C2BF6C4515112
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116138.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ magnet:?xt=urn:btih:8A495DEF25FD0FBF4B8DB540FFC513654AC45E39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116139.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ magnet:?xt=urn:btih:AF44012FE62FAAC9EF754307FBDCFF11DC8490A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116140.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ magnet:?xt=urn:btih:110BA1F52528B8221D5533B709B0A7BFDE3707DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116141.jpg" />
 </div>
 
 
@@ -559,78 +631,6 @@ magnet:?xt=urn:btih:110BA1F52528B8221D5533B709B0A7BFDE3707DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3777FCD67D9C78630B01F690EF494E994BEFD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702006   (116142) от 23.02.2024
-
-Malwarebytes Premium 5.0.17.99 RePack by xetrin [Multi/Ru]
-
->>След.
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes Premium – это антивирусное приложение, которое может полностью удалить даже самые передовые вредоносные программы. Продукты Malwarebytes доказали свою эффективность в защите компьютеров путем полного удаления всех видов вредоносных программ, включая вирусы, трояны, шпионское ПО, рекламное ПО и руткиты. Когда дело доходит до безопасности вашего компьютера, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9A18B29EA7B16C8E849877F9EE3F3A24AA24FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694099   (116143) от 23.02.2024
-
-Шутки ангелов / The Bystanders (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116143.jpg" />
-</div>
-
-
-###  Подробнее
-
-За каждым человеком в течение всей его жизни приглядывают бессмертные существа — ангелы. В особенно критические моменты они даже могут вмешиваются в жизни людей. Но не каждому из них нравится такая работа и доставшийся подопечный. Поэтому иногда, чтобы немного развлечься, они не прочь пошутить, а заодно поиграть человеческими судьбами.Производство: Великобритания / Waggon & Horses ProductionsЖанр: комедияРежиссер: Гэбриел Фостер ПрайорАктеры: Эмили Уайатт, Фрэнк Харпер, Люси Пиндер, Дэвид Шааль, Ник Хельм, Шонн Уолш, Стефан Боэм, Марек Ларвуд, Лорен Даглин, Рэй КаллехаПеревод: Многоголосый профессиональный (KION)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83C18150D8AEBAE01A67533A2AC10E001DB5182
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694106   (116144) от 23.02.2024
-
-Девушка в поезде / The Girl on the Train (2016) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день поезд проносит Рэйчел мимо очаровательного коттеджа, где живёт идеальная на первый взгляд пара. Но однажды идиллия разрушится – прекрасная незнакомка бесследно исчезнет. Рэйчел окажется втянута в весьма запутанную историю, ведь только она видела из окна то, что было скрыто ото всех.Производство: США / Amblin Entertainment, DreamWorks SKG, Marc Platt Productions, Reliance Entertainment, Storyteller DistributionЖанр: триллер, детектив, драма, криминалРежиссер: Тейт ТейлорАктеры: Эмили Блант, Хейли Беннетт, Ребекка Фергюсон, Джастин Теру, Люк Эванс, Эдгар Рамирес, Лора Припон, Эллисон Дженни, Даррен Голдштейн, Лиза КудроуПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские (full, forced), английские (SDH)Продолжительность: 01:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A1EA907707240A7F26B4424EA3F17107C2393D
 ```
 
 

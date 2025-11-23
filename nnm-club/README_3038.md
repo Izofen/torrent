@@ -1,3 +1,84 @@
+###  Публикация: 460847   (95224) от 03.03.2012
+
+VA - Straight Up Drum & Bass! (2012) [MP3|320 кб/с]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95224.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Imprintz & Kloe - Last Breathe (Exorcist Remix) (6:03)
+ 2. Double Oh No - 2 Tha Grain (Thrills Remix) (4:03)
+ 3. Fourward - Fury (Ravager Remix) (7:42)
+ 4. Decimal Bass & Premium - The Warriors (VIP Mix) (4:45)
+ 5. DaVIP - Napalm (Original Mix) (6:13)
+ 6. Stipple - Beginning (Original Mix) (4:28)
+ 7. Zero Method - Marco Polo (Original Mix) (5:10)
+ 8. Rameses B - 2Nite (Original Mix) (4:16)
+ 9. DCarls - Splash (Original Mix) (4:50)
+ 10. Premium - Dead Man Shoes (Sedo Remix) (4:31)(   Читать дальше...   )2012Жанр: Drum'n'BassПродолжительность: 01:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B3DC4F05857763893738242B14E4419B60B029
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461431   (95231) от 03.03.2012
+
+Glary Utilities Pro 2.43.0.1419 Portable [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_95231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости данного приложения с более чем 45 различным программами. Более того, Glary Utilities оптимизирует процесс использования системной памяти, осуществляет поиск, а также исправление или удаление неработающих ярлыков, редактирование списка программ, загружающихся вместе с операционной системой, и удаление указанных приложений. Имеет поддержку Windows Vista и многоязычный пользовательский интерфейс, включая поддержку русского языка.Название программы: Glary Utilities ProЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460933   (95243) от 03.03.2012
+
+MegaTroll Media - All Music (2011-2012) [MP3|320 кб/с]<Troll Music>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95243.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 -Любовь это... (1:37)Жанр: Troll MusicПродолжительность: 00:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815A75EAC5EA3D33455876EF64DC4DF481D6F2F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461528   (95245) от 03.03.2012
 
 Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
@@ -6,7 +87,7 @@ Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95245.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95254.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95254.jpg" />
 </div>
 
 
@@ -72,7 +153,7 @@ Antonio Carlos Jobim - Miucha e Tom Jobim (1979) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95257.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95257.jpg" />
 </div>
 
 
@@ -104,7 +185,7 @@ Antonio Carlos Jobim - Miucha e Tom Jobim (1979) [FLAC|Lossless]<Jazz>
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95265.jpg" />
 </div>
 
 
@@ -128,7 +209,7 @@ magnet:?xt=urn:btih:E160BF7B2DF663DC418BE6FC109DC4D6DFD44AB7
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95277.jpg" />
 </div>
 
 
@@ -152,7 +233,7 @@ magnet:?xt=urn:btih:2DF41AD75F56890B81D9D247F55BF07B4D206CC3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95281.jpg" />
 </div>
 
 
@@ -185,7 +266,7 @@ Yngwie Malmsteen - Marching Out (1984) /1994, Polydor/ [FLAC|Lossless]<Heavy/Pow
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95309.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95309.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ VA - Chacruna (Compiled by DJ Gino) (2008) [APE|Lossless]<Psychedelic / Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95311.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95311.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ VA - Chacruna (Compiled by DJ Gino) (2008) [APE|Lossless]<Psychedelic / Progress
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95315.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95316.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95318.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ Xubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95324.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ magnet:?xt=urn:btih:3FDE7CFE612E9D709BD5FF11E7CC2BDED50AED67
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95325.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ magnet:?xt=urn:btih:50BF4523B8F839AB17857DA1AC762D3733CB1BFB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95326.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95326.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ magnet:?xt=urn:btih:50BF4523B8F839AB17857DA1AC762D3733CB1BFB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95329.jpg" />
 </div>
 
 
@@ -423,7 +504,7 @@ Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + Extens
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95338.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95338.jpg" />
 </div>
 
 
@@ -447,7 +528,7 @@ Visual Studio 11 Beta + Team Fundation Server + .NET Framework 4.5 Beta + Extens
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95343.jpg" />
 </div>
 
 
@@ -471,7 +552,7 @@ magnet:?xt=urn:btih:7057E22CFA9CF843DC4C77F2B6BB21309A524231
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95345.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Deep Purple & Friends - Purple And Other Colours (2003) [FLAC|Lossless]<Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95347.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95347.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ Deep Purple & Friends - Purple And Other Colours (2003) [FLAC|Lossless]<Hard Roc
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95356.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95356.jpg" />
 </div>
 
 
@@ -550,7 +631,7 @@ Bonfire - Don't touch the light (1986) 1-st Press / 1986, Sonopress / [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95357.jpg" />
 </div>
 
 
@@ -582,7 +663,7 @@ VA - The Songs of Leonard Cohen Covered (2012) [FLAC|Lossless]<Folk-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95362.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95362.jpg" />
 </div>
 
 
@@ -615,7 +696,7 @@ VA - The Songs of Leonard Cohen Covered (2012) [FLAC|Lossless]<Folk-Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95363.jpg" />
 </div>
 
 
@@ -626,78 +707,6 @@ VA - The Songs of Leonard Cohen Covered (2012) [FLAC|Lossless]<Folk-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C8D7A1D3F30A240A12C2696DAF849D83A0E4CCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461197   (95367) от 03.03.2012
-
-Резня / Carnage (2011) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Жанр: Драма, КомедияРежиссер: Роман ПоланскиПродюсер: Саид Бен Саид, Оливер Бербен, Мартин МосковицАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Джозеф Резвин, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462045   (95368) от 03.03.2012
-
-Журнал | Playboy [Croatia] №3 (2012) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7F971839C2C35A7DAE9C6DE0D96F4054DD328A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461592   (95370) от 03.03.2012
-
-NG: Суперсооружения древности / Ancient Megastructures (2007-2009) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробно знакомясь с самыми интересными Суперсооружениями древности, узнайте об исторических событиях, на фоне которых создавались эти шедевры архитектуры - о жестокой борьбе за власть, человеческих трагедиях и о препятствиях, которые приходилось преодолевать древним зодчим.Жанр: ДокументальныйРежиссер: Мелиса Акдоган / Melisa AkdoganПеревод: Russian: AC3, ~448.00 kb/s avg |Oдноголосый закадровый|Формат: TSПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C287AC32BCF1F4D44CEC2DD5FF42029FEFE463B5
 ```
 
 

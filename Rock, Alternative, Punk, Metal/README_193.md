@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124998.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Demon - Taking The World By Storm (1989) Japanese Edition, Reissue, Remastered, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125003.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) [MP3|320 Kbps] <Neue deutsch
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125009.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4CCF1743E80C3509FA991844097D8BD66C8A4026
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125015.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:9C8BA9F3B995A7DDED88FCE15640FF6DF8126D2B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125025.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dire Straits - San Antonio Live 1985 (2023) Leftfield Media [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125059.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ AC/DC - Under The Covers (2023) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125105.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kori - Húszra (Huszra lapot) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125152.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Memory Garden - 1349 (2021) [FLAC|Lossless|image + .cue] <Power Metal, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125155.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5B86BDF860BB4DCA020C214D868A2D8C8A233592
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125161.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Silver Wind - Legion Of The Exiled (2017) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125176.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Be-Bop Deluxe - Sunburst Finish (1976) 3 x CD, Reissue, Remastered, Repress, 201
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125185.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C0F2D7D8C9C15A406F48A3346B9DECB2359BFBB9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125197.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dominum - Hey Living People (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125287.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ StormHammer - Never Surrender: 30 Years Of Power (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125288.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Borgne - Y (2020) [FLAC|Lossless|tracks + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125299.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jerusalem - Stygn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125303.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Borgne - [∞] (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125306.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5B3D6BB0082447521E762745876B452E2F2E5E60
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125411.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Night's Edge - Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125412.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Borgne - Titania (2012) Compilation [FLAC|Lossless|image + .cue] <Industrial Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125413.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Demolish - Remembering the Cabalisticae Laments (2005) Compilation [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125415.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Borgne - Royaume des Ombres (2012) [FLAC|Lossless|image + .cue] <Industrial Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125417.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Prematory - Corrupting Influence (2014) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125418.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Borgne - Entraves de l'Ame (2010) [FLAC|Lossless|image + .cue] <Industrial Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125419.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Borgne - IV (2009) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125420.jpg" />
 </div>
 
 

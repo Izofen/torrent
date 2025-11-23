@@ -1,3 +1,75 @@
+###  Публикация: 592439   (135963) от 21.12.2012
+
+Журнал | PC Format №274 (UK) [январь 2013] [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячно в журнале представлены обзоры новинок компьютерных комплектующих, устройств и игр. Приводятся результаты групповых тестов железа, мониторов, периферии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0BB14B88817F19DBF0A14595192432EA2DC760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592510   (135964) от 21.12.2012
+
+Winter Wallpapers (21.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EAD183AED52C60059D771F24A1F5CD1A5C25AC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592207   (135965) от 21.12.2012
+
+New year wallpapers 2013 (19.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FAB6741C06C14CF454EEB7B00E0DC3AD1B6B7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592185   (135966) от 21.12.2012
 
 52 HQ Wallpapers (18.12.12) [Wallpapers]
@@ -6,7 +78,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135966.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Winter Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135967.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:CD7F5BDC28CADE8947623CD8179019B9DB13DC77
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135968.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Computer Desktop Wallpapers Collection (20.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135969.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ VA - Танцуй и не останавливайся (2012) [MP3|256 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135971.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Winter Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135973.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ Computer Desktop Wallpapers Collection (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135974.jpg" />
 </div>
 
 
@@ -183,7 +255,7 @@ magnet:?xt=urn:btih:56F736D8625168AF121DE05FED081D640A8C43AA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135975.jpg" />
 </div>
 
 
@@ -207,7 +279,7 @@ Best HD Wallpapers Pack (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135977.jpg" />
 </div>
 
 
@@ -231,7 +303,7 @@ Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135978.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135978.jpg" />
 </div>
 
 
@@ -264,7 +336,7 @@ Aviation Wallpapers (18.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135981.jpg" />
 </div>
 
 
@@ -288,7 +360,7 @@ Nature Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135983.jpg" />
 </div>
 
 
@@ -312,7 +384,7 @@ Computer Desktop Wallpapers Collection (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135985.jpg" />
 </div>
 
 
@@ -336,7 +408,7 @@ Interior Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135986.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ Wise Disk Cleaner 7.72 Build 529 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135987.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135987.jpg" />
 </div>
 
 
@@ -386,7 +458,7 @@ Graffiti Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135988.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ Sexy Girls Wallpapers (21.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135990.jpg" />
 </div>
 
 
@@ -434,7 +506,7 @@ magnet:?xt=urn:btih:C767559943928D25E3FFF849877FC430D8257114
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135991.jpg" />
 </div>
 
 
@@ -458,7 +530,7 @@ National Parks Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135992.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ Interior Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135994.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ magnet:?xt=urn:btih:92D2837A8C409B8407DC931CA792E8F304977034
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135998.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ Monster Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135999.jpg" />
 </div>
 
 
@@ -554,7 +626,7 @@ Wallpapers Sexy Girls (19.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136001.jpg" />
 </div>
 
 
@@ -565,78 +637,6 @@ Wallpapers Sexy Girls (19.12.12) [Wallpapers 16+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19F9B588B36552D17C1CE55ADA024C7CB256EB02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592204   (136002) от 21.12.2012
-
-Nature Wallpapers (19.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5EE65812B38E967094F8435132DE7CD1ACE4A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592517   (136003) от 21.12.2012
-
-Sexy Girls Pack Wallpapers (21.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502A2EB5C7AA9AB088E1A72C7CF26546F760A474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592184   (136005) от 21.12.2012
-
-Nature Wallpapers (18.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C64C7C7394E5EBAC04E6EC0BE63DCE3535323D4
 ```
 
 

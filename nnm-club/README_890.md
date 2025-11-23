@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.98 (2503) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.29/dlc) Repack FitGirl [Ultimate Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23478.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D0FF06CB8612F24CC0609CC1D26E763E684870F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23479.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23479.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D813623A31D770546711DEB831304F24C51987FC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23480.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23480.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:73F062505E08C879DE39F128FDFC247E2B4E4202
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23481.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23481.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Topaz Video AI Pro 6.2.0.0.b (x64) Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23482.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23482.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Cities: Skylines - Collection (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23483.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Q-Dir 12.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23484.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23484.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AB8FA773C44E4C17E8C1EE75AD8F0FA1DD04FB53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23485.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23485.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (3781/dlc) Repack FitGirl [S
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23486.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23486.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:76748FCF9922EA605148281025D64959CC68D449
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23487.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23487.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:76748FCF9922EA605148281025D64959CC68D449
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23488.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23489.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:760684346E56479CFE9442EE79B1FC21C81A9D9F
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23490.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:239F2CD8058176513C61B08FCA775B655AA7A529
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23491.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A27A1C40B3324290ECFC5944582961938F258449
 >>Сетевое оборудование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23492.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ WARNO (2024) [Ru/Multi] (150731/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23493.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:94D2C57F39587A7869A361CDAFDF0387CD14DDD3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23494.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23494.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:95D4CA5412E94E3A61ADEBF83D2B6D29A0ACA727
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23495.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23495.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:95D4CA5412E94E3A61ADEBF83D2B6D29A0ACA727
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23496.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 3 | Re: Жизнь в альтернати
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23497.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:1EC023F6A49A87FB9504D7DA074361D9CB36D73F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23498.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:1FD1590F40E5AB06B3036BD9380FBBFAE9205F00
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23499.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23499.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Amagami-san Chi no Enmusubi / Tying the Knot with an Amagami Sister / Брачн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23500.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E8599A018AD99C7D6DE979998C1540D26C3D6318
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23501.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:522A999678711DCA9FF9C972D87CF9809DF092DF
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23502.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23502.jpg" />
 </div>
 
 

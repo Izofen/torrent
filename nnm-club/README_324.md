@@ -6,7 +6,7 @@ VA - 100% Ibiza (The Deep-House Closings 2025) (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8520.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:733DA18951C41FA7999BEE82D30EED007EAFB53E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8521.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CB186E6AFF4B19E59813E30BA27335D9D43D677C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8522.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7B91572625D2B68A24F4ABB3AF6BAEF71D9DAC8B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8523.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Recordify 2025.10.04 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8524.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Topaz Photo AI 4.1.0 Repack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8525.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Abelssoft PC Fresh 2026 12.01.66033 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8526.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Impureza - Alcazares (2025) [FLAC|Lossless|image + .cue] <Death Metal, Flamenco>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8527.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Choo Choo Survivor (2023) [Ru/Multi] (Build 18689660) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8528.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F7E0061E6988A478333426C0237AF3F5B8AFD096
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8529.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:D2409E7F002F755140DFA5CAAEF83FDDC0946E95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8530.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Milt Jackson - Four Classic Albums: Second Set (1956 - 1959) 2CD, 2019, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8531.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Opera One 122.0.5643.92 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8532.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:303B826991310DD68335A08468396B16B0F83008
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8533.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:341584FD9BA793BE0CD7C2DA60D31A0B2DD10800
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8534.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Chromium-GOST 140.0.7339.208 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8535.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:110B7D496761AAE8386CBC22D6007D67F1714DCC
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8536.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:E18CF6492F721996E75419A749420AD99463B6C9
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8537.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:ABC4CDF017F825AD0F1B9E168EF218F00143266E
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8538.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:A9DE26D2573809B354E1CA7B2110FD65530C22E9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8539.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:A63A4AB4B8EDD2E4C95B378C984A25075E2E22CB
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8540.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VMware Workstation 17 Pro 17.6.4-24832109 [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8541.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Hekasoft Backup & Restore 0.99.1 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8542.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:34532E2E8B4D98A56A4D3710AA49B0F276BCE7B3
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8543.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Minimal Firewall 2.2.6 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8544.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:48B65B6798798F1FF7FA37A74F852E02C67126F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8545.jpg" />
 </div>
 
 

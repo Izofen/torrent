@@ -6,7 +6,7 @@ Vueschool | Курсы по Vue3 (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61036.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Local Flowers, Екатерина Фролова | Школа цветочног
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61175.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Steve Maxwell | Отделка дерева для начинающих (2023) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61200.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Cryptology School | Cryptology 11 (2024) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61237.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Cryptology School | Workshop 6.0 (2024) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61246.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Academind Pro, Udemy, Maximilian Schwarzmüller | HTMX - The Practical Guide (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61331.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B4EA26C2DF9C68A31770CC77D4F849C41A58399D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61336.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Academind Pro, Maximilian Schwarzmüller | ChatGPT - The Complete Guide (2024) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61349.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ The Gnomon Workshop, Paul Ozzimo | Designing Sci-Fi Weapons for Film (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61423.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Interview Ready, Gaurav Sen | System Design Course (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61473.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:3D18B354F72B4EAC8614338E97F58052F42BB33C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61527.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ LiveClasses, Виталий Бужан | Калибровка мониторов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61559.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Creativo, Андрей Баталов | Инфографика для марке
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61679.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Archicad-Master | Создание разверток в Archicad по техн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61739.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Archicad-Master | Практическое GDL-программирование 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61741.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Archicad-Master | Моделирование нестандартных фаса
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61752.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Juliagraule, Юлия Грауле | Онлайн-курс по фотограф
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61793.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:CC465BB9EEB3B46116A53B6E73347807665027C0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61886.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:CDDD1A82B544904B065723D35912CD9FDB90AF20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61976.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:D709BDA20516DE33B307AC49D629558C8D2A623E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61997.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:3E5B321BEC70DE95E22D316CAC1EF6555E0F0063
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62000.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Frontend Masters, Miško Hevery | Bare Metal JavaScript: The JavaScript Virtual 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62068.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:87EE1CDD1A29E22DB8E889A98E3E8FA24D9A5055
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62096.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ CG Cookie, Paul Caggegi | MODIFY: A complete guide on Blender's modifiers (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62161.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:85D7BB74066E676BAAB2813E0E1C3CFC89F2EA9D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62186.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:9243B979FEE8E97FE8C2FBF133ED2F5FF3CE68AC
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62187.jpg" />
 </div>
 
 

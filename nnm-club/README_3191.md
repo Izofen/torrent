@@ -1,3 +1,90 @@
+###  Публикация: 491312   (102580) от 02.05.2012
+
+Ruby Braff - I Hear Music (2000) [FLAC|Lossless]<Jazz,Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.I Hear Music
+2.Chicago Medley:Chicago My Kind OF Town
+3.Baby,Won't You Please Come Home
+4.Wouldn't It Be Loverly?
+5.Yesterdays
+6.Anything For You
+7.We're All Through2000Жанр: Jazz,SwingПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491203   (102581) от 02.05.2012
+
+Журнал | Conde Nast Traveller [Россия] №7 (май 2012) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102581.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Condé Nast Traveller» — журнал для путешественников, издаваемый международной корпорацией Condé Nast Publications. Издание принято называть библией для туристов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28FE1F027B2974D90F6F150218412DE88648330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490504   (102585) от 02.05.2012
+
+Aziza Mustafa Zadeh - Contrasts I & II (2006 - 2007) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction - 01:47
+ 02. Mozart's Jazz Ballade - 03:30
+ 03. Guarding Dreams - 02:28
+ 04. The Queen Of The Night - 02:58
+ 05. Gothic Jazz - 04:26
+ 06. Red In Black - 03:32
+ 07. If You Love Me - 03:55
+ 08. Bachmania - 02:40
+ 09. Do Not Tell Me - 03:36
+ 10. One Day, Perhaps - 01:58(   Читать дальше...   )2006 - 2007Жанр: JazzПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15568105EA768B163973EF7944AC8768BEBC07A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490984   (102587) от 02.05.2012
 
 Мигранты (1991) SATRip
@@ -6,7 +93,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102587.jpg" />
 </div>
 
 
@@ -30,7 +117,7 @@ magnet:?xt=urn:btih:B5C597495299AC7B8526575A15FF700D767EB0CD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102590.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102590.jpg" />
 </div>
 
 
@@ -54,7 +141,7 @@ magnet:?xt=urn:btih:B5C597495299AC7B8526575A15FF700D767EB0CD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102595.jpg" />
 </div>
 
 
@@ -78,7 +165,7 @@ magnet:?xt=urn:btih:5DACE9CA8D9E47D3EE9EE89F23DF9FEFAFD53723
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102600.jpg" />
 </div>
 
 
@@ -107,7 +194,7 @@ magnet:?xt=urn:btih:894E48748355236E819101EB07A1F69AA0A0AE6A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102601.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102601.jpg" />
 </div>
 
 
@@ -133,7 +220,7 @@ Cradle Of Filth - Midnight In The Labyrinth (2012) Scene [FLAC|Lossless]<Symphon
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102603.jpg" />
 </div>
 
 
@@ -166,7 +253,7 @@ CD 1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102605.jpg" />
 </div>
 
 
@@ -190,7 +277,7 @@ magnet:?xt=urn:btih:ECE1335C4C0F13E694DE503ED6F0BC7D7BBCE1FD
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102608.jpg" />
 </div>
 
 
@@ -214,7 +301,7 @@ magnet:?xt=urn:btih:12D6759A80583A8ED9CB5F1B07F4771436B61AE1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102610.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ magnet:?xt=urn:btih:202304A4DD240C192E8CAFE9311FCAEFC5F9A046
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102611.jpg" />
 </div>
 
 
@@ -263,7 +350,7 @@ Bob Dylan - World Gone Wrong (1993) [FLAC|Lossless]<Folk, Blues>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102614.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102614.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Bob Dylan - World Gone Wrong (1993) [FLAC|Lossless]<Folk, Blues>
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102615.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102615.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ The Future Sound Of London - Environments 4 (2012) [MP3|320 кб/с]< Ambient, I
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102628.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102628.jpg" />
 </div>
 
 
@@ -356,7 +443,7 @@ The Future Sound Of London - Environments 4 (2012) [MP3|320 кб/с]< Ambient, I
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102631.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102631.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ The Future Sound Of London - Environments 4 (2012) [MP3|320 кб/с]< Ambient, I
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102632.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102632.jpg" />
 </div>
 
 
@@ -407,7 +494,7 @@ The Future Sound Of London - Environments 4 (2012) [MP3|320 кб/с]< Ambient, I
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102633.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102633.jpg" />
 </div>
 
 
@@ -431,7 +518,7 @@ Sale Frenzy / Безумный шопинг (P) [Ru] 2011
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102634.jpg" />
 </div>
 
 
@@ -455,7 +542,7 @@ magnet:?xt=urn:btih:4823DFD8B9D4E8C54E111AFE23CB6594A169AD12
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102643.jpg" />
 </div>
 
 
@@ -482,7 +569,7 @@ Bad Blood [En] (RePack) 1990 | Pilotus
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102644.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102644.jpg" />
 </div>
 
 
@@ -506,7 +593,7 @@ Keane - Strangeland (2012) [MP3|320 кб/с]<Pop-Rock, Piano Rock, Britpop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102646.jpg" />
 </div>
 
 
@@ -539,7 +626,7 @@ Keane - Strangeland (2012) [MP3|320 кб/с]<Pop-Rock, Piano Rock, Britpop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102648.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102648.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Scorched Earth (RePack) [En] 1991 | Pilotus
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102657.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102657.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Scorched Earth (RePack) [En] 1991 | Pilotus
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102659.jpg" />
 </div>
 
 
@@ -600,82 +687,6 @@ Scorched Earth (RePack) [En] 1991 | Pilotus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F1B09B8EDF3C2D4F8E6907E4ACEA5E1341C48BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490787   (102660) от 02.05.2012
-
-2016: Конец ночи / Hell (2011) [1080p] BDRemux
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед тем как окончательно погаснуть, Солнце увеличилось до невероятных размеров и выжгло всю Землю, превратив ее в непригодную для жизни пустыню.
-
-Среди немногих выживших — группа молодых людей, которые отправились в горы в поисках воды и пищи. Но эта мысль посетила не только их, и очень скоро ребята оказываются втянуты в безжалостную борьбу за выживание.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Тим ФельбаумАктеры: Ханна Херцшпрунг. Ларс Айдингер, Стипе Эрчег, Лиза Викари, Йоанн Бланк, Марко Каламандрей, Кристоф Гоглер, Ангела ВинклерПеревод: ДублированныйЯзык субтитров: Русский, НемецкийПродолжительность: 01:29:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491259   (102664) от 02.05.2012
-
-ArchBang Linux 2012.5 [i686, x86-64] (2xCD)
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102664.jpg" />
-</div>
-
-
-###  Подробнее
-
-rchBang является проектом, разрабатываемым ArchBang Team. Данный дистрибутив сочетает в себе Arch Linux с быстрым и простым оконным менеджером Openbox. Остальные приложения также подобраны исходя из простоты использования и легкости графического интерфейса. При этом разработчики пытались не жертвовать удобством использования, оснастив ArchBang стандартным по сегодняшним меркам набором приложений для работы с фото, видео и аудио файлами. Дистрибутив предназначен для пользователей, которые хотят получить Arch Linux "из коробки".
-
-Некоторые изменения в этом выпуске: установлен QDarkStudio4 по умолчанию как GTK + тема; выбран Shotwell для просмотра изображений, улучшен Conky; Epdfview заменил zathura, реализованы простые чистые панели tint2; добавлен Broadcom Wireless; релиз дополнил VirtulaBox Arch Linux; добавлена возможность управления мобильным широкополосным модемом в NetworkManager.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490851   (102666) от 02.05.2012
-
-Последний охотник / Hunter Prey (2010) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тюремный звездолет, выполнявший передачу опасного межгалактического преступника, терпит крушение на пустынной планете. Выжившие конвоиры обнаруживают пропажу заключенного. Понимая, что в пустыне он далеко не уйдет, солдаты отправляются на поиски. Но очень скоро становится ясно, что охотники сами превратились в мишень…Жанр: Фантастика, ТриллерРежиссер: Сэнди КоллораАктеры: Исаак Сингелтон мл., Кларк Бартрам, Дэмион Пуатье, Саймон Поттер, Эрин ГрэйПеревод: Двуголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:24:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 

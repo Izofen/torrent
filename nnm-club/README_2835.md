@@ -1,3 +1,94 @@
+###  Публикация: 468041   (82218) от 15.03.2012
+
+[Картинки] Фото знаменитости/Тина Канделаки
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тинати́н (Ти́на) Ги́виевна Кандела́ки (груз. თინათინ კანდელაკი);
+10 ноября 1975, Тбилиси — российская журналистка, телеведущая, продюсер и общественный деятель. Совладелец компании «Апостол Медиа».
+Отец — Гиви Шалвович Канделаки (1942 — 1 мая 2009), из рода Канделаки — дворянского грузинского рода греческого происхождения. По профессии — экономист, работал директором овощной базы в Тбилиси, после выхода на пенсию жил с супругой в Москве. Мать Тины — Эльвира Георгиевна Канделаки (д. Алахвердова) — армянка или наполовину армянка, наполовину турчанка, бывший тбилисский врач-нарколог.
+Тина окончила 64-ю среднюю школу для детей военных в центре Тбилиси. В 1993 году поступила на медицинский факультет Тбилисского государственного университета, но вскоре, оставив медицину, поступила на факультет журналистики.
+В 2008 году окончила факультет международных отношений РГГУ.
+Работала на радиостанции «Радио 105» (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FD1B99362F80D94A91A0FA3A0B273B1CBF1EC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467464   (82222) от 15.03.2012
+
+[Картинки] Фото знаменитости/Группа Reflex и Ирина Нельсон
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reflex — популярная российская поп-группа, обладатель 17 национальных музыкальных премий.
+    1999 — певица Ирина Нельсон (ранее выступавшая под сценическим именем Диана), заканчивая свою сольную карьеру, вернулась из Германии.
+    2000 — продюсер Ирины Нельсон Вячеслав Тюрин начал кастинг молодых артистов, которые смогли бы вместе с Ириной стать лицом новой команды. В группе появились Ольга Кошелева (танцовщица и бэк-вокал) и Денис Давидовский (танцор).Вышел дебютный сингл группы под названием «Дальний свет» штурмом взявший вершину хит-парада радиостанции «Европа Плюс»
+    2001 — У группы выходит дебютный альбом «Встречай новый день».В этом же году к группе приходит настоящая известность с композицией «Сойти с ума», чуть ли не за неделю поднявшейся до первого места в хит-параде «Русского радио» «Золотой граммофон».
+    2002 — в группу приходит Григорий Розов (DJ Silver). Из группы уходят Ольга (из-за учёбы) и Денис (ушёл служить в армию). Позже в группу приходит Алёна Торганова(танцовщица и бэк-вокал).
+    2003 — Этот год стал для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5E3028DF2A06ABA8D5759BC7C20525764F8F8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468415   (82224) от 15.03.2012
+
+The Internet - Purple Naked Ladies (2012) [FLAC|Lossless]<Electronic, Funk, Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82224.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Violet Nude Women (3:27)
+2. They Say / Shangrila (Feat. Tay Walker) (4:48)
+3. She DGAF (3:28)
+4. Cunt (2:19)
+5. Cocaine / Tevie (Feat. Left Brain) (4:32)
+6. Ode To A Dream (Feat. Kilo Kish & Coco O.) (4:09)
+7. Gurl (Feat. Pyramid Vritra) (2:51)
+8. Love Song – 1 (1:29)
+9. Lincoln (Feat. Mike G & Left Brain) (2:08)
+10. Web Of Me (2:48)(   Читать дальше...   )2012Жанр: Electronic, Funk, Trip-HopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467440   (82226) от 15.03.2012
 
 Мартовские иды / The Ides of March (2011) [720p] BDRip
@@ -6,7 +97,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82226.jpg" />
 </div>
 
 
@@ -30,7 +121,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82230.jpg" />
 </div>
 
 
@@ -54,7 +145,7 @@ magnet:?xt=urn:btih:0802680648E29B5DDD31E7E4913529468174DD5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82233.jpg" />
 </div>
 
 
@@ -78,7 +169,7 @@ magnet:?xt=urn:btih:0802680648E29B5DDD31E7E4913529468174DD5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82234.jpg" />
 </div>
 
 
@@ -102,7 +193,7 @@ magnet:?xt=urn:btih:0802680648E29B5DDD31E7E4913529468174DD5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82235.jpg" />
 </div>
 
 
@@ -128,7 +219,7 @@ magnet:?xt=urn:btih:0802680648E29B5DDD31E7E4913529468174DD5C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82236.jpg" />
 </div>
 
 
@@ -152,7 +243,7 @@ magnet:?xt=urn:btih:4E2D0DEC0A3EFAF2D8F9A2F041C0CDA8A885026A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82237.jpg" />
 </div>
 
 
@@ -178,7 +269,7 @@ magnet:?xt=urn:btih:4E2D0DEC0A3EFAF2D8F9A2F041C0CDA8A885026A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82240.jpg" />
 </div>
 
 
@@ -204,7 +295,7 @@ magnet:?xt=urn:btih:4E2D0DEC0A3EFAF2D8F9A2F041C0CDA8A885026A
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82242.jpg" />
 </div>
 
 
@@ -228,7 +319,7 @@ magnet:?xt=urn:btih:BB4A21DC64EE20DCA6F83E776192D448B376933F
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82243.jpg" />
 </div>
 
 
@@ -261,7 +352,7 @@ magnet:?xt=urn:btih:B141A29E295432F3BA03E959197383B957D5F53E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82245.jpg" />
 </div>
 
 
@@ -285,7 +376,7 @@ magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82250.jpg" />
 </div>
 
 
@@ -310,7 +401,7 @@ magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82253.jpg" />
 </div>
 
 
@@ -334,7 +425,7 @@ magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82254.jpg" />
 </div>
 
 
@@ -359,7 +450,7 @@ magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82255.jpg" />
 </div>
 
 
@@ -383,7 +474,7 @@ David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumenta
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82259.jpg" />
 </div>
 
 
@@ -416,7 +507,7 @@ David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumenta
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82260.jpg" />
 </div>
 
 
@@ -440,7 +531,7 @@ magnet:?xt=urn:btih:35426510E95E2F83C00115826E5495A07A013B10
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82261.jpg" />
 </div>
 
 
@@ -466,7 +557,7 @@ magnet:?xt=urn:btih:914BF54A5AB01E499A91B7D47F3102F10DFC36EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82263.jpg" />
 </div>
 
 
@@ -490,7 +581,7 @@ magnet:?xt=urn:btih:914BF54A5AB01E499A91B7D47F3102F10DFC36EC
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82267.jpg" />
 </div>
 
 
@@ -517,7 +608,7 @@ magnet:?xt=urn:btih:9D2F41F8F8266CCCC7F68216DF89CA8C6A70D9BA
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82268.jpg" />
 </div>
 
 
@@ -545,7 +636,7 @@ magnet:?xt=urn:btih:21965E9DBEC5C394CBF1C00C224790D1FAB1FB5A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82271.jpg" />
 </div>
 
 
@@ -569,7 +660,7 @@ magnet:?xt=urn:btih:C88AF25AF57C898C9E75416342D5E3A5641B1C85
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82274.jpg" />
 </div>
 
 
@@ -583,84 +674,6 @@ magnet:?xt=urn:btih:C88AF25AF57C898C9E75416342D5E3A5641B1C85
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCE6E5D0630A656A08CE2D5C5334B4835CB925BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467563   (82278) от 15.03.2012
-
-Амазонка Питера Бенчли / Peter Benchley's Amazon (1999) DVDRip [22]
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолет, направлявшийся в Рио-де-Жанейро, разбился в джунглях Амазонки. Шесть пассажиров спаслись, но все считают их без вести пропавшими. Несчастные вынуждены искать выход из непроходимых джунглей, в которых человеку, чтобы не стать чей-нибудь жертвой, приходится превратиться в хитроумного и беспощадного охотника.
-Новоиспеченные робинзоны даже и не догадывались, что стоят на пороге настоящих испытаний. Их ждет встреча и с агрессивными туземцами, и с племенем призраков… Начинается борьба за выживание среди хищных животных, безжалостных людей и кошмарных фантомов…Жанр: ПриключенияРежиссер: Джон Кассар, Рон Оливер, Крэйг Прайс, Скотт СаммерсгиллАктеры: С. Томас Хауэлл, Кэрол Альт, Крис Мартин, Фабиана Уденио, Тайлер Хайнс, Роб Стюарт, Гэбриел Хоган, Джон Невилл и др.Перевод: Двуголосый закадровый, профессиональный
-http://multi-up.com/668333Продолжительность: 22 x ~00:44:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466460   (82279) от 15.03.2012
-
-Сын Кинг Конга / The Son of Kong (1933) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82279.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается спустя приблизительно месяц после драматического финала предыдущего фильма и повествует о дальнейших приключениями режиссера Карла Денхема, который вовлечен в многочисленные судебные процессы после разрушений, вызванных Конгом. Денхем с Капитаном Энглхорном, который уверен, что это — только вопрос времени прежде, чем они разбогатеют, оставляют (   Читать дальше...   )Производство: США, RKO Radio Pictures Inc.Жанр: Фантастика, приключения, боевикРежиссер: Эрнест Б. ШодсакАктеры: Сай Клегг, Виктор Вонг, Эдвард Брэйди, Хелен Макк, Джон Марстон, Роберт Армстронг, Фрэнк Рейхер, Стив Клементе, Гарри КорнблейдПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E492E5D4D9CBD46F0CDE13221199003300EDD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467937   (82280) от 15.03.2012
-
-Defenders of Ardania [En] (Lossless Repack) 2012 | R.G. UniGamers
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Defenders of Ardania – игра в стиле «tower defense», действие которой происходит в фэнтезийной вселенной Majesty. В отличие от других игр данного типа, где нужно устанавливать башни, чтобы остановить продвижение вражеских юнитов, игроки также смогут выступить на стороне нападающих и попытаться уничтожить вражескую базу. Defenders of Ardania также включает в себя элементы RTS. В игре представлено три различные расы с уникальными локациями, башнями и юнитами, а также широкий спектр заклинаний.
-
-В игре есть как однопользовательский режим, так и многопользовательский, в котором одновременно может принимать участие от двух до четырех игроков. Они могут сражаться друг против друга или против AI через интернет. Всего в мультиплеере представлено три режима игры.
-
-(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time) / Arcade / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE295BE0E1D4F1214F71A8F2522C3230011970A
 ```
 
 

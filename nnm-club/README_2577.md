@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67750.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Darkness - Easter is Cancelled (2019) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67751.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67752.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67753.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67754.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:468F477E73211B8EA6B9FD00D986C70E63F23C90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67755.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67756.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67757.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Country Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67758.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67759.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WE
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67760.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Red Snapper - Barb and Feather (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, F
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67761.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Powe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67762.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Juno Francis - Melancholia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67763.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Insolate - Full Disclosure (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67764.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Books & Coffee Vol. 3_ Jazz & Easy-Listening Mix (2025) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67765.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Easy Living: Spring Jazz Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67766.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67767.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67768.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67769.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Crow's Flight - The Dark Horizon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67770.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - House Adventures 12 & 13 (Black Mighty Wax presents) (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67771.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67772.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Frankie Campofelice - Every Night at Seven (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67773.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:B091BD94201FB421303E0277A760F01FAFF25E07
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67774.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ magnet:?xt=urn:btih:633BA700C5593A0845F1FA7F310EFB565E5DD357
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67775.jpg" />
 </div>
 
 

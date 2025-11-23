@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46063.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:80E58AF2D98ECA3181A68F79AA45142914629F78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46064.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PDFCreator 5.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46065.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Insatiable Void - Nefelibata Descent (2024) 2CD [MP3|320 Kbps] <Industrial, witc
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46066.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ David Hasselhoff - Looking For Freedom  (1989) [FLAC|Lossless|tracks + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46067.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Funk Rock_Sexy Groovy Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Funk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46068.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Saga - The Works (1991) 2CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46069.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ansamble «Vitamiin» - Ансамбль «Витамин II» (1984) [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46070.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Slippin’ Away (Melancholic Mix for Long Lonely Nights) (2024) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46071.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Nocturnal Sea - Among the shadows we tell no lies (2024) [MP3|320 Kbps] <Gothic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46072.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Luxurious Instrumentals for Relaxed and Happy Vacation Time (2024) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46073.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Breakup Rock, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46074.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Magnificent Soothing Tunes for Relaxed and Happy Vacation Time (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46075.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Rose Royce - Jump Street (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Disco, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46076.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Groovy Ride, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46077.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Refreshing Soothing Easy Listening Tunes for Rest, Study or Travel (2024) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46078.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Holycide - Fist To Face (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46079.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Manatee Commune - Simultaneity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46080.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Errol Linton - Love Gone Cold (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46081.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Chet Baker - Stairway To The Stars (1965) 1996, Prestige [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46082.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Vltimas - Epic (2024) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46083.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Framing Skeletons - Misery Prelude: The Prince Eternal (2024) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46084.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:B8F9AB914D4243AEE8BE5AE663CF072CB03EA5E2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46085.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:F736C1014229D831EA8BC7297723772A58E70A85
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46086.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:8608990A8FDE29C21F326235E68F53DBCBEC4CCF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46087.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:07C516B8B5D4129649801F2ACFCFC9EABE7C7F1B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46088.jpg" />
 </div>
 
 

@@ -1,3 +1,86 @@
+###  Публикация: 473704   (84709) от 27.03.2012
+
+Autodesk AutoCAD Mechanical 2013 (x64) (Английский)
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84709.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD® Mechanical – это AutoCAD® для машиностроительного проектирования. AutoCAD Mechanical является частью технологии цифровых прототипов Autodesk®. Продукт объединяет в себе функциональность AutoCAD – мирового лидера среди 2D САПР – с преимуществами обширных библиотек стандартизированных компонентов и средств автоматизации, ускоряющих выполнение задач проектирования. AutoCAD Mechanical обеспечивает существенную экономию времени при чертежных работах, поэтому вы можете уделять больше внимания инновациям.
+Имея в своем составе библиотеки стандартных деталей и функции автоматизации типовых задач, AutoCAD Mechanical ускоряет работу конструктора.
+Это — передовой продукт с множеством полезных функций, которые и не снились пользователям AutoCAD.Название программы: Autodesk AutoCAD Mechanical 2013 (x64)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473766   (84710) от 27.03.2012
+
+Axel Rudi Pell - Circle of the Oath (2012) (Limited Edition) [FLAC|Lossless]<Heavy / Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Guillotine Suite (1:51)
+02. Ghost In The Black (4:37)
+03. Run With The Wind (4:43)
+04. Before I Die (4:30)
+05. Circle Of The Oath (9:20)
+06. Fortunes Of War (5:19)
+07. Bridges To Nowhere (7:11)
+08. Lived Our Lives Before (6:31)
+09. Hold On To Your Dreams (5:48)
+10. World Of Confusion (The Masquerade Ball Pt. II) (9:29)(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474103   (84713) от 27.03.2012
+
+На стройку, месье Таннер! / En chantier, monsieur Tanner! (2010) HDTVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84713.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Жана-Поля Дюбуа "Вы шутите, М. Таннер?". В картине рассказывается о том, как герой романа Поль Таннер неожиданно получает в наследство фамильный дом. До этого он жил спокойной жизнью документалиста-анималиста. Получив наследство, он решает этот дом реставрировать и принимается за дело. В то время как он надрывался на своей земле, ремесленные корпорации сменяли друг друга: безумные каменщики, преступные кровельщики, помешанные электрики... Все они, сменяя друг друга делали его жизнь невыносимой...Жанр: КомедияРежиссер: Стефан ЛиберскиАктеры: Жан-Поль Рув, Мишель Мюллер, Аннелиз Хесме, Вирджиния Эфира, Филипп Наон, Женивьев Мнич, Жюльен Корбе, Людовик Бертийо, Жакки Берруайе, Эдит Ле МердиПеревод: Двуголосый закадровый профессиональныйПродолжительность: 01:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BCEB433AF1101A5AF8F02F58CA79811C8316A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474081   (84715) от 27.03.2012
 
 Вне Сатаны / Hors Satan (2011) DVDRip
@@ -6,7 +89,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84715.jpg" />
 </div>
 
 
@@ -30,7 +113,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84716.jpg" />
 </div>
 
 
@@ -54,7 +137,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84717.jpg" />
 </div>
 
 
@@ -78,7 +161,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84718.jpg" />
 </div>
 
 
@@ -104,7 +187,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84719.jpg" />
 </div>
 
 
@@ -128,7 +211,7 @@ magnet:?xt=urn:btih:602304155C35B731BAEC45651474C29A244F5F52
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84720.jpg" />
 </div>
 
 
@@ -152,7 +235,7 @@ Zero no Tsukaima: Princess no Rondo / Подручный Луизы-Нулизы
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84721.jpg" />
 </div>
 
 
@@ -185,7 +268,7 @@ magnet:?xt=urn:btih:5E561470BB30299CE6C8A318F77A9B89BBF61D44
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84724.jpg" />
 </div>
 
 
@@ -210,7 +293,7 @@ magnet:?xt=urn:btih:C8A7BD775F72EDAAFA54072E75FCC36C473FA95B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84725.jpg" />
 </div>
 
 
@@ -234,7 +317,7 @@ magnet:?xt=urn:btih:C8A7BD775F72EDAAFA54072E75FCC36C473FA95B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84727.jpg" />
 </div>
 
 
@@ -258,7 +341,7 @@ magnet:?xt=urn:btih:A5704CAD4C48B5FBEFC64C068672ECCB84523909
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84730.jpg" />
 </div>
 
 
@@ -282,7 +365,7 @@ magnet:?xt=urn:btih:A5704CAD4C48B5FBEFC64C068672ECCB84523909
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84731.jpg" />
 </div>
 
 
@@ -307,7 +390,7 @@ magnet:?xt=urn:btih:727351931273C3D212EA88558FA0EF325992590F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84732.jpg" />
 </div>
 
 
@@ -334,7 +417,7 @@ magnet:?xt=urn:btih:727351931273C3D212EA88558FA0EF325992590F
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84733.jpg" />
 </div>
 
 
@@ -367,7 +450,7 @@ magnet:?xt=urn:btih:16074D1B3FB6F9CE54A2696D13BF7853835CE847
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84734.jpg" />
 </div>
 
 
@@ -398,7 +481,7 @@ magnet:?xt=urn:btih:16074D1B3FB6F9CE54A2696D13BF7853835CE847
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84736.jpg" />
 </div>
 
 
@@ -423,7 +506,7 @@ magnet:?xt=urn:btih:984BA7A72D1DAF88545C699FA897FBE8C8D018F8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84737.jpg" />
 </div>
 
 
@@ -447,7 +530,7 @@ Epica - Requiem For The Indifferent (2012) 2 издания [FLAC,APE|Lossless]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84740.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ Ltd. Digibook Edition содержит нормальную версию "Serena
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84742.jpg" />
 </div>
 
 
@@ -507,7 +590,7 @@ magnet:?xt=urn:btih:4A7512C1E705C280A4D706CDB28E24B58F237798
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84745.jpg" />
 </div>
 
 
@@ -531,7 +614,7 @@ magnet:?xt=urn:btih:FC776EDF8D7613B98D640DCF517470A48470A962
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84750.jpg" />
 </div>
 
 
@@ -555,7 +638,7 @@ magnet:?xt=urn:btih:E1C7ED52F49CB63094C78263341A6D0E0CBE381E
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84751.jpg" />
 </div>
 
 
@@ -580,7 +663,7 @@ magnet:?xt=urn:btih:E803D9B54DEE5D8C47A118C42BAF3CB97AABA5BB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84752.jpg" />
 </div>
 
 
@@ -591,78 +674,6 @@ magnet:?xt=urn:btih:E803D9B54DEE5D8C47A118C42BAF3CB97AABA5BB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F0B6A3B4F88688ACD3E6E59CD92BC98E694DBC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474222   (84753) от 27.03.2012
-
-Моя маленькая принцесса / My Little Princess (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84753.jpg" />
-</div>
-
-
-###  Подробнее
-
-11-летнюю Виолетту не спутать со сверстницами — не только потому, что пышные золотые волосы девочки видны за версту. Виолетта — ребёнок-звезда, героиня эстетских фотографий, сделанных блудной богемной мамой, превратившей свою дочь в объект эротического вожделения коллекционеров и пристального внимания социальных служб, гостью салонов и школьную парию.Жанр: ДрамаРежиссер: Ева ЙонескоАктеры: Изабель Юппер, Анамария Вартоломей, Жоржетта Ляху, Дени Лаван, Джетро Кейв, Луи-До де Ланкесэ, Паскаль Бонгард, Анн Бенуа, Дебора РевиПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 01:42:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474188   (84754) от 27.03.2012
-
-Быстрый и мертвый / The Quick and the Dead (1995) [H.264/720p-LQ] HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пустыня, и посреди нее — маленький грязный городок. Здесь только женщины и больные не носят кобуры на поясе. В городе хозяйничает майор Херад — жестокий и хладнокровный человек. Все его боятся, и каждая собака его знает. Если он разрешил тебе — ты можешь жить. Но однажды на горизонте появляется незнакомый всадник. Он въезжает в город и медленно движется по главной (   Читать дальше...   )Жанр: Боевик, Вестерн, Триллер, Драма, ПриключенияРежиссер: Сэм РэймиАктеры: Шэрон Стоун, Джин Хэкмен, Рассел Кроу, Леонардо ДиКаприо, Тобин Белл, Робертс Блоссом, Кевин Конуэй, Кит Дэвид, Лэнс Хенриксен, Пэт ХинглПеревод: ДублированныйПродолжительность: 01:47:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474025   (84756) от 27.03.2012
-
-Жутко громко и запредельно близко / Extremely Loud & Incredibly Close (2011) [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятилетний Оскар теряет отца в день атаки на башни-близнецы в Нью-Йорке. По всему городу Оскар ищет информацию, которая должна привести его к разрешению загадки отца. На пути мальчику встретятся разные люди, но их всех объединяет страшная катастрофа, поэтому каждый пытается справиться с собственным горем.Жанр: Детектив, Драма, ПриключенияРежиссер: Стивен ДолдриПродюсер: Скотт Рудин, Eli Bush, Селия Д. Костас, ...Актеры: Том Хэнкс, Сандра Буллок, Томас Хорн, Макс фон, Сюдов Виола, Дэвис Джон, Гудмен Джеффри, Райт Зои, Колдуэлл Дэннис, Хирн Пол Клементовиц ...Перевод: Двуголосый закадровый, профессиональныйЯзык субтитров: АнглийскиеПродолжительность: 02:09:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 

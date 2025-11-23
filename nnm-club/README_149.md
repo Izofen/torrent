@@ -6,7 +6,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3924.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3925.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3B01CEB15C6F399E1E7D055109778291D964E94D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3926.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:36183BEF49E0D6E13665E00FBCCE37FC75C82677
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3927.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3928.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:730A7C9C296A0736F3B2D4A57F1EC2009FF2C79B
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3929.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ MyLanViewer 6.5.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3930.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Telegram Desktop 6.1.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3931.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6AF1270795E9B6AE6D4AD9E89701E5595F3220E1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3932.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:7DB8AF52B138F4690FBFD6DBB4FF351BF1097840
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3933.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Vugar Rustamov | Приватный канал Американский YouTube.
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3934.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:2815FFF269FB9EC8DCB59BC58FF181FF8881A092
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3935.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Vending Machine Business Simulator (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3936.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ AMS ФотоМОНТАЖ 4.5 Portable by 7997 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3937.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:10C3D47605AF5F2A5F9C0E354F0CC2D13CA0C7DE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3938.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D75591895C03562FD616758D53C1A336F91D045D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3939.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ iDownerGo Video Downloader 10.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3940.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:1F3E12AF4570121B3593A8FA95B7BB6E609DCD6E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3941.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:9E71BD1783DE5FAD7E807D31A63C0DE7729456FF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3942.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Дискотека 2025 Dance Club Vol. 230 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3943.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:6E933CF30B5927A22FC8C27145F005742745669B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3944.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:DCDBFC267355594372BF82B4105BB7B9688B363B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3945.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:2D8EF4CDA146B42F19888DC8A8CD9F7067AAC172
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3946.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:2D8EF4CDA146B42F19888DC8A8CD9F7067AAC172
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3947.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:B57E670D176235D881733678A03D087018F5E224
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3948.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ RustDesk 1.4.2 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3949.jpg" />
 </div>
 
 

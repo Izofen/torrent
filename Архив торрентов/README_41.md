@@ -6,7 +6,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 11.06.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14457.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CrystalDiskInfo 9.7.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14460.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14478.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D15017679201F960EC46E87E4BE436371F979D13
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_14485.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_14485.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Firefox Browser ESR 128.11.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14505.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Smart AudioBook Player Pro v11.4.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14518.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Beyond Compare Pro 5.1.0.31016 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14527.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Any Video Downloader Pro 9.2.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14529.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ iDownerGo Video Downloader 10.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14535.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Firefox Browser ESR 115.24.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14539.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Vanced Tube v5.4.80.107 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14556.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:7CEC1768A2BF37265A382629110FFC3F7DFC5843
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14578.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:D9752273AF77852C472508709683565D29122CEE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14583.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:AA646705B7CF1D3C91C0871DE818A0F79F88ECDD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14589.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:EDA6B29687387591E1EB2F883B23CFEC91F8ADFB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14592.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Device Info / Информация об устройстве v3.3.9.2 Mod by Bal
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14605.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Firefox Browser 139.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14610.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ PrivaZer Pro 4.0.107 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14616.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ PictureThis - Plant Identification v5.6.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14623.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:59C6BE8D0CD9E4DAF5F04985F10211A38D127493
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14642.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ MassTube Ultra 20.1.6.133 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14646.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ MediaHuman YouTube Downloader 3.9.14 (1306) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14647.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ iTubeGo YouTube Downloader 10.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14659.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Internet Download Manager 6.42 Build 41 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14670.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ TreeSize Professional 9.5.1.2105 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14681.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Activation Program 1.12 b03  Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14682.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ StopTheMadness 40.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112960.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AirFoil+Airfoil Satellite 5.12 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112969.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VueScan Pro for Mac 9.8.30 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112975.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Data Creator 1.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113034.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Easy New File 5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113057.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Doppler for Mac 2.1.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113075.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ PixelSnap 2 for Mac v.2.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113077.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Hype 4 Pro v.4.1.16 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113082.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ EdgeView 4 v.4.6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113086.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VideoProc Converter 4K 6.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113094.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Tower Pro 10 for Mac v.10.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113100.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Cardhop 2.2.17 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113136.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CompressX for Mac 1.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113146.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NCH DreamPlan Plus for Mac 9.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113148.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MWeb Pro 4.5.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113149.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tap Forms Organizer 5 v.5.3.41 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113150.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Retrobatch Pro 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113152.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Dropshare 5 v.5.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113158.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ GarageSale 9.7.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113160.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ SSH Config Editor Pro 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113168.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Finder Windows 1.5.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113172.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Unclutter 2.2.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113173.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ DiskCatalogMaker 9.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113182.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Room Arranger 9 fo Mac 9.8.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113195.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113208.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Navicat Charts Creator for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113227.jpg" />
 </div>
 
 

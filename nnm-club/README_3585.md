@@ -1,3 +1,75 @@
+###  Публикация: 1709078   (112892) от 23.03.2024
+
+BikeComputer Pro v8.11.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112892.jpg" />
+</div>
+
+
+###  Подробнее
+
+BikeComputer Pro - возможно, одно из лучших приложений для велоспорта. Версия Pro содержит все необходимые функции:Тип издания: ModРелиз состоялся: 22.03.2024Разработчик: Robert OehlerПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4CF5BCEDBEB6514D4A38AE1CCF86E7D74BC3B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709065   (112893) от 23.03.2024
+
+Никита Киров, Кирилл Неумытов | Мастер войны (Книга 3). Помолодевший мастер войны (2024) [MP3, Александр Серов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я тысячу лет воевал за свой клан, держа в страхе и почитании весь Китай. Но мне надоело. Где мой отпуск? Где обещанный покой? Плюнув на всё, я изменил внешность и уехал в Россию. Правда, уже через пару недель я понял, что отдых не для меня… Скучно! Хочу собственный клан с преферансом и красотками! Посторонись, магическая аристократия! Старый мастер покажет вам, что (   Читать дальше...   )Жанр: Боевое фэнтезиИздательство: Литрес Паблишинг, АвторПродолжительность: 09:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836199ECD40751EF5812821CAA66DA572172E283
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709116   (112894) от 23.03.2024
+
+Без злого умысла / Absence of Malice (1981) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оптовый торговец спиртными напитками из Майами Майкл Галлахер, сын давно убитого босса мафии, однажды утром обнаруживает себя на первой полосе местной газеты по делу об исчезновении и предполагаемом убийстве представителя местного профсоюза грузчиков Джоуи Диаса. Следователь, ведущий дело об убийстве, отчаявшись найти настоящего преступника, обеспечивает утечку информации (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Mirage EnterprisesЖанр: драма, детективРежиссер: Сидни ПоллакАктеры: Пол Ньюман, Салли Филд, Боб Бэлабан, Мелинда Диллон, Лютер Эдлер, Бэрри Праймус, Йозеф Зоммер, Джон Харкинс, Дон Худ, Уилфорд Бримли, Арни Росс, Шелли Сперлок, Шоун МакАллистер, Уильям Кервин, Освальдо КалвоПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C574061C910FF10AFD1E4A98B356B1120446B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703453   (112895) от 23.03.2024
 
 Человек боится / Man Afraid (1957) BDRip [H.264/720p] [VO]
@@ -6,7 +78,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112895.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:4CB05B3F98D9C0241485A327046B52EE065C7BFF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112896.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112897.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:48FEF653CB3E146C2BF58526EB2445E6D702F747
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112898.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112899.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ VA - Deep House Party (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112900.jpg" />
 </div>
 
 
@@ -160,7 +232,7 @@ magnet:?xt=urn:btih:1AD7FED3AFA33D7BCE381A99995E51A1CA53EEA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112901.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ magnet:?xt=urn:btih:1AD7FED3AFA33D7BCE381A99995E51A1CA53EEA6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112902.jpg" />
 </div>
 
 
@@ -211,7 +283,7 @@ Duff McKagan - Lighthouse (Expanded Edition)(2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112903.jpg" />
 </div>
 
 
@@ -238,7 +310,7 @@ Duff McKagan - Lighthouse(Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112904.jpg" />
 </div>
 
 
@@ -265,7 +337,7 @@ Nathan Allen - Songs About Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112905.jpg" />
 </div>
 
 
@@ -292,7 +364,7 @@ Steel Rath - Steel Rath (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112906.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112907.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ Aktarum - Gang Of Trolls (2010) [FLAC|Lossless|image + .cue] <Black Metal, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112908.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ Celso Salim & Darryl Carriere - About Time (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112909.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ I Shot A Man - Dues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112910.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ Samson - Don't Get Mad, Get Even (1984) [FLAC|24/192|image|Vinyl-Rip] <NWOBHM, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112911.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ Darkthrone - Plaguewielder (2001) Reissue,  2012, Peaceville [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112912.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ Darkthrone - Ravishing Grimness (1999) Reissue, 2011, Peaceville [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112913.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112914.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ AMD Radeon Software Adrenalin Edition 24.1.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112915.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ Codepoint for Mac 1.16 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112916.jpg" />
 </div>
 
 
@@ -584,7 +656,7 @@ Romantic Evening Jazz Club and Good Mood Music Academy - Jazzy Evening Calm (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112917.jpg" />
 </div>
 
 
@@ -598,86 +670,6 @@ Romantic Evening Jazz Club and Good Mood Music Academy - Jazzy Evening Calm (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F6B12079ACDAA6577350D899B633A5ED9037850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708999   (112918) от 22.03.2024
-
-Soultrace - Born Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heroes of World (5:00)
-02. Blood Red Rain (4:14)
-03. In a World Where the Angels Died (4:58)
-04. Memories of Love (4:48)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FD0159A25E543503869E6049857CDECA215374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708894   (112919) от 22.03.2024
-
-Stress Reducing Music Zone, Instrumental Jazz Music Guys, Positive Music Universe - Boogie Wonderland: Amazing Electric Guitar Jazz for Emotional Release (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emo Grooves (3:55)
-02. Positive Music Universe - Posi-Jazz Express (4:01)
-03. Instrumental Jazz Music Guys - Soulful Therapy (3:45)
-04. Feel-Good Beats (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F690E040EEBD4CE149E69438FF0359D9291B3F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708971   (112920) от 22.03.2024
-
-О. Генри | Вождь краснокожих (2007) [MP3, Сергей Рост]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Волшебный мир приключений.
-О. Генри (Уильям Сидни Портер) (1862-1910) – американский писатель, признанный мастер короткого рассказа.
-Трогательные, добрые, ироничные произведения О. Генри непременно вызывают улыбку. Иногда уморительно смешные, а иногда бесконечно грустные. Каждый раз поражает неожиданная, поразительная развязка сюжета. Автор играет на (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, рассказИздательство: ВимбоПродолжительность: 01:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6463E3D5BA418B3A323CB180556ACD3053183CF9
 ```
 
 

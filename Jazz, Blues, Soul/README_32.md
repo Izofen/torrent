@@ -6,7 +6,7 @@ Charlie Mingus - Four Classic Albums: Second Set (1956, 1957) 2CD, 2018, Avid Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67829.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Evgeny Rang Quartet - Midnight Cool (2024) Apollon & Evterpa [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67833.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Maxwellium - Blood &Smoke (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67836.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67841.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67865.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jeff Rymes - Zodiac Shuffle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67868.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Metal Bots - Soulful Strains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67876.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tobacco Road Blues band - Lis & Skull (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67877.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kid Ramos - Strange Things Happening (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67879.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wolfgang Lohr - The Lohring 20s (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67886.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Robbert Duijf - Silver Spoon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67890.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ JayKayGi - Heartbreak (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67949.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Catfish - Time to Fly (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67950.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Daniel Weber - Believe (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67952.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bigfoot Preston - Light Up My Darkness (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67953.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blues Support - Blues Support (Under Cover) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67954.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dov Hammer - Exile - The Chicago Blues Sessions (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67956.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Allison August - August Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67958.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Cynthia Perkins - Blue Winter (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67959.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lev Kushnir Quartet - Stars Fell On Samotlor (2001) 2024, Apollon & Evterpa [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67961.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Noches de Jazz Latino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68015.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Espresso Pronto Napoli! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68019.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Gene Krupa And His Orchestra - 1945 - 1946 (2002) Classics [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68070.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Siberian Dixieland - The Scent Of The Era (2024) Apollon & Evterpa [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68075.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Shari Puorto - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68143.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Wildmen Bluesband - Troubled Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68148.jpg" />
 </div>
 
 

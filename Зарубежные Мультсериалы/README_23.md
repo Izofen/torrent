@@ -1,3 +1,27 @@
+###  Публикация: 1463791   (228360) от 26.11.2021
+
+Солнечные противоположности / Solar Opposites (2021) WEB-DLRip (сезон 2, серии 1-9 из 9) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришельцы, спасаясь со своей умирающей планеты, потерпели крушение на Земле и теперь вынуждены прикидываться обычными людьми. Человеческая цивилизация вызывает у гостей из другого мира немало вопросов, и они никак не могут до конца решить, хорошая она или нет. Точно известно только одно: они должны защищать Пупу — живой суперкомпьютер, который однажды эволюционирует, (   Читать дальше...   )Производство: США, 20th Century Fox Television, Fox Television Animation, Justin Roiland's Solo Vanity Card Productions, Walt Disney Pictures and TelevisionЖанр: Для взрослых, комедия, фантастикаРежиссер: Майк МакМахан, Джастин РойландПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика.Субтитры: отсутствуютПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131D531632953D8EE8F4FA7C60C7A014C8C64AF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832979   (230318) от 31.10.2025
 
 Отель Хазбин / Hazbin Hotel (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-2 из 8) Jaskier (обновляемая)
@@ -6,7 +30,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230318.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230318.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:46C3E432E5A4658B7C508C884CCD2FB458367B68
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230668.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230668.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:95A591F306EAE9D12A1BFED2D6D1FE93BC43E341
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230792.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230792.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:D1CEAB130A9AE568E92171326A6F7268E371244B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231203.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231203.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:F51DAF12045B0E105548123B5BBA759EC253552E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231857.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231857.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:2FBA48FBD70C84DBC937680D74F72952689AFCF2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231877.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231877.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:634825E0B259E16E88043C3E4EA11BCC47404B63
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232328.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232328.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ magnet:?xt=urn:btih:C8B9FE1798FB83DB01A831CD75F3FA0FCBAB7C5D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232420.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232420.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ magnet:?xt=urn:btih:D0396BE15EAABDAC3853ACF9CD27DA74556C8310
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232440.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232440.jpg" />
 </div>
 
 
@@ -225,7 +249,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2022) WEB-DL [H.264/1080
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233101.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233101.jpg" />
 </div>
 
 
@@ -249,7 +273,7 @@ magnet:?xt=urn:btih:6911948A316809A0DCFC6EF8F914CACD7076B2FC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233162.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233162.jpg" />
 </div>
 
 
@@ -273,7 +297,7 @@ magnet:?xt=urn:btih:95E90DECAF36DB608E9460CC622EA47C77F7FE1F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233321.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233321.jpg" />
 </div>
 
 
@@ -297,7 +321,7 @@ magnet:?xt=urn:btih:2DE3095CDEC351F7EDA67929902C0F9B2E4C867F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233706.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233706.jpg" />
 </div>
 
 
@@ -321,7 +345,7 @@ magnet:?xt=urn:btih:2CD262EC77677813BA44C13DDAA8C83ED2C3A558
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234103.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234103.jpg" />
 </div>
 
 
@@ -345,7 +369,7 @@ magnet:?xt=urn:btih:59743503B07EFDB693C06F9C062802E7E371FB3E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234327.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234327.jpg" />
 </div>
 
 
@@ -369,7 +393,7 @@ magnet:?xt=urn:btih:DE68D791FB7672F3D0355179E59FC465E17D24E6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234656.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234656.jpg" />
 </div>
 
 
@@ -393,7 +417,7 @@ magnet:?xt=urn:btih:F6246BB4489F2163E9D1094E5467905B7963E46A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235683.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235683.jpg" />
 </div>
 
 
@@ -417,7 +441,7 @@ magnet:?xt=urn:btih:50A510A8062BE96753E963657A3A8F70F0210DB7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235878.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_235878.jpg" />
 </div>
 
 
@@ -441,7 +465,7 @@ magnet:?xt=urn:btih:3A44972D1F9D05D1B565DC0DE0A82A33A763B513
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236215.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236215.jpg" />
 </div>
 
 
@@ -466,7 +490,7 @@ SMASH! Юные супергерои / S.M.A.S.H! (2022) WEBRip [H.264/1080p] (�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237651.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237651.jpg" />
 </div>
 
 
@@ -490,7 +514,7 @@ magnet:?xt=urn:btih:3DA5384C55098B461B3AA6BE18F8E686638E916D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238942.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238942.jpg" />
 </div>
 
 
@@ -514,7 +538,7 @@ magnet:?xt=urn:btih:667D4DBDB8368DF20651D98140A38F4BD793FD47
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239664.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239664.jpg" />
 </div>
 
 
@@ -538,7 +562,7 @@ magnet:?xt=urn:btih:FA2D3F41A3D10C01FD34BCF98D23D39DCD7E38E8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240032.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240032.jpg" />
 </div>
 
 
@@ -562,7 +586,7 @@ magnet:?xt=urn:btih:735F99880959652215E7410FAFA7D65D47112136
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240163.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240163.jpg" />
 </div>
 
 
@@ -586,7 +610,7 @@ magnet:?xt=urn:btih:9F0FCFDDEF5482353324E3D30C37135714209E2B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241146.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241146.jpg" />
 </div>
 
 
@@ -597,30 +621,6 @@ magnet:?xt=urn:btih:9F0FCFDDEF5482353324E3D30C37135714209E2B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E8F290AFC3B3C436BE400C4AB9961934A3B7423
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543510   (241527) от 15.04.2022
-
-Чип и Дейл спешат на помощь / Chip and Dale Rescue Rangers (1989) BDRip [H.264/1080p] (Сезон 1-3, серии 65 из 65)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрый диснеевский мультсериал о похождениях команды бескорыстных, весёлых спасателей, всегда готовых выручить из беды каждого, кто в этом нуждается, получил название «Чип и Дейл спешат на помощь». Главные герои мультсериала, два весёлых бурундука, ещё в самой первой серии неожиданно находят друзей и единомышленников, пополнивших их собственную команду спасателей. (   Читать дальше...   )Производство: США, Disney Television AnimationЖанр: Рисованная анимация, Детский, Приключения, КомедияПеревод: Дублированный (часть "ОРТ", часть "Невафильм")Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~ серия по 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FA6EE289621FD6B00F4A6D808015E6522EEF9C
 ```
 
 

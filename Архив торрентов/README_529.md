@@ -6,7 +6,7 @@ WinSCP 6.3.1 Build 14821 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116208.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Image Uploader 1.4.0 Build 5129 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116212.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Native Instruments Kontakt 7 for Mac v.7.8.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116213.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ ExamDiff Pro Master Edition 14.0.1.24 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116215.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ LibreOffice 7.6.5.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116216.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Opera One 107.0.5045.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116220.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ USB Device Tree Viewer 4.0.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116222.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Light Image Resizer 6.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116224.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ XnView MP 1.6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116226.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Wise Force Deleter 1.5.5.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116228.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Floorp Browser 11.10.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116231.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Light Image Resizer 6.2.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116232.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VueScan Pro 9.8.27 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116234.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ KMPlayer 2024.2.22.14 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116242.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ CrossOver 24.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116243.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.5 Build 7 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116261.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Adobe Photoshop 2024 25.5.0.375 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116268.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Total Commander 11.03 MAX-Pack 2024.02.21 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116275.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Total Commander 11.03 Extended 24.2 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116293.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ LEX LIVE 10 RC FIX 23 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116300.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Adobe Photoshop Lightroom Classic 2024 13.2.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116303.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Adobe Photoshop 2024 25.5.0.375 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116307.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Adobe Photoshop 2024 25.5.0.375 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116313.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ doPDF 11.9.440 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116354.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Lucky Patcher 11.2.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116356.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ YT Downloader 9.6.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116357.jpg" />
 </div>
 
 

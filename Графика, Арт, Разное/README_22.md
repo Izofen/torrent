@@ -1,3 +1,76 @@
+###  Публикация: 1594598   (177631) от 01.12.2022
+
+Картинки - Американские Индейцы [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки в жанре американские индейцы.Формат: JPGРазрешение файлов: 1440х1920-1920х1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6701DE35822B7369D998A518A9A678D42885DAA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428867   (177946) от 04.12.2020
+
+Фотография - ArtStation - Grafit Studio - 500+ Clothing Textures Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисовать одежду может быть очень трудным, особенно если вы хотите добиться подлинного внешнего вида. Мы начинаем новую серию, ориентируясь на различную одежду, фактуры и материалы. Если вы хотите изучить как драпировка, складки или волосы движутся вместе с персонажем - изучите эти фотографии! Мы также включили различные варианты освещения.
+Этот пакет фото референсов (   Читать дальше...   )Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA3BF2796FB5699A36E486B70B5932C2703D9CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428701   (177961) от 04.12.2020
+
+Фотография - ArtStation - Grafit Studio - 700+ Warrior & Fairy Character Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177961.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все дело в контрасте" - подумали мы, когда выпустили этот комплект фотографий в костюмах. Этот пакет включает в себя более 700 фотографий с высоким разрешением с совершенно разными, но одинаково эпическими персонажами.Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3716B3BC4A3377FA4967104ED42EC84A108FF867
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593984   (179018) от 29.11.2022
 
 Иконки - UI8 - 3D Winter [PNG, BLEND]
@@ -6,7 +79,7 @@
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179018.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179018.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:678C830152E1830F1B69AAE908FA066F2502BE91
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179069.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179069.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:8A564D7D35EB9F2C2EDB030C64E5DC0E083427E9
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179091.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179091.jpg" />
 </div>
 
 
@@ -70,6 +143,30 @@ magnet:?xt=urn:btih:82870C3BEA87EE15CBAB8D572BDC2CD9652B0997
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428449   (179599) от 02.12.2020
+
+Фотография - ArtStation - Satine Zillah - Portraits Photo Reference Pack [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179599.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом пакете вы найдете различные типы лиц, эмоций, текстур и освещения. Вы можете использовать его для своей художественной практики, обложек книг, комиксов и т. д.Формат: JPGРазрешение файлов: 1841x3000 - 3000x2996
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D5029E1A59B69B657706E55F044D6DEB18EFD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593491   (180246) от 27.11.2022
 
 Иконки - UI8 - 3D Medical Icons set [FIG, PNG, PSD, BLEND]
@@ -78,7 +175,7 @@ magnet:?xt=urn:btih:82870C3BEA87EE15CBAB8D572BDC2CD9652B0997
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180246.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180246.jpg" />
 </div>
 
 
@@ -102,7 +199,7 @@ magnet:?xt=urn:btih:55E10C0B72CBF975B65F403315FB99E24CDF7E26
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184950.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184950.jpg" />
 </div>
 
 
@@ -126,7 +223,7 @@ magnet:?xt=urn:btih:760349B4675B003874EA62489D15D39F8B69B1F4
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186354.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186354.jpg" />
 </div>
 
 
@@ -152,7 +249,7 @@ magnet:?xt=urn:btih:A25B9F45B8D8BAEBFC82F79CA6CD61B4A3DBF4FC
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_187020.jpg" />
 </div>
 
 
@@ -181,7 +278,7 @@ magnet:?xt=urn:btih:D0C547EAB78F945A7FB0E977306D3FA95BC43227
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187315.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187315.jpg" />
 </div>
 
 
@@ -206,7 +303,7 @@ magnet:?xt=urn:btih:000D7DB6C45F65D1F2E57D092F03585F578C5E1B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187921.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187921.jpg" />
 </div>
 
 
@@ -230,7 +327,7 @@ magnet:?xt=urn:btih:D191616D00BD98FB97C0837A559E4CD18E1805C0
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191131.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191131.jpg" />
 </div>
 
 
@@ -255,7 +352,7 @@ magnet:?xt=urn:btih:4FA61E75AF47E615C087F9B80DA71390A8B7AD22
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192485.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192485.jpg" />
 </div>
 
 
@@ -279,7 +376,7 @@ magnet:?xt=urn:btih:C013A0FE6FC67172D51EF9EEAAD5CC1181F4CA1A
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193595.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193595.jpg" />
 </div>
 
 
@@ -303,7 +400,7 @@ magnet:?xt=urn:btih:96C111A87A886549440DB97D2F635BA10F50A506
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193598.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193598.jpg" />
 </div>
 
 
@@ -327,7 +424,7 @@ magnet:?xt=urn:btih:BF1FACFF612FAA30083CCBC517512971D5392D73
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194278.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194278.jpg" />
 </div>
 
 
@@ -351,7 +448,7 @@ magnet:?xt=urn:btih:7C5010B9DA9434E0428AD643EF74861FDD87ED83
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195103.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195103.jpg" />
 </div>
 
 
@@ -379,7 +476,7 @@ magnet:?xt=urn:btih:049C71E503BC9D3263C10C57CC1565181AA3508F
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196434.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196434.jpg" />
 </div>
 
 
@@ -408,7 +505,7 @@ magnet:?xt=urn:btih:73C5BE67723AC4119ED3201D9C66222EE2505BE8
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196981.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196981.jpg" />
 </div>
 
 
@@ -436,7 +533,7 @@ magnet:?xt=urn:btih:ED5F6B85656B6D6490BFA618EB38F78272958B53
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197902.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197902.jpg" />
 </div>
 
 
@@ -460,7 +557,7 @@ magnet:?xt=urn:btih:5DE08FC53ADB4B688637D55E824D0627197FCBF8
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198037.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_198037.jpg" />
 </div>
 
 
@@ -484,7 +581,7 @@ magnet:?xt=urn:btih:B2F3384480C3A7F58CDDE467F0EE4D6029A80684
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198082.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198082.jpg" />
 </div>
 
 
@@ -508,7 +605,7 @@ magnet:?xt=urn:btih:68B80A0F4CE44F2193071CB611591084301F7456
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198094.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198094.jpg" />
 </div>
 
 
@@ -532,7 +629,7 @@ magnet:?xt=urn:btih:7800A0EFD98CA241BDC188501B4338FCC37A23A0
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198108.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198108.jpg" />
 </div>
 
 
@@ -543,102 +640,6 @@ magnet:?xt=urn:btih:7800A0EFD98CA241BDC188501B4338FCC37A23A0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:422BC3499BC5B03CA8C443BB2A96D6ACF28AC229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634975   (198116) от 23.05.2023
-
-Иконки - 3D Gym and Fitness Icon Vol 2 [BLEND, PNG, GLTF]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновите свой проект с помощью этих 3D-иконок Gym and Fitness, созданных с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру блендера, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNG, GLTFРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCF26837DFE3FABA0AAC754C6675D6E9A08E768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634971   (198120) от 23.05.2023
-
-Иконки - 3D Gym and Fitness Icon Vol 1 [BLEND, PNG, GLTF]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновите свой проект с помощью этих 3D-иконок Gym and Fitness, созданных с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру блендера, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNG, GLTFРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B900B71BE9387C329A5FBCF8F2ACC98AE94B983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633839   (198283) от 17.05.2023
-
-Иконки - 3D Cyber Security Icon [BLEND, PNG, GLTF, OBJ, FBX]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшите свое мобильное приложение, UI/UX и проекты веб-дизайна с помощью 3D-иконок «Значки кибербезопасности», добавив в свой дизайн уникальный и привлекательный элемент.Формат: BLEND, PNG, GLTF, OBJ, FBXРазрешение файлов: 2000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5832134D157920C832C22C8C20878C182C980FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633622   (198316) от 16.05.2023
-
-Иконки - Рrofеssiоn 3D Аvаtаrs [BLEND, PNG, OBJ, PSD]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аvаtаr Рrofеssiоn 3D Icon Pack - это пакет аватаров премиум-класса, который вы можете использовать для своего дизайна, анимации, веб-дизайна, дизайна UI/UX, презентаций и многого другого.Формат: BLEND, PNG, OBJ, PSDРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1ED0F08A011709B4178774D53D5E50195AFD4E
 ```
 
 

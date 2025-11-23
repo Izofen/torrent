@@ -1,3 +1,80 @@
+###  Публикация: 480761   (87480) от 09.04.2012
+
+Гэвин Кеннеди | Договориться можно обо всем! Как добиваться максимума в любых переговорах [2008] [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гэвин Кеннеди - профессор, основатель собственной концепции переговорного процесса, ведущий специалист в мире по переговорам. В качестве консультанта сотрудничал с рядом ведущих мировых компаний, а также правительственными структурами разных стран. Автор 11 книг о переговорах.
+
+Перед вами — настоящая библия переговорщика, в которой шаг за шагом раскрываются основные принципы переговорного процесса, стратегические подходы и тактические приемы. Автор рассказывает о психологических ловушках и ошибках в расстановке приоритетов, дает примеры катастрофических просчетов и ситуаций, которые еще можно исправить.
+
+Работая над заданиями автора, вы не раз поймаете себя на том, что поначалу пробуете решить их, руководствуясь привычными, «накатанными» методами — а они-то, как убедительно доказывает автор, чаще всего и ведут к поражению. Гэвин Кеннеди разрушает распространенные стереотипы с абсолютной безжалостностью, показывая, насколько глубоко сидят в нас давно усвоенные, но, к сожалению, неправильные понятия и принципы переговорного (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B55ADD1991DF81CFEDD48BDF08B338D098EB76F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480397   (87481) от 09.04.2012
+
+Красная шапочка. Математика для дошкольников [4+] (P) [Ru] (2007)
+
+>>Детские PC Игры
+>>Развивающие Игры для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87481.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Если долго-долго-долго… если долго по дорожке…» В Африку мы пока не собираемся, а вот по сказочным дорожкам побегаем и даже выучим математику – в компании очаровательной Красной Шапочки! Вместе с ней мы будем чинить мост, помогать всем обитателям сказочного леса, а также делать много других добрых дел — и все это при помощи математики! Эта чудесная детская игра, выполненная в высококачественной трехмерной графике, разработанная на основе методических материалов, поможет малышам от 4 лет получить и закрепить знания, необходимые для поступления в школу.Тип издания: ПираткаЖанр: Детская/ОбучающаяЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5FCBE743886EF9013BF1AC273683771323C16B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480493   (87482) от 09.04.2012
+
+Русская игра (2007) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация пьесы Николая Гоголя «Игроки». Итальянского карточного шулера высшего пилотажа Лукино Форца нашли его многочисленные кредиторы и заставили подписать закладную на всё, что у него есть. Если до определенного срока он не соберет всю долговую сумму, в Италии его будет ждать тюрьма.
+Форца отправляется на родину умершей жены — в Россию, чтобы выиграть там огромные деньги, расплатиться с долгами, тем самым спасти себя и своё имущество. На всё про всё у него неделя. К тому моменту, когда судьба сводит его с компанией развеселых русских шулеров (Швохнев, Кугель и Утешительный), он уже заработал при помощи крапленых карт 80 тысяч. Они признают друг в друге «мастеров своего дела» и договариваются работать вместе…Жанр: КомедияРежиссер: Павел ЧухрайАктеры: Сергей Маковецкий, Сергей Гармаш, Андрей Мерзликин, Джулиано Ди Капуа, Авангард Леонтьев, Дмитрий Высоцкий, Игнат АкрачковПродолжительность: 01:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C70FC6E531929FF757240621C481EADA6217C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480388   (87486) от 09.04.2012
 
 Command & Conquer 3: Tiberium Wars Kane Edition + Kane's Wrath [Multi3] (L) 2007-2008
@@ -6,7 +83,7 @@ Command & Conquer 3: Tiberium Wars Kane Edition + Kane's Wrath [Multi3] (L) 2007
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87486.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ The Elder Scrolls IV: Oblivion Association [Ru] (RePack/Mod/0.7) 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87487.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ magnet:?xt=urn:btih:11A1F38CE4155920EF8F99E2178DC03E68654A6F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87488.jpg" />
 </div>
 
 
@@ -87,7 +164,7 @@ magnet:?xt=urn:btih:11A1F38CE4155920EF8F99E2178DC03E68654A6F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87490.jpg" />
 </div>
 
 
@@ -111,7 +188,7 @@ VA - Disco Remix DJ (2012) [MP3|320 kbps]<Disco | Dance | Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87492.jpg" />
 </div>
 
 
@@ -144,7 +221,7 @@ Windows 7 SP1 x32 x64 Combined Images By StartSoft v 18.4.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87493.jpg" />
 </div>
 
 
@@ -168,7 +245,7 @@ Chaser / Chaser: Вспомнить все [Ru] (RePack) 2003 | Pilotus
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87495.jpg" />
 </div>
 
 
@@ -193,7 +270,7 @@ Chaser / Chaser: Вспомнить все [Ru] (RePack) 2003 | Pilotus
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87496.jpg" />
 </div>
 
 
@@ -221,7 +298,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87497.jpg" />
 </div>
 
 
@@ -246,7 +323,7 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87498.jpg" />
 </div>
 
 
@@ -272,7 +349,7 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87499.jpg" />
 </div>
 
 
@@ -296,7 +373,7 @@ magnet:?xt=urn:btih:F6F257ABE11FCB71501D4C51A1641585915A04B9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87500.jpg" />
 </div>
 
 
@@ -321,7 +398,7 @@ Cannon Fodder 3 [Ru] (RePack) 2012 l Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87501.jpg" />
 </div>
 
 
@@ -347,7 +424,7 @@ magnet:?xt=urn:btih:5817D0D686273AA7316FFEAF088FC4560378FF3A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87502.jpg" />
 </div>
 
 
@@ -377,7 +454,7 @@ magnet:?xt=urn:btih:602959FEA2274F78C93DF1E5C1F6597C49A108B4
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87504.jpg" />
 </div>
 
 
@@ -401,7 +478,7 @@ magnet:?xt=urn:btih:602959FEA2274F78C93DF1E5C1F6597C49A108B4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87505.jpg" />
 </div>
 
 
@@ -425,7 +502,7 @@ Michel Teló - Na Balada (2011) [MP3|320 кб/с]<Pop Folk / Sertanejo / World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87506.jpg" />
 </div>
 
 
@@ -458,7 +535,7 @@ magnet:?xt=urn:btih:9415CF1EA6D76802DCFAA133426BA20E85836025
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87508.jpg" />
 </div>
 
 
@@ -482,7 +559,7 @@ Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87513.jpg" />
 </div>
 
 
@@ -515,7 +592,7 @@ Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87514.jpg" />
 </div>
 
 
@@ -541,7 +618,7 @@ magnet:?xt=urn:btih:7308A2D337E81D9C84EC7A620F598BCCDC2CBD47
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87518.jpg" />
 </div>
 
 
@@ -566,7 +643,7 @@ magnet:?xt=urn:btih:5A20B3D21121587DE217A501A9FA84CE1FCECDA4
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87521.jpg" />
 </div>
 
 
@@ -592,7 +669,7 @@ magnet:?xt=urn:btih:B37FC82D7FA842F56A6897BD4A0F0D149110AF31
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87522.jpg" />
 </div>
 
 
@@ -603,87 +680,6 @@ magnet:?xt=urn:btih:B37FC82D7FA842F56A6897BD4A0F0D149110AF31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB75F0F9DDC7F3F7E95924310A12010FE7D804B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480978   (87524) от 10.04.2012
-
-Случай в гостинице (1967) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: драма, спектакльРежиссер: Александр ПрошкинПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FC4F39F433E5515249B9ED0FD258665A414A15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480824   (87528) от 10.04.2012
-
-Граница / Gränsen (2011) DVD9
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87528.jpg" />
-</div>
-
-
-###  Подробнее
-
-События фильма разыгрываются в декабре 1942 г. в Вермланде на шведско-норвежской границе. Швеция стоит перед угрозой нападения нацистской Германии. Двое молодых солдат оставляют свой пост на контрольно-пропускном пункте N 83, чтобы посмотреть на немцев, но случайно оказываются на территории Норвегии, оккупированной нацистами. На следующий день командир КПП лейтенант Арон Стенстрём узнаёт, что один из пропавших солдат его брат Свен. С группой своих солдат он отправляется через границу, чтобы спасти брата.Жанр: Драма, Боевик, ВоенныйРежиссер: Рикард ХольмАктеры: Андре Шёберг, Анти Рейни, Мари Робертсон, Бьёрн Сундквист, Мартин Валльстрём, Юхан Хеденберг, Йенс Хультен, Юнас Кальстрём, Хенрик НурленПеревод: Одноголосый закадровыйЯзык субтитров: английскийПродолжительность: 01:56:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480877   (87529) от 10.04.2012
-
-Annalisa - Mentre Tutto Cambia (2012) [MP3|320 кб/с]<Italian Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza Riserva
-02. Non Cambiare Mai
-03. Lucciole
-04. Per Una Notte O Per Sempre
-05. Tutto Sommato
-06. Bolle
-07. Ottovolante
-08. Ancora Un'altra Volta
-09. Tra Due Minuti E' Primavera
-10. Per Te(   Читать дальше...   )Жанр: Italian PopПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
 ```
 
 

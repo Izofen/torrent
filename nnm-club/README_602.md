@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15962.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15963.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:E6D2CF6257945025FE1CB3CD7DA01D7F4D3F3146
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15964.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:925739E4A91F57E05C972D524F909F82C7A66602
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15965.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:52E53CF568FDB945F88CCB57ECF37B2CA50A7C2A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15966.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Grim Tales 26: Prisoners of the Past / Страшные сказки 26: Узн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15967.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:248CF86FBD4DEB2C114117FEAF02D6D89CCD0D5B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15968.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_15968.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:C3F83745BCDB146B35A3488630A0BCC0621FD474
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15969.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_15969.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B9B66D096E0BA596C6407116811927568049A1B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15970.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_15970.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:277AC96B1963E80140FC8384EF310BF5F7596CFD
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15971.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_15971.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0/dlc) Repack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15972.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:AF32846399DC5B7F04107E980A7134371E0064B2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15973.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MetaProducts Offline Explorer Enterprise 8.7.0.4996 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15974.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:B0835601BFC7292CB21FF8F87F6BD9D0CC8EF5F1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15975.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15976.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:51F08526AD3CCADF749BF329314D2906B934A5AD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15977.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C9DC40704829D6C78D9EC8D318B49863D371B665
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15978.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Windows Manager 2.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15979.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15980.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:5AE7EDA66C8F2E7E0402A14AAE2BA9962835C3B5
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15981.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:F7BD8C1257E917678E02775D90B6CC2D3C2EDBEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15982.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ CGMA, Yves Yumol | Absolute Beginners (2020) WEB-DL [EN / EN, RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15983.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:80E6C3843D83CC7C5A0F3776550989F64AD6399E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15984.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:80E6C3843D83CC7C5A0F3776550989F64AD6399E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15985.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:5D94D8BDE9B63294859705F51912ABB18B19BFC9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15986.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:8A5620D95DC2E7DB7445D3F1A90D01A2EED91579
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15987.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1836529   (253077) от 11.11.2025
+
+qBittorrent 5.1.3 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_253077.jpg" />
+</div>
+
+
+###  Подробнее
+
+qBittorrent - абсолютно бесплатная, без рекламы, мощная и простая в работе программа.
+Несмотря на кажущуюся простоту, она обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация по IP, удаленное управление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28758B149379347F0C8BF0699983807C87511FA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836500   (253104) от 11.11.2025
+
+YT Downloader 9.18.2 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_253104.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDBB99C0A962D1626594E3A25ABF68786BDD527
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836506   (253108) от 11.11.2025
+
+4K Video Downloader+ 25.4.1.0255 beta + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_253108.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F57A19AF604FD1D8DE8BC61B672B827C06C6BAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836503   (253111) от 11.11.2025
 
 MyLanViewer 6.6.5 + Portable [Multi/Ru]
@@ -6,7 +79,7 @@ MyLanViewer 6.6.5 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253111.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253111.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ UltraSearch Professional 4.8.5.1185 + Free Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254076.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254076.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Office Tool Plus 10.28.29.0 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254092.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254092.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ LibreOffice 25.8.3.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254094.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Microsoft Activation Scripts (MAS) 3.8 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254097.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254097.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ MediaHuman YouTube Downloader 3.9.18 (1111) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254129.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254129.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254183.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ O&O Defrag Professional + Server 30.5 Build 1205 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254185.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254185.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ Windows Manager 2.2.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254186.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254186.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ IObit Driver Booster Pro 13.1.0.171 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254187.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254187.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ PIDKey Lite 1.64.4 b51 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254191.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254191.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ MediaHuman YouTube Downloader 3.9.18 (1111) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254224.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254224.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ Google Chrome 142.0.7444.163 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254234.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254234.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ VueScan Pro 9.8.49 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254236.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254236.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254239.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254239.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ qBittorrent 5.1.3 Portable by stalkerok (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254316.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ Wise Disk Cleaner 11.2.8.848 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254343.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254343.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ Firefox Browser 145.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254363.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ Radmin VPN 1.3.4570.5 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254400.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254400.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ magnet:?xt=urn:btih:ED60F836D9FADE1EB160E8AF4547FDB6F9555D4D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254489.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ EveryLang PRO 5.9 Portable by conservator [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254631.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254631.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ Advanced IP Scanner 2.5 Build 4594.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254643.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254643.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ MSI Afterburner 4.6.5 Build 16370 Final [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254724.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254724.jpg" />
 </div>
 
 
@@ -552,79 +625,6 @@ MSI Afterburner - утилита для разгона видеокарт люб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:094B3C69FFFCFDE46AEBE57886B244AD369ED4D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625732   (255293) от 11.04.2023
-
-True Launch Bar 8.0 + portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глядя на множество ярлыков на рабочем столе, трудно найти нужный? Вы часто ищете ярлык для запуска, тратя на это свое время? True Launch Bar поможет облегчить ваши повседневные задачи, решив многие проблемы, связанные с быстрым доступом к содержимому вашего ПК!
-Все тот же рабочий стол Windows, который вы знаете и любите, но с True Launch Bar рабочее пространство (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45FB4C55808CD801E0F6349A690415724766F6E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836933   (255577) от 13.11.2025
-
-MassTube Ultra 21.2.1.179 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255577.jpg" />
-</div>
-
-
-###  Подробнее
-
-MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C997F4B66AD49E0A9406945577946409F19F2157
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836916   (255586) от 13.11.2025
-
-AnyDesk 9.6.5 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B6A2F250CC3C55BC9BBDA783197794E9305045
 ```
 
 

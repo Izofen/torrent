@@ -6,7 +6,7 @@ Rainbow Kitten Surprise - Love Hate Music Box (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109634.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sublime with Rome - Sublime with Rome (2024) [FLAC|Lossless|WEB-DL|tracks] <Regg
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109635.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fivebyfive - Phuck Around Phind Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109638.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hot Water Music - VOWS (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109639.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Demersal - Demersal (2024) [FLAC|Lossless|WEB-DL|tracks] <Emotional Hardcore, Sc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109726.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Shannon & The Clams - The Moon Is In The Wrong Place (2024) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109758.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Marching Band - Is It Too Sharp? (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109969.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Veer Union - Life Support 1&2 (2013-2023) (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109973.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hana Vu - Romanticism (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109996.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kee Avil - Spine (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Rock pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109998.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Marisa And The Moths - 3 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110028.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cold Years - A Different Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110070.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Keith Wallen - Infinity Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110093.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Contention - Artillery From Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalli
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110159.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jolly Jackers - Welcome to the Grind (2024) [FLAC|Lossless|WEB-DL|tracks] <Celti
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110217.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Half Past Two - Talk Is Killing Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska-Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110654.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Call Me Malcolm - Echoes and Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110671.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ends With A Bullet - The Game (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111061.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Escape The Fate - Out Of The Shadows 2.0 (2023) Deluxe Edition, 2024, Big Noise 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111162.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Belmont - Liminal (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111223.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Letters Sent Home - Forever Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111242.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Whalefall - Foxblood (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111252.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6609F0781A721DEB429C5721B6A52B05FA57EB89
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112028.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mannequin Pussy - I Got Heaven (2024) [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112186.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112800.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Autopilot - It Might Be Gone Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113392.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152850.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hammerfall - Live! Against The World (2020) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152960.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:32E3012457584CC6012E58C555A399E1849362D7
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153164.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:16F21EDBA2632A9A87ABD47320CB1743FD0D4103
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153577.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VK под шубой (2022) WEBRip [H.246/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153708.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:01271E718EF8953279EE2569E1080767A8CBA92E
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153820.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:821ADBD33324750A772C9677A2CC4206EEA1EC3A
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153879.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:79BE998A2F14C6A7987664764EF70A44CBFAFE5C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154335.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Unheilig - Lichter Der Stadt Live (2012) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154382.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:5F93BD181C4FDBD6A9FF303C4BD9C9B39294BC20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154525.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155074.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:5F9D81CA5ABFAD45B132959531D7C9782BC94563
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155134.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:1DD3061E58B9A8B4B38209CC43A76CFCAA0B2949
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155213.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155442.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:CACECF52AEF06CF9461E7444B8CE61271FBF3910
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155480.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:34125911F51437D237D4C21B98FE1E7E88E28D8C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155605.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:FF265F9EAC33B15C9A62D519AC3B2934E24237FA
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155774.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155824.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ MTV Video Music Awards 2015 (2015) HDTVRip[H.264-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155867.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D84804C2E719608629427E1E59F8E8FE6E45ABE0
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155881.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C59013B662BC4335CE5E052065192D0CDD77CDF9
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155903.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155933.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155964.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Europakonzert 2015 from Athens BDRip [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156189.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156220.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:FD95242E17C393C1EF50FA1552E26A4AEEA4B866
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156383.jpg" />
 </div>
 
 

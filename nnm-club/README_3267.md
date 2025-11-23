@@ -1,3 +1,81 @@
+###  Публикация: 1747693   (104624) от 07.09.2024
+
+Entering Polaris - 5 Albums (2018-2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ere We Sleep Under The Soil (Piano Version) [00:05:06]
+02. Counting Hours (Piano Version) [00:04:47]
+03. Glacier (Piano Version) [00:04:42]
+04. Gordian Pristine (Piano Version) [00:04:43](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 5 CD, 04:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5058B7D8799AFE7AB9DBF7625BCCA35ACF9756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747813   (104625) от 07.09.2024
+
+Ты должен верить / You Gotta Believe (2024) TS [H.264] [MVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_104625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда неудачников из Малой бейсбольной лиги посвящает свой сезон умирающему отцу игрока. При этом они совершают невозможное - выходят в финал Мировой серии в игре, которая мгновенно стала классикой ESPN.Производство: США / Media Finance Capital, Santa Rita Film Co., Well GoЖанр: семейный, спортРежиссер: Тай РобертсАктеры: Сара Гадон, Молли Паркер, Люк Уилсон, Грег Кинниэр, Патрик Ренна, Лью Темпл, Этьен Келлиси, Michael Cash, Джейкоб Соли, Николас ФрайПеревод: Профессиональный многоголосый (RGB)Язык озвучки: РусскийСубтитры: Русские (Forced, на песни)Продолжительность: 01:38:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747411   (104626) от 07.09.2024
+
+VA - Levitated - Emotional Trance Vol. 4 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Surok - Behind Me (Extended Mix) [6:01]
+02. Victor Special - Brightness (Extended Mix) [7:30]
+03. Afternova - Together We Are Strong (Manuel Rocca Remix) [6:44]
+04. David Surok - Lotus (Extended Mix) [8:09](   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157108A8B24704CD1BE862FCD062EF2C22672694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747915   (104627) от 07.09.2024
 
 Живая еда с Сергеем Малозёмовым (07.09.2024) WEBRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104627.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ magnet:?xt=urn:btih:8DBEF26DB33928BC933E2B04BD3D47B120A688BE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104628.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ Fatima - Eerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104629.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ magnet:?xt=urn:btih:0735AEF25E5D3DE7E5CB2DE3DC0FF6924DA70139
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104630.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ magnet:?xt=urn:btih:D33FD612DE21021B917B0383D20D5F17F1E4F42F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104631.jpg" />
 </div>
 
 
@@ -130,7 +208,7 @@ magnet:?xt=urn:btih:720056FD817252D25400C85C1FFA7392E0034D33
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104632.jpg" />
 </div>
 
 
@@ -154,7 +232,7 @@ magnet:?xt=urn:btih:CE2A52A4394C7C9DC9A6A6BDEDBD5E6F0AE00D05
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104633.jpg" />
 </div>
 
 
@@ -180,7 +258,7 @@ magnet:?xt=urn:btih:A5ECCF8E049B9745682F1868018C6ADE3AB92A34
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104634.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ magnet:?xt=urn:btih:5D9D890B6D71BF2398805A4DD31372920C32CF82
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104635.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ magnet:?xt=urn:btih:1A0BF8F04AAB112D02CC4AF413D5A986E6CDC953
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104636.jpg" />
 </div>
 
 
@@ -256,7 +334,7 @@ Black Sun - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104637.jpg" />
 </div>
 
 
@@ -283,7 +361,7 @@ VA - DJ Hits 350 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104638.jpg" />
 </div>
 
 
@@ -310,7 +388,7 @@ Abyss Evolution - Первый (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104639.jpg" />
 </div>
 
 
@@ -337,7 +415,7 @@ Ashwind - Холодные Камни (2024) [MP3|320 Kbps] <Melodic Doom, Death
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104640.jpg" />
 </div>
 
 
@@ -364,7 +442,7 @@ VA - DJ Hits Vol. 345 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104641.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ VA - DJ Hits 333 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104642.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ magnet:?xt=urn:btih:84F064BEBB4716933A4E8563C0BC501E36248393
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104643.jpg" />
 </div>
 
 
@@ -443,7 +521,7 @@ Banco De Gaia - Altered Realities, Vol. 1-2 (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104644.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ magnet:?xt=urn:btih:A3FFDF1F5DFB77F9891636FF45E2A0A6468E225A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104645.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ Camila Cabello - C,XOXO (2024) Magic City Edition [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104646.jpg" />
 </div>
 
 
@@ -521,7 +599,7 @@ Negative - Studio Albums (6 releases) (2003-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104647.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ VA - Mega Fitness Compilation For Weight Lifting 2024 Best Songs 128 Bpm [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104648.jpg" />
 </div>
 
 
@@ -575,7 +653,7 @@ VA - Ancient Egyptian Deep House (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Fo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104649.jpg" />
 </div>
 
 
@@ -589,82 +667,6 @@ VA - Ancient Egyptian Deep House (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45CEF127932AA1EA6A9E9BCDCA1F1FAA7C58338C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747988   (104650) от 07.09.2024
-
-Leathers - Ultraviolet (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwave / Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultraviolet [00:03:05]
-02. Highrise [00:03:27]
-03. Crash [00:03:25]
-04. Fascination [00:03:33](   Читать дальше...   )Жанр: Darkwave / SynthpopПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0E25080A0DE1522B6D0B10E821152A98DE524B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747890   (104651) от 07.09.2024
-
-Маленький лес / Liteul poreseuteu (2018) HDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104651.jpg" />
-</div>
-
-
-###  Подробнее
-
-История молодой девушки, вернувшейся в дом своего детства, в традиционную корейскую деревню, после отъезда в большой город в погоне за тем, что оказалось неуловимой мечтой... "Маленький лес" её матери, множество способов, с помощью которых мать-одиночка успешно обустроила дом для своего горячо любимого ребёнка, раскрываются длинной чередой любовно набросанных (   Читать дальше...   )Производство: Южная Корея / Megabox Plus M, Watermelon Pictures Co., Ltd.Жанр: драма, комедияРежиссер: Сун Ре ИмАктеры: Тэ Ри Ким, Чжун Ёль Рю, Со Ри Мун, Ки Чжу Чжин, Вон Сан Пак, Чжун Вон Чон (II), Сан Чжин Чжон, Сон Док ХонПеревод: любительский многоголосый, любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (по переводу ФСГ 'Зиппер), английскиеПродолжительность: 01:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2327DE5776ED59B063B16E5ECEA2146CB3B1092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747835   (104652) от 07.09.2024
-
-XYplorer 26.40.0000 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104652.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer - продвинутый файловый менеджер, который внешне напоминает стандартный Проводник Windows, но имеет множество дополнительных функций и инструментов для удобной работы с файлами. Особенностью этого менеджера является поддержка мультивкладок - откройте столько окошек, сколько Вам нужно, и быстро переключайтесь между ними.
-Приложение имеет гибкие настройки и (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978D5BE9E56684025660660D06BBC76C042AE48F
 ```
 
 

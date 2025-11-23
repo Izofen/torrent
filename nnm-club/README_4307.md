@@ -1,3 +1,75 @@
+###  Публикация: 595005   (132536) от 28.12.2012
+
+Редьярд Киплинг | Собрание сочинений в 6 томах [2007] [DJVU]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джозеф Редьярд Киплинг - классик английской литературы, лауреат Нобелевской премии по литературе 1907 г., обязанный своей славой прежде всего романтике, которой овеяны его поэтические сборники; один из популярнейших английских писателей, оказавший сильное влияние на общественное мнение западных стран.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6210B371A8136E05C82727F634DB2884A387A2E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595105   (132537) от 28.12.2012
+
+VLC Media Player 2.0.6 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132537.jpg" />
+</div>
+
+
+###  Подробнее
+
+VLC Media Player - Представляет собой мощный медиацентр-проигрыватель все в одном. Одной из особенностей является возможность проигрывания практически любого типа потокового видео. Умеет также конвертировать и захватывать видео. Есть возможность установки видео в качестве обоев рабочего стола. Может быть использован в качестве сервера для трансляции потока по протоколам IPv4 или IPv6, при условии достаточной скорости сети. Проигрывает различные форматы файлов: MPEG-1, MPEG-2, MPEG-4, DivX, XviD, mp3, ogg и другие, обычные DVD и VCD диски. Не требует установки никаких дополнительных кодеков, так как все компоненты уже содержатся в нем.Название программы: VLC Media PlayerЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676506   (132538) от 03.12.2023
+
+Сверстницы (1959) DVDRip [H.264/1080p] [handmade upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три подруги-одноклассницы, Светлана, Татьяна и Кира, окончили школу. Скромная Татьяна поступила на лечебный факультет медицинского института, красавицу Киру приняли на актёрский факультет театрального училища, а озорной Светлане не удалось поступить в вуз, о чём она боится рассказать подругам. Девиз Светланы: жить в своё удовольствие, жить за счёт других, презрев (   Читать дальше...   )Производство: СССР, МосфильмЖанр: мелодрамаРежиссер: Василий ОрдынскийАктеры: Людмила Крылова, Лидия Федосеева-Шукшина, Маргарита Кошелева, Владимир Костин, Всеволод Сафонов, Кирилл Столяров, Владимир Корецкий, Сергей Вечеслов, Гарэн Жуковская, Николай БубновПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E46ABAEAF374427FF073B5684E494E4E4B93C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681640   (132540) от 03.12.2023
 
 Daniel Kordan | Photo Editing Masterclass (2023) PCRec [EN]
@@ -6,7 +78,7 @@ Daniel Kordan | Photo Editing Masterclass (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132540.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:C5F4172BE3A0CC4B32742338EEF42732C2344793
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132541.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ qBittorrent 4.6.2 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132542.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:F7424DFF0AC6B696234173CEB61E96CAE5603E9E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132543.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Paint.NET 5.0.12 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132544.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ OBDeleven VAG car diagnostics v0.76 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132545.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ The Three Tenors - The Three Tenors Christmas ( L Album di Natale ) (2000) [FLAC
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132546.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ Maxthon Browser 7.1.7.8000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132547.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ VA - Romantic Relaxing and Nostalgic Blues Music (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132549.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ magnet:?xt=urn:btih:69457AB884B635D2D67E3E30F2523535EC4D0F64
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132550.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ Nights Into Dreams [PS3] [USA] CFW 4.84 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132551.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ magnet:?xt=urn:btih:86A86BC64BB9A839ADCE51354225BD8BAA8B86DE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132552.jpg" />
 </div>
 
 
@@ -312,7 +384,7 @@ magnet:?xt=urn:btih:5ADDBF84CE10984A13C1733D3B943DBE28BA9F8D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132554.jpg" />
 </div>
 
 
@@ -338,7 +410,7 @@ magnet:?xt=urn:btih:6D390CB11284C3AAFC2AF5328DBC7C93280FA21A
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132555.jpg" />
 </div>
 
 
@@ -365,7 +437,7 @@ magnet:?xt=urn:btih:C1D6EEDABE1C19EF82ED0D9A644337BE996501F2
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132556.jpg" />
 </div>
 
 
@@ -389,7 +461,7 @@ magnet:?xt=urn:btih:37DF80170C133A4A0B9FA1C0AE9E3D01D8964F94
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132557.jpg" />
 </div>
 
 
@@ -413,7 +485,7 @@ magnet:?xt=urn:btih:F9B9EA3A15BE8EDEE3FF3C6B396C71978A8EC184
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132559.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ TeleInet 1.51 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132560.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ TeleInet - программа для просмотра телевизионны
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132561.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ magnet:?xt=urn:btih:498740DC9BCCCB3B4051C985A741A9C0F8BB0855
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132563.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ magnet:?xt=urn:btih:E914CD743151A87162E0FEDB4D3740D314292DCE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132565.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ magnet:?xt=urn:btih:BA41FBE2912D3E6878AE4BE1C278D577AF8A885F
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132567.jpg" />
 </div>
 
 
@@ -562,7 +634,7 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132568.jpg" />
 </div>
 
 
@@ -573,83 +645,6 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681484   (132569) от 03.12.2023
-
-Первый троллейбус (1963) DVBRip [H.264/1080p] [50fps] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132569.jpg" />
-</div>
-
-
-###  Подробнее
-
-После школы симпатичная девушка Света устраивается водителем троллейбуса, но вскоре по настоянию семьи решает уволиться, чтобы получить высшее образование. Пассажиры её маршрута, привыкшие к обществу девушки, решают во что бы то ни стало вернуть Свету в троллейбусный парк...Производство: СССР | Одесская киностудия им.М.ГорькогоЖанр: драма, мелодрамаРежиссер: Исидор АнненскийАктеры: Ирина Губанова, Лев Свердлин, Нина Сазонова, Александр Демьяненко, Олег Даль, Виктор Борцов, Нина Дорошина, Алексей Грибов, Георгий Вицин, Савелий КрамаровЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52C68DF2F3517318C0ECD735F6798D647327303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681507   (132571) от 03.12.2023
-
-Дэн Роэм | Сокрушительный питч в стиле поп-ап. Экспресс-подход к созданию презентации, которая продает, вдохновляет и поражает (2022) [EPUB, FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как убедить инвесторов вложить деньги в ваш стартап? Как доказать комиссии, что именно вы должны получить грант на обучение? Как отвадить родительский комитет собирать крупные суммы на «нужды класса»?
-
-С помощью сокрушительного питча в стиле поп-ап!
-(   Читать дальше...   )Жанр: Бизнес, Личная эффективностьИздательство: БомбораФормат: EPUB, FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794E3C219F4826DA79606B1A6C7A107DEDAB5E87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593542   (132573) от 28.12.2012
-
-Колосс Родосский / The Colossus of Rhodes / Il colosso di Rodi (1961) BDRip [H.264/720p] [50th Anniversary Edition]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит на острове Родос во II веке до нашей эры. На острове безраздельно царит тиран Ксеркс, окруженный льстивыми предателями-придворными. Немногие честные люди вынуждены скрываться, в противном случае их ожидает тюрьма.
-
-В это время на Родос приезжает афинянин Дарио и сразу оказывается вовлеченным в подготовку мятежа против Ксеркса, который (   Читать дальше...   )Производство: Франция, Италия, Испания / Cine-Produzioni Associate, ProcusaЖанр: драма, приключения, военный, историяРежиссер: Серджо ЛеонеАктеры: Рори Кэлхун, Леа Массари, Жорж Маршаль, Конрадо Сан Мартин, Анхел Аранда, Мэйбел Карр, Жорж Риго, Роберто Камардиль, Альваро Де Луна, Артур Кабре, Альфио Кальтабиано, Фернандо Кальзадо, Антонио Касас, Игнацио Дольче, Феликс ФернандесПеревод: МногоголосыйСубтитры: НетПродолжительность: 02:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEB40734174E63625C7464258A1ADBB9A6533FC
 ```
 
 

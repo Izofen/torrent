@@ -1,3 +1,177 @@
+###  Публикация: 1271591   (146094) от 25.12.2018
+
+Лучшие фильмы 2018 года: Выбор редакции КиноПоиска
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146094.jpg" />
+</div>
+
+
+###  Подробнее
+
+В список вошли фильмы, которые шли в российском прокате с 1 января 2018 года. При составлении рейтинга никто из сотрудников не пострадал (но мог).Как мы сделали эту подборку? Каждый сотрудник редакции выбрал 15 картин. Фильм, поставленный на первое место, получил 15 баллов, на второе — 14, и так далее. Мы посчитали, сколько получил каждый фильм, и сделали итоговый (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969623   (146095) от 27.12.2015
+
+Adobe After Effects CC 2015 (v13.6.1) RUS/ENG Update 2
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe After Effects CC 2015 - популярная программа для редактирования видео и динамических изображений, создания композиций, различных эффектов и анимации. Наиболее часто ее используют для обработки видеоматериалов (постпродакшн), создания музыкальных клипов, рекламных роликов, анимации, титров, а также множества других элементов, для которых необходимы цифровые (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC11FA72FFFF9A250E700D9CF9805CB01DA6212
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087527   (146096) от 27.12.2016
+
+Журнал | За рулем [Россия] №1 (1027) (январь 2017) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146096.jpg" />
+</div>
+
+
+###  Подробнее
+
+«За рулем» — популярный советский журнал об автомобилях и автомобилестроении. Первый номер вышел в апреле 1928 года, журнал издаётся по сей день. До 1989 года был единственным автомобильным периодическим изданием в СССР. Как всегда много информации из автомобильного и околоавтомобильного мира.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DB0942647221AB91B84FB82783BBB3782075A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348194   (146098) от 26.12.2019
+
+KAZKA - NIRVANA (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Випадок?
+02. Колишні
+03. Zemna
+04. Палала(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07514200EE33BD6D60ED237351D4637D01092230
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435305   (146099) от 27.12.2020
+
+Роберт Шекли | И это в нас заложено (1956-1991) [Сборник радиоспектаклей] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Шекли:- "Если бы человек всегда прислушивался к голосу разума, с ним никогда не происходило бы ничего интересного"
+«И это в нас заложено» — рассказ-притча о далекой планете, с которой вступает в контакт космический корабль с Земли. Столкновение различных цивилизаций приводит к самым неожиданным последствиям.
+Космический корабль вошел в атмосферу (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 02:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE4EAF6293879033FC0EDA5699A56318B4E1D87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678445   (146101) от 21.11.2023
+
+Газета | Невыдуманные истории №43 (396) (октябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146101.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярный журналИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE916E53AF28F2A5F2253FA20BDD5BB7D5F3029
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969481   (146102) от 27.12.2015
+
+Deadfall Adventures (2013) [Ru/En] (1.0.0.16352/dlc/tr) Repack =nemos= [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadfall Adventures – приключенческий FPS, действия которого разворачиваются в 1938 году. Игрокам предстоит выступить в роли путешественника Джеймса Ли Квотермейна, сопровождающего агента США, Дженнифер Гудвин, в египетский храм на поиски древнего артефакта «Сердце Атлантиды». Но не только американцы положили глаз на артефакт – немецкие оккультисты из Аненербе также (   Читать дальше...   )Тип издания: RepackРазработчик: The Farm 51Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EBD8BDD8F49FDB077882601E1FBFF235DE4042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348231   (146104) от 26.12.2019
 
 Журнал | Техника - молодежи №14 (2019) [PDF]
@@ -6,7 +180,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146104.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:78C113A93943E0B9BD63FCE23247392469508B39
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146105.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:5233AA23B56248AA1A705A2936893943FF3C46DA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146106.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ Command & Conquer Generals Zero Hour: World War II (2013) [Ru/En] (0.27) Repack/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146107.jpg" />
 </div>
 
 
@@ -102,7 +276,7 @@ magnet:?xt=urn:btih:78F97A7E57DEFA810EAC20C9F4765594239A2827
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146108.jpg" />
 </div>
 
 
@@ -126,7 +300,7 @@ magnet:?xt=urn:btih:7640B902E3D978A23BF044B1A19F9607B068CF33
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146110.jpg" />
 </div>
 
 
@@ -150,7 +324,7 @@ magnet:?xt=urn:btih:C4D7F35D9840B91B38076A9C6C41725A4A0B3753
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146111.jpg" />
 </div>
 
 
@@ -176,7 +350,7 @@ magnet:?xt=urn:btih:45C9ACFD883C4F60FD87E27174AB869033776489
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146112.jpg" />
 </div>
 
 
@@ -200,7 +374,7 @@ magnet:?xt=urn:btih:E035DFA872D183FED1900851BD48EF20458A7624
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146113.jpg" />
 </div>
 
 
@@ -224,7 +398,7 @@ Allegorithmic Substance Painter 2019.3.1 (build 3547) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146115.jpg" />
 </div>
 
 
@@ -248,7 +422,7 @@ BioShock Remastered (2016) [Multi] (1.0.122872) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146116.jpg" />
 </div>
 
 
@@ -272,7 +446,7 @@ magnet:?xt=urn:btih:321998D5A81D8D5DAFF6F1B00DA7A50F85072170
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146117.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ magnet:?xt=urn:btih:ED4D0DD798FE6B8695EBFDF35A91900F66CF0D21
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146118.jpg" />
 </div>
 
 
@@ -320,7 +494,7 @@ magnet:?xt=urn:btih:D3BD056B3A75102BB81B5D70F79A0D080F7A3968
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146120.jpg" />
 </div>
 
 
@@ -344,7 +518,7 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146121.jpg" />
 </div>
 
 
@@ -368,7 +542,7 @@ Smith Micro Poser Pro 11.0.1.31230 + Content + Plugins [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146122.jpg" />
 </div>
 
 
@@ -392,7 +566,7 @@ magnet:?xt=urn:btih:E9440CF9A74564FBD83D66F768F3EFFA249A208D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146123.jpg" />
 </div>
 
 
@@ -416,7 +590,7 @@ magnet:?xt=urn:btih:90FDD8B64F92FDD394EAF5440508A3D1259D9AF4
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146126.jpg" />
 </div>
 
 
@@ -440,7 +614,7 @@ Malad - Malad (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146127.jpg" />
 </div>
 
 
@@ -454,181 +628,6 @@ Malad - Malad (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F589AA8D85D3A9E1DA68D5EF87162E2ED49D74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761512   (146129) от 27.12.2015
-
-Александр Тамоников | Собрание сочинений [137 книг. Обновляемая] (2002 - 2015) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Тамоников родился в 1959 г. Окончил Самаркандское высшее военно-командное училище. Участник боевых действий. Имеет правительственные награды. Член Союза писателей и Союза журналистов России. Автор более тридцати романов военно-политического и детективного жанров, ставших бестселлерами, общий тираж которых превысил миллион экземпляров. Лауреат международных (   Читать дальше...   )Жанр: боевикФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92D63970CD13EB3F078BA64E12D4CC30C86D850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959934   (146130) от 27.12.2016
-
-Михаил Боярский поёт песни Юрия Чернавского - Лунное Кино (1987) [APE 2.0 24/96|image+.cue (Vinyl-Rip)] <Pop, Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лунное Кино
-02. Если Ты Помнишь
-03. Капитан
-04. Фараон(   Читать дальше...   )Жанр: Pop, Synth-PopПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2952542D757E130C61F699A5AAF7DF9B1D19E72B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519075   (146131) от 25.12.2021
-
-Skillberry | Все включено. Безлимитный доступ к 35 самым популярным курсам (2020) PCRec
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получаете доступ к 35 курсам и 700 видеоурокам от Skillberry. Перечень видеоуроков под спойлером.Производство: SkillberryЖанр: РисованиеПродолжительность: ~48:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4500CB9AF18172004C129E208FD9D51BF83867D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271908   (146132) от 25.12.2018
-
-Местные / The Domestics (2018) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146132.jpg" />
-</div>
-
-
-###  Подробнее
-
-После постигшего Америку апокалиптического события Средний Запад разделён на территории банд. Находившаяся до катаклизма в процессе развода семейная пара пытается добраться через опасную местность до родителей жены, в Милуоки.Производство: США / Hollywood Gang ProductionsЖанр: Ужасы, триллерРежиссер: Майк П. НельсонАктеры: Тайлер Хэклин, Кейт Босворт, Соноя Мидзуно, Давид Дастмалчян, Лэнс Реддик, Дэна Гурье, Лора Кайюэтт, Майк П. Нельсон, Дэйв Дэвис, Брэд ЛелэндПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (Full)Продолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27E1685442C62D459BF8BE37F23A1C56A125051
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590055   (146133) от 16.12.2012
-
-Winter Wallpapers (15.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE31EB359AF444A2B5F7A259146C88D7992F083
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678139   (146134) от 21.11.2023
-
-VA - Dinner for One - Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joshua Redman Quartet - Chill (7:43)
-02. Nina Simone - Solitude (3:46)
-03. American Jazz Orchestra - Take the "A" Train (3:16)
-04. Mose Allison - Idyll (4:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2C23B187AB9E3780AC6E2ADE0CA9269735D900
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435255   (146135) от 27.12.2020
-
-Dashcam Viewer 3.6.2 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dashcam Viewer - это современный и продвинутый менеджер видеозаписей, адаптированный под экшн-камеры или автомобильные видеорегистраторы.
-С помощью программы пользователь получает возможность не только просмотреть сами файлы со съемкой, но также получить целый перечень дополнительной информации, «зашитой» в ролики.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10ED7993B72D5DD6D41A69201EF6E9FC6A8F5C7E
 ```
 
 

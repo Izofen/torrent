@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114809.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114816.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114821.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:3DCDA12DE92B4F5CACDA3A02105382AA30DC6532
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114834.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114835.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114989.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:28CD34E232C0EB34F4C42508B817BA2C6EAF8130
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114991.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114996.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114998.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4B7C58CF7641C37D42FBA92A43F49D18BBE43C26
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115020.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Army of Lovers - Massive Luxury Overdose (1993 (1991)) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115026.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Los Angeles - Лос Анхелес (1974 (1967)) [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115029.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:FE35D1AFDD151E2DE09DB6AB3AF0FF0B27DD3CF4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115048.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115049.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115057.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5FE8F59E82977F9DAFDAD4667A396FE78773272E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115066.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115170.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Yes - Drama (1993 (1980)) [FLAC 24/192|Lossless|tracks] <Prog Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115680.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kyuss - Studio Albums (4 releases) (1991-1995) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115684.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Александр Зацепин, Леонид Дербенев - Песн
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115698.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115799.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dark Fortress - Studio Albums (8 releases) (2001-2020) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115802.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Cynic - The Portal Tapes (2012) Compilation)[FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115815.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ace Frehley - Studio Albums (6 releases) (2009-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115894.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Headhunter - Studio Albums (4 releases) (1990-2008) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115963.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115970.jpg" />
 </div>
 
 

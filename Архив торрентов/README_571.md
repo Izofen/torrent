@@ -6,7 +6,7 @@ Ghost Buster Pro 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122902.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bookends 14.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122914.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Ableton Live Suite 11 v.11.3.20 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122943.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ UniBook - Аудиокниги v0.8.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122946.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122958.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ NIUBI Partition Editor 9.9.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122969.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ WiFi Analyzer v5.0 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122987.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ ES File Explorer File Manager v4.4.1.13 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122991.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ KMS Tools Portable by Ratiborus Lite 13.01.2024
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123002.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:FC39A22A68A21BFFFCBD3F6C2AE7B2979ECB9D7A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123007.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ MarsEdit 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123047.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Noir – Dark Mode for Safari 2024.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123048.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ SiteSucker 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123051.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Boxy SVG 4.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123052.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Proxyman for Mac 4.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123059.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Pixelmator Pro 3.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123083.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ SiteSucker Pro 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123093.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ RSS Guard 4.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123098.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Emurasoft EmEditor Professional 23.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123102.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lucky Patcher 11.1.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123103.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4581 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123104.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Little Snitch 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123107.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Wondershare PDFelement Pro OCR 10.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123108.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Navicat Premium 16.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123112.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ WizTree Enterprise 4.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123117.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ NonVisual Desktop Access (NVDA) 2023.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123127.jpg" />
 </div>
 
 

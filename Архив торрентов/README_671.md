@@ -1,3 +1,52 @@
+###  Публикация: 1435655   (141964) от 29.12.2020
+
+Unclutter 2.1.24d [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
+Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8800D398B153BE7D43A8E3BD99EFA5D5EC1EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088082   (141974) от 29.12.2016
+
+Eventide Ensemble Bundle v1.1.4 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eventide Плагины ( 21 шт. ) дают вам возможность создавать любое звучание для ваших треков и открывают двери для создания новых звуков, которые никогда не слышали раньше. Наши плагины воссоздают звуки, определившие классические записи знаменитыми производителями, инженерами и артистами, таких как Dave Pensado, George Massenburg, Tony Visconti, Steve Vai, Jimmy Page, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47219519E950982D110C8FE9CB62B6C431D6035F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590359   (141975) от 17.12.2012
 
 "Яуза", "Эксмо" | Книжная серия "Гении власти" (11 книг) [2011-2012] [FB2]
@@ -6,7 +55,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141975.jpg" />
 </div>
 
 
@@ -30,7 +79,7 @@ WinTools.net Premium 18.0.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141994.jpg" />
 </div>
 
 
@@ -54,7 +103,7 @@ VA - Осенний Рэп удар русский (2012) [MP3|256 кб/с]<Rap,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141998.jpg" />
 </div>
 
 
@@ -87,7 +136,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142003.jpg" />
 </div>
 
 
@@ -112,7 +161,7 @@ Bazaart: Photo Editor & Graphic Design 2.3.3 (472) Mod by Youarefinished [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142013.jpg" />
 </div>
 
 
@@ -136,7 +185,7 @@ Video Converter Movavi 19 v19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142026.jpg" />
 </div>
 
 
@@ -161,7 +210,7 @@ TextMate 2 v2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142031.jpg" />
 </div>
 
 
@@ -187,7 +236,7 @@ magnet:?xt=urn:btih:72628442F6F85BBE85034C0C5552BF22FE122D4F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142042.jpg" />
 </div>
 
 
@@ -214,7 +263,7 @@ Lunar Pro for Mac 6.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142053.jpg" />
 </div>
 
 
@@ -238,7 +287,7 @@ Prism 9 v9.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142054.jpg" />
 </div>
 
 
@@ -263,7 +312,7 @@ magnet:?xt=urn:btih:DEAE9F8909F782539F26634CA510E3AB530E6ED9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142055.jpg" />
 </div>
 
 
@@ -287,7 +336,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142057.jpg" />
 </div>
 
 
@@ -311,7 +360,7 @@ KineMaster - видеоредактор 7.2.8.31088 Mod by AppKaMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142067.jpg" />
 </div>
 
 
@@ -335,7 +384,7 @@ iMazing 2.5.3 (8307) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142073.jpg" />
 </div>
 
 
@@ -360,7 +409,7 @@ magnet:?xt=urn:btih:11044A0DC03FE5BAE2974AA646979011646C55BB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142077.jpg" />
 </div>
 
 
@@ -384,7 +433,7 @@ Emurasoft EmEditor Professional 23.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142082.jpg" />
 </div>
 
 
@@ -409,7 +458,7 @@ Opera GX 104.0.4944.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142090.jpg" />
 </div>
 
 
@@ -435,7 +484,7 @@ Acronis Disk Director 12 Build 12.0.3270 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142093.jpg" />
 </div>
 
 
@@ -459,7 +508,7 @@ SiteSucker Pro 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142094.jpg" />
 </div>
 
 
@@ -483,7 +532,7 @@ XCap 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142105.jpg" />
 </div>
 
 
@@ -507,7 +556,7 @@ Acronis Disk Director 12 Build 12.0.3270 BootCD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142118.jpg" />
 </div>
 
 
@@ -531,7 +580,7 @@ Comedy Woman. 10 лет (2017.12.29) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142125.jpg" />
 </div>
 
 
@@ -555,7 +604,7 @@ PDF24 Creator 11.15.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142127.jpg" />
 </div>
 
 
@@ -580,7 +629,7 @@ Overloud TH3 v3.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142131.jpg" />
 </div>
 
 
@@ -591,54 +640,6 @@ Overloud TH3 v3.3.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E66C45CCD659DDFACF80811128E4EE417CE342B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520432   (142136) от 28.12.2021
-
-WiFiSpoof 3.8.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142136.jpg" />
-</div>
-
-
-###  Подробнее
-
-WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A44678C476A4FBB98BB529EAA3966C15BCFABC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678843   (142155) от 23.11.2023
-
-VivaVideo 9.12.6 Mod by maxi123444 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный видеоредактор с эффектами и бесплатное программа для монтажа видео. Монтаж, вырезать и объединить видео с помощью самого полноценного видеоредактор в телефоне.Тип издания: VIPРелиз состоялся: 22.11.23Разработчик: QuVideo inc.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E26FBCC9A096D8185098DB6D5E5216DA3AAE78
 ```
 
 

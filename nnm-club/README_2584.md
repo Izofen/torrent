@@ -6,7 +6,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67932.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:673CEE095AA5F79A8F405B184A5FAF72C9A7D4D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67933.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:883381A58797F8F02049D18A8A5CE7D2AAA4DAF0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67934.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2EEEBF01287196094880365CA5AD1F9AF91699CD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67935.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ HiPER Calc Pro v11.1.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67936.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - National Pop Dance Music Vol.103 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67937.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67938.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ PictureThis - Plant Identification v5.1.7 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67939.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D4E41D4BAEFD1903CDB11F5B2B22D7E2FAC0E1B4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67940.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:031AEAC02D8111FE2CB291F7065EAADDD20BA79F
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67941.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:F5B5FE81920B77E47B6190A7740FB2EC07965E98
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67942.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Epica - Aspiral (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67943.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:8DB15BB9A0A4B6AF5E17D0E9399142DB805A7ECE
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67944.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:4668ED35A35AADE93685BF4D41AFB20E2BCF167B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67945.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:4FA92963C74C53F9C2C2409C4EFC879D56088982
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67946.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Chvrches - The Bones Of What You Believe (2013) 10th Anniversary Edition, 2023, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67947.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Black Country, New Road - Forever Howlong (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67948.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ JayKayGi - Heartbreak (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67949.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Catfish - Time to Fly (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67950.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Ori Uplift - Uplifting Only Episode 635 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67951.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Daniel Weber - Believe (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67952.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Bigfoot Preston - Light Up My Darkness (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67953.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Blues Support - Blues Support (Under Cover) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67954.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Macbeth (Germany) - Studio Albums (5 releases) (2006-2020) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67955.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Dov Hammer - Exile - The Chicago Blues Sessions (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67956.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Steven Hufalar - Memento Mori (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67957.jpg" />
 </div>
 
 

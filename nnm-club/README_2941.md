@@ -1,3 +1,78 @@
+###  Публикация: 478678   (86995) от 07.04.2012
+
+Бен-Гур / Ben-Hur (1959) HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма начинается в Палестине в 26 году от Рождества Христова. Два друга, еврей Иуда Бен Гур и римлянин Мессала встречаются после долгой разлуки взрослыми людьми и понимают, что дружба уже невозможна. Иуда сочувствует борьбе своего народа за освобождение, а Мессала требует чтобы тот предал своих соотечественников. Заключение, галеры, сражения, морские битвы и путешествия, эпизоды, связанные с зарождением христианства, — все вышеназванное присутствует в этом удивительно зрелищном фильмеЖанр: Драма, мелодрама, приключения, историяРежиссер: Уильям УайлерАктеры: Чарлтон Хестон (Иуда Бен-Гур), Джек Хоукинс (Quintus Arrius), Хайя Харарит (Esther), Стивен Бойд (Messala), Хью Гриффит (Sheik Ilderim), Марта Скотт (Miriam), Кэти О`Доннелл (Tirzah), Сэм Джаффе (Simonides), Финлэй Карри (Balthasar, Narrator in pre-credits sequence), Фрэнк Тринг (Pontius Pilate), Terence Longdon (Drusus), Джордж Релф (Tiberius Caesar)Перевод: Профессиональный многоголосый (закадровый)Продолжительность: 03:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799D97C2420995469F29F1C711E2A1124DA7AF1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479415   (86996) от 07.04.2012
+
+[PC] Эмулятор Sony Playstation Portable "Jpcsp" v.0.6. SVN r2516 [Multi14\+] (2012)
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда JPCSP выпустила свой новый эмулятор, который позволяет играть в игры от PSP на PC. JPCSP показывает другой уровень стабильности, красочности, яркого геймплея, запуска большого количества игр и существенных исправлений. Графика становится приятнее, играть становится удобнее и интереснее, по сравнению со старыми версиями. Всем приятной игры и побед в виртуальном мире!
+Новая ревизия Jpcsp - эмулятора PSP, на этот раз нам принесла 2 важнейших изменения - полноценную поддержку геймпадов (однако еще возможны проблемы) и встроенный дешифратор лоадеров, способный расшифровывать даже прошивки 6.3х проверено на GoW: Призрак Спарты с прошивкой 6.31, а также на неё пошла игра Tekken 6.
+Сейчас ведется работа над оптимизацией шейдеров под видеокарты из лагеря "красных" (AMD). Частичная поддержка реализована, но пока совместима только с версией catalist 11.1, на 11.2 уже ситуация становится прежней - появляются новые проблемы. Также добавлено несколько новых функций:
+Enable decoding of indexed textures (using (   Читать дальше...   )Язык интерфейса: Русский / Английский / Китайский (Упрощенный) / Китайский (Традиционный) / Француский / Испанский / Немецкий / Литовский / Каталанский / Японский / Польский / Итальянский / Португальский / Португальский (Бразильский)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479272   (87000) от 07.04.2012
+
+Кармен (2003) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авантюрная мелодрама. Он – примерный сотрудник милиции, честный и исполнительный, "правильный", как с плаката, скоро будет повышен по службе... Она – заключенная, отрабатывающая свой срок на табачной фабрике, прозванная за дикий и непокорный нрав "Кармен"... Роковая встреча девушки и охранника меняет их жизни раз и навсегда. Это не история любви, это история страсти – чувства дикого, первобытного, разрушающего, страшного; она из самых темных глубин подсознания, она не знает ни условностей, ни сословий, ни законов. И этот зверь живет в каждом, только до поры до времени он заперт за десятью решетками. Но иногда он вырывается на волю – и тогда теряет цену все: дом, семья, долг, работа, карьера, чужая и своя жизнь...Жанр: Авантюрная драма,криминалРежиссер: Александр ХванАктеры: Игорь Петренко, Ольга Филиппова, Ярослав Бойко, Рамиль Сабитов, Александр Шейн, Алексей ГорбуновПродолжительность: 01:48:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479506   (87004) от 07.04.2012
 
 Happy Chef / Веселый повар (L) [Ru] 2012
@@ -6,7 +81,7 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87004.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Adriana Balboa - Hommages (2004) [MP3|320 kbps]<Classical, Guitar>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87005.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:82EECB47E149EF5A8FE1F47D2FA0576B13F49861
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87006.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:82EECB47E149EF5A8FE1F47D2FA0576B13F49861
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87007.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ VA - Beautiful and Relaxing music (2012) [MP3|320 kbps]<Chillout | Lounge | Rela
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87008.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87009.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87010.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87012.jpg" />
 </div>
 
 
@@ -209,7 +284,7 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87014.jpg" />
 </div>
 
 
@@ -236,7 +311,7 @@ ClearOS Community 6.2 RC1 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87015.jpg" />
 </div>
 
 
@@ -260,7 +335,7 @@ magnet:?xt=urn:btih:BD4864A0920AFC220EEFB507B4837F08E393326D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87017.jpg" />
 </div>
 
 
@@ -284,7 +359,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87019.jpg" />
 </div>
 
 
@@ -308,7 +383,7 @@ magnet:?xt=urn:btih:AA5B96AFBDBA2ECBFE4BCB9DBE263DAFFFF7FD50
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87020.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ VKontakteDJ 3.43 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87022.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87023.jpg" />
 </div>
 
 
@@ -380,7 +455,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87024.jpg" />
 </div>
 
 
@@ -404,7 +479,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87026.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87027.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ VKontakteDJ – приложение для поиска, воспроизвед
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87029.jpg" />
 </div>
 
 
@@ -478,7 +553,7 @@ The Steve Miller Band - 4 альбома (1976-2011) [DTS 5.1|tracks (Upmix)]<He
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87031.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ magnet:?xt=urn:btih:D34B3A96B467D45B40274DD44E7C8AB8B9FE6073
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87032.jpg" />
 </div>
 
 
@@ -527,7 +602,7 @@ magnet:?xt=urn:btih:D3B73C63A140F1287935079AD4267CAE0933C4EE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87033.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ magnet:?xt=urn:btih:D3B73C63A140F1287935079AD4267CAE0933C4EE
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87035.jpg" />
 </div>
 
 
@@ -562,78 +637,6 @@ magnet:?xt=urn:btih:D3B73C63A140F1287935079AD4267CAE0933C4EE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14500BBFD0975D2917BF27D60023B1610FEEBFC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479573   (87036) от 07.04.2012
-
-Сафо / Sappho (2008) BDRip
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на остров Лесбос попадают в одно и то же время и место русская красавица и пара американских молодоженов, в которой он - художник, а она - миллионерша, то любовный треугольник неизбежен и предсказуем. Красота острова, прекрасные старинные статуи, стихи древнегреческой поэтессы Сафо, воспевшей любовь женщины к женщине, способны вскружить голову кому угодно - (   Читать дальше...   )Производство: УкраинаЖанр: Драма, Мелодрама, ЭротикаРежиссер: Роберт КромбиАктеры: Авалон Барри, Богдан Ступка, Людмила Ширяева, Тодд Соли, Элиссаиос Влахос, Вассилис Психоуепоулос, Оксана Осипова, Сергей Козенко, Александр Леонтаритис, Анатолий СеменовПеревод: ДублированныйСубтитры: русские, украинские, английскиеПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961E02C4A134A47B332896152308ECCBB5929A5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479023   (87037) от 07.04.2012
-
-Миссия невыполнима: Протокол Фантом / Mission: Impossible - Ghost Protocol (2011) [1080p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: Боевик, Триллер, ПриключенияРежиссер: Брэд БёрдАктеры: Том Круз, Пола Пэттон, Саймон Пегг, Джереми Реннер, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: ДублированныйЯзык субтитров: Русский (forced), Русский (full), Английский (forced), Английский (full), Английский (SDH)Продолжительность: 02:12:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479388   (87038) от 07.04.2012
-
-Брайан Трейси, Рон Арден | Сила обаяния. Как завоевывать сердца и добиваться успеха [2008] [MP3]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успех и в бизнесе, и в личной жизни напрямую зависит от умения общаться с окружающими. Секрет успеха заключается в использовании надежных методов взаимодействия с людьми. Из этой книги вы узнаете, как исключительно обаятельные люди добиваются успеха в общении с покупателями и клиентами, а также достигают глубокого взаимопонимания в отношениях с друзьями и близкими. Кроме того, авторы рассказывают, как нужно вести себя, чтобы неизменно пользоваться успехом у противоположного пола. Обаяние и умение быть приятным собеседником откроют перед вами поистине безграничные возможности.2008Жанр: Психология
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C1E5CC517831E60D8DC16650D55FAFA8DD20B8
 ```
 
 

@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161848.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C05359CFD7660AAC368AF9E8AF62757268685021
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161855.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:816C6B5ADA270CD4603F510FC89E70F8BCF9D86A
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161859.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:4993A6977C6F031C934C667F10FA244699144B46
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161870.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ magnet:?xt=urn:btih:61638B4A06401DE6BEA87465198022959F7E00A8
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161874.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:4BD3E767F0A840C32B8F98A1322E8220D6958892
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161896.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - " Золотой фонд эстрады " - Многое в жизни б�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161906.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:1FFD1ACEA34397A272E41DCBD5A1E103CEA16E03
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161913.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:56AEC4C851AFB46379FEDDAEE3EE29E9527E657F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161920.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:613F50DB4727036508CC987A15604FE641C3EFD5
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161926.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:BCB29E6886569FD77160D928D62B6DBD11A7F7AD
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161931.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B0FE8DFD6DEC54DC3B5B293F82900CD1BE4B4ACC
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161944.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Яростный стройотряд (Repress 2007) [FLAC|Lossless]<Retro,
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161955.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161958.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Юрий Силантьев. Памяти маэстро (2010) [APE|Lossle
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161969.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:8615B5D2358FABC220A508F340A60AD642E3FF7E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161973.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Anna German - Recital Opole '71 (2013) [FLAC|Lossless]<Retro|Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161978.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161991.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162077.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162230.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162298.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162402.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Русская коллекция. Хиты 80-х (2009) 6CD [WavPack|Lossl
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162664.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Хиты 80-х. Как молоды мы были (в 4-х частях) (2
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162694.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:F7B29F1B3465E01270C4FDD232623E3566E4E6AD
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162699.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ magnet:?xt=urn:btih:EA8A8907E5DE57A2E46C8EA9A02570F43842F29E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162703.jpg" />
 </div>
 
 

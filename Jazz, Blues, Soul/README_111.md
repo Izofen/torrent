@@ -6,7 +6,7 @@ Saxtribution - Magical Christmas Saxophone (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125021.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ David Benoit - Remembering Christmas (1996) GRP [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125153.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nobuo Hara & His Sharps & Flats - Big Band Congress (1970) 2013, Nippon Columbia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125157.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tadd Dameron - Four Classic Albums (1948 - 1962) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125158.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Professor Underfunk - Just Build It (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125280.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Paul Cook Blues Band, Katie Bradley - I Spy (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125281.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Lazy Tones - Laundry Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125285.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Mike Eldred Trio - First Recordi (2023) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125290.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125292.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125293.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125294.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125295.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Wayne Riker Gathering - Alphabetical Blues Bash, Vol. 2 (2023) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125296.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Tamaracks - Fool Me Once (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125305.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Goosebumps Bros. - 21 Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125307.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Taylor Newville and the Riders - Let the Good Times Begin (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125308.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Horace Silver Quintet / Sextet - The Jody Grind (1966) 1991, Blue Note [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125414.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ John Hicks - Inc. 1 (1985) 2008, DIW Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125416.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125424.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Frank Sinatra - Under The Mistletoe (2001) Direct Source Special Products [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125425.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Jazz Hop #2 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125426.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125428.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Boston Brass & The Brass All-Stars Big Band - The Stan Kenton Christmas Carols (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125436.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ramsey Lewis - Classic Encounter (1988) CBS [FLAC|Lossless|tracks + .cue] <Cross
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125438.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Chris Rea - Herzklopfen (1986) [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125448.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Chris Rea - Wired To The Moon (1984) Reissue, 1990 [OGG Vorbis|480 Kbps] <Soft R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125453.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18446.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ice Walker | Прорвёмся! (2025) [MP3, Роман Ефимов]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18447.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E5B1D113DC12336538370E5A5465C14AC5A1FBD4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18448.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DCA3BEADFD288C6863B09F250553BF6A5F8EC9B9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18449.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CF0631C0BD5281AF7AF2798B605B379A69CEE1BE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18450.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D4E1A3DC7D42D1749E5A1B4CC28340CDE8E3EE2B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18451.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Darts Club: PvP Multiplayer v6.0.3 Mod by Viktorovich31 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18452.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:169ADA6F524667F125D4817C90ECC03F39B6CEA4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18453.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ SAS.Планета 250505 portable [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18454.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ v2rayN 7.12.1 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18455.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:BD659E0AB03DBE23D6D662E36BDF931A7DC87FA9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18456.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dakar Desert Rally (2022) [Ru/Multi] (2.3.0/dlc) Repack Let'sРlay [Digital Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18457.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:0F61042A84D85CF6A2048D6152046831EC96B58F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18458.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:6A0C5697547120D9C4600951A60DCEBFC0335D65
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18459.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:D7F93C6F7E53B462BDAA67FFAFD5B35734E5CF81
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18460.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:F4B7BE62F277BD843FCAADFDE0DEB3D73BF5B4E5
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18461.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ HWiNFO 8.26 Build 5730 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18462.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:4DA6FFEC613A32B4C054B4F12D7E0C87055D53A5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18463.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:34D288B35C4B3DB2B5EE09421214AE0AC3CE8120
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18464.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:5E824BF02C72ED1DEDF0C32E22EB6076B4F6BEA8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18465.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:4239E5A5E137C38309D2EDF899A1B8205BB929C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18466.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ RustDesk 1.4.0 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18467.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:847D1B6B205F1E253B2178AF6605E09527E8ACF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18468.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Image Uploader 1.4.2 Build 5314 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18469.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18470.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:3584807622357DE2FA822D4C6E5A9DFC203D3AF3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18471.jpg" />
 </div>
 
 

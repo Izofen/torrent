@@ -1,3 +1,75 @@
+###  Публикация: 1626315   (240820) от 14.04.2023
+
+Москва (изд.) | Чудеса на дорогах войны (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о Православном понимании духовного смысла войны в наше время нередко обсуждается в обществе. В связи с этим иногда можно услышать от людей, не слишком сведущих в Православном учении, такое утверждение: «Людей нельзя убивать даже на войне. Вообще нельзя брать в руки оружие». Такая позиция не имеет ничего общего с Православным воззрением, ярко и лаконично сформулированным (   Читать дальше...   )Жанр: Православие. ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4592F9E9816EAC3190B5F2D859817115C3FEA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625882   (240822) от 12.04.2023
+
+Весь (изд.) | Православие. Полная энциклопедия (2007) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство людей не знают, с какой литературы начать своё духовное просвещение. Этим потребностям отвечает книга о Православии, которая для многих может стать настольной. В ней рассказывается об истории Православия, о современной Церкви, о том, что составляет основы Православной жизни. Как проходят службы, какие Таинства осуществляются в Церкви, как вести себя в (   Читать дальше...   )Жанр: Православие. Научно-популярное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAC0CC42D02C8EACDE0F57A5324CF781B9C02D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625926   (240838) от 12.04.2023
+
+А. В. Карташёв | Очерки по истории Русской Церкви: в 2-ух томах (2019) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот авторитетный научный труд богослова, историка Русской Церкви, церковного и общественного деятеля, профессора Свято-Сергиевского богословского института в Париже А. В. Карташёва (1875–1960) представляет собой глубокий обзор основных вех в развитии Русской Православной Церкви в историческом контексте на основе знаний, накопленных отечественной и зарубежной историографией. (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E61D0C6BCF57A2252F47D8E5C0882BFEF341456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462998   (240867) от 16.04.2021
 
 Протоиерей Валентин Мордасов | Святые отцы об исповеди. Духовник и отношение к нему (2010) [PDF, DJVU]
@@ -6,7 +78,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240867.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240867.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:3E0563045E6CBD8837C988E1348F4E2A9D3B2F94
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240943.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240943.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:B305586AAD1CD9DD36623DF9B3F7E3E01BB9838F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240976.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240976.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:47B93D5E2FA26C6EA3CE5BA70D8DA5B060000B68
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241017.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241017.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:EF8925276C42717A8194A31BA1ACF205C5AEA2B6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241027.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241027.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:36FE8B749FF562C0023DED5A63703DE92A71AE15
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241028.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241028.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:DF762E0369634FFD7BF9C000E2CCC6034333A93A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241041.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241041.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:DC91FEC5A888CE2A6A256DA49B31F4E16732EEC1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_241058.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_241058.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:A710C6472932127BD119F7CBABAF5D37B029C786
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241111.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241111.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:659AC6B7F73AA6B6317C1A6523596173CB78AD1A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241129.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241129.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:FCC54ED0A063BDA69BC813179D465CC2E1D817C3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241138.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241138.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:6986FD2E4A4C92F55ACB351FB859CD5AB4D377CE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241167.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241167.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:E9ADC46AB4AC12B49F6E4BD5187471C342141CDE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241172.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241172.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ magnet:?xt=urn:btih:C02D13AA8AA9A4476D5FC60AA22B2C0834018ACA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241194.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241194.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ magnet:?xt=urn:btih:0FBD554706EC551B2C8C890C68591786F1A5A5AC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241249.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241249.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ magnet:?xt=urn:btih:4D746D4A006E8194853367F280D7704E857A415D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241251.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241251.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ magnet:?xt=urn:btih:D4F17F43C6BB179471CA1C00D443D8D341D9C8EC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241288.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241288.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:3B7AC6C97FA9733188CB0CE44E5D29C510BCA09B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241428.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241428.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ magnet:?xt=urn:btih:3C8397D7A15E83DB19B8355CB071FC322078B35A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241463.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241463.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ magnet:?xt=urn:btih:10CCD9D27514BF70C4186C2D1245CDA19C403A13
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241554.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241554.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ magnet:?xt=urn:btih:064C5A4BE02D5FFBE279AF9C497224B91FC89DF4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241624.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241624.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ magnet:?xt=urn:btih:DE7B7061486B67E04D99D2409CC43BCC1F533319
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241637.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241637.jpg" />
 </div>
 
 
@@ -550,7 +622,7 @@ magnet:?xt=urn:btih:15B4F532DCF9CC86A54FB8ABF50F21D944C05AB1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241649.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241649.jpg" />
 </div>
 
 
@@ -561,82 +633,6 @@ magnet:?xt=urn:btih:15B4F532DCF9CC86A54FB8ABF50F21D944C05AB1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4C2E3FF02AE79B77EC55F5AB11D57219CF4496
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629100   (241660) от 25.04.2023
-
-Святитель Феофан Затворник | Путь ко спасению (2012) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд святителя Феофана Затворника «Путь ко спасению», самый известный из его многочисленных творений, написан Владыкой на основе лекций по нравственному богословию, прочитанных им в Санкт-Петербургской духовной академии.
-
-В этой книге святитель раскрыл, в чем заключен смысл христианства, значение Таинства Крещения для человека взрослого и младенца, описал ступени (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EDC5137F85A764B5219F4E3E440AEBB530B16C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459745   (241672) от 03.04.2021
-
-Преподобный Макарий Великий | Новые духовные беседы (2019) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241672.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 новонайденных, опубликованных на языке оригинала в 1961 г., духовных бесед (гомилий), сохранившихся под именем одного из основателей египетского монашества св. Макария Великого (IV в.). Образец ранней христианской мистической проповеди. Картины природы, городские сцены осмысливаются тайноводцем как подобия невидимого мира, наглядная школа умного совершенствования, (   Читать дальше...   )Жанр: Православная литератураФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7726856607394906074B7160C027FBFED0932A80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459734   (241704) от 03.04.2021
-
-Георгиос Крусталакис | Улыбающийся святой. Жизнь и чудеса старца Порфирия Кавсокаливита (2020) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порфирий Кавсокаливит (1906-1991) – один из любимых в России греческих святых нового времени. Может быть, оттого, что старец очень похож на Николая Чудотворца – своей простотой и тем, что никогда не проходил мимо чужой беды.
-
-В книге жизнь святого Порфирия представлена в воспоминаниях его чад и тех, кому он помог, кого спас, исцелил своей молитвой и любовью. Это (   Читать дальше...   )Жанр: Православная литератураФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C887819D2C1070EC7607EEE41B8A404A906FF5EE
 ```
 
 

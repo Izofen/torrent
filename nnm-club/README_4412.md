@@ -1,3 +1,75 @@
+###  Публикация: 1201808   (136571) от 31.12.2020
+
+Коллективный разум / Мудрость толпы / Wisdom of the Crowd (2017) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) NewStudio [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136571.jpg" />
+</div>
+
+
+###  Подробнее
+
+У гениального изобретателя Джеффри Таннера погибает дочь, и он решает начать собственное расследование, создав краудсорсинговый узел для привлечения к делу талантливых людей в самых разных областях.Производство: СШАЖанр: триллер, драма, криминалРежиссер: Адам Дэвидсон, Джон Эмиел, Чарльз БисонАктеры: Джереми Пивен, Ричард Т. Джонс, Наталия Тена, Блейк Ли, Джейк Мэтьюз, Моника Поттер, Ион Оверман, Малачи Вейр, Рамсес Хименес, Бет Литтлфорд и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioСубтитры: русские (форсированные)Продолжительность: ~00:44:00 серияРеклама: присутствует реклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5827EB03BBAA3651C6170516E53BDC5C3A97C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436276   (136572) от 31.12.2020
+
+Непосредственно Каха! (2020) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каха запал на прекрасную Софу, но, чтобы подобраться к её сердцу, ему нужно на своей «копейке» обогнать новенькую BMW Руслана и забить на дружбу с Серго. Что же выберет Каха – любовь или дружбу?Производство: Россия / Видеосервис START, Forever FilmsЖанр: КомедияРежиссер: Виктор ШамировАктеры: Артём Карокозян, Артём Калайджян, Тамара Турава, Данил Иванов, Микаел Погосян, Марина Калецкая, Людмила Артемьева, Нана Муштакова, Милена Цховреба-Агранович, Юлия Гревцова, Вартан Даниелян, Артур ОганесянПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F89DA24AC44DF773910CA917F81BB680161021
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424473   (136573) от 31.12.2020
+
+Офицер и шпион / J'accuse / An Officer and a Spy (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях и романе Роберта Харриса. В 1894 году артиллерийского офицера Альфреда Дрейфуса объявляют особо опасным преступником. Официальное обвинение — государственная измена и шпионаж в пользу Германии. Бывший наставник Дрейфуса Жорж Пикар ведет собственное расследование, чтобы доказать, что его подзащитный невиновен.Производство: Франция, Италия / Legende Films, R.P. Productions, GaumontЖанр: Триллер, драма, историяРежиссер: Роман ПоланскиАктеры: Жан Дюжарден, Луи Гаррель, Кристоф Маратье, Пьер Пуаро, Стефан Годин, Грегори Гадебуа, Эрик Руф, Владимир Иорданов, Дидье Сандр, Янник ЛандрейнПеревод: Дублированный, авторскийСубтитры: Русские forced, full х3 (диск, imvolk-13, Focs), английские, французские, немецкиеПродолжительность: 02:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A8E8438315123E914A0DC8FFD3E97C86223336
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436454   (136574) от 31.12.2020
 
 AOMEI Partition Assistant Technician Edition 9.1.0 [DC 31.12.2020] RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +78,7 @@ AOMEI Partition Assistant Technician Edition 9.1.0 [DC 31.12.2020] RePack by Kpo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136574.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:008D9D16EBEBC1EBB7DC576313648D1B1E636419
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136575.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136576.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:30C509B43A9A38EB2B029D15B3861342AE65841C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136577.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:DE05A191582FA814E8C87FD2CA96C22771043A29
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136578.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ R-Studio Network Edition 8.15 Build 180125 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136579.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:A23D65870A1764171AE684CDBC9E4012D30C279E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136580.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:223C8CD11254A72EE3A4DF702941D0A9CF019FCC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136581.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:5AE8DDBFAE8CB18335911FE5C5BF8EDABEDD758C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136582.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:A24A33B4E02F594978BF578148909D1AAE67AECA
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136583.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:460B137F847C1906462DDFCDB6C851E366D1AA99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136584.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:460B137F847C1906462DDFCDB6C851E366D1AA99
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136585.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:E0990D15E50C0C55863CDC5AEA98A58B831EA34E
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136586.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:B28F8D71533EAB66E06FD943D19FB0FF416A91B1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136587.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:8911E8A4D2E49DCFB3CDD9897F16E7A1941D4314
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136588.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ Realtek High Definition Audio Driver 6.0.9071.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136589.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ Reg Organizer 8.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136590.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ magnet:?xt=urn:btih:F709AC69D46D4A5895A44E24B2B1A64E218D7427
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136591.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ magnet:?xt=urn:btih:F3C90E83744BD39D99E5839D87CC2C5C95A2EFBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136592.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136593.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ magnet:?xt=urn:btih:15956CB7C4700E363152F9EE3752C7E4FFBFA62C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136594.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ Trojan Killer 2.1.58 RePack (& portable) by elchupacabra  [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136595.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ magnet:?xt=urn:btih:58FF16D87E70124826D4D4B68F43E4E88EF154EB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136596.jpg" />
 </div>
 
 
@@ -546,78 +618,6 @@ magnet:?xt=urn:btih:58FF16D87E70124826D4D4B68F43E4E88EF154EB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69BE72915115F232ED17FA94889431B808048263
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435972   (136597) от 31.12.2020
-
-Шпион №1 (2019) SATRip [H.264] (сезон 1, серии 1-12 из 12)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже много лет ЦРУ и ФБР разыскивают русского агента среди высших офицеров американской разведки. Отчаявшись вычислить «крота», руководители американских спецслужб решают «купить» его имя. Именно поэтому в Россию отправляют эмиссаров, которые должны среди бывших высокопоставленных сотрудников советской разведки найти предателя, ведущего ЦРУ на «агента №1».Производство: Россия / «Гамма продакшн»Жанр: детектив, приключенияРежиссер: Михаил БарканАктеры: Иван Стебунов, Сергей Колос, Мария Луговая, Арина Постникова, Микаэль Амирханов, Сергей Барковский, Юрий Цурило, Руслан Барабанов, Павел Баршак, Виктория МалекторовичПродолжительность: ~00:53:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386E397F46FCF5AFE0B192D2217135F392598DEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278227   (136598) от 31.12.2020
-
-Один (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший полицейский Роман Одинцов вынужден вернуться в ряды оперативников, чтобы раскрыть причины гибели товарища. Теперь Одину предстоит столкнуться с собственным прошлым в лице бывших коллег, семь лет назад вынудивших его покинуть службу. Его больше не волнуют интриги и подковерные игры, ведь у него есть цели: найти виновных в смерти друга и предотвратить другие (   Читать дальше...   )Производство: Россия / Триикс медиаЖанр: детектив, драмаРежиссер: Армен АрутюнянАктеры: Александр Бухаров, Андрей Терентьев, Роман Агеев, Владислав Резник, Светлана Бакулина, Максим Дахненко, Константин Демидов , Екатерина Зорина, Артур Ваха, Глафира Козулина и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C1905E8B27F7EA00487C2168D127EEE96B2E18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436323   (136599) от 31.12.2020
-
-Мы можем стать героями / We Can Be Heroes (2020) WEB-DL [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земной супергерой Маркус Морено после смерти жены уходит на пенсию и сосредоточивается на воспитании своей дочери Мисси. Когда на планету вторгается флот пришельцев, он вместе с товарищами отправляется на защиту человечества, но терпит неудачу, оказавшись в плену у космических захватчиков. В это самое время Мисси и остальные дети супергероев, содержащиеся в секретном (   Читать дальше...   )Производство: США / Double R Productions (II), Quick Draw Productions, Troublemaker StudiosЖанр: Фэнтези, боевик, семейныйРежиссер: Роберт РодригесАктеры: Педро Паскаль, Яя Госселин, Приянка Чопра Джонас, Лион Дэниелс, Энди Уокен, Хала Финли, Лотус Блоссом, Дилан Генри Лау, Эндрю Диас, Айзиа Расселл-БэйлиПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (forced х2, full), украинские, английские, французские, немецкие, китайскиеПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858A6964A5253DF56B4ED4024734E7B6CF0DF0BE
 ```
 
 

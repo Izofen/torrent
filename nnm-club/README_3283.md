@@ -1,3 +1,84 @@
+###  Публикация: 1745457   (105040) от 26.08.2024
+
+Diane Durrett - Sweet Georgia Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Child Of The Blues (3:55)
+02. Good Goes With You (3:15)
+03. Sweet Georgia Blues (3:24)
+04. The Sweet Spot (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71318540C3F85270AF3182590D596D86C6F43063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745564   (105041) от 26.08.2024
+
+Anciients - In The Absence Of Wisdom (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Absence Of Wisdom [00:06:35]
+02. Cloak Of The Vast And Black [00:06:18]
+03. Melt The Crown [00:07:05]
+04. Raise The Sun (Re-recording) [00:06:41](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5D01BE1C8271108BF2715A4A0B5AB216AB14B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745446   (105042) от 26.08.2024
+
+Carly Harvey - Kamama (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Native Scat (1:41)
+02. Mean Old Woman (2:51)
+03. Misery (4:37)
+04. She Ain't Me (Kamama Version) (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987A898C000966FA071F77ACACD294E523B77A27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745482   (105043) от 26.08.2024
 
 Mick Pini - Papa Voodoo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +87,7 @@ Mick Pini - Papa Voodoo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105043.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Almah - Studio Albums (5 releases) (2006-2016) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105044.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Rune Robert Friis - Built For Comfort, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105045.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Matyas Gayer Trio - Westbourne Park (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105046.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Alltheprettythings - Prose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105047.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ High-Logic FontCreator Professional 15.0.0.2999 RePack (& Portable) by elchupaca
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105048.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Mike Tramp - Songs Of White Lion, Vol. I-II (2023-2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105049.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ magnet:?xt=urn:btih:2A5FCCBEBFAD8069D09FFCE7891261A5F0851254
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105050.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ reaConverter Pro 7.822 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105051.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ High-Logic FontCreator Professional 15.0.0.2999 Portable by 7997 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105052.jpg" />
 </div>
 
 
@@ -265,7 +346,7 @@ VA - DJ Hits 14 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105053.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ Photo Supreme 2024.2.2.6626 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105054.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ Hardy - Мир криминала (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105055.jpg" />
 </div>
 
 
@@ -343,7 +424,7 @@ Angra - Studio Albums (11 releases) (1993-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105056.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ Shaman (a.k.a. Shaaman) - Studio Albums (5 releases) (2002-2022) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105057.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ The Georgia Thunderbolts - Rise Above It All (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105058.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ Footloose - Footloose (1980) Japanese Edition, Reissue, 2001, Cool Sound [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105059.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ Miller and the Other Sinners - Thieves In The Breadline (2024) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105060.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105061.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ Grace Bowers & The Hodge Podge - Wine On Venus (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105062.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ Steve Cropper and The Midnight Hour - Friendlytown (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105063.jpg" />
 </div>
 
 
@@ -557,7 +638,7 @@ Jeff Lorber - Elevate (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105064.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ of Books&Blues - That Ain't It (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105065.jpg" />
 </div>
 
 
@@ -598,85 +679,6 @@ of Books&Blues - That Ain't It (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A9FAF0AA2D3A36410C5D718E124151BD7D8C4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745602   (105066) от 26.08.2024
-
-Budderside - Good For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Good For Nothing
-2. Joker
-3. The Truth
-4. Never Worth It(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593131104AEE768E4A65918DF8540AACDE24BFB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745298   (105067) от 26.08.2024
-
-Silvera - World Behind Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Behind Doors [00:03:41]
-02. Sane [00:03:59]
-03. Utopian [00:03:44]
-04. Death Of Me [00:03:44](   Читать дальше...   )Жанр: Modern Rock, Post-GrungeПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1922DDB419BF6095D75F40C2A07866194AF2DB91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745532   (105068) от 26.08.2024
-
-TweakNow WinSecret Plus! 5.6.0 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105068.jpg" />
-</div>
-
-
-###  Подробнее
-
-TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
-Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5C27C744F3E752FF7F6522C7E9C0D56194805A
 ```
 
 

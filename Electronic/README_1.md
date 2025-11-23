@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1241 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4297.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nukleall - Infinite Echoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4385.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4410.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4414.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hardwell - Euphoria 001 - 008 (2025) [MP3|320 Kbps] <Techno, Big Room>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4478.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - 25 Years Of Anjuna Mixed By CRi (2025) [MP3|320 Kbps] <Deep House, Melodic 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4522.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4632.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Redux Selection, Vol. 9 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4645.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Magic Deep-House, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4808.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Electronic Garden, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4914.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Best Trance Tunes Of 2025 Vol. 1 - Mixed by Roan Gosling (2025) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5174.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Ori Uplift - Uplifting Only Episode 655 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5320.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Chill Mode On: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5322.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Armin van Buuren - A State Of Trance 1240 (Takeover By Joris Voorn) (2025) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5333.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Peter Tha Zouk & Bruno Marciano - Kashmira (2001) [FLAC|Lossless|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5486.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - 25 Years Of Anjuna Mixed by SØNIN (2025) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5501.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Buddha Luxury 2025 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <O
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5521.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Best Driving EDM 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5522.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - In Search Of Sunrise 21 Mix 2: Nirvana (Mixed by Markus Schulz) (2025) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5669.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Milk & Sugar Beach Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5791.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Uplifting Only Top 15: August 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5805.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Dance 360 (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5814.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Milk & Sugar Beach Sessions 2025 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5955.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Progressive Trance Awakening, Vol. 07 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6089.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Two Friends - Big Bootie Mix Vol. 26 (2025-06-05) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6111.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Bikini Machines, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6280.jpg" />
 </div>
 
 

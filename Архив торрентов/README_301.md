@@ -6,7 +6,7 @@ Magic Eraser / Магический ластик v2.19.3 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Imagine 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69930.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PhotoDirector v19.11.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69943.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TikTok Private Plus (PayBack Edition) v38.9.5 Mod by TikTok + Plugin Update [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69948.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ GIF Maker - GIF Editor v3.0.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69986.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ QOwnNotes 25.2.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69991.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:E2AFAB60E2CA349A528382066D6B534394A4C94E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70002.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - A State Of Trance Festival 2025 – Day 1 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70036.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Microsoft Visual Studio 2022 Professional 17.13.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70105.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ GPU-Z 2.64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70130.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ ScreenToGif 2.41.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70135.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Microsoft Visual Studio 2022 Community 17.13.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70136.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Photo Studio PRO v2.7.13.3850 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70161.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Photo Studio PRO v2.7.13.3850 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70174.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GeoGebra 6.0.876 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70176.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Sandboxie 5.70.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70186.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Photo Lab PRO v3.13.49 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70197.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ XYplorer 26.90.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70231.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Firefox Browser 135.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70281.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Firefox Browser 135.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70284.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Tablacus Explorer 25.2.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70285.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ NokoPrint v5.20.24 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70287.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ PictureThis - Plant Identification v5.1.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70296.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ PeaZip 10.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70299.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:68730FA990D383CA5A536F6E6B551FF4DA192BD8
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70314.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Visions Of Atlantis - Armada LIVE Over Europe - Pt. 3 (2025) [FLAC 24/48|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70354.jpg" />
 </div>
 
 

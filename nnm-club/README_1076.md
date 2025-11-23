@@ -6,7 +6,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28324.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D62CFA43B67FC98C6573FC87F070E9A1C9C7DCFF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28325.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28325.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:616A7FB19A56A23276CC2427F8F4CE61C6EB17DE
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28326.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:164AE4812B3E612150E5E7C2019CB55B0F93E379
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28327.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C409741C2A62C22BDB2EF6EA2C5B3BEBBDBCAED4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28328.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28328.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C409741C2A62C22BDB2EF6EA2C5B3BEBBDBCAED4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28329.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:54F422A1D14D8505E25FAECED37FA21E9D47A29F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28330.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Warcraft: Remastered Trilogy (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157/2.0) Repac
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28331.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:5D115B9A8C2A0D259AA6EAECD8BAAF47C5C11A64
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28332.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:30961368D87187158CE04F2C029704A02B736FFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28333.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:DF1D1ABEB4BBB7C4EA953D07A11A2D328FF51E7D
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28334.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:005643AFD7628852EB2531306D8D5CBB15A1C170
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28335.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:CBAF9CD8141EB1E40AF6DDB555BC096572FFA866
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28336.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28336.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Google Chrome 133.0.6943.60 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28337.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28337.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:9CBFBEBA580C02051AB3187EFAB5F0096CA85986
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28338.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28338.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28339.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28339.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Movavi Screen Recorder 24.5.0 (x64) Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28340.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:9D17422B07C56A2F53D52B6C6960E4184D00E2CF
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28341.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ City of Stories 3: The Hunter's Heart / Город Историй 3: Сердц�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28342.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28342.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28343.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Skype 8.136.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28344.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:75358F6E154BC789F232E13A6938D23E9256DFF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28345.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28345.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:5A8FD03231D29A08D3A1E67F5E5BBE58AFECD5E8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28346.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28346.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:AE504EE9573DF80DB14E58AFBEA472874D6DD921
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28347.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28347.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ FanControl V214 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28348.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28348.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:31D2EEC901CA40212CF938AB2BC645E8BECB3D05
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28349.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28349.jpg" />
 </div>
 
 

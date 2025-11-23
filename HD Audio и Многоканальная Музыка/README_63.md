@@ -6,7 +6,7 @@ Aetherwind - The Bonding Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67000.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jonas Wall - Umbaji (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67005.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Christian Madden & The Enemy Chorus - Shinbone's Revenge (2025) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67006.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lily of the Sea - Slow Violence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67007.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Big Mike Hart - Modern Classic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smoot
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67008.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Haken - Liveforms: An Evening With Haken (Live in London 2024) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67009.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eric Elias Trio - HOME MADE (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fus
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67010.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bowers Foreman - The Boy Who Learned To Fly (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67011.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67018.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67019.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67032.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Gypsy Pistoleros - Welcome To The Church Of The Pistoleros (2025) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67035.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67039.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Paradise Slaves - With Hell In His Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67041.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chontaraz - Phantom Of Reality (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67043.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Froglord - Metamorphosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, d
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67044.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hate - Bellum Regiis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67045.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67048.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67049.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Tom Wax - The Future Is Now (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Tec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67060.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Christopher Cross - Christopher Cross (1979) Expanded Edition, 2025, Warner Reco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67077.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67080.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67089.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67091.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Circle Of Chaos - Studio Albums (4 releases) (2010-2022) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67110.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ancient Wisdom - For Snow Covered the Northland (1996) Released, 2022, Peacevill
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67112.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 593300   (135279) от 23.12.2012
+
+День рождения Интера  / День народження Інтера. 16 лет лидерства. Часть №1 (2012) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеканал "Интер" и его телезрителей поздравят артисты высочайшего уровня: Елена Ваенга, Кристина Орбакайте, Ани Лорак, Лолита, Вера Брежнева, Тина Кароль, Николай Басков, Ирина Билык, Игорь Николаев, Анжелика Варум, Леонид Агутин, Таисия Повалий, Лайма Вайкуле, Наталья Могилевская, "Иванушки Интернешнл" и другие. Ведущие: Максим Галкин с двумя (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA9800C707433F3F0E9E87FA58CBA848A387AB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593136   (135280) от 23.12.2012
+
+Фотография - Photos from Ophelia Overdose Part 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы фотографа Ophelia Overdose.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA77BF686BCDB244B966BA9F72C142FA0BD6239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679775   (135281) от 26.11.2023
+
+Secret Rule - Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disorder [00:04:18]
+02. Equilibrium [00:04:50]
+03. Shards of Time [00:04:03]
+04. Gravity On Us [00:04:38](   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFC7E105669C6580C5CE05A09B1DA1CA828E4AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679542   (135283) от 26.11.2023
 
 Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock>
@@ -6,7 +81,7 @@ Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135283.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ MediaRescue Pro 6.9 Build 947 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135284.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135284.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ Fabula Rasa - Tome I: The Arrival (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135285.jpg" />
 </div>
 
 
@@ -86,7 +161,7 @@ The Black Owl - Let Us Prey (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135287.jpg" />
 </div>
 
 
@@ -113,7 +188,7 @@ VA - DubStep Pro V.8 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135288.jpg" />
 </div>
 
 
@@ -146,7 +221,7 @@ Shayne Malone - Sacred (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135289.jpg" />
 </div>
 
 
@@ -173,7 +248,7 @@ magnet:?xt=urn:btih:34D04B7721E30D9B9838B76BE0890909A0ACFCF6
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135290.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:93851DA4A6FBCC949DDF99FD53A1E3530B5818B1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135291.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:C0F578BF977F169A70024CC23F48FD8516571C73
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135292.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ Shanna Waterstown - Be with You (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135293.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ JixiPix Watercolor Studio Pro 1.4.17 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135295.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135296.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135296.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135297.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:6408AAE5F12E02B9F24C0F95B18E417AC6083766
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135298.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135298.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ magnet:?xt=urn:btih:6408AAE5F12E02B9F24C0F95B18E417AC6083766
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135299.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135299.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ magnet:?xt=urn:btih:6408AAE5F12E02B9F24C0F95B18E417AC6083766
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135300.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135300.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135301.jpg" />
 </div>
 
 
@@ -455,7 +530,7 @@ magnet:?xt=urn:btih:E89F8A35A60B642F0F62640D7A456FE28BE0A101
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135302.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ Hell's Addiction - 9 O'Clock Horses (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135303.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ Pinball Wizard - Dirty Ways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135304.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ Brianna Harness - This Too Shall Pass (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135305.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ The Thief River Band - Two Lane Solution (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135307.jpg" />
 </div>
 
 
@@ -589,7 +664,7 @@ Myriad Lights - Lambda (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Powe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135309.jpg" />
 </div>
 
 
@@ -603,84 +678,6 @@ Myriad Lights - Lambda (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79DEF111B8ADC848BB4274CD2654D9AF5D4FFFE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679746   (135311) от 26.11.2023
-
-Rumpus PRO 9 v.9.0.12 + Tether Client 1.1  [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rumpus - простой в использовании, высокопроизводительный FTP, WebDAV сервер для macOS.
-Встроенные, удобные в администрировании пользовательские учетные записи, интегрированная передача файлов в сети Интернет, уведомления о загрузке файлов, обширные настройки безопасности, потрясающе высокая производительность, и многое другое... Также включает монитор активности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2023Разработчик: © 2023 Maxum DevelopmentПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1C2FBEF0CB8590B64B56529B39DD1B48D3C619
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593405   (135312) от 23.12.2012
-
-ObjectRescue Pro 6.9 Build 947 [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135312.jpg" />
-</div>
-
-
-###  Подробнее
-
-ObjectRescue Pro - универсальное решение для восстановления данных. Программа восстанавливает не читаемые и удаленные файлы с различных носителей, таких как: жесткие диски, CD/DVD диски, цифровые фотоаппараты, мобильные телефоны, а также все известные типы флэш-карт.
-
-(   Читать дальше...   )Название программы: ObjectRescue ProЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679838   (135313) от 26.11.2023
-
-Fierce Justice - Fireborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call To Arms (02:29)
-02. Doppelganger (05:06)
-03. Spineless (04:35)
-04. Rage (04:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEAAB3EED039673FCB3531590AE1AD7535832D8
 ```
 
 

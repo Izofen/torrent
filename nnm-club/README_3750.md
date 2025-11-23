@@ -1,3 +1,82 @@
+###  Публикация: 1699838   (117182) от 16.02.2024
+
+Kgb - Motion (1976) Reissue, 2024, Andromeda Black Hole [MP3|320 Kbps] <blues rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Woman, Stop Whatcha Doin' [00:04:18]
+02 - I Only Need a Next Time [00:03:58]
+03 - My Serene Coleen [00:03:22]
+04 - Lookin' for a Better Way [00:03:09](   Читать дальше...   )Жанр: blues rock, Pop RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81ED79118929697F51163B94B507A463C8656053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700226   (117183) от 16.02.2024
+
+TablePlus 5.9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управление базой данных стало проще
+Современный, родной и удобный графический интерфейс для реляционных баз данных: MySQL, PostgreSQL, SQLite и др.Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2023 TablePlus Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837CF58CC101AA4DF8704DF6A492CCE8A2DBEC2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700069   (117184) от 16.02.2024
+
+VA - 10 Years Of Suanda Music - Eximinds (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eximinds - Solveig's Song (Extended Mix) [5:14]
+02. Eximinds & Proyal - Mood (Extended Mix) [5:07]
+03. Eximinds & Golax - Horizon (Extended Mix) [4:42]
+04. Eximinds - Sundown (Extended Mix) [4:49](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85CF7B72590BA76533164D4375EB3AF20F4FAAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700451   (117185) от 16.02.2024
 
 Elettra Storm - Powerlords (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +85,7 @@ Elettra Storm - Powerlords (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117185.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:B5255A2C8C91A5999D70F2F01D80474E0843BD7E
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117186.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ magnet:?xt=urn:btih:C26964816D31893B5A0BD8BF8B7F58741E7DFA66
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117187.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ magnet:?xt=urn:btih:0182FA7B7DE27FFBE5F91D5D6A6EBF6E54AC3888
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117188.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ UMC - 90s in Metal (2018) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Cove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117189.jpg" />
 </div>
 
 
@@ -133,7 +212,7 @@ magnet:?xt=urn:btih:BFD730D420D5A68FACE037C8B7EF693D93E2E9A5
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117190.jpg" />
 </div>
 
 
@@ -157,7 +236,7 @@ magnet:?xt=urn:btih:4CE4C1CBCDF7F21D622DCDF355D9F51CAEFC71DA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117191.jpg" />
 </div>
 
 
@@ -184,7 +263,7 @@ magnet:?xt=urn:btih:D1B79DB73E189C3D049B0C110C227F1A1C884411
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117192.jpg" />
 </div>
 
 
@@ -208,7 +287,7 @@ Microsoft .NET 6.0.27 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117193.jpg" />
 </div>
 
 
@@ -233,7 +312,7 @@ VA - The Best of 2023 from Sounemot Labels Group (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117194.jpg" />
 </div>
 
 
@@ -260,7 +339,7 @@ Privacy Eraser Free 6.3.3 Build 4839 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117195.jpg" />
 </div>
 
 
@@ -285,7 +364,7 @@ AC/DC - AC/DC: Live in Maryland, 1979 (2024) (Live) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117196.jpg" />
 </div>
 
 
@@ -312,7 +391,7 @@ PeaZip 9.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117197.jpg" />
 </div>
 
 
@@ -336,7 +415,7 @@ magnet:?xt=urn:btih:33C40FE8A1217621559DB939B4FE1CDF2D10E90F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117198.jpg" />
 </div>
 
 
@@ -363,7 +442,7 @@ Steve Hackett - The Circus and the Nightwhale (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117199.jpg" />
 </div>
 
 
@@ -390,7 +469,7 @@ Peter Gabriel - Shaking The Tree: Sixteen Golden Greats (1990) 1st German Press 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117200.jpg" />
 </div>
 
 
@@ -417,7 +496,7 @@ VA - Driving Songs The Ultimate Collection (2014) 5 CD [OGG Vorbis|480 Kbps] <Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117201.jpg" />
 </div>
 
 
@@ -444,7 +523,7 @@ magnet:?xt=urn:btih:DFDE6D7AF5279491FF611D2A0A7C36058F480506
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117202.jpg" />
 </div>
 
 
@@ -468,7 +547,7 @@ RJ TextEd 16.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117203.jpg" />
 </div>
 
 
@@ -492,7 +571,7 @@ Steve Hackett - The Circus and the Nightwhale (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117204.jpg" />
 </div>
 
 
@@ -519,7 +598,7 @@ Pet Shop Boys - Introspective (1988) 1st German Press / Holland Press [APE|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117205.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ VA - Black Hole House Music 02-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117206.jpg" />
 </div>
 
 
@@ -573,7 +652,7 @@ Brave Browser 1.62.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117207.jpg" />
 </div>
 
 
@@ -584,84 +663,6 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B34090F312CBDEF6CD1675BB4A1E48AF07BFC05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700304   (117208) от 16.02.2024
-
-Leah - The Glory and the Fallen (2024) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archangel (04:11)
- 02. No More Fear (05:11)
- 03. Unshakable (05:07)
- 04. Speak to Me (04:43)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6D5B5EDCEE450CBA23F82C52D77787C790D3F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700383   (117209) от 16.02.2024
-
-SecuritySpy 5.5.10 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117209.jpg" />
-</div>
-
-
-###  Подробнее
-
-SecuritySpy работает с широким спектром камер, чтобы удовлетворить все потребности, от традиционных аналоговых камер до последней сетевой камеры HD разрешения, предлагая высокое качество видео. Программная функция детектора движения будет качественно обнаруживать и фиксировать любое движение в области просмотра, а функция удаленного мониторинга позволит просматривать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 2024 Ben Software LtdПоддерживаемая ОС: OS X 10.13.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0387A430570091CC186F2487001FE6B6BB4CC036
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700236   (117210) от 16.02.2024
-
-VA - Black Hole Trance Music 02-24 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & Florida Forgotten - Epika (Extended Mix) [6:55]
-02. Jonas Steur - Night Tremors (Extended Mix) [7:01]
-03. Greg Oakland & Tara Louise - Rising Sun (Extended Mix) [7:20]
-04. Tom Cloud - Silence (Extended Mix) [5:47](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB06BA9CF13F7903F7A8DDF1A418B0CC2FE44A9
 ```
 
 

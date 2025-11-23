@@ -6,7 +6,7 @@ NG: Дубаи: Чудо или мираж? / Dubai: Miracle or Mirage? (2007) H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82084.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LMFAO - Sorry For Party Rocking (2011) [MP3|320 кб/с]<Electro, Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82086.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ nVIDIA GeForce Verde R295 Driver (for Notebooks) 296.10 WHQL [Многоязыч
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82101.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ nVIDIA GeForce Verde R295 Driver (for Notebooks) 296.10 WHQL [Многоязыч
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82105.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:7919BA8B2F76F6B36F0B7A76C46B454B8951C406
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82115.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:3C4E3F96764E03E69553645B85A4A2FE7FAEF150
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82125.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:3C4E3F96764E03E69553645B85A4A2FE7FAEF150
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82175.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:58DC2D51C343BE8B4306F33D12AEEAE7DD3D53F8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82176.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ ArcSoft Perfect365 1.1.0.1 [Английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82177.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Guadalinex 8 [i386] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82180.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Nitro PDF Professional 7.3.1.1 (x86x64) [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82185.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Nitro PDF Pro - необходимый набор утилит для созда
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82187.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:7780D6798CEC3DBCD41EFBBC40F11684D7220566
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82188.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Oldschool Hardcore Top 100 - Megamix vol.2 2CD (2012) [MP3|~257 кб/с]<Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82190.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:1616D72047D56E1F9E295180D827EFCE80C72048
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82191.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:D28E5A92A6CCBB6CCF38F20C90C3F66EE1D6ED9A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82200.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D28E5A92A6CCBB6CCF38F20C90C3F66EE1D6ED9A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82201.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:3540E05949471D643C9316D7D14DF8F2842790FE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82203.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3540E05949471D643C9316D7D14DF8F2842790FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82204.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:FA509F1797067DABA8B28C80EC32C7269B7F9EA3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82206.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:FA509F1797067DABA8B28C80EC32C7269B7F9EA3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82209.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:FAEA19C1639633F47900F4F7581DE03D33958D84
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82218.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:93FD1B99362F80D94A91A0FA3A0B273B1CBF1EC0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82222.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:0E5E3028DF2A06ABA8D5759BC7C20525764F8F8A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82226.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:0E5E3028DF2A06ABA8D5759BC7C20525764F8F8A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82230.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:0802680648E29B5DDD31E7E4913529468174DD5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82233.jpg" />
 </div>
 
 

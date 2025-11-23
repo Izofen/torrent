@@ -1,3 +1,81 @@
+###  Публикация: 1700304   (117208) от 16.02.2024
+
+Leah - The Glory and the Fallen (2024) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangel (04:11)
+ 02. No More Fear (05:11)
+ 03. Unshakable (05:07)
+ 04. Speak to Me (04:43)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6D5B5EDCEE450CBA23F82C52D77787C790D3F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700383   (117209) от 16.02.2024
+
+SecuritySpy 5.5.10 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117209.jpg" />
+</div>
+
+
+###  Подробнее
+
+SecuritySpy работает с широким спектром камер, чтобы удовлетворить все потребности, от традиционных аналоговых камер до последней сетевой камеры HD разрешения, предлагая высокое качество видео. Программная функция детектора движения будет качественно обнаруживать и фиксировать любое движение в области просмотра, а функция удаленного мониторинга позволит просматривать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 2024 Ben Software LtdПоддерживаемая ОС: OS X 10.13.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0387A430570091CC186F2487001FE6B6BB4CC036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700236   (117210) от 16.02.2024
+
+VA - Black Hole Trance Music 02-24 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Florida Forgotten - Epika (Extended Mix) [6:55]
+02. Jonas Steur - Night Tremors (Extended Mix) [7:01]
+03. Greg Oakland & Tara Louise - Rising Sun (Extended Mix) [7:20]
+04. Tom Cloud - Silence (Extended Mix) [5:47](   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB06BA9CF13F7903F7A8DDF1A418B0CC2FE44A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700217   (117211) от 16.02.2024
 
 Журнал | Главбух №4 (февраль 2024) [PDF]
@@ -6,7 +84,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117211.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Opera Crypto Browser 107.0.5045.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117212.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ Opera One 107.0.5045.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117213.jpg" />
 </div>
 
 
@@ -79,7 +157,7 @@ VA - Trance In Motion Vol.371 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117214.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ Love Romance Music Zone, Music to Relax in Free Time - Sexy Massage for Valentin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117215.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ Opera One 107.0.5045.21 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117216.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117217.jpg" />
 </div>
 
 
@@ -184,7 +262,7 @@ Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117218.jpg" />
 </div>
 
 
@@ -211,7 +289,7 @@ AC/DC - AC/DC A Touch Too Music Live In Maryland 1979 (Live) (2021) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117219.jpg" />
 </div>
 
 
@@ -238,7 +316,7 @@ Google Chrome 121.0.6167.185 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117220.jpg" />
 </div>
 
 
@@ -262,7 +340,7 @@ Pet Shop Boys - Actually (1987) Holland Press [APE|Lossless|image + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117221.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ Idol Densetsu Eriko | Легендарный айдол Эрико [1989-1990, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117222.jpg" />
 </div>
 
 
@@ -313,7 +391,7 @@ magnet:?xt=urn:btih:81070605896E69B1A91D0E90F7953944658CEC6F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117223.jpg" />
 </div>
 
 
@@ -340,7 +418,7 @@ Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117224.jpg" />
 </div>
 
 
@@ -367,7 +445,7 @@ magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117225.jpg" />
 </div>
 
 
@@ -394,7 +472,7 @@ LibreWolf 122.0.1-2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117226.jpg" />
 </div>
 
 
@@ -420,7 +498,7 @@ Durbin - Screaming Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117227.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ Topaz Photo AI 2 for Mac 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117228.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ CrossOver 24.0-b3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117229.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ magnet:?xt=urn:btih:58B8638FB72342641D3E1979C3D1EA5BA6C5DC60
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117230.jpg" />
 </div>
 
 
@@ -520,7 +598,7 @@ WinSCP 6.3.0 Build 14793 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117231.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ magnet:?xt=urn:btih:F61F90C2373B7FD628059784CDB469FA1CC489B4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117232.jpg" />
 </div>
 
 
@@ -572,7 +650,7 @@ Pink Floyd - Live At Vienna Stadthalle, Austria, 13 October 1973 (2023) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117233.jpg" />
 </div>
 
 
@@ -586,79 +664,6 @@ Pink Floyd - Live At Vienna Stadthalle, Austria, 13 October 1973 (2023) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC426C6A543F53C4CFAB71C56A3D04C0C946916A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700248   (117234) от 16.02.2024
-
-Google Chrome 121.0.6167.185 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01A86DB82D2AE767C218D85768FBD486F99FDED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700403   (117235) от 16.02.2024
-
-Сергей Карелин | Проект Х (2024) [MP3, Константин Парфенов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117235.jpg" />
-</div>
-
-
-###  Подробнее
-
-1943 год. Советскому руководству становится известно о секретном немецком проекте «Проект Х». Так как данный проект оказывается связанным с известным немецким профессором оккультных наук, принимается решение возродить секретный отдел НКВД, занимавшийся тем же, что и фашистское «Аненербе», но закрытый как прибежище врагов народа....Жанр: Боевая фантастика, Боевое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 07:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277CA63C399579BC9DDFAE659AAD67AF87E0F959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700469   (117236) от 16.02.2024
-
-LRTimelapse Pro 6 v.6.5.4 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117236.jpg" />
-</div>
-
-
-###  Подробнее
-
-RTimelapse — приложение предназначено исключительно для профессионалов и опытных фотолюбителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка утилиты, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фотоизображения, по нескольким ключевым кадрам.
-Интервальная съемка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2024 Gunther WegnerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31796BF975D123D1D209458FE1B7A2AD41D9B88B
 ```
 
 

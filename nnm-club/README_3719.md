@@ -1,3 +1,77 @@
+###  Публикация: 1701567   (116376) от 21.02.2024
+
+Path Finder 2168 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036E8DA706A4D8CA246BB46BEC47C6B5DD2ED534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701541   (116377) от 21.02.2024
+
+Blender 3.6.9 LTS + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
+
+В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C4498E5ADD0A7E4F1E92667F35FD4C036D4347
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701576   (116378) от 21.02.2024
+
+Чарли Пуля / Fast Charlie (2023) WEB-DL [H.264/1080p] [UKR, EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли Свифт по прозвищу Пуля — хладнокровный киллер и мастер по решению сложных проблем. Много лет он верой и правдой служит своему боссу, мафиози Стэну, пока от того не решает избавиться конкурент. Избежавший расправы герой встает на путь мести, заручившись неожиданной поддержкой Марси — бывшей жены бандита, некогда погибшего от рук Чарли.Производство: США / Ashland Hill Media Finance, BCD TravelЖанр: боевик, триллер, драма, криминал, детективРежиссер: Филлип НойсАктеры: Пирс Броснан, Морена Баккарин, Джеймс Каан, Гбенга Акиннагбе, Мэтт Кук, Девид Чаттем, Тоби Хасс, Фредрик Лене, Шэрон Глесс, Бреннан Кил КукПеревод: Любительский многоголосый (укр. В одне рило)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7154B8F26FF00923D531517C42E27E0B34B7611F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701629   (116379) от 21.02.2024
 
 StartAllBack 3.7.4 [Multi/Ru]
@@ -6,7 +80,7 @@ StartAllBack 3.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116379.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ WinTools.net Premium 24.2.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116380.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:C1ACEFF729E6E4E66C95662D4661AAF72E2E963D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116381.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Windows and Office Genuine ISO Verifier 11.14.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116382.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Total Commander 11.03 (21.02.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116383.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:B1FF32D01B362A246E736E4621A43506FB825216
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116384.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ Music Tag Editor Pro 7.5.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116385.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ VA - Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116386.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ magnet:?xt=urn:btih:3B62E6664277D1AE95FA7FAD580B24561A615D9F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116387.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ Google Chrome 122.0.6261.58 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116388.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ magnet:?xt=urn:btih:D1D837F4F7EB15B77942ED1DCCBE431F1330A200
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116389.jpg" />
 </div>
 
 
@@ -276,7 +350,7 @@ ISO Workshop 12.7 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116390.jpg" />
 </div>
 
 
@@ -300,7 +374,7 @@ Mozilla Thunderbird 115.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116391.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ magnet:?xt=urn:btih:12E4591CC7321C93D4DBE63E56A4669273E759C5
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116392.jpg" />
 </div>
 
 
@@ -349,7 +423,7 @@ Red Zone Planet - Asteria (2023) [MP3|320 Kbps] <Synthwave, Space Rock>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116393.jpg" />
 </div>
 
 
@@ -376,7 +450,7 @@ magnet:?xt=urn:btih:F2153F3D599FF08DD9AD01FA09D0F6F0A4007FA0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116394.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ magnet:?xt=urn:btih:1BB96E335BD30173518B6E276F7EF4F4AE7AB375
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116395.jpg" />
 </div>
 
 
@@ -425,7 +499,7 @@ DefenderKiller 11.2.2 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116396.jpg" />
 </div>
 
 
@@ -450,7 +524,7 @@ magnet:?xt=urn:btih:F53AD686C4AEC1E5F18118FB97AD5AB53C872AC2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116397.jpg" />
 </div>
 
 
@@ -474,7 +548,7 @@ magnet:?xt=urn:btih:C336CF896BC98076FD0CC3A160B6C0220AE7B0D1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116398.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ Hiren’s BootCD PE x64 v1.0.5 (20 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116399.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ magnet:?xt=urn:btih:7E820BE1D23669766A960CA8FA5B26927705E66D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116400.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ magnet:?xt=urn:btih:13BBF4F1679761E0E2B8BE5AB2A34E489CC80C6F
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116401.jpg" />
 </div>
 
 
@@ -557,79 +631,6 @@ magnet:?xt=urn:btih:13BBF4F1679761E0E2B8BE5AB2A34E489CC80C6F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02EC65E618A3649C5CECBEB97E32E1D334AE62CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701496   (116402) от 21.02.2024
-
-Capture One 23 Enterprise 16.3.6.1949 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507B7D60B5C8B162DF1944602F355132927660E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701604   (116403) от 21.02.2024
-
-ASCOMP Cleaning Suite Pro 4.010 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116403.jpg" />
-</div>
-
-
-###  Подробнее
-
-ASCOMP Cleaning Suite - программа для комплексной очистки системы и настройки Windows, которая проанализируют систему и поможет выполнить глубокую очистку и оптимизацию ПК.
-﻿Если система загружается все медленнее и места на жёстком диска уже недостаточно, то самое время тщательно очистить систему! Но какие данные могут быть удалены без риска и какие все еще (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11991802F06A418CE1024063920C9E2D0AE5F233
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701481   (116404) от 21.02.2024
-
-CPUID HWMonitor Pro 1.53 (x64) Portable by Padre Pedro [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116404.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPUID HWMonitor - утилита предназначена для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. показателей накопителей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D332918BE0DE7EAC8696767AE03444AD3A58B6C
 ```
 
 

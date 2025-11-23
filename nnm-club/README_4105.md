@@ -1,3 +1,80 @@
+###  Публикация: 1686621   (126417) от 23.12.2023
+
+Чингиз Абдуллаев | Дронго (Книга 81). Второе рождение Венеры (2023) [MP3, Татьяна Некрасова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщины коварны и непредсказуемы. В этом лишний раз убедился эксперт-аналитик Дронго, случайно, пролетом, оказавшийся на одном из островов Мадейры. Так уж совпало, что он остановился в отеле, большая часть номеров в котором заселена представительницами прекрасного пола. И какими представительницами! Все они съехались на конференцию феминисток… В ночь перед закрытием (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 05:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BBC192A0A4305AD5BC5DA1C12AE659E8A41DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686352   (126418) от 23.12.2023
+
+Frankie Moreno - RED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red (3:22)
+02. Elephant Tears (3:38)
+03. Bombs Away (3:44)
+04. No More (3:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62B5EDB64AEF39C8ED0CB62B6C55594DD781639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686653   (126419) от 23.12.2023
+
+Джером К. Джером | Энтони Джон (2014) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиокнига.
+Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
+Роман «Энтони Джон» является одним из редчайших «серьёзных» произведений знаменитого английского писателя-юмориста Джерома Клапки Джерома, автора бессмертной повести «Трое в лодке, не считая собаки». Поклонникам творчества Джерома будет интересно познакомиться с этой (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: МедиаКнигаПродолжительность: 06:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5929AD019DCDDEF4DAF3EAB800CDBC6FEFC920CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686313   (126420) от 23.12.2023
 
 Tragik - Realm Angelic (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +83,7 @@ Tragik - Realm Angelic (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126420.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Jimmy Lewis and Peggy Scott-Adams - Christmas With Miss Butch Records (2023) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126421.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ PhotoRoom 4.7.9 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126422.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ The Must Die - Праздники прошли... (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126423.jpg" />
 </div>
 
 
@@ -111,7 +188,7 @@ magnet:?xt=urn:btih:46D417C96B58FA9E915597CA35319D22EE5A720D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126424.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ magnet:?xt=urn:btih:58907473C9ACA49DBCF8477031A3EEFF01C7160E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126425.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ The Level - Level (1982) Reissue, 2023, MelodicRock Classics [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126426.jpg" />
 </div>
 
 
@@ -186,7 +263,7 @@ Tamarillo - Seraphin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126427.jpg" />
 </div>
 
 
@@ -213,7 +290,7 @@ magnet:?xt=urn:btih:695511CC443E9B89198961EEBB0FC64B41FB6546
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126428.jpg" />
 </div>
 
 
@@ -237,7 +314,7 @@ Jay Doe & The Blues Preachers - Bluestime (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126429.jpg" />
 </div>
 
 
@@ -264,7 +341,7 @@ Bill Evans - You Must Believe In Spring (1977) 2022, Craft Recordings [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126430.jpg" />
 </div>
 
 
@@ -291,7 +368,7 @@ magnet:?xt=urn:btih:2D3D07D6F4779CDA801A2ACC6BD0AD030E011161
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126431.jpg" />
 </div>
 
 
@@ -317,7 +394,7 @@ The Stan Getz Quartet - Pure Getz (1982) Concord Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126432.jpg" />
 </div>
 
 
@@ -344,7 +421,7 @@ magnet:?xt=urn:btih:8DBE6E9727F15ACCD864664FBF113CD0B5E4FCA3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126433.jpg" />
 </div>
 
 
@@ -368,7 +445,7 @@ Third Eye - Vengeance Fulfilled (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126434.jpg" />
 </div>
 
 
@@ -395,7 +472,7 @@ VA - Black Hole Recordings - Best Of 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126435.jpg" />
 </div>
 
 
@@ -422,7 +499,7 @@ magnet:?xt=urn:btih:C74320393654EEFF7BE21B3FFE1F42DDB228B754
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126436.jpg" />
 </div>
 
 
@@ -446,7 +523,7 @@ Deathmonger - Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126437.jpg" />
 </div>
 
 
@@ -473,7 +550,7 @@ magnet:?xt=urn:btih:B222DEAD07E85BE621A7AE006A39929A6B35B651
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126438.jpg" />
 </div>
 
 
@@ -497,7 +574,7 @@ magnet:?xt=urn:btih:8665CDBD017B3ED3E5398B0CE0A5DA57D2FBBA41
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126439.jpg" />
 </div>
 
 
@@ -521,7 +598,7 @@ PhotoRoom v4.7.9 b1216 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126440.jpg" />
 </div>
 
 
@@ -545,7 +622,7 @@ magnet:?xt=urn:btih:7580CB6D77A11F0B513078124F6F935F90270361
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126441.jpg" />
 </div>
 
 
@@ -569,7 +646,7 @@ magnet:?xt=urn:btih:7580CB6D77A11F0B513078124F6F935F90270361
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126442.jpg" />
 </div>
 
 
@@ -580,87 +657,6 @@ magnet:?xt=urn:btih:7580CB6D77A11F0B513078124F6F935F90270361
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B981BC324027840ED550ED7A6F85BE215C7C7B09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686601   (126443) от 23.12.2023
-
-Markus Schulz - Global DJ Broadcast Year in Review (2023) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Adina Butar - Waves of High
-02. Anske - Confidence
-03. Estiva - Via Infinita
-04. Artche - Weightless(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 04:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5417F19A850BDB723CAF544795859B82072DB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686661   (126444) от 23.12.2023
-
-VA - The best of Tecnomind 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Walid - Crystal Eyes (Original Mix) [6:17]
-02. Artifi - Exhausted (Original Mix) [5:36]
-03. Asier - Discover (Original Mix) [7:03]
-04. Atmospherika - Dark Matter (Original Mix) [6:51](   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B80C29004E80B1C3EDD21A3AFC5FEAE4117D1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686555   (126445) от 23.12.2023
-
-Vlad Inside - Ferrum City (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Amalgam (00:01:58)
-02 - Drakkar (00:01:47)
-03 - Steel Symphony (00:02:08)
-04 - Factory (00:02:49)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A92A9335245B2D8C6724324DC57688CA2970EB
 ```
 
 

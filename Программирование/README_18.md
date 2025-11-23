@@ -1,3 +1,76 @@
+###  Публикация: 1654567   (202333) от 21.08.2023
+
+Книжная серия "Head First O'Reilly" в 26 книгах +1CD (2011-2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202333.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серию входят переводные книги издательства O'Reilly. Это уникальная серия "визуальных" книг, созданных по последним методикам эффективного обучения. Книги имеют огромное количество иллюстраций, графиков и таблиц, что позволяет усваивать материал намного эффективнее. Разговорный стиль изложения концентрирует внимание читателя, а упражнения, контрольные (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153A8C0B85AB95C36A3D68537E89956436F808D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654576   (202337) от 21.08.2023
+
+Кристиан Майер | . Искусство чистого кода. Как избавиться от сложности и упростить жизнь (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство разработчиков ПО тратят тысячи часов на создание излишне сложного кода. Девять основных принципов книги «Искусство чистого кода» научат вас писать понятный и удобный в сопровождении код без ущерба для функциональности. Главный принцип — это простота: сокращайте, упрощайте и перенаправляйте освободившуюся энергию на самые важные задачи, чтобы сэкономить (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14997661AFBB0AABAA49B6352807689B5835A691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612858   (202615) от 17.02.2023
+
+Джош Скин и др. | Kotlin. Программирование для профессионалов, 2-е издание (2022) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для кого написана эта книга:
+Мы написали эту книгу для разработчиков разного уровня: тех, кто имеет богатый опыт создания приложений для Android и кому не хватает возможностей Java; тех, кто разрабатывает серверный код и заинтересован в возможностях Kotlin; тех, кто стремится к совместному использованию кода Kotlin в нативных и веб-приложениях; а также для новичков, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C2C55A9A7A199487BB11FE240FD66A3A3E269E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612254   (202685) от 15.02.2023
 
 Валерий Рубанцев | Решение задач на языке С++ (2016) [PDF]
@@ -6,7 +79,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202685.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202685.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:C261A6909DE433E41F36D222C083EF8EBCDC3506
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202719.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202719.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:1D77708F260389507E56934DC56ABB1CBA39D57C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203020.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203020.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:DD8930688DE14B4B4E9197971024E286DB8BD825
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203080.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203080.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:40EB4BDC37DD41FD2DC761584F94F40E6848972B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203147.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203147.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:BD6B0863AFEF0C854C987CAEC5B035887112DA51
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203359.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203359.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:636A4FAF469ACD11D00A35935135BCCB058FD104
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203430.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203430.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Mark J. Price | C# 11 and .NET 7 – Modern Cross-Platform Development Fundament
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203802.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203802.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:9502F4E946EF1683348C4CA582F76E031923E088
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204132.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204132.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ Shantanu Baruah, Shaurya Baruah | App Development Using iOS iCloud (2023) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204135.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204135.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:E720D6F984D16FC4E835FF334E50ED7B7C16EB08
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204600.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204600.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:9FE29BB7F2F0F1594F826BC0434D20527D6DD592
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204784.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204784.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ magnet:?xt=urn:btih:D95C998C7E2AC335595FBCA24333AE610C1CC508
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205132.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205132.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ Martin Joo | Domain-Driven Design with Laravel - Premium Package (2022) [PDF] [E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205265.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205265.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ magnet:?xt=urn:btih:55DFAFEAD96B45CA2CE74D6A31C94E47A944DB7D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205404.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205404.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ Alex Martelli и др. | Python in a Nutshell: A Desktop Quick Reference, 4th Ed
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205789.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205789.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ magnet:?xt=urn:btih:F1B5A000341D21B44C72DE7E4E6F77619180CD6F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205820.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205820.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ Marius Iulian Mihailescu, Stefania Loredana Nita | Pro Cryptography and Cryptana
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205899.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205899.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ Wallace Wang | Beginning iPhone Development with SwiftUI: Exploring the iOS SDK,
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205903.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205903.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ Hans-Jürgen Schönig | Mastering PostgreSQL 15 (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205914.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205914.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ Martine Dowden, Michael Gearon | Tiny CSS Projects (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205930.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205930.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ Sumit Jaiswal | Git Repository Management in 30 Days (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205966.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205966.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ Dan Wellman | Ultimate Typescript Handbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205969.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205969.jpg" />
 </div>
 
 
@@ -556,81 +629,6 @@ Dan Wellman | Ultimate Typescript Handbook (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F362DA9D3146E1B8541E836FC96E1C0A13A7BCE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582854   (206125) от 11.10.2022
-
-Martin Joo | Microservices with Laravel (Premium Package) (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное руководство по освоению микросервисов с помощью Laravel. Избавьтесь от монолитного монстра! 151 страница высококачественного контента, который научит вас создавать микросервисы с помощью Laravel.
-
-«Микросервисы с Laravel» — это полное руководство по созданию микросервисов. Книга охватывает такие темы, как:
-Написание небольших сервисов с одной обязанностью(   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86C182C0EE3AD616D72FD267EA16E7456D7216E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615448   (206416) от 25.02.2023
-
-Jos Dirksen | Learn Three.js: Program 3D animations and visualizations for the web with JavaScript and WebGL, 4th Edition (2023) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга начинается с основных концепций и строительных блоков, используемых в Three.js, и помогает вам подробно изучить эти важные темы с помощью обширных примеров и образцов кода. Вы узнаете, как создавать реалистично выглядящие 3D-объекты с помощью текстур и материалов и как загружать модели из внешнего источника. Далее вы поймете, как управлять камерой с помощью (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6641E0B36AAFB336E25F68E11DD846FBF91DE04E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613752   (206504) от 24.02.2023
-
-Эндрю Траск | Грокаем глубокое обучение (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубокое обучение - это раздел искусственного интеллекта, цель которого научить компьютеры обучаться с помощью нейронных сетей - технологии, созданной по образу и подобию человеческого мозга. Онлайн-переводчики, беспилотные автомобили, рекомендации по выбору товаров именно для вас и виртуальные голосовые помощники - вот лишь несколько достижений, которые стали возможны, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А.КиселевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A37D27894190EEF36E903D9537C12648AA4CC4B
 ```
 
 

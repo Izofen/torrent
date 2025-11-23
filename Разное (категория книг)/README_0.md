@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3372.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:68C2CEB90F2B9354353BB1F04D690329B7610AC7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3380.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9B2DFB1B82CC21DC53918772D50BD550B18295A1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3382.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:22D437435CC166B55A189E56CB4FA0EF461DA18B
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3611.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:8753A10D07C400F57E8CB42A402357C63E628713
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3628.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:F96DE3D61EACF63EF7470D092D6A81A1EDB60819
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3630.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:755C95724AF3FE5100D0D63DC7B7F7E0CC174315
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3647.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:8E2BC1A50B0CE31B4C5A059C90B60AA0FAF5CC02
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3938.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D75591895C03562FD616758D53C1A336F91D045D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3961.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:90C692559B702A4A70C0A1B58216E95F0670E343
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4133.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:3886B78A11A9985B26C6C54E66290C6886164459
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4135.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:3A652A86045ECC05A0076828FE520E9CB0BC6050
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4141.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:6F9702817AEC354724D0352C5A3D8DAE78C21DD6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4146.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:710EEFF3CFA7F9ED5EFB112D4A4B850F1A9DE422
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4147.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B66E12D541F54134B0D3332DBE48E5EB9B38EF8E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4152.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:818BFD42A4E8EBF06B7F9A85C6A9B80B093C7581
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4153.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:1AA9F18C0E6D40C31E577431D0ABFD84A2B731EB
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4157.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:E151A31EC9DE9577BFE132008D9421BF17FFEFDF
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4177.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:33585DF1DDC2BECD0AD1E2168B9C029B6F22AA33
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4202.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:9E74891B3549234593B50A2561AD7216A386BD9C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4207.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:A9ABB1B36DF6D0F559B01EAE6679A7AA0DFFE6BE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4820.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C3CE63A5AB25266F1798243A91A2E6CA5C7D8702
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4833.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0059A0F8D3C7F298F487369F623179FA4DBA8685
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4976.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F26240074E40DF08310DB01A6EC77C517C1E9F82
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4981.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:2F1F54D0598BF638C8D265546BBCE67F7B06C27D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4987.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:DBADFBFF0B61BBE07CD0D953D2EAB9360AD27B80
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5021.jpg" />
 </div>
 
 

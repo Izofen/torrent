@@ -6,7 +6,7 @@ TapScanner v3.0.24 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54549.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D8F1FB7CC51E3E6E3C5C2D66C7A90B5AAB38E8D3
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54550.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ com.pass - Полюса (2021) [FLAC|Lossless|WEB-DL|tracks] <Russian Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54551.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Snoop Dogg & Dj Drama - Gangsta Grillz: I Still Got It (2022) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54552.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:3C0049905720DDF5B965BD87D22A9E1FE5F7E6EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54553.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:3C0049905720DDF5B965BD87D22A9E1FE5F7E6EC
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54554.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:257B6293E74FEE13691FEF2E1E0BD720D51EBB1A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54555.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:7B6F571FA315F14B50065B667DD043F8B1E794CA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54556.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Trinity Fusion (2023) [Multi] (20240412/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54557.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E3E84573A98DD1364521F5952DCDE68B3745968D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54558.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D384AF46970C9566FEF7ECE0AC544E58CD57F5BB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54559.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:AFD87D91AC7EFB27C5EE5811C10C1B2D279B4CFD
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54560.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:45069E1AC0C1B123090C8A30F203111A85CE439D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54561.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C5EC0E0133F4E93D710CAEA07726009145BCF9BE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54562.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:06C596B0C32F432F4A9D3B15F7D3EFA1F32BB69A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54563.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Balabolka 2.15.0.871 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54564.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ SRWare Iron 125.0.6350.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54565.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:9E654AFA8EC750DCA7B55C25E82B6F46D21BF84A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54566.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:C1FEFDE87E2F5D60935DFE4DAE27069E7F8E4526
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54567.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:1711EAD7A2F4FC8BAD5AF4D10AB4F79580C80343
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54568.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:91153B6651A388AA3329B6294F04086363349F4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54569.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:91153B6651A388AA3329B6294F04086363349F4F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54570.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Machine Head - Of Kingdom and Crown (2022) Scene, Limited, Special Edition[FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54571.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:D87FDE3DCC46DBE1D55ED4535BF7F730E7FAB2A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54572.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ USB Device Tree Viewer 4.2.6.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54573.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:E27C78724D397761DF53F573C9D91535504A49BB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54574.jpg" />
 </div>
 
 

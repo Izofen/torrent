@@ -6,7 +6,7 @@ Swanee - Bushido (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116852.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ U.F.O. - Covenant (2000) Remaster, 2024, Cherry Red Records [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116856.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Heart Line - Rock 'n Roll Queen (2023) [FLAC|Lossless|image + .cue] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116867.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vanir - Epitome (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Heavy Metal, V
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116892.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Various Artists - A Tribute To Smoke On The Water (extended) (2008) [MP3|320 kbp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116961.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Atrophy - Violent by Nature (1990) Reissue, 2007, Metal Mind Productions [APE|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116993.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Atrophy - Socialized Hate (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116995.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Atrophy - Chemical Dependency (1987) Demo, Reissue, 2019, VIC Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116996.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Galahad - The Last Great Adventurer (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116999.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Throne Of Thorns - Converging Parallel Worlds (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117000.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ i-Ten - Taking a Cold Look (1983) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117002.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Stygian Crown - Funeral For A King (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117009.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Keven Jordan - No Sign of Rain (1991) [FLAC|Lossless|WEB-DL|tracks] <AOR, Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117012.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Atrophy - Socialized Hate (1988) Remastered, 2007, Displeased Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117014.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:DD9DA44AFC693D4E7AB81B5908C8987F46D5E9BC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117019.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117022.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Leah - The Glory and the Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117030.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117031.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Galahad - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117033.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Requiem - A Cure To Poison The World (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117034.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Life by Night - Life by Night (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR, New Wav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117036.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Paloma Faith - The Glorification of Sadness (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117041.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Rock Party Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117042.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Women in Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117048.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Rock Hits - women and men who know how to rock - 2024 (2024) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117072.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Blooming Discord - Memories From The Future (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117075.jpg" />
 </div>
 
 

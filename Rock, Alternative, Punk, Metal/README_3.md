@@ -6,7 +6,7 @@ The Offspring - Running & Cycling with The Offspring (2025) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4424.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John Fogerty - Legacy: the Creedence Clearwater Revival years (2025) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4428.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Helloween - Giants & Monsters (2025) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4430.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kiss - Unchained & Unmasked (1993) 2 x CD [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4440.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Queen - Riffs (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4544.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:C0774F261A0A183AC3DC524EF2303E1AA2C5D1E4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4633.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Linkin Park - The Hunting Party (2014) Australia, 9362493698 [FLAC|Lossless|imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4640.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Insania - The Great Apocalypse (2025) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4643.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Queen - Rock N Roll (2025) Remastered, 2011, UME - Global Clearing House [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4656.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Linkin Park - From Zero (Expanded Deluxe Edition) (2024) U.S., 093624833468, 202
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4666.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Linkin Park - From Zero (Deluxe Edition) (2024) U.S., 093624834908, 2025, 2xCD [
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4773.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Chimpan A - M.I.A. Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4782.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Queen - Ballads (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4813.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lillian Axe - Fields Of Yesterday (1999) Reissue, 2004, CD-Maximum [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4924.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ IMKT - Sooner Or Later (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4953.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Queensryche - Live Evolution (2001) Japanese Edition, 2XCD [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5153.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [MP3|320 Kbps] <Altern
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5177.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Unen - Forever Winter (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5328.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Vicious Rumors - The Devil's Asylum (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5334.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Linkin Park - In The End: Live & Rare (2002) Japan, WPCR-11210 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5339.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Darker Half - Book Of Fate (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5340.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Helloween - Giants & Monsters (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5345.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Helloween - Giants & Monsters (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5377.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Garbage - 11 альбомов (1995 - 2025) 20 CD [FLAC|Lossless|image + .cue|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5441.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sacred Will - Sacred Will (2025) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5652.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sacred Will - Into the Realm (2025) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5681.jpg" />
 </div>
 
 

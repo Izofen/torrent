@@ -6,7 +6,7 @@ Seiken Gakuin no Maken Tsukai | The Demon Sword Master of Excalibur Academy | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109813.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109836.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109844.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110106.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я оказалась зл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110108.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Takt Op.Destiny | Такт. Опус Дестини [2021, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110109.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110127.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110133.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Fruits Basket: Prelude | Корзинка фруктов: Прелюдия [2022
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110502.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110593.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110600.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Boku no Hero Academia: Yuuei Heroes Battle | Моя геройская акад�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111398.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tensei Shitara Slime Datta Ken: Coleus no Yume | О моём перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111418.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kuro no Shoukanshi | Black Summoner | Чёрный призыватель [2022,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111503.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Kurayukaba | Краюкаба [2024, Movie] WEBRip 544p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111567.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112390.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112406.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tenchi Muyou! GXP: Paradise Shidou Hen | Тэнти - лишний! GXP Заро
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112506.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Anime Sanjuushi | The Three Musketeers | Три мушкетера [1987, TV, 52
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112760.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi | My Tiny Senpai | Маленька�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115484.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Edomae Elf | Otaku Elf | Эльф Эдомаэ [2023, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115487.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115499.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115506.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115518.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ The Quintessential Quintuplets ∽ | Go-Toubun no Hanayome~ | Пять неве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115522.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Yumemiru Danshi wa Genjitsushugisha | The Dreaming Boy is a Realist | Из ме�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115524.jpg" />
 </div>
 
 

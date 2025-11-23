@@ -1,3 +1,111 @@
+###  Публикация: 1662977   (187193) от 20.09.2023
+
+Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heavenly — пауэр-метал-группа из Франции, основанная в 1994 году вокалистом Бенжамином Сотто и барабанщиком Максом Пило.2000 - Coming From The Sky
+2001 - Sign Of The Winner
+2004 - Dust To Dust
+2006 - VirusЖанр: Power MetalПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663006   (187195) от 20.09.2023
+
+Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dark Place [00:01:43]
+02. Hail Your Satan [00:03:42]
+03. Forever with the Devil [00:04:20]
+04. Ass Honey [00:04:37](   Читать дальше...   )Жанр: Dark Heavy MetalПродолжительность: 00:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6A78AB05637A4991F4A00A5C6BEA72A5E2672D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663183   (187201) от 20.09.2023
+
+Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Brass & Military, Marches>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187201.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Inspection
+A1 Blaydon Races
+A2 Shirley Bassey Showcase
+A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663172   (187205) от 20.09.2023
+
+The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alphabet City (3:44)
+02. Deep End (Paul’s in Pieces) (4:29)
+03. Weird Goodbyes (feat. Bon Iver) (5:03)
+04. Turn off the House (4:35)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BCA0E5193A9AD9D3B7F99C4FA4769BD18598A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662671   (187437) от 19.09.2023
 
 The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +114,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187437.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187437.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Pucc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187452.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187530.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187530.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Rory Gallagher - Big Guns – The Very Best Of (2005) 2 x SACD, Compilation, Rem
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187674.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187674.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188078.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188078.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188101.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188101.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188193.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_188193.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188255.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188255.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188279.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188544.jpg" />
 </div>
 
 
@@ -274,7 +382,7 @@ Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188563.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188589.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_188589.jpg" />
 </div>
 
 
@@ -327,7 +435,7 @@ Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188658.jpg" />
 </div>
 
 
@@ -354,7 +462,7 @@ Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188800.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189034.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189034.jpg" />
 </div>
 
 
@@ -408,7 +516,7 @@ Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189035.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189035.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189373.jpg" />
 </div>
 
 
@@ -462,7 +570,7 @@ Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189404.jpg" />
 </div>
 
 
@@ -489,7 +597,7 @@ magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189666.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189666.jpg" />
 </div>
 
 
@@ -516,7 +624,7 @@ The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189703.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189703.jpg" />
 </div>
 
 
@@ -540,7 +648,7 @@ James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190118.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190118.jpg" />
 </div>
 
 
@@ -567,7 +675,7 @@ Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190121.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190121.jpg" />
 </div>
 
 
@@ -581,114 +689,6 @@ Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F52E08BCC090B639AB488A8D543FF7D8D568FEFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659530   (190165) от 11.09.2023
-
-Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management (UK) Limited [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ und Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190165.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Hello Sunshine (2023 Remaster) 03:34
-2 Liberty Belle (2023 Remaster) 02:57
-3 Golden Retriever (2023 Remaster) 02:27
-4 Sex, War & Robots (2023 Remaster) 03:49(   Читать дальше...   )Жанр: Alternativ und IndieПродолжительность: 03:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49074308C1ECEA2FD3F4790859E66D2C3837F4BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659476   (190186) от 11.09.2023
-
-Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Springtime (00:04:11)
-02 - The Returner (00:03:50)
-03 - All Without Within (00:03:12)
-04 - Demons (00:04:29)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F4CE31E2A8D735DA04F6B6EAD5405E6C5B2F53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659500   (190207) от 11.09.2023
-
-Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, Stadium Rock and Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impending Fallout [00:01:33]
-02. More Alive [00:03:44]
-03. Stay Awake [00:04:24]
-04. Flat Earth [00:04:47](   Читать дальше...   )Жанр: Metalcore, Stadium Rock and MetalПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251BC59DAA43756111174EDF28FE8AC785338322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658763   (190478) от 10.09.2023
-
-Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190478.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In The Navy
-A2 Get Away Holiday
-A3 Citizens Of The World
-B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
 ```
 
 

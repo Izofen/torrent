@@ -6,7 +6,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack Other s [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36079.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Strange City (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36082.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Endless Sky (2015) [En] (0.10.10/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36093.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.11.21.01) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36094.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.2.32791/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36116.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36123.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Beyond Hanwell (2024) [En] (1.1) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36126.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Drunken Fist: Totally Accurate Beat 'em up (2019) [En] (1.0) Scene DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36133.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Bug Fables: The Everlasting Sapling (2019) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36159.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ It's Only Money (2023) [En] (1.0.0-9254/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36164.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wilmot's Warehouse (2019) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36165.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36178.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sam & Max: Beyond Time and Space (2021) [Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36180.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Albatroz (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36199.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36205.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36207.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36209.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36212.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Journey of AutUmn (2024) [Multi] (1.12) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36224.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36227.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Sam & Max: Save the World (2020) [Ru/Multi] (2.0.0) License GOG [Remastered]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36230.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Karate Survivor (2024) [Ru/Multi] (1.0.2.239/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36264.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36268.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack seleZen [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36272.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1.0.0/dlc) Repack FitGirl [The Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36283.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05/dlc) Repack dixen18 [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36285.jpg" />
 </div>
 
 

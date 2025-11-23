@@ -6,7 +6,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25081.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.5) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25134.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Eternal Cylinder (2022) [Ru/Multi] (1.0.3.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25135.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (67402/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25154.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25154.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Scene Rune [Supernova
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25169.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Season 2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25172.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Granblue Fantasy Versus: Rising (2023) [Multi] (2.01/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25175.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Everhood (2021) [Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25186.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MainFrames (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25188.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25188.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25190.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25190.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tech Store Simulator (2024) [Ru/Multi] (1.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25196.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25196.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25210.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25210.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25212.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25212.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25214.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25214.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Carnaval Simulator (2024) [Multi] (1.2.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25215.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25215.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25247.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ UNCURSED (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25248.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25248.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dark Return (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25263.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25263.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25280.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25289.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25289.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Biohazard: Siberia (2025) [En] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25290.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25290.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Shapik: The Moon Quest (2020) [Graphic] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25294.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25294.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25315.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25323.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25323.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25332.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25332.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25338.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25338.jpg" />
 </div>
 
 

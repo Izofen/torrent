@@ -1,3 +1,127 @@
+###  Публикация: 1831413   (212160) от 28.10.2025
+
+Hattersley L. (ed.) | The Official Raspberry Pi Handbook 2025: Astounding projects with Raspberry Pi computers (2024) [EPUB, MOBI, AZW3] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dive into the world of Raspberry Pi with this huge book of tutorials, project showcases, guides, product reviews, and much more from the writers of The MagPi, the official Raspberry Pi magazine.
+
+Raspberry Pi Pico 2 joins Raspberry Pi 5 in this, The Official Raspberry Pi Handbook 2025. Pico 2 comes with a faster processor than the original Pico, and uses less power (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Raspberry Pi PressФормат: EPUB, MOBI, AZW3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC16D63EA9DA16EFFF156825A508B1598F714ED4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831422   (212161) от 28.10.2025
+
+L. Hattersley (ed.) | The Official Raspberry Pi Handbook - 2026 (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212161.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Official Raspberry Pi Handbook 2026 is packed with all the information beginners need to use their new Raspberry Pi computer. Inside this book, you'll find the best projects from the past year for long-term Raspberry Pi enthusiasts. With a special attention to Raspberry Pi 5, the latest and greatest in the Raspberry Pi microcomputer line, you'll learn how to (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Raspberry Pi PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B7AF51D15F25D9EACAE1FCB0613C1A5F5CB4FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831436   (212162) от 28.10.2025
+
+Phil King | Simple electronics with GPIO Zero: Take control of the real world with your Raspberry Pi (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212162.jpg" />
+</div>
+
+
+###  Подробнее
+
+There are many things that distinguish Raspberry Pi from other computers. The GPIO header might just be the most significant of them all — it allows you to connect electronic components to your Raspberry Pi and control them with code you've written yourself.
+The most popular programming language for controlling electronics on a Raspberry Pi is Python, particularly (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Raspberry Pi, Ltd.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31AE9DF9361D833AFDA2734D4C4AF7751813C821
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831493   (212163) от 28.10.2025
+
+Dylan G.H. Quagmire | Raspberry Pi Bible: The Ultimate Project & Programming Guide for Beginners (2025) [PDF, EPUB, MOBI] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Have you ever wondered how that tiny Raspberry Pi board everyone talks about can turn into a fully functioning robot, a weather station, or even a home automation system? Are you itching to build something exciting but feel overwhelmed by where to begin? Or maybe you’ve bought a Raspberry Pi, it’s been sitting on your desk, and you’ve been thinking—now what?
+What (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Independently publishedФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0403F2FC8D7902A90B27ABE9523E69946CE32D19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565631   (212221) от 24.07.2022
+
+А.В. Селезнева | Основы программирования. Язык высокого уровня С++. Часть I (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие состоит из двух частей, каждая из которых содержит теоретический материал, примеры задач с их реализацией, ряд лабораторных работ. Первая часть данного пособия знакомит читателя с основными понятиями программирования, его базовыми конструкциями, средами разработки. Учебное пособие направлено на приобретение студентами общих знаний и навыков программирования (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70B3C585A08D26289B86DCAE6596CBAA2AF6E8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565499   (212263) от 23.07.2022
 
 AdrianK | The UI Professional's Design Manual (600+ pages and free bonuses) (2022) [PDF] [EN]
@@ -6,7 +130,7 @@ AdrianK | The UI Professional's Design Manual (600+ pages and free bonuses) (202
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212263.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212263.jpg" />
 </div>
 
 
@@ -33,7 +157,7 @@ magnet:?xt=urn:btih:F24EF275DA183BB501ED0CCEC101758954620D37
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212375.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212375.jpg" />
 </div>
 
 
@@ -57,7 +181,7 @@ magnet:?xt=urn:btih:3C9733D20EC33BAD8EC9148822B0C515BCB28EB5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212669.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212669.jpg" />
 </div>
 
 
@@ -81,7 +205,7 @@ magnet:?xt=urn:btih:DADB7CA2BDDCF3DFC0EC1A4F12DA67FAA4953BF2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212680.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212680.jpg" />
 </div>
 
 
@@ -105,7 +229,7 @@ magnet:?xt=urn:btih:7D8F134E3E352C06F095E4F3B8FA2822BCD9D310
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212687.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212687.jpg" />
 </div>
 
 
@@ -129,7 +253,7 @@ magnet:?xt=urn:btih:F8BD1695440C6ED105C8BA2BACEB53CC68AF7B4F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212689.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212689.jpg" />
 </div>
 
 
@@ -153,7 +277,7 @@ magnet:?xt=urn:btih:F5A33D2EF9C373F48672FD6260FFF5E991019EE8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212692.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212692.jpg" />
 </div>
 
 
@@ -177,7 +301,7 @@ magnet:?xt=urn:btih:A8C4B6A8AB917EED1C66ED3A9B59F9B8CA90429A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212697.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212697.jpg" />
 </div>
 
 
@@ -201,7 +325,7 @@ magnet:?xt=urn:btih:CFE03601B3EDFE01105A626DD9A9F37AB1E9FD56
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212764.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212764.jpg" />
 </div>
 
 
@@ -225,7 +349,7 @@ Jan Newmarch, Ronald Petty | Network Programming with Go Language: Essential Ski
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213012.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213012.jpg" />
 </div>
 
 
@@ -249,7 +373,7 @@ magnet:?xt=urn:btih:C6DEE4EE386FAF324EBBCB59D9BAF0435DCA307C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213030.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213030.jpg" />
 </div>
 
 
@@ -273,7 +397,7 @@ magnet:?xt=urn:btih:D8F99B260B67A67141E0A05F126E22AA6345CA17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213051.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213051.jpg" />
 </div>
 
 
@@ -297,7 +421,7 @@ magnet:?xt=urn:btih:66657A97730BF6AE56FB06B7790F1BCDCDB2EC7D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213073.jpg" />
 </div>
 
 
@@ -321,7 +445,7 @@ magnet:?xt=urn:btih:5BB02F460E4804C383A62BEC4DDD046F63853B7E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213109.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213109.jpg" />
 </div>
 
 
@@ -345,7 +469,7 @@ DrMax | SEO Монстр NEXT (2022) [PDF] [AD]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213161.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213161.jpg" />
 </div>
 
 
@@ -370,7 +494,7 @@ magnet:?xt=urn:btih:15366AD7B1884A9DA8BBE065D3C5B06C6A5F5445
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213218.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213218.jpg" />
 </div>
 
 
@@ -395,7 +519,7 @@ magnet:?xt=urn:btih:7F0820CE26F2558CA6EA79BD3C130F7F78DE9465
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213236.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213236.jpg" />
 </div>
 
 
@@ -419,7 +543,7 @@ magnet:?xt=urn:btih:A0643170AD821D7DE49DDBDD627D91165B074A5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213402.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213402.jpg" />
 </div>
 
 
@@ -443,7 +567,7 @@ magnet:?xt=urn:btih:2F9E231BB3CBEAA4C393A54DD51A050071B0E674
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213828.jpg" />
 </div>
 
 
@@ -467,7 +591,7 @@ magnet:?xt=urn:btih:4DBFD00AD072E2DE116E3D549F383D46531A06B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213854.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213854.jpg" />
 </div>
 
 
@@ -491,7 +615,7 @@ magnet:?xt=urn:btih:5C0572A6AFB6E2ED2C422409EB1EC01A74083C58
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213964.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213964.jpg" />
 </div>
 
 
@@ -502,128 +626,6 @@ magnet:?xt=urn:btih:5C0572A6AFB6E2ED2C422409EB1EC01A74083C58
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAAD7823B4C7B1E9E96757C4C5658C1E8034F122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343884   (214133) от 08.12.2019
-
-Хуэй-Хуан Ли | Программирование и инженерные вычисления с помощью MATLAB (2019) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга предназначена для студентов совершенно новых в программировании MATLAB. Тематические исследования и примеры широко используются в этой книге и это главное, что делает данную книгу уникальной. Автор считает, что лучший способ выучить MATLAB - это изучение программ, написанных опытными программистами, и что именно качество этих примеров программ определяет (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E972A6F27A62110EB2396C4EEFB013182BCE823E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653028   (215132) от 14.08.2023
-
-Серхио Рохас-Галеано | ChatGPT: ваш наставник по Python. Овладение основами за 100 запросов (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя мир программирования на Python с помощью ChatGPT! Погрузитесь в основные концепции, решайте увлекательные и веселые задачи и исследуйте безграничный потенциал программирования. Этакнига позволит вам освоить Python всего за 100 запросов, сформировав у вас необходимые навыки.
-Python — один из наиболее широко используемых и универсальных языков программирования, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: LeanpubФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966927   (215179) от 19.12.2015
-
-Павел Козловский, Питер Бэкон Дарвин | Разработка веб-приложений с использованием AngularJS (2014) [PDF, RTF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215179.jpg" />
-</div>
-
-
-###  Подробнее
-
-С появлением HTML5 и CSS3 разработка клиентских веб-приложений на языке JavaScript приобрела особую популярность. Создатели фреймворка AngularJS предприняли революционный подход к решению вопроса превращения браузера в самую лучшую платформу для разработки веб-приложений.
- Книга проведет вас через основные этапы конструирования типичного одностраничного веб-приложения. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA4FA8907E7A90FA5A96AA70F18F7D0F51B8749
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426098   (215543) от 23.11.2020
-
-Дмитрий Зиновьев | Основы проектирования в КОМПАС-3D v17 (2019) [PDF]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассчитана на начинающих пользователей. В ней представлены уроки по основам проектирования в этой программе. Однако опытным пользователям она также пригодится – поможет систематизировать ранее полученные знания и навыки и узнать неочевидные приемы проектирования.Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AECFA642691875F174E505024BDEAB3FC635E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426116   (215620) от 23.11.2020
-
-Бен Рэдвуд и др. | 3D-печать. Практическое руководство (2020) [PDF]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215620.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-печать. Практическое руководство — Книга посвящена стремительно развивающимся технологиям 3D-печати, которые находят свое применение во множестве отраслей: дизайне, строительстве, медицине и других. Помимо самих технологий и материалов печати рассматриваются характеристики различных 3D-принтеров, общие особенности 3D-моделей и методы их постобработки. Благодаря (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742DEACBED7F7C33673DD981429429CA6D0BA163
 ```
 
 

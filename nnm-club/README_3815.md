@@ -1,3 +1,75 @@
+###  Публикация: 1691801   (118872) от 07.02.2024
+
+Цветы для Элджернона / Цветы для Алджернона / Des fleurs pour Algernon (2006) WEBRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элджернон — это мышь, которой в лабораторных условиях повысили уровень интеллекта. Вдохновленные успехом ученые-экспериментаторы решают опробовать свое открытие на людях. Их пациентом становится умственно отсталый Шарль. Эксперимент удается, и Шарль начинает жить нормальной жизнью. Он добивается успехов на научной ниве, влюбляется в девушку Алису. Однако вскоре он (   Читать дальше...   )Производство: Франция, Швейцария / Image & Compagnie, France 2 (FR2), Bohemian FilmsЖанр: фантастика, драмаРежиссер: Давид ДельриеАктеры: Жюльен Буасселье, Элен де Фужроль, Марианн Басле, Фредерик ван ден Дрише, Оливье Перрье, Вероника Маттана, Франсуа Флори, Жан-Пьер Гос, Антонио Тройло, Антониета МартенПеревод: Многоголосый профессиональный (Телеканал «Культура»)Язык озвучки: Русский, ФранцузскийСубтитры: отсутствуютПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2087923053663D5388FA6B32ECF7ACA5509801D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697553   (118873) от 07.02.2024
+
+Международная космическая станция / I.S.S. (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда между США и Россией начинается война, обе стороны связываются со своими космонавтами на борту МКС и ставят им цель взять станцию под контроль любыми средствами.Производство: США / Liddell Entertainment, Fantasy Creations FXЖанр: триллер, драмаРежиссер: Габриэла КаупертуэйтАктеры: Ариана Дебоуз, Крис Мессина, Джон Галлахер мл., Мария Машкова, Коста Ронин, Пилу АсбекПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (forced, SDH)Продолжительность: 01:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9430212B630EA3E79F9A19E416210E46E1D85BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697599   (118874) от 07.02.2024
+
+Google Earth Pro 7.3.6.9750 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир, в котором мы живем, теперь у вас под рукой! Корпорация Google выпустила новую версию программного пакета под названием Google Earth. Приложение предназначено для работы с одноименным сервисом, который позволяет просматривать спутниковые снимки планеты Земля в 3D-режиме, используя для этого технологию OpenGL. Присутствуют функции для поиска по адресам, по объектам. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0474A7790E65839792A51E1E5C16D39110C60E4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697578   (118875) от 07.02.2024
 
 Капитан Марвел 2 / The Marvels (2023) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118875.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:47F320905202E89C1B500BF756363B8BC6777ACA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118876.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:F49B4984E0EFA6AADF6439593834C592C5FE2B74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118877.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:752C0E0564BC6237A8949B0582C5F345C0F5DAAB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118878.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:E60CD09AD12DDA2981241BC5EA0D33D88983B5D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118879.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:306D1F7E6AA320D17A00788513311D2E9C34B789
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118880.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:40CE5EE01028CB6F82856905CE7FD371E6CB6EA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118881.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:E2037145E8E879BADE5763090CBD79906C40F202
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118882.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:C5CF891E9C90D867BA284528A139AFA4BE640F1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118883.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:F1D0C773FCAEE72EAC5B7B6FA0DAF8B073EF0088
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118884.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:A871B76848EBE4B04E2D302D27B8994C9A274561
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118885.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:5E40F9ECFB043699C52236C43A27A0B671D51580
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118886.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:15F8F058AC7489897F9207854F5DA1D06E654E17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118887.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:D8F6A7A50445243959BE4D2A298141E463C9F9AE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118888.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ AnyDesk взломали хакеры — похищены исходники и
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118889.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ AnyDesk взломали хакеры — похищены исходники и
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118890.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:1A54D7A734F8ABC7DF68F7A32DBAE7C28148BB0C
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118891.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ Mr. & Mrs. SmithСША, Великобритания, 2024 год.(   Читат
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118892.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:C0B05429C76EBEEDBBD33F0A85B83194A92967E8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118893.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:B66029794E6859AA7CDBE778337329C67BE17406
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118894.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118895.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ Native Instruments - Guitar Rig 7 v7.0.2 Standalone, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118896.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ Mississippi Shakedown - Mississippi Shakedown QLD (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118897.jpg" />
 </div>
 
 
@@ -553,87 +625,6 @@ Mississippi Shakedown - Mississippi Shakedown QLD (2024) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3569979F335D27450F27AD461527F8DBC20E03E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697486   (118898) от 06.02.2024
-
-Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118898.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ella
-A2 Fager Som En Ros
-A3 Leaves Of Yggdrasil
-A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697329   (118899) от 06.02.2024
-
-Johnny Rawls - Walking Heart Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking Heart Attack (3:25)
-02. Trying To Live My Life Without You (3:20)
-03. Free (3:39)
-04. Tell Me The Truth (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA887B9AC6C720FBAD3D111F28BC8C9D8C46C64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697437   (118900) от 06.02.2024
-
-Kenny Barron Trio - Lemuria-Seascape (1991) 2023, Candid [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemuria [4:36]
-02. Ask Me Now [5:31]
-03. Sweet Lorraine [7:20]
-04. Fungii Mama [5:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3324E7445B0F3B6E7C508B35DB3BA7847082A5
 ```
 
 

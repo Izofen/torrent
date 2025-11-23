@@ -6,7 +6,7 @@ VA - Progressive Trance Awakening, Vol. 02 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71557.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ori Uplift - Uplifting Only Episode 623 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71560.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Postfactum - 2 Albums (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71640.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Nomadica 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71656.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - By the Fireplace: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71660.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Armin van Buuren - A State Of Trance 1208 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71661.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Black Hole House Music 01-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71663.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Trance Party 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71666.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Black Hole Trance Music 01-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71682.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Electronic Dance music 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71683.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Cooperation Trance Selection: Year of the Loong (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71733.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Noetic Resonance - Best of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71736.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - The Perfect Chillout & Lounge Music Playlist (2025) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71749.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Relaxation Hub, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71756.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Black - Wonderful Life (1987) [MP3|320 Kbps] <Pop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71757.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Alternative EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71759.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cosmic Ally - Twin Sun (2005) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71760.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Winter Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71775.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Martin Garrix - Tomorrowland Friendship Mix (2025-01-09) [MP3|320 Kbps] <Dance, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71776.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Find Your Harmony 2024 Part III - METROPOLIS (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71785.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Disco Down The Best of 2022 (2022) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71808.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - When Time Stops: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71838.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kira Lao - Тревожный опыт (2019) [FLAC|Lossless|tracks] <Experiment
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71841.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Abora Progressive: Best of 2021-2024 (Mixed by Ori Uplift) (incl. Original 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71844.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2 Hour Indie Dance Mix) (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71846.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ DJJireh - Heavenly Trance Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71856.jpg" />
 </div>
 
 

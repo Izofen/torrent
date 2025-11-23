@@ -1,3 +1,81 @@
+###  Публикация: 1684204   (127977) от 14.12.2023
+
+Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Helsinki Ice Hall 2019 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under The Grass Clover (4:04)
+02. Platitudes And Barren Words (4:21)
+03. In Your Face (4:07)
+04. Shovel Knockout (4:13)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E733483D89687A7F585F8E216D860B24B87507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684216   (127978) от 14.12.2023
+
+1Tap Cleaner Pro 4.46 Lite-Mod by Balatan [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127978.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Tap Cleaner - это инструмент для очистки Android-устройства, благодаря которому с помощью всего одного прикосновения вы можете очистить кэш, историю журнала вызовов и историю поиска. Несмотря на то, что вы можете "навести полный порядок" всего лишь одним прикосновением, приложение включает в себя гораздо больше опций, которые позволят вам выбрать именно (   Читать дальше...   )Тип издания: Pro (Lite-Mod)Релиз состоялся: 08.12.2023Разработчик: Sam LuПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B087BA11C5CDC4F7C1D1ADA6F80FBBF6C3B3A18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684197   (127979) от 14.12.2023
+
+Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Out The Dark (Live Version) (5:10)
+02. Where August Mourns (Live Version) (5:39)
+03. My Allied Ocean (Live Version) (4:29)
+04. A Touch Of Blessing (Live Version) (5:53)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797A8E79018B87EBA3F7D552D6D7F87937A76145
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684133   (127980) от 14.12.2023
 
 VA - CarMusic 2 for man (2023) [MP3|320 Kbps] <House, G-House, Other>
@@ -6,7 +84,7 @@ VA - CarMusic 2 for man (2023) [MP3|320 Kbps] <House, G-House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127980.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:216A941E2C294192064EF18D7E627D0C49C9BBD5
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127981.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:D854A22F474E205A7DF2D77D13CB9772BAD32452
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127982.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:675287D2093F3DD13267624902A37C1959976C91
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127983.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Skype 8.110.0.218 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127984.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ magnet:?xt=urn:btih:EF7AC047C203665B7C84FD9421B7544098E6ABB4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127985.jpg" />
 </div>
 
 
@@ -155,7 +233,7 @@ Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127986.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ AllDup 4.5.58 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127987.jpg" />
 </div>
 
 
@@ -204,7 +282,7 @@ Microsoft PowerToys 0.76.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127988.jpg" />
 </div>
 
 
@@ -228,7 +306,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.3 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127989.jpg" />
 </div>
 
 
@@ -252,7 +330,7 @@ Ultra GPS Logger 3.195u Mod by Balatan [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127990.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ magnet:?xt=urn:btih:50618C97434B2BE721851C075DF5F84F326E6257
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127991.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ magnet:?xt=urn:btih:8B7B67B4439C94DFD11F450B9CFAD22BB11828F3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127992.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ magnet:?xt=urn:btih:65511F77AD23CEF3D456612B4167DB180E71104E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127993.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ VA - Bravo Hits 11 (1995) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127994.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ The Electro Swingers - Collection (2012-2013) 2CD [MP3|320 Kbps] <Electro, Swing
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127995.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ HilalDeep - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127996.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ magnet:?xt=urn:btih:E629AB8FEF2E974256235910CCE2700B7DB18081
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127997.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Joe Bonamassa - Merry Christmas, Baby (2023) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127998.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ magnet:?xt=urn:btih:1D021C3A8AC338818031F0B89326352E800B448F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127999.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ magnet:?xt=urn:btih:EA907FD62F67600EDBF524A6ACBF3890F677D8AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128000.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ VueScan Pro 9.8.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128001.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ OCCT 12.1.14 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128002.jpg" />
 </div>
 
 
@@ -563,78 +641,6 @@ OCCT 12.1.14 Final Portable [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F77287292CB884997F4031F2E0A6FCEA75D9F0DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684202   (128003) от 14.12.2023
-
-С. Монк | Micro:bit для неугомонных учёных (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга описывает множество занимательных экспериментов и проектов с использованием BBC micro:bit – компактной платы, с помощью которой читатель освоит азы программирования. В первой главе подробно рассказывается о подключении устройства и принципах его функционирования, а следующие главы посвящены практической работе. Материал сгруппирован по темам: свет, звук, (   Читать дальше...   )Жанр: Программирование, радиолюбительские конструкцииИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FF1E5D7CFB96C5931D39B190635C53B18AD5E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684272   (128004) от 14.12.2023
-
-Psiphon 3 build 181 (14.12.2023) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F486FC1042DEE475ED2A14B5C4DAF41F052D55DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684078   (128005) от 14.12.2023
-
-Охотник за дезертирами / D.P. / Deserter Pursuit (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный рядовой срочник благодаря своей принципиальности и наблюдательности оказывается в подразделении, которое ловит дезертиров. Вместе с хохмачом-капралом парень теперь расследует случаи ухода солдат в самоволку (а за каждым — настоящая трагедия) и, преследуя сбежавших, ездит по всей стране.Производство: Южная Корея / Climax Studio, Homemade FilmsЖанр: драма, детектив, комедияРежиссер: Хан Джун-хиАктеры: Чон Хэ-ин, Ку Гё-хван, Сон Сок-ку, Ким Сон-гюн, Ли Джун-ён, Хон Гён, Чо Хён-чхоль, Щин Сын-хо, Ли Соль, Сон Док-хоПеревод: двухголосый любительский (Softbox)Язык озвучки: русский, корейский, английскийСубтитры: русские, украинские, английские, французскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C577AD8C989A5D375A03DC676A0E4486927BBA5
 ```
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 371898   (214554) от 16.08.2023
+
+Солярис (1968) DVD5 [Custom]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214554.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного романа известного польского писателя Станислава Лема.
+«Солярис» — телеспектакль в 2-х сериях.
+Малоизвестный ныне киноматериал, поскольку его полностью заслонил вышедший на несколько лет позже знаменитый фильм Андрея Тарковского (но как знать, не натолкнул ли Тарковского именно этот спектакль на мысль о своем фильме?). Однако, если не сравнивать (   Читать дальше...   )Производство: СССР / Iz Sobraniya Gosteleradio, Studio "Orlenok", Central Television USSRЖанр: фантастика, драмаРежиссер: Б.Ниренбург, Л.ИшимбаеваАктеры: Василий Лановой, Владимир Этуш, Антонина Пилюс, Владимир Зозулин, Вячеслав ДугинСубтитры: ОтсутствуютПродолжительность: 02:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614F0DE7E7884A15D546023B1B1C616D5162BF52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514545   (214661) от 04.12.2021
+
+Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'ame-stram-gram
+02. Je te rends ton amour
+03. Souviens-toi du jour...
+04. Optimistique-moi(   Читать дальше...   )Жанр: PopПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 02:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CDC377455F76BD9B2825BB519F3AD2E944595A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343889   (214707) от 08.12.2019
+
+Квартирник НТВ у Маргулиса. Zventa Sventana (07.12.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_214707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zventa Sventana — музыкальный проект российской певицы Тины Кузнецовой и продюсера Юрия Усачёва. Он разбивает стереотипы о народной музыке и сплетает танцевальную электронику с фольклором, инди-попом и даже неоклассикой. Музыканты стремятся показать современному миру, что народная музыка при правильной музыкальной подаче может быть интересна и за пределами конкурсов (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D008B3812B43E9CB7D38A8713338EAA42FFF26CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452921   (214765) от 04.12.2021
 
 Малыш и Карлсон, который живет на крыше (1971) WEBRip [H.264/1080p-LQ]
@@ -6,7 +83,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214765.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214765.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214808.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214808.jpg" />
 </div>
 
 
@@ -58,7 +135,7 @@ magnet:?xt=urn:btih:093392801416DD4A88EDEEB617136F21CA628287
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214830.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214830.jpg" />
 </div>
 
 
@@ -86,7 +163,7 @@ magnet:?xt=urn:btih:F1176F995CC773022C46FE2BF20460A2502B0D63
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215086.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215086.jpg" />
 </div>
 
 
@@ -110,7 +187,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215436.jpg" />
 </div>
 
 
@@ -134,7 +211,7 @@ Metallica: Quebec Magnetic 2009 (2012) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_216297.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_216297.jpg" />
 </div>
 
 
@@ -167,7 +244,7 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_216540.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_216540.jpg" />
 </div>
 
 
@@ -200,7 +277,7 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217232.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217232.jpg" />
 </div>
 
 
@@ -229,7 +306,7 @@ magnet:?xt=urn:btih:493BDE5E15AB198FC2FF2B660C8A07E392ED0C7B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217330.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217330.jpg" />
 </div>
 
 
@@ -256,7 +333,7 @@ magnet:?xt=urn:btih:DF149FA5014D3DA6055BCC989C9AAAC96F09BDE4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217523.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217523.jpg" />
 </div>
 
 
@@ -283,7 +360,7 @@ ZZ Top - Live From Texas  (2008)  BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218374.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218374.jpg" />
 </div>
 
 
@@ -310,7 +387,7 @@ magnet:?xt=urn:btih:8D21CCDEA5246079790CA7D9A88016CFBB876495
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218488.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218488.jpg" />
 </div>
 
 
@@ -334,7 +411,7 @@ magnet:?xt=urn:btih:42BE7096A9E87A23DB5FA6F5D61D7C77E293201B
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218734.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218734.jpg" />
 </div>
 
 
@@ -361,7 +438,7 @@ magnet:?xt=urn:btih:2B2256ADB42CBB70822D06D80C1571E88573B550
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219340.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219340.jpg" />
 </div>
 
 
@@ -385,7 +462,7 @@ magnet:?xt=urn:btih:2B2256ADB42CBB70822D06D80C1571E88573B550
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219584.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219584.jpg" />
 </div>
 
 
@@ -413,7 +490,7 @@ Queen: A Night At The Odeon - Hammersmith (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219859.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219859.jpg" />
 </div>
 
 
@@ -441,7 +518,7 @@ magnet:?xt=urn:btih:60B9410C42B87481DEC03A1C8977EB50C671DDA5
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220019.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220019.jpg" />
 </div>
 
 
@@ -465,7 +542,7 @@ magnet:?xt=urn:btih:B856EDA3B1EDFC9253F6C7BFD197A9445A8D0E7E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220409.jpg" />
 </div>
 
 
@@ -492,7 +569,7 @@ magnet:?xt=urn:btih:4307E82CB16074E35ADCAF19C1457451A742B81E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220561.jpg" />
 </div>
 
 
@@ -516,7 +593,7 @@ eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220603.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220603.jpg" />
 </div>
 
 
@@ -541,7 +618,7 @@ magnet:?xt=urn:btih:A420FE6F8DC92830CC432F04B62C6874C7EE2FC7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221105.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221105.jpg" />
 </div>
 
 
@@ -568,7 +645,7 @@ magnet:?xt=urn:btih:F000BFDA7A1C9A56BEA700830E5F52166A9CEFF9
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221120.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221120.jpg" />
 </div>
 
 
@@ -595,7 +672,7 @@ magnet:?xt=urn:btih:A9960B186153F2DE8167091297CEFF4322F5F808
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221782.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221782.jpg" />
 </div>
 
 
@@ -610,87 +687,6 @@ magnet:?xt=urn:btih:A9960B186153F2DE8167091297CEFF4322F5F808
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F56F6992113B7031547898A46E8565A9DEEE417C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965969   (222117) от 16.12.2015
-
-Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов российской альтернативной хип-хоп группы Anacondaz.Акуле плевать (Official Music Video) :: 04:18
- Беляши (Official Music Video) :: 04:06
- Бесит (Official Music Video) :: 02:50
- Вызывай (п.у. DJ MOS) :: 02:31(   Читать дальше...   )Жанр: Pauzern Rap, Hip-HopПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7518212777648772B76304668770265593A4A0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965949   (222154) от 16.12.2015
-
-ВИА "Самоцветы" Фильм-концерт (1973) TVRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-концерт с участием ВИА "Самоцветы"01.За того парня
-02.Налетели дожди
-03.Верба
-04.Чаривна бойкивчанка(   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: МузыкаРежиссер: Юрий МаликовПродолжительность: 00:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D28E32634DCCB2A4899008A01F8C994B5BCEE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268587   (222452) от 13.12.2018
-
-Сборник клипов - Christmas & Happy New Year Collection от ALEXnROCK (2018) WEBRip [H.264/720p-LQ/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подарок слушателям к наступающему Новому году! Рожденственские и новогодние клипы на все времена. Ремастеринг видео и звука. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro Christmas
-001 Darlene Love - All Alone On Christmas
-002 Kylie Minogue - It's The Most Wonderful Time Of The Year
-003 Cascada - Last Christmas(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879B46EA051DC2A7F6D2AAC52C722CA2B8DFB1B4
 ```
 
 

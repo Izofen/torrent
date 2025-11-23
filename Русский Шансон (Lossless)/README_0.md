@@ -6,7 +6,7 @@ VA - Легендарные песни русского шансона (20 лу�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21829.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21829.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Короли шансона. Золотые Хиты (2025) [FLAC|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21861.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Русская 30-ка хитов 12 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22149.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22149.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Новые хитовые песни 2025, Часть 3 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22255.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:6C9F80F29CEBB054C37F4198C40FFE526F5F380C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22992.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22992.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Шансон премьера 2025 март (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24181.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24181.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Шансон 2025 (Музыкальный хит-парад) (2025) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24474.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24474.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - 50 лучших песен для любимого (2025) [FLAC|Lossless|WE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26676.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26676.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Хит FM (Популярные хиты русского радио) (2025
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27709.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27709.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - 100 новых песен (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансо�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28062.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Русская 30-ка хитов 11 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28667.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28667.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Самые новые песни о любви 8 (2025) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28670.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28670.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Новые хитовые песни 2025, Часть 2 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28672.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28672.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Золото шансона (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28694.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28694.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Шансон премьера 2025 январь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30730.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:07D203C1704593815B289A97C08FF38A0FEC1C67
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30836.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30836.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:6634124BA36DD08B2F862C3ADF204EDAB6C227C3
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31518.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31518.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Шансон премьера 2024 (Лучшие песни) (2025) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31918.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:933AA520BC47F9C62CB0803C5D50ADC38504FADA
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32199.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:955EC1ED39276741920DBEADB7B41DB89DB95A54
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32302.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:BAB06A67D5209976EC81958757FC694F7C741949
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32303.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Новые хитовые песни 2025, Часть 1 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32318.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Русская 30-ка хитов 10 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32395.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Музыка юга - лучшее, Часть 5 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32401.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:F358B81934CF494B005D416852C3EE79DD40BB0D
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33132.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:9CBEEA7573D9C3B81249C73CBC96C872CD31A20A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33138.jpg" />
 </div>
 
 

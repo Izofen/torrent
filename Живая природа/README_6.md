@@ -1,3 +1,101 @@
+###  Публикация: 1656156   (193651) от 29.08.2023
+
+Весь мир – Россия (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откуда в Калмыкии пустыни и из какого дерева нельзя разводить костер в тайге? Док о природных зонах России.
+
+Уникальные события и люди, бескрайние территории и удивительные места — это не просто фон истории, а её главные действующие лица.Производство: Россия | «ИП Бойко», «Знание»Жанр: ДокументальныйРежиссер: Сергей ПриходькоЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F40D5F0E8097415626F37984A6E3CE8875026AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651948   (194604) от 09.08.2023
+
+Крошечный мир / Tiny World (2020-2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1-2, серии 1-12 из 12)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал о крошечных существах различных экосистем, а также об их необычных навыках, помогающих им приспосабливаться к переменчивому и жестокому миру. Фильм снят с использованием современных технологий, зрители многое увидят впервые.Производство: США, Plimsoll ProductionsЖанр: Документальный, флора и фаунаРежиссер: Эд Уоткинс, Джон Кэйпенер, Люси УэллсАктеры: Пол Радд, Ник ПрэттПеревод: Одноголосый профессиональный (HDRezka Studio, ViruseProject)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Full, Forced), украинские (Full x 2), английские (Full, SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBC62BEA712BFA15715DC02DB520728D6D2CF4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642652   (196486) от 28.06.2023
+
+Выживание в дикой природе / Wild Survival (2015) WEBRip [H.264/720p] (части 1-3 из 5)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196486.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Выживание наиболее приспособленных» –  дарвиновская концепция, одна из самых влиятельных теорий XX века, используемая для объяснения бесчисленных явлений, охватывающих широкий спектр областей от социологии до экономики. В сериале мы возвращаемся к самому базовому значению фразы, исследуя, что значит выжить в природе, и раскрываем секреты выживания некоторых из самых (   Читать дальше...   )Производство: Южная КореяЖанр: документальный, история, путешествияРежиссер: ПАК ХВАН-СЕОНГПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE99B2903916E63EEDFA9FEF2346FA390BE88461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640675   (196948) от 18.06.2023
+
+Наша планета / Our Planet (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-4 из 4) HDrezka Studio
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196948.jpg" />
+</div>
+
+
+###  Подробнее
+
+В документальном сериале натуралист Дэвид Аттенборо рассказывает о разнообразии животного мира Земли и исследует влияние климатических изменений на способность различных видов к выживанию. Вместе с ведущим зрители побывают в заледенелой арктической тундре, пышных тропических лесах и обширных южно-африканских пустынях. Шоу повествует о чудесах природы, взаимосвязи (   Читать дальше...   )Производство: США, Великобритания / Silverback FilmsЖанр: документальныйРежиссер: Адам Чэпман, Хью Пирсон, Хув КордиУчастники: Дэвид АттенбороПеревод: Одноголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6360B94DD632254828601424D293C94B5DEAECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625601   (197182) от 12.06.2023
 
 Дикие острова / Wild Isles (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Jaskier
@@ -6,7 +104,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197182.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197182.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@ magnet:?xt=urn:btih:02BA4D05A41298A2FB31D95F061A5846F3A2B0AD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197235.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197235.jpg" />
 </div>
 
 
@@ -54,7 +152,7 @@ magnet:?xt=urn:btih:09004CA3AA78D52F356372DCE6D783FD0E180E73
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197423.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197423.jpg" />
 </div>
 
 
@@ -78,7 +176,7 @@ magnet:?xt=urn:btih:C52E2A47D160246E5F5D58453CC2489F55542A40
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199709.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199709.jpg" />
 </div>
 
 
@@ -102,7 +200,7 @@ magnet:?xt=urn:btih:BE0B41B6B18F3417EC5BDFAF937A2C7DE85C6AA2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200085.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200085.jpg" />
 </div>
 
 
@@ -126,7 +224,7 @@ magnet:?xt=urn:btih:DAF826437ACE8F2D78E3A0884EE565B3AD59949D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200109.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200109.jpg" />
 </div>
 
 
@@ -150,7 +248,7 @@ magnet:?xt=urn:btih:2F292BBF9C5CEAF204CC3F1662C1FDF47AE6BC58
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200226.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200226.jpg" />
 </div>
 
 
@@ -174,7 +272,7 @@ magnet:?xt=urn:btih:6F3137B9694971614A20DE39E8FD59C634E01F9E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202152.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202152.jpg" />
 </div>
 
 
@@ -198,7 +296,7 @@ magnet:?xt=urn:btih:7F6D993B6C4AE64425E0A875AB7CB039DFD24C11
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203626.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203626.jpg" />
 </div>
 
 
@@ -224,7 +322,7 @@ magnet:?xt=urn:btih:A1A065A32073E24B1FED5C2AC982E3D5102D0AFF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204450.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204450.jpg" />
 </div>
 
 
@@ -248,7 +346,7 @@ magnet:?xt=urn:btih:D20D684853C7F8821C2E39040D7959489FFDEE88
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206225.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206225.jpg" />
 </div>
 
 
@@ -272,7 +370,7 @@ magnet:?xt=urn:btih:3C293601CBE187C7B624E1B5514C79118C81FE1D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206240.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206240.jpg" />
 </div>
 
 
@@ -296,7 +394,7 @@ magnet:?xt=urn:btih:91755ADE2AFB5DA67A9B7BE54E4774F475B4A9FD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206448.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206448.jpg" />
 </div>
 
 
@@ -320,7 +418,7 @@ magnet:?xt=urn:btih:4A51DE28186F245A6DE597CCD20BB38AC03BAE8F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206481.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206481.jpg" />
 </div>
 
 
@@ -344,7 +442,7 @@ magnet:?xt=urn:btih:908CBA811FACC0CD00AE94A48C8F0E624FE0BCDF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207038.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207038.jpg" />
 </div>
 
 
@@ -368,7 +466,7 @@ magnet:?xt=urn:btih:7184BADE0E2029874DCC58C76339C2514B10EC85
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207131.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207131.jpg" />
 </div>
 
 
@@ -392,7 +490,7 @@ magnet:?xt=urn:btih:A37FB996176E87F6AD1411D12017074D50B5620B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207401.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207401.jpg" />
 </div>
 
 
@@ -416,7 +514,7 @@ magnet:?xt=urn:btih:720CA228A6B6FCF59EAB366E76A6C3797EE50693
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207639.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207639.jpg" />
 </div>
 
 
@@ -440,7 +538,7 @@ magnet:?xt=urn:btih:C5379B8FCC5AEE11DEC5F94183A7C1D4CC4DE235
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207690.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207690.jpg" />
 </div>
 
 
@@ -464,7 +562,7 @@ magnet:?xt=urn:btih:79CD472E7BAC849D5C3FD2F2455CBAE61204BAF2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208458.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208458.jpg" />
 </div>
 
 
@@ -488,7 +586,7 @@ magnet:?xt=urn:btih:95FF34C4E6D5D582BB20E69F71516C1748C2D0D8
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209328.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209328.jpg" />
 </div>
 
 
@@ -512,7 +610,7 @@ magnet:?xt=urn:btih:F8F8DD678D5FCA8F09300720B36AAA3AB3E8CABB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209383.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209383.jpg" />
 </div>
 
 
@@ -523,102 +621,6 @@ magnet:?xt=urn:btih:F8F8DD678D5FCA8F09300720B36AAA3AB3E8CABB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4756A6675AA28DD3B13698448626299F2DB0369E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645572   (209453) от 09.07.2023
-
-Киты: Стражи планеты / Les gardiennes de la planete (2023) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209453.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — выбросившийся на берег океана горбатый кит. За спасение громадного животного тут же берётся большая группа энтузиастов. Совместными силами они пытаются не дать млекопитающему погибнуть, а заодно как можно быстрее найти способ вернуть его обратно в океан. Французский режиссёр Жан-Альбер Льевр берёт частную историю кита в качестве рамки для рассказа (   Читать дальше...   )Производство: Франция, Bien Sûr Productions, Canal+Жанр: документальный, природа, фаунаРежиссер: Жан-Альбер ЛьеврУчастники: Жан ДюжарденПеревод: дублированный (Мосфильм-Мастер)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FFFBB6A507CB800C85D43DCA499BDBAB7A25D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644048   (209735) от 04.07.2023
-
-В мире пчел (1953) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о пчеловодстве.Производство: СССР, Свердловская киностудия научно-популярных и хроникальных фильмовЖанр: документальный, научно-популярный, пчеловодствоРежиссер: Гольдин Р. Ю.Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC64425D1FEB2D14D6CFA219309E82ABC5338317
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643581   (209977) от 02.07.2023
-
-Дикие кошки / Lynx (2021) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рысь обыкновенная исчезла во Франции еще в XIX веке. Но лет 50 тому назад их снова сюда завезли. И теперь, хотя эти животные находятся на грани исчезновения, они снова занесли в эти места дух свободы.Производство: Швейцария, Франция / JMH et Filo Films, MC4, La SalamandreЖанр: документальныйРежиссер: Лоран ГесленУчастники: Лоран ГесленПеревод: Дублированный (Pride Production)Язык озвучки: Русский, ФранцузскийСубтитры: РусскиеПродолжительность: 01:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32B6D4F9F4123EC37727BEE40A79F88CA06CD12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642917   (210209) от 29.06.2023
-
-Мир комнатных растений (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект приоткрывает зрителям тайны загадочного мира популярных домашних растений. Каждый эпизод подробно рассматривает воздействие одного из основополагающих природных факторов на жизнь растений как в их естественной среде обитания, так и в неволе. Земля, вода, воздух, свет, насекомые, люди. Какое влияние эти аспекты оказывают на цветы и травы, оказавшиеся в различных (   Читать дальше...   )Производство: Россия / Киностудия им. М. ГорькогоЖанр: документальныйРежиссер: Константин Бушманов, Никита Лойк, Константин РайхУчастники: Елена Носова, Ольга Марченко, Никита Здравчев, Владимир ВаненковПродолжительность: ~00:16:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BCF95B395AFD12F9490002B4FD93B7AD69D702
 ```
 
 

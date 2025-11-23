@@ -1,3 +1,75 @@
+###  Публикация: 1694787   (120874) от 26.01.2024
+
+Звездный десант / Starship Troopers (1997) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120874.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом тысячелетии над человечеством нависла смертельная опасность. Несметные полчища гигантских разумных жуков с далекой системы планет Клендату угрожают всему живому во вселенной. Солдат элитного подразделения Джонни Рико и пилот Кармен в составе звездного десанта Землян на космическом военном корабле Тикондерога отправляются в зловещие глубины космоса, чтобы (   Читать дальше...   )Производство: США, Big Bug Pictures, Touchstone Pictures, TriStar PicturesЖанр: фантастика, боевикРежиссер: Пол ВерховенАктеры: Каспер Ван Дин, Дина Мейер, Дениз Ричардс, Джейк Бьюзи, Нил Патрик Харрис, Клэнси Браун, Сет Гиллиам, Патрик Малдун, Майкл Айронсайд, Ру МакКлэнаханПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 02:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3AC21843771326FF40AABA4D36C535D1BAD494
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694706   (120875) от 26.01.2024
+
+IObit Uninstaller Pro 13.3.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120875.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A7BAFCA36FB0AF2863FC58D6A59DC7F7D890EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694766   (120876) от 26.01.2024
+
+Феррари / Ferrari (2023) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1957 год. После утраты сына семейная жизнь экс-гонщика Энцо Феррари переживает кризис, а над знаменитой итальянской Скудерией нависла угроза банкротства. Чтобы круто поменять свою жизнь, он принимает участие в грандиозной гонке на выносливость Mille Miglia.Производство: США, Великобритания, Италия, Китай / Forward Pass, Storyteller Productions, Iervolino & Lady Bacardi EntertainmentЖанр: драма, биография, спорт, историяРежиссер: Майкл МаннАктеры: Адам Драйвер, Пенелопа Крус, Шейлин Вудли, Сара Гадон, Гэбриел Леоне, Джек О`Коннелл, Патрик Демпси, Микеле Савойя, Эрик Хауген, Бен КоллинзПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: русские, английские (forced, SDH)Продолжительность: 02:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0249E3A975096CF46A995F2AC5307939BCDAFB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694857   (120877) от 26.01.2024
 
 Би-2 - All the Best, Vol. 1 (2024) [MP3|320 Kbps] <Rock>
@@ -6,7 +78,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120877.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ The Source (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120878.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:94BDFEFB4A71E6B6F919520CDBC8C7BB3FB2CB64
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120879.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:B7327C23C4118D8BD29DB4C2B37F7B082483BE33
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120880.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ AIDA64 Extreme Edition 7.00.6723 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120881.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Navicat Premium 16.3.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120882.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ KMPlayer 2024.1.25.16 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120883.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Udemy, David Nixon | Unreal Engine 5: The Intermediate Course (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120884.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Snappy Driver Installer Origin R760 | Драйверпаки 24.00.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120885.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:BFECD8898245F7D718BE5564A29D97EE03F0D724
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120886.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Udemy, Alexandr Sochirca | Руководство по GitHub Actions (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120887.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ magnet:?xt=urn:btih:12E249DE76EC0B6D2E434A520342812570F6A9EC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120888.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:DDF859413FAE11BF8A2BF59C85591F9908C719C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120889.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:E9629DB54090F4636E8B2437D8C13509417CB8B2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120890.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:8E05B83581CFF04B8A7679D4B7F1B94B87333E4D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120891.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120891.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ Apple оплатила штраф ФАС России в почти 1,2 млрд
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120892.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120892.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Apple оплатила штраф ФАС России в почти 1,2 млрд
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120893.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ magnet:?xt=urn:btih:9B1E1488BC5B0F70F8F238F42DF050AD5B6E30C1
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120894.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ magnet:?xt=urn:btih:45B509EF74852DC44321009516300F1D4BE709A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120895.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120896.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:25CC0D02702248824035332CFCCF14F5D7BC6C95
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120897.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ YouTube ReVanced Extended 19.02.39 (RVP v2.215.1) Mod by CaM/7oCe6e + Micro G [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120898.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:9427F9AC01D9C3EA967F61D4CD15D25DA2D9809A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120899.jpg" />
 </div>
 
 
@@ -558,79 +630,6 @@ magnet:?xt=urn:btih:9427F9AC01D9C3EA967F61D4CD15D25DA2D9809A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63408CC3FC5835FA8D7CA059EFEA398E48AABD09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694752   (120900) от 26.01.2024
-
-Зона комфорта (2023) WEBRip [H.264] (сезон 3, серии 1-7 из 7)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пpиключения бизнесмена Ярослава Кострова из Мурманска, попавшего в норвежскую тюрьму за контрабанду алмазов, продолжаются. После побега и падения с дельтаплана, он выжил, а значит проблем у него стало еще больше…Производство: Россия / Medium Quality ProductionЖанр: комедия, скринлайфРежиссер: Михаил ШулаевАктеры: Екатерина Молоховская, Гарик Харламов, Степан Девонин, Ирина Серова, Евгений Сытый, Ульяна Чжан, Кай Алекс Гетц, Павел Алексеев, Екатерина Шкуро, Татьяна Лялина, Сергей Ланбамин, Евгений СыркинСубтитры: отсутствуютПродолжительность: ~00:35:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4FDE716F04A8F90B137951A6D8C956836D7796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436199   (120901) от 26.01.2024
-
-Кир Булычёв | Козлик Иван Иванович (2007) [MP3, Лиля Муслединова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Мировая фантастика от А до Я» из цикла «Алиса Селезнёва».
-Повесть Кира Булычёва «Козлик Иван Иванович» продолжает цикл книг о приключениях Алисы Селезнёвой – девочки из будущего. Невероятно скучно сидеть дома в хорошую погоду и зубрить марсианский язык. А так хочется приключений! Но ведь если чего-нибудь сильно захотеть, это обязательно исполнится. На этот (   Читать дальше...   )Жанр: Русская литература для детей, фантастическая повестьИздательство: Говорящая книгаПродолжительность: 05:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E200D0E16240A33FF850AAB3A88BD5D42BDD6D68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694708   (120902) от 26.01.2024
-
-Анчартед: На картах не значится / Uncharted (2022) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю происхождения Нейтана Дрейка, главного героя серии видеоигр Uncharted, созданной компанией Naughty Dog. Нейтан Дрейк и Виктор «Салли» Салливан, два искателя приключений, отправляются на поиски величайшего сокровища мира. Кроме того, они надеются найти улики, которые приведут их к давно потерянному брату Нейтана.Производство: Испания, США / Columbia Pictures, Atlas Entertainment, Arad ProductionsЖанр: приключения, боевикРежиссер: Рубен ФляйшерАктеры: Том Холланд, Марк Уолберг, Антонио Бандерас, София Али, Тати Габриэль, Стивен Уоддингтон, Пинги Моли, Тирнан Джонс, Руди Панкоу, Хесус ЭвитаПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC7EDE2E9EDE8A3FD9DD4DFB0B3963BF3584075
 ```
 
 

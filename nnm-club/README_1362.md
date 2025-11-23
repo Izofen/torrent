@@ -6,7 +6,7 @@ FastStone Capture 10.9 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35765.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35766.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35767.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Luma Island (2024) [Ru/Multi] (1.19219) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35768.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ simplewall 3.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35769.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C5D0BD0D1F7A8441D7522B0E91C56BE81F9BD5CA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35770.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35771.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35772.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:40C2ECF3B7DB22A1532D5474487E35A532D30525
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35773.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AnyBurn 6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35774.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Союз 19 Альбомов (1998-2007) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35775.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Icecream Photo Editor Pro 1.52 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35776.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ AC/DC - Back In Black (1980) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35777.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:BCB283DA76F5A3448190ECFE562B1019388CF351
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35778.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) Repack Wanterlude 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35779.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:E703FB7C53396B20C5196FD2416B2EE3CF7D2F18
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35780.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:AF8453DAA309F317D48FAA419165E7F6AA04D2CA
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35781.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Torrent Pro - Torrent Download v8 (11.76.51) Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35782.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:BB953D8AE2A1E9E8F9775D028E97C592419D44A7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35783.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:332F39369603111BF0293F5D91F4D45544458ED3
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35784.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:8907D66B65A44A51288A6EA3D87B46C9208F8788
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35785.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8907D66B65A44A51288A6EA3D87B46C9208F8788
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35786.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ YT Saver Video Downloader & Converter 9.2.2 Portable by zeka.k [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35787.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:CE9BE1128DDB5B5CF5BC28E3160736EF07365059
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35788.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (0.10.6) Repack Wanterlude [Early A
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35789.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Psy2.0 | Начинающий практик - путь к уверенному 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35790.jpg" />
 </div>
 
 

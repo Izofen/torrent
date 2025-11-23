@@ -6,7 +6,7 @@ Call of Duty Modern Warfare Campaign (2019) [Ru/En] (8.67) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9503.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Sur
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9505.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CC887AA7C9A5E4A1C720E8A2D966AF76A81F4E1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9506.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Call Of Duty: Black Ops 6 (2024) [Ru/En] (11.1) Repack Yaroslav98
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9507.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9508.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7626BCD80209CDD9A6EDBDB4CDE722D4951CF980
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9509.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:7626BCD80209CDD9A6EDBDB4CDE722D4951CF980
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9510.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9511.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7EA37A93F35E00004271F08A08CAC4B8C2989078
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9512.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:D2BA59893C3CE245772293C3F9277F1D8968ADE0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9513.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:399EFAE66B2C8209F4874C477BBE5613A6DCCD69
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9514.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ iTubeGo YouTube Downloader 10.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9515.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:391583A75939953AB091C048996D846150DC41B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9516.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Xiaomi Home (Ранее. MiHome) v10.7.704 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9517.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:66D2D062B5E758F63109950D795ACA6809B6CF06
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9518.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ TechSmith Snagit 2025.2.1 Build 7212 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9519.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Auslogics File Recovery 12.0.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9520.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Auslogics Registry Cleaner Pro 11.0.1.2 RePack (& Portable) by elchupacabra [Mul
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9521.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3D17A23233F8E60F3A4A8494712156BE49F290D2
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9522.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ R-Wipe & Clean 20.0.2518 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9523.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:478323CCE2B1DCBFB2ED50513C05ABF8AA088E12
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9524.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9525.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:42C44E1450DE147E39151F4F9342D6BBBA0CEFA0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9526.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:9A9F2DA1E921B12590077D67E4D27DAD2409EFB5
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9527.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:FE789563831A44E138B308E11ED977FD801CA0A1
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9528.jpg" />
 </div>
 
 

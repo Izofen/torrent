@@ -1,3 +1,183 @@
+###  Публикация: 1517729   (162278) от 16.12.2021
+
+VideoProc Vlogger for Mac 1.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162278.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoProc Vlogger - это интуитивно понятное и функциональное программное обеспечение для редактирования видео для всех. Создавайте кинематографические видеоролики для повседневного творчества, особых моментов или праздников.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E75F44016EE3EEB56B1BDCDBF31F73328F4EDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598039   (162279) от 19.12.2022
+
+Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Is Lost (You Give Me Strength) – The Weeknd
+02. Hometree – Simon Franglen
+03. Happiness Is Simple – Simon Franglen
+04. A New Star – Simon Franglen(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432862   (162280) от 19.12.2020
+
+Pharaux - Birdsongs of the Manic Vol. I (2020) [FLAC|Lossless|tracks + .cue] <Doom Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tower of the Fourth Living Creature [00:07:50]
+02. Dreamcatcher [00:10:23]
+03. Wicker Mind [00:06:59]
+04. For A Time, I Lost Myself [00:05:40](   Читать дальше...   )Жанр: Doom Metal, Progressive RockПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217E7898ECFF557545969C6F10EC1B1B40816D57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824607   (162281) от 18.10.2025
+
+Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Day
+ 02 - Stay Forever
+ 03 - Je Danse
+ 04 - You’re My Heart(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADBCBCA090EBABEA5F708620157AB990872F78F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432870   (162282) от 19.12.2020
+
+Drunken Buddha - II (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March to Dementia [00:01:16]
+02. Sea of Madness [00:04:32]
+03. Devil's Breath [00:03:37]
+04. Purple Skin [00:05:05](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C11738C603ACB0F3705D2658A28CE5D0BCE1453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598522   (162283) от 19.12.2022
+
+Topaz Gigapixel AI 6.2.2 RePack (& Portable) by elchupacabra [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B31BD0F4F99777C387CE34FE236D5D1C8009B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674121   (162284) от 04.11.2023
+
+Фау-2. Ракета нацистов / V2: Nazi Rocket (2015) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ракета, которая изначально была воплощением мечты о космосе, превратилась в ценнейшее оружие Гитлера. Фау-2 была невероятным новшеством, не похожим ни на одно оружие. Это была баллистическая ракета, которую очень трудно засечь. В основу фильма положена история охоты британской разведки MI6 за технологиями ракетостроения фашистской Германии.Производство: Германия, Великобритания, США, Story House Productions, Warehouse 51 Productions, Smithsonian ChannelЖанр: документальный, история, исследованияРежиссер: Андреас ГутцайтУчастники: Нико Бирнбаум, Кристиан Хартинг, Ральф ТемпельПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379B1A7F03274E362D49967FDBD9076575FB2006
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517497   (162285) от 16.12.2021
 
 VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -6,7 +186,7 @@ VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlag
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162285.jpg" />
 </div>
 
 
@@ -33,7 +213,7 @@ D-Beats - Favorites Collection (2025) [MP3|320 Kbps] <Pop, Dance, Electronic, Ot
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162286.jpg" />
 </div>
 
 
@@ -60,7 +240,7 @@ VA - Beatport Tech House: Sound Pack #212 (2020) [MP3|320 Kbps] <Tech House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162287.jpg" />
 </div>
 
 
@@ -87,7 +267,7 @@ VA - Electro House: Neon Plasma Party (2021) [MP3|320 Kbps] <Electro House, Danc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162288.jpg" />
 </div>
 
 
@@ -114,7 +294,7 @@ Topaz Photo AI 2.1.0 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162289.jpg" />
 </div>
 
 
@@ -138,7 +318,7 @@ magnet:?xt=urn:btih:09E608216E6EE1F2B507AE5B32DFB5051675F37F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162290.jpg" />
 </div>
 
 
@@ -162,7 +342,7 @@ magnet:?xt=urn:btih:BA36B05A88A4EEAE1966FEBA40C1E6FF8870772E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162291.jpg" />
 </div>
 
 
@@ -187,7 +367,7 @@ Plus Messenger (Telegram+) v10.2.3.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162292.jpg" />
 </div>
 
 
@@ -211,7 +391,7 @@ IObit Uninstaller Free 11.2.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162293.jpg" />
 </div>
 
 
@@ -235,7 +415,7 @@ magnet:?xt=urn:btih:E9596C9795729CDFBDE2BC705A60D01C7E3E248E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162294.jpg" />
 </div>
 
 
@@ -260,7 +440,7 @@ VA - Electric Blues Mates (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162295.jpg" />
 </div>
 
 
@@ -287,7 +467,7 @@ magnet:?xt=urn:btih:A26C00101A4326CE3BB2F2B37D33354A7D44D4C5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162296.jpg" />
 </div>
 
 
@@ -311,7 +491,7 @@ magnet:?xt=urn:btih:071BDAF2DD678E1875000958F5DD0DFB1FCA003C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162297.jpg" />
 </div>
 
 
@@ -336,7 +516,7 @@ Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162298.jpg" />
 </div>
 
 
@@ -363,7 +543,7 @@ Pixelmator Pro 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162299.jpg" />
 </div>
 
 
@@ -388,7 +568,7 @@ magnet:?xt=urn:btih:60C5A864010D9796214C7B7D4C453346C9B7F4BA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162300.jpg" />
 </div>
 
 
@@ -412,7 +592,7 @@ magnet:?xt=urn:btih:82BD8963C2A385816D680816F899F8E3519DB2FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162301.jpg" />
 </div>
 
 
@@ -436,7 +616,7 @@ Unruly Child - Our Glass House (2020) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162302.jpg" />
 </div>
 
 
@@ -463,7 +643,7 @@ Easy Data Transform 1.23.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162303.jpg" />
 </div>
 
 
@@ -474,178 +654,6 @@ Easy Data Transform 1.23.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55BFD121277C6501DE4FE6B6FE2C975B8B5A3F88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674066   (162304) от 04.11.2023
-
-DVDFab StreamFab 6.1.4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162304.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVDFab StreamFab — это удобный и мощный инструмент для загрузки, конвертирования и записи видео-контента. StreamFab поддерживает загрузку видео с большого количества онлайн-сервисов и позволяет пользователям загружать видео в различных форматах и качестве. С помощью StreamFab пользователи могут конвертировать загруженное видео в различные форматы, размеры и разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17067A41B70C67B942C79A3652F173604BA31791
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598446   (162305) от 19.12.2022
-
-Spotify 1.2.0.1165 (Repack & Portable) by Elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spotify - это бесплатный потоковый плеер музыки, который вобрал в себя массу онлайн возможностей.
-Spotify имеет громадный каталог музыки, поддерживаемый большинством музыкальных компаний, таких как EMI, Warner Music, Sony или Universal, и вы можете искать в каталоге при помощи встроенного хорошего поискового движка. Хотя, вы можете использовать Spotify и другим образом, (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFC8E37CBF4CCFAB83B424A0F7930A61537C639
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674100   (162306) от 04.11.2023
-
-Автомойка / Tirelire Combines & Cie / The Clean Machine (1992) WEB-DL [H.264/1080p] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья Чарли, Бен и Мари решают открыть собственную автомойку, чтобы в каникулы заработать на карманные расходы. Их мелкий бизнес поначалу складывается вполне удачно. Но распределение обязанностей между собой оказывается большим испытанием для ребят. К тому же в их отношения вмешивается безответная любовь...Производство: Канада / Les Productions La Fête Inc.Жанр: приключения, комедия, драмаРежиссер: Жан БодриАктеры: Винсент Болдюк, Пьер-Люк Брийян, Delphine Piperni, Александра Лавердье, Мэтью Лашапель, Максим Коллен, Pierre-Paul Daunais, Марк-Андре Коалье, Дени Бушар, Доротея БерриманПеревод: многоголосый профессиональный (Селена Интернешнл)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EF7C26BA295BB34A045970EEB134F6187D3739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517617   (162307) от 16.12.2021
-
-Твин Пикс - По шанхайским подвалам (2021) [MP3|320 Kbps] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162307.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сказка
-2. По шанхайским подвалам
-3. Небо без фильтра
-4. Электрик(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A02004397213386375C4CD45B95E03367BDDA5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598439   (162308) от 19.12.2022
-
-Дурной глаз / Nocebo (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайнер модной одежды готовится к своему главному показу. Но после трагических событий ее беспокоят ужасные видения, мешающие работать и жить. Внезапно в ее доме в самом центре Лондона появляется знахарка. Парой касаний она избавляет Кристин от кошмаров и дрожи в руках. Но эффект временный и требует повторов. Вскоре семья девушки замечает, что, помимо гостьи, в (   Читать дальше...   )Производство: Ирландия, Великобритания, Филиппины, США / Epicmedia Productions, Fís Éireann / Screen Ireland, Lovely ProductionsЖанр: триллерРежиссер: Лоркан ФиннеганАктеры: Ева Грин, Марк Стронг, Чай Фонасье, Билли Гадсдон, Кэти БэлтонПеревод: Дублированный (Akimbo Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59868CDE614463B5C9A2FD0928488F43D781BC89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826103   (162309) от 18.10.2025
-
-Александр Март | Механики (Книга 22). Дворцовый переворот (2024) [MP3, Сергей Ермилов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто бы мог предположить, что поиски Загонщика нас приведут к такому? Дворцовый переворот! И зачем я согласился вообще на эту авантюру? Скука, чувство справедливости или поиски выгоды? Не знаю… Но отцы командиры меня убедили своими горящими глазами, да и просто людям помочь. Не могу я смотреть на тысячи людей в цепях и не подвластных себе, не может быть у человека (   Читать дальше...   )Жанр: Фантастика, боевикИздательство: ЛитРесПродолжительность: 08:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551C3F3C3091A24AD6FEEC047BCCC090677E7A4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517659   (162310) от 16.12.2021
-
-WiFi Scanner 3.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя WiFi Scanner, вы увидите близлежащие точки беспроводного доступа и их детали, включая каналы, уровни сигнала (RSSI), шум, ширину канала и MAC-адрес, качество сигнала, максимальную скорость передачи данных, шифрование и многое другое. WiFi Scanner включает в себя тестирование скорости загрузки и скачивания, чтобы быстро измерять и анализировать проблемы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 AccessAgility LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E395C535FECFC65B574A565AEBE1942E590F56F
 ```
 
 

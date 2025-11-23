@@ -6,7 +6,7 @@ Tennis Manager 2023 (2023) [Multi] (3.0.725) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207113.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (11373498/dlc) Scene FairLight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210124.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210124.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack R.G. Меха
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211583.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211583.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cabela's Big Game Hunter: Pro Hunts (2014) [En] (1.0) License RELOADED
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219640.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219640.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ WWE 2K19 (2018) [Multi] (1.03/dlc) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223662.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223662.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247695.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247695.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252292.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252292.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Zaccaria Pinball (2016) [Ru/Multi] (1.0/dlc) Repack FitGirl [Platinum Pack]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255924.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255924.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.37/dlc) Repack FitGirl [Year One & T
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256395.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256395.jpg" />
 </div>
 
 
@@ -209,6 +209,30 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.37/dlc) Repack FitGirl [Year One & T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03017EFBE6913F06924D0E2C406D9C4556732E84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838352   (260077) от 
+
+Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.3.101.1763.0303/dlc) Repack FitGirl [Supporter Bundle]
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко вдохните, сосчитайте до трёх и... вперёд! Катитесь кувырком, пока не покорите гору в снежном продолжении Lonely Mountains: Downhill. Lonely Mountains: Snow Riders - это игра, в которой есть и серьёзные испытания, и лёгкая атмосфера. Прокладывайте лыжню по глубокому снегу, скользите по ледяным озёрам и выполняйте невероятные прыжки вместе с друзьями. Snow (   Читать дальше...   )Тип издания: RepackРазработчик: Megagon IndustriesЖанр: Инди, Гонки, СпортЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBCC66CAA41501227B1AE2E5E1DF835C8B16DA6
 ```
 
 

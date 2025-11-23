@@ -1,3 +1,179 @@
+###  Публикация: 1346372   (163924) от 19.12.2019
+
+DupeZap 4.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163924.jpg" />
+</div>
+
+
+###  Подробнее
+
+DupeZap (бывший DupeZap Plus) - Утилита, позволяющая искать и удалять дубликаты файлов.
+С ее помощью можно найти одинаковые картинки, аудио записи, видео, приложение и другие файлы.
+
+Особенности(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Hyperbolic Software.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2287577C321B3FEE5A04E88FA95BD77A5E13075
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 137112   (163925) от 13.12.2021
+
+Звезда пленительного счастья (1975) DVD9
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163925.jpg" />
+</div>
+
+
+###  Подробнее
+
+События на Сенатской площади в 1825 году и их трагические последствия сделали декабристов героями. Однако подвиг не меньшей жертвенной силы совершили их юные жены, отправившиеся в далекую Сибирь - навстречу лишениям, навстречу бессмертию...Производство: СССР / ЛенфильмЖанр: Драма, мелодрама, историяРежиссер: Владимир МотыльАктеры: Ирина Купченко, Алексей Баталов, Наталья Бондарчук, Олег Стриженов, Эва Шикульска, Игорь Костолевский, Раиса Куркина, Татьяна Панкова, Олег Янковский, Татьяна ФедороваСубтитры: РусскиеПродолжительность: 02:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8417881A3EB26525F72164A916EB754C99A0C8C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432295   (163926) от 17.12.2020
+
+Н.В. Копченова, И.А. Марон | Вычислительная математика в примерах и задачах (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие представляет собой руководство к решению задач по вычислительной математике.
+В книге содержатся сведения о правилах приближенных вычислений, вычислении значений функций, приближенном решении систем линейных и нелинейных уравнений, интерполировании, приближенном дифференцировании и интегрировании, приближенном решении дифференциальных уравнений (обыкновенных (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BD61645D7FE79AC5DF8139EC737F28A785509C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597656   (163927) от 17.12.2022
+
+Александр Райн | Песчаный колокол (2021) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герман с отличием закончил архитектурный факультет, набил руку и стал настоящим профессионалом в мире искусства. Уже давно центром его вселенной является небольшая гончарная мастерская, в которой он творит и пытается строить бизнес. Каждое новое изделие – это стремление к идеалу. Он придирчив и требователен к самому себе, ведь его цель – быть самым лучшим и самым (   Читать дальше...   )Жанр: Городское фэнтези, МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A7262F958FAFA7EAF98CF37F18F89729CE32E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346451   (163928) от 19.12.2019
+
+Ray Bryant - Four Classic Albums 1956 - 1962 (2016) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163928.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cubano Chant [3:07]
+02. Off Shore [3:56]
+03. Well You Needn't [3:19](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21232CA3201CA58ADC9370141A32E426983571CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432478   (163929) от 17.12.2020
+
+Наринэ Абгарян, Александр Цыпкин и др. | Удивительные истории о бабушках и дедушках [сборник] (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бабушки и дедушки – совершенно особые люди. Для многих воспоминания детства связаны с поездками к родне, запахом бабушкиных пирожков, увлекательными дедушкиными историями и каким-то бесконечным летом, которое, казалось, тянется без конца.
+«Удивительные истории о бабушках и дедушках» – не просто сборник рассказов о пожилых людях. Это книга, в которой реальность смешивается (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443155F93424E4E023F4D7E34424B3070D89A27D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 198086   (163930) от 13.12.2021
+
+Прибытие: Новая угроза / The Second Arrival (1998) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько лет назад ученый Зэйн Земински нащупал нити глобального заговора инопланетян, оккупировавших Землю, и погиб при загадочных обстоятельствах. Он, однако, успел передать своему брату Джеку Эддисону и талантливой журналистке Бриджет Риордан свидетельства того, что пришельцы изменяют климат планеты, делая его непригодным для жизни людей. Попытавшись обнародовать (   Читать дальше...   )Производство: Канада / Rootbeer Films, Taurus 7 Film CorporationЖанр: ужасы, фантастика, триллер, драмаРежиссер: Кевин ТенниАктеры: Патрик Малдун, Джейн Сиббетт, Майкл Саразин, Катрин Блайт, Майкл Шерер, Ларри Дэй, Стив Адамс, Эмидио Мичетти, Стефани Бланшетт, Дэвид НермэнПеревод: Одноголосый закадровыйЯзык озвучки: РусскийПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AD2EC51D0862B71B0A5021C83407574B37364B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598131   (163931) от 17.12.2022
 
 Серая шейка (1948) WEBRip [H.264/1080p-LQ] [handmade remastered AI]
@@ -6,7 +182,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163931.jpg" />
 </div>
 
 
@@ -30,7 +206,7 @@ Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163932.jpg" />
 </div>
 
 
@@ -57,7 +233,7 @@ magnet:?xt=urn:btih:1491AC7D1FE9A5CE08D4FFF87944B2E45F5AE18E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163933.jpg" />
 </div>
 
 
@@ -81,7 +257,7 @@ Patric Cowley - Malebox (2022) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163934.jpg" />
 </div>
 
 
@@ -108,7 +284,7 @@ magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163935.jpg" />
 </div>
 
 
@@ -133,7 +309,7 @@ Qbserve 1.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163936.jpg" />
 </div>
 
 
@@ -160,7 +336,7 @@ magnet:?xt=urn:btih:2C2D91B9FF5231CD83BEF1AB29B5AB903252A2CA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163937.jpg" />
 </div>
 
 
@@ -184,7 +360,7 @@ magnet:?xt=urn:btih:0B2F59F7E8489EBCF207BD1841921C57481B3EB0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163938.jpg" />
 </div>
 
 
@@ -208,7 +384,7 @@ magnet:?xt=urn:btih:108649A4F4EC0D07F778956C585E04700A175748
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163939.jpg" />
 </div>
 
 
@@ -232,7 +408,7 @@ Rorcal - Muladona (2019) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163940.jpg" />
 </div>
 
 
@@ -259,7 +435,7 @@ magnet:?xt=urn:btih:0F42A97E05E3355B80E50E6D5A3D8FED3FE9F254
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163941.jpg" />
 </div>
 
 
@@ -286,7 +462,7 @@ LibreWolf 108.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163942.jpg" />
 </div>
 
 
@@ -312,7 +488,7 @@ magnet:?xt=urn:btih:EC0E46E35EE64CC25A068ADDBFDD52A06F859B10
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163943.jpg" />
 </div>
 
 
@@ -336,7 +512,7 @@ magnet:?xt=urn:btih:5C2E948DE3104F7B8DC0E34EFFDE115D94E1A0E7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163944.jpg" />
 </div>
 
 
@@ -360,7 +536,7 @@ IObit Driver Booster Pro 8.2.0.305  RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163945.jpg" />
 </div>
 
 
@@ -384,7 +560,7 @@ magnet:?xt=urn:btih:A4CA4E23D5934A75DD1F59DE982B3708AAACF37A
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163946.jpg" />
 </div>
 
 
@@ -411,7 +587,7 @@ Joplin 2.9.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163947.jpg" />
 </div>
 
 
@@ -436,7 +612,7 @@ magnet:?xt=urn:btih:2B3242A7440260128172ADB7F9E92838C3F77CE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163948.jpg" />
 </div>
 
 
@@ -460,7 +636,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.2.0) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163949.jpg" />
 </div>
 
 
@@ -471,184 +647,6 @@ Assetto Corsa Competizione — продолжение реалистичного
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E943A06130B1F27C86511E7B3936B59DDEC8E58D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597766   (163950) от 17.12.2022
-
-Юрий Мори | Ментакль (2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экстрасенс как профессия? Да это обман, быть такого не может! Но некий дар у Кирилла Ракунова есть, иначе не попал бы он в водоворот событий, которые начались в далёком 1990 году и не с ним, а завершились в наши дни глобальной катастрофой. Выбор стоит между своими интересами и спасением человечества.Жанр: Боевая фантастика, Мистика, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BCEC765AC85476F9FE5AFE8B97D7467FD2E4F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345557   (163952) от 18.12.2019
-
-Брачная история / Marriage Story (2019) WEBRip [H.264/720p-LQ] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги — нью-йоркский театральный режиссёр Чарли и актриса его театра Николь — находятся в процессе развода. Чарли всё устраивало в их браке, но Николь считает, что потеряла себя, и, забрав сына, переезжает к маме в Лос-Анджелес. Там ей уже предложили роль в сериале и посоветовали высококлассную адвокатшу по разводам. Теперь Чарли тоже придётся искать адвоката, (   Читать дальше...   )Производство: США / Heyday Films, NetflixЖанр: Драма, мелодрама, комедияРежиссер: Ноа БаумбакАктеры: Скарлетт Йоханссон, Адам Драйвер, Мерритт Уивер, Лора Дерн, Рэй Лиотта, Уоллес Шоун, Джули Хэгерти, Алан Алда, Марк О’Брайэн, Кайл БорнхаймерПеревод: Многоголосый профессиональный (Jaskier)Субтитры: РусскиеПродолжительность: 02:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100C6AA1A4F6B313B89F07F2D1B00D41FBD4CF01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597776   (163953) от 17.12.2022
-
-Severals - Algorithm (2022) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crutch [00:04:12]
-02 - Melody (Algorithm Version) [00:03:47]
-03 - Incinerate [00:03:49]
-04 - Resonance [00:01:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53ED3047ED4C328517D31F4CE58E3B3D22F9A4EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400459   (163954) от 02.11.2023
-
-Тамара Гвердцители - 7 баллад (2011) [FLAC|Lossless]<Retro/Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longevity (3:32)
-02. Lyrical (4:50)
-03. Ballade of Tbilisi (4:47)
-04. My only one (5:43)(   Читать дальше...   )Жанр: Retro/PopПродолжительность: 00:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E173C6279867BB010CBD89CD4143BC4A0751A3AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302744   (163955) от 18.12.2019
-
-Dead or Alive 6 (2019) [Ru/Multi] (1.18/dlc) Repack =nemos= [Digital Deluxe Edition]
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead or Alive 6 — это новейший зрелищный трёхмерный файтинг со стремительными и увлекательными боями. Эта игра разработана Koei Tecmo Games, обладает потрясающей графикой, позволяет зрелищно и весело биться на многоуровневых аренах. Это серия файтингов класса AAA, разрабатываемая студией Team NINJA, принадлежащей Koei Tecmo Games.Тип издания: RepackРазработчик: KOEI TECMO GAMESЖанр: Arcade (Fighting), ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28663A5EC99C7FA903EB58B8E1118880A30D4899
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345893   (163956) от 18.12.2019
-
-VA - Не спи за баранкой (Музыка в машину) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163956.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.#2Маши - Всем Нашим (Andrey Vertuga & Dj ZeD Reboot) (2:54)
-2.Artik Asti - Моя вина (RICH-MAX Radio Remix) (3:56)
-3.Boney M - Daddy Cool (Nick Raider Radio-Mix) (3:28)
-4.Culture Beat - Mr. Vain (Dj SPARX Remix 2019) (5:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3271324F5FD79E07AD667FC6E500885F18DE7D04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358356   (163957) от 02.11.2023
-
-Тамара Крюкова | Заклятие гномов (2006) [MP3, Наталья Михеева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Чтение вслух – для всей семьи.
-«Заклятие гномов» – это увлекательная сказка с захватывающим сюжетом, где Вы снова встретитесь с главной героиней «Гордячки» – красавицей Златой, которая на этот раз попадает в астральный мир в поисках ответов на загадки Вселенной. Если Вы послушаете эту сказку вместе с ребенком – Вы и сами получите огромное удовольствие и по-новому (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Говорящая книгаПродолжительность: 04:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCF0C56DD88A84A028CC39D9A325FFC3C5B9126
 ```
 
 

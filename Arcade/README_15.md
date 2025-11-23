@@ -6,7 +6,7 @@ Pinball M (2023) [Multi] (1.0.4/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53052.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Whacking Hell! (2024) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53097.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53126.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53184.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53258.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53261.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Wander Hero (2023) [Multi] (1.0.240608) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53334.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Star Stuff (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53341.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ I Don't Fall (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53866.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SOS OPS! (2023) [Ru/Multi] (122/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53999.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54082.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54107.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54283.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54286.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Mercenary Battle Company: The Reapers (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54316.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Rainbow Cotton (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54375.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Umbraclaw (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54467.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rocket Rumble (2024) [Ru/Multi] (0.2.221) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54470.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tiny Terry's Turbo Trip (2024) [Multi] (1.28.1701) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54479.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ ReConnect Exit LOOP (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54501.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ THE KING OF FIGHTERS XV (15) (2022) [Ru/Multi] (2.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55229.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55410.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55435.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Besiege (2020) [Ru/Multi] (1.50/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55447.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tchia (2024) [Ru/Multi] (2.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56048.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VMware делает Workstation и Fusion бесплатными для всех
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37455.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VMware делает Workstation и Fusion бесплатными для всех
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37456.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Craftomation 101: Programming & Craft (2024) [Ru/Multi] (0.84.4) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37457.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E1114BE6DF9CEC7628B72AF9348783D0D12E7D06
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37458.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wolfgang Amadeus Mozart - The Horn Concertos - Oboe Concerto (2001) [FLAC|Lossle
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37459.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:58EF5A8AE71EBBFDD0C4C750004604DB09A12809
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37460.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37461.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Pop Dance Summer Caramel (2024) [MP3|320 Kbps] <Pop, Pop-Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37462.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Glary Utilities Pro 6.18.0.22 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37463.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DD97F41C44AC9C8EBDA11ED5153B04DDD98476FF
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37464.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:0C8976A4466329C4C72FEA99A7948A765C0DBC54
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37465.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Advanced Renamer 4.06 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37466.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Valley Peaks (2024) [Multi] (1.0.8.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37467.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C46CB9951E36F3DFD318663A5DC6BD140EFBD0BF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37468.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:833D38CDEF1CCF3D0B7BBB99C58A0DA58977772B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37469.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MediaInfo 24.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37470.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:57879D9246F366F2B6A19837BD45C1E8797C1D5A
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37471.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:89F4B9800E2FE7C40925AEBF49B5FFA2BAEDD6FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37472.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:41343B4134FDC494F8A84551DC0F1006F4D8957D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37473.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D338C27522328208CFE1C2BBEBB9F79069D81043
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37474.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ OneCommander Pro 3.92.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37475.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A127ECCBB3671F65DCB6DFD1394C0EE5B43DD062
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37476.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37477.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ XYplorer 26.60.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37478.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:98F0B4E13BCAB87FBED33CB42F6153150107B7BB
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37479.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ The Alan Parsons Project - Pyramid (1978) Reissue, Remastered, 2024, Cooking Vin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37480.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1516293   (166873) от 10.12.2021
+
+K-Lite Codec Pack Update 16.6.3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166873.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963B6D81AAD7F8C435A16527F1F233813ED3ABE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431621   (166875) от 14.12.2020
+
+HDCleaner 1.320 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166875.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows от компании Майкрософт. Данный набор эффективных средств ля очистки ПК создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43048629491F1FDB9116D07E7EBC95B72E17702D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516294   (166885) от 10.12.2021
+
+Opera GX 82.0.4227.25 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C70E41EEAEE745176B6A586450F593A1D9EF8A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672965   (166888) от 30.10.2023
 
 Floorp Browser 11.5.1 + Portable [Multi/Ru]
@@ -6,7 +80,7 @@ Floorp Browser 11.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166888.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Room Arranger 9.8.1.641 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166894.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ TechSmith Camtasia 23.3.2 build 49471 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166900.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.0 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166906.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ FX Player Pro 3.7.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166909.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ MAMP PRO 6 v.6.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166913.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ Optimizer 16.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166917.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Open to Clo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166942.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ Art Text 4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166944.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ Watermark Sense - Flexible batch watermarking 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166950.jpg" />
 </div>
 
 
@@ -253,7 +327,7 @@ YT Downloader 9.5.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166952.jpg" />
 </div>
 
 
@@ -277,7 +351,7 @@ NXPowerLite Desktop 9 v9.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166953.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ Wondershare UniConverter Ultimate 15.0.4.17 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166958.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ BBEdit 13 v13.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166960.jpg" />
 </div>
 
 
@@ -350,7 +424,7 @@ EdgeView 2 v2.910 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166964.jpg" />
 </div>
 
 
@@ -374,7 +448,7 @@ Swift Publisher 5 v5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166965.jpg" />
 </div>
 
 
@@ -398,7 +472,7 @@ FigrCollage 3.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166969.jpg" />
 </div>
 
 
@@ -422,7 +496,7 @@ Resize Sense - Flexible batch image processing 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166971.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ SiteSucker 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166976.jpg" />
 </div>
 
 
@@ -472,7 +546,7 @@ magnet:?xt=urn:btih:084AB2427647E40B3797812A531E0A3652C5EA86
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166983.jpg" />
 </div>
 
 
@@ -496,7 +570,7 @@ System Toolkit 5.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166986.jpg" />
 </div>
 
 
@@ -520,7 +594,7 @@ Sigil 2.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166988.jpg" />
 </div>
 
 
@@ -544,7 +618,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166989.jpg" />
 </div>
 
 
@@ -555,79 +629,6 @@ Notebooks является единственным блокнотом, кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AB21FE6BF6C2EF24C1FB019C2453C5CDDE64320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672963   (166992) от 30.10.2023
-
-Media Player Classic Home Cinema (MPC-HC) 2.1.0 + Portable (unofficial) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F277A0AAF5430D3926B1A4165FE2A7B7E1514A30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516230   (166994) от 10.12.2021
-
-UltraCompare 22.00.0.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166994.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraCompare — это текстовый редактор, оптимизированный для работы одновременно с несколькими файлами, с целью нахождения отличий в этих файлах. Поддерживает построчное сравнение (Binary Compare) отдельных файлов. В строке состояния отображается количество различных блоков, также предусмотрена возможность поиска различий в папках путём рекурсивного сравнения директории (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 IDM Computer SolutionsПоддерживаемая ОС: MacOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E68DDBE4C1A2D702C511BD793E92B67064DA64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431561   (166996) от 14.12.2020
-
-Ink2Go 1.9.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ink2Go - интересное приложение, которое позволяет создавать аннотации и выделять текст различными способами на любом приложении, работающем в данный момент времени: Web-страницы, окна других приложений, документы и даже на видео.
-Все ваши действия вы можете сохранить в виде графического файла или сохранить весь сеанс работы как видео, для совместного просмотра с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: EyePower Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D96429E87BA3DBB9E55488FF1D17F3166B3725E
 ```
 
 

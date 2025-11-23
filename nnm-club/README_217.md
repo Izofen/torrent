@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5715.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:837E91113F8892E96C694A18858636ED130A2027
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5716.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:22AA587A3D58B4BB88DCC61E3F80D0F8CCDF3ABB
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5717.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8B0E791981FBE010E5226F2C09C2BA3D98141486
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5718.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MassTube Ultra 21.0.0.157 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5719.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:72EF186BC939E722CADCDDD415FB4AC172314EE5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5720.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:224800DEA9986A2028BCFA923F4F3CD5AF1BBB20
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5721.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ InnoExtractor Ultra 11.0.0.146  RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5722.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:BC660D873BE76D1C490B8DE2F3165DA83544F590
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5723.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E1A983D5960362CAA67BAF26F4ED332A2D346DD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5724.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:B7BD7F5D061535D8E3BE0E1E2D2540E049FC8143
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5725.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9FDA312E80C748AB0DE1C371CEE3B4C0D62D2F8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5726.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:2780E8D4B5FCAD7C2933C803B33609EDA0011614
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5727.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5728.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:125C84678784D9E843CFDAA61A9824ACF4D4CFFF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5729.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs37290) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5730.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:12E67FDF89F4D86ADF4A4BA9005F0EC6C90BFBCC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5731.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:A68C02D311D3B6748986883D27F182F24B5279D6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5732.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:79FFFBCA58A2F7D59A29A2353EEC116E506D69D7
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5733.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:D83569FF1BA3C105361024B2A3B4204B68FEC947
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5734.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D83569FF1BA3C105361024B2A3B4204B68FEC947
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5735.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.3.0/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5736.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Element X 1.11.110 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5737.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5738.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:5B099136617A556E1A305A29E8DF106534E0ED95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5739.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5740.jpg" />
 </div>
 
 

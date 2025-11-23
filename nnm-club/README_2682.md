@@ -6,7 +6,7 @@ R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70481.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70482.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Blues Prescription - The Late Night Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70483.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ping Rose - Conjure Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70484.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Murray Kinsley - Eye Of The Storm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70485.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:566AFE9E786CD9B3535509B110D2C72BA024895B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70486.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:895006A1612E433E38A8AB759DF0CE145B9388B0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70487.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Wolfgang Haffner - Silent World (2023) ACT Music [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70488.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Stolen Lives - Luciferův Efekt (2019) [FLAC|Lossless|image + .cue] <Thrash, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70489.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Joe Pass - Virtuoso #3 (1977) 1992, Universal [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70490.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Art Farmer - The Best Of Art Farmer (1990) Epic Associated [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70491.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Joe Pass - Live At Elder Hall, Adelaide (1990) 1995, ABC [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70492.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Striker - Ultrapower (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70493.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Smoothies - The Last Goodbye (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70494.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Rosetta Stone - Nothing Is Sacred (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70495.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:1E312DFDDF6D79F9B86BE4A671F584617327225F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70496.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 08 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70497.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Bubba Coon - Dream Weaver Studio the First 100 Years (2025) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70498.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Flickering Alley - Midnight Reverie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70499.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ The Heavy Souls - Have You Got Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70500.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Big Al and the Heavyweights - Blues Power (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70501.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:5868262BAD7307B686CC27FB30089541CC45B0F9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70502.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Glass Hearts Harmony Club - Misfit Love Letter (2025) [FLAC|Lossless|WEB-DL|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70503.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Kulhu & the Vigilantes - Solace In The Blues (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70504.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Avatarium - Between You, God, The Devil And The Dead (2025) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70505.jpg" />
 </div>
 
 

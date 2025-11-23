@@ -1,3 +1,79 @@
+###  Публикация: 490787   (102660) от 02.05.2012
+
+2016: Конец ночи / Hell (2011) [1080p] BDRemux
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед тем как окончательно погаснуть, Солнце увеличилось до невероятных размеров и выжгло всю Землю, превратив ее в непригодную для жизни пустыню.
+
+Среди немногих выживших — группа молодых людей, которые отправились в горы в поисках воды и пищи. Но эта мысль посетила не только их, и очень скоро ребята оказываются втянуты в безжалостную борьбу за выживание.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Тим ФельбаумАктеры: Ханна Херцшпрунг. Ларс Айдингер, Стипе Эрчег, Лиза Викари, Йоанн Бланк, Марко Каламандрей, Кристоф Гоглер, Ангела ВинклерПеревод: ДублированныйЯзык субтитров: Русский, НемецкийПродолжительность: 01:29:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491259   (102664) от 02.05.2012
+
+ArchBang Linux 2012.5 [i686, x86-64] (2xCD)
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102664.jpg" />
+</div>
+
+
+###  Подробнее
+
+rchBang является проектом, разрабатываемым ArchBang Team. Данный дистрибутив сочетает в себе Arch Linux с быстрым и простым оконным менеджером Openbox. Остальные приложения также подобраны исходя из простоты использования и легкости графического интерфейса. При этом разработчики пытались не жертвовать удобством использования, оснастив ArchBang стандартным по сегодняшним меркам набором приложений для работы с фото, видео и аудио файлами. Дистрибутив предназначен для пользователей, которые хотят получить Arch Linux "из коробки".
+
+Некоторые изменения в этом выпуске: установлен QDarkStudio4 по умолчанию как GTK + тема; выбран Shotwell для просмотра изображений, улучшен Conky; Epdfview заменил zathura, реализованы простые чистые панели tint2; добавлен Broadcom Wireless; релиз дополнил VirtulaBox Arch Linux; добавлена возможность управления мобильным широкополосным модемом в NetworkManager.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490851   (102666) от 02.05.2012
+
+Последний охотник / Hunter Prey (2010) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тюремный звездолет, выполнявший передачу опасного межгалактического преступника, терпит крушение на пустынной планете. Выжившие конвоиры обнаруживают пропажу заключенного. Понимая, что в пустыне он далеко не уйдет, солдаты отправляются на поиски. Но очень скоро становится ясно, что охотники сами превратились в мишень…Жанр: Фантастика, ТриллерРежиссер: Сэнди КоллораАктеры: Исаак Сингелтон мл., Кларк Бартрам, Дэмион Пуатье, Саймон Поттер, Эрин ГрэйПеревод: Двуголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:24:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491007   (102667) от 02.05.2012
 
 Время убивать / A Time to Kill (1996) [720p] BDRip
@@ -6,7 +82,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102667.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102667.jpg" />
 </div>
 
 
@@ -32,7 +108,7 @@
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102668.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ magnet:?xt=urn:btih:35005838316EFCA18FAADCB0E5260D00B1E9EE89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102670.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102670.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:35005838316EFCA18FAADCB0E5260D00B1E9EE89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102671.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102671.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ Deep Purple & Orchestra: Live at Montreux (2011) BDRip [720p]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102672.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102672.jpg" />
 </div>
 
 
@@ -138,7 +214,7 @@ Organic Loops - Rock Hip Hop Guitars And Bass [Wav|Rex][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102673.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102673.jpg" />
 </div>
 
 
@@ -162,7 +238,7 @@ Organic Loops - Rock Hip Hop Guitars And Bass [Wav|Rex][английский]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102675.jpg" />
 </div>
 
 
@@ -189,7 +265,7 @@ Club des Belugas - Forward (2012) [FLAC|Lossless]<Soul, Nu Jazz, Electro Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102679.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102679.jpg" />
 </div>
 
 
@@ -222,7 +298,7 @@ Club des Belugas - Forward (2012) [FLAC|Lossless]<Soul, Nu Jazz, Electro Swing, 
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102681.jpg" />
 </div>
 
 
@@ -252,7 +328,7 @@ magnet:?xt=urn:btih:9A68592F41413963F4D0E490E4F2792B78697726
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102682.jpg" />
 </div>
 
 
@@ -278,7 +354,7 @@ FastStone Capture 7.1 Final RePack (& portable) by KpoJIuK [Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102684.jpg" />
 </div>
 
 
@@ -302,7 +378,7 @@ FastStone Capture - утилита для снятия скриншотов ра
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102686.jpg" />
 </div>
 
 
@@ -327,7 +403,7 @@ magnet:?xt=urn:btih:A98A7CA79E37285A6FD017249643ECB234D0C928
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102688.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102688.jpg" />
 </div>
 
 
@@ -352,7 +428,7 @@ magnet:?xt=urn:btih:A98A7CA79E37285A6FD017249643ECB234D0C928
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102689.jpg" />
 </div>
 
 
@@ -376,7 +452,7 @@ magnet:?xt=urn:btih:4FFB076BA39CA16E9645F1C2EB18DFD3D692F667
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102690.jpg" />
 </div>
 
 
@@ -401,7 +477,7 @@ magnet:?xt=urn:btih:37240AC586BAE95CFEA139F7CCCE401F9F2656AA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102691.jpg" />
 </div>
 
 
@@ -425,7 +501,7 @@ magnet:?xt=urn:btih:CD998219EB5E38F2FCA3CF3C920B983D5F06AABF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102692.jpg" />
 </div>
 
 
@@ -449,7 +525,7 @@ R-Wipe & Clean 20.0.2529 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102693.jpg" />
 </div>
 
 
@@ -473,7 +549,7 @@ magnet:?xt=urn:btih:40936DBA9104593F762CB81735431EAA1DA433D2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102694.jpg" />
 </div>
 
 
@@ -498,7 +574,7 @@ Don't Starve Together (2016) [Ru/Multi] (692916/dlc) Repack Let'sРlay [MEGA PAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102695.jpg" />
 </div>
 
 
@@ -522,7 +598,7 @@ magnet:?xt=urn:btih:653B47F21122B2FB4F44E509B281242E9A579258
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102696.jpg" />
 </div>
 
 
@@ -546,7 +622,7 @@ magnet:?xt=urn:btih:EAD5ECEDBB0766E10A45B7D1132FB81501E51D96
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102697.jpg" />
 </div>
 
 
@@ -570,7 +646,7 @@ magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102698.jpg" />
 </div>
 
 
@@ -581,83 +657,6 @@ magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B82279344A0B4F8F7190EBCDD083D3CD1DA89F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822821   (102699) от 08.10.2025
-
-Blender Secrets, Jan van den Hemel | Hard Surface Sculpting in Blender (2023) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс посвящен полному процессу скульптинга твердых поверхностей в Blender, начиная с рисования эскизов и заканчивая готовой трехмерной скульптурой. Попутно мы изучим базовые и продвинутые инструменты и кисти для создания скульптур. Затем мы также углубляемся в создание потрясающих материалов, таких как альфа-текстуры, карты смещения плиток и кисти VDM для твердых (   Читать дальше...   )Производство: Blender SecretsЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 16:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E39620C708B6F3F7BBEEDDC3D829AAADABAB5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822832   (102700) от 08.10.2025
-
-Шрифты - Behance - Pixel Surplus - Bowler - 158232363 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102700.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Bowler" Владимира Кленова - это бесплатный шрифт, предназначенный для использования в больших форматах и позволяющий эффективно создавать привлекающие внимание заголовки.
-"Bowler" - бесплатный шрифт для личного и коммерческого использования.
-Материал раздаётся с официальной документацией.Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0C0E40F500CA5BB7B1DAE5906ED8D26158E796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764549   (102701) от 07.12.2024
-
-Instrumental Jazz Music Ambient - Romanticistic Feelings (Charming Jazz Music) (2023) 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke In Your Eyes (3:20)
-02. Moonlight in Vermont (3:29)
-03. Together Again (3:22)
-04. The Touch of Your Lips (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83577B344D63DA06FF6BFA2F16B93414A10E95D3
 ```
 
 

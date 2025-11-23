@@ -1,3 +1,156 @@
+###  Публикация: 1272618   (142417) от 28.12.2018
+
+The Crypt (Байки из склепа) 1.0 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142417.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Crypt v1.0 (Байки из склепа) - приложение для любителей "олдскульных" ужасов. Содержит в себе американский телесериал-антологию. С 1989 по 1996 год было снято 7 сезонов (общей сложностью 93 эпизода). Первая серия вышла на экраны 10 июня 1989 года, последняя — 19 июля 1996 года. Сериал был основан на популярных в 1950-е годы одноимённых комиксах. Каждый (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 27.12.2018Разработчик: ShostBoxПоддерживаемая ОС: 4.1 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4B54829C5BA5F4CCA1418B51F54199F2AA7BE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087896   (142418) от 29.12.2016
+
+Chimeras 3: Cursed and Forgotten / Химеры 3: Проклятые и забытые (2016) [Ru] (1.0.9) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы отправились в Шотландию, чтобы узнать больше о своем наследии. То, что начиналось, как расслабляющий отдых, вдруг превратилось в путешествие во времени! Ваша прародительница была похищена бандитом. Только Вы сможете спасти ее! Но не все так просто в этом волшебном мире.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C9A4CC8229ABF51054B724A7F93847B69FBF61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195251   (142421) от 29.12.2017
+
+VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brooklyn Guy - Cold Stuff (Original Mix)
+02. Astero feat. Tiana - Satellite
+03. Anthony Chocco - Oh My Baby (Sensoniques Deep Mix)
+04. A Club Tunes - Cry(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81C316F1E744346F9380F689D0BDEE8D283B049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086038   (142422) от 29.12.2016
+
+Путь на Запад / The Way West (1967) Blu-ray [H.264 /1080p] [Custom]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XIX века. Уильям Тэдлок ведет переселенцев на запад Америки, чтобы создать там новое поселение. Тэдлок - строгий предводитель, который одинаково требователен как к себе, так и к остальным участникам похода. По дороге путешественникам приходится пережить множество несчастий, а после убийства индейского мальчика испытать на себе всю силу правосудия.Производство: США, Harold Hecht ProductionsЖанр: Вестерн, экранизацияРежиссер: Эндрю В. МакЛагленАктеры: Кирк Дуглас, Роберт Митчэм, Ричард Уидмарк, Лола Олбрайт, Салли Филд, Кэтрин Джастис, Джек Илэм, Стабби Кайе, Майкл МакГриви, Харри Кэри,Конни Сойер, Майкл Уитни, Уильям Лэндиган, Элизабет Фрейзер, Джон МитчумПеревод: (Многоголосый закадровый, Петербург - 5 канал)Продолжительность: 02:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C241DFD878BDC3634C5C0DD54523E5AA4958D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435735   (142423) от 29.12.2020
+
+Биатлон. Кубок Мира 2020-2021. Этап 4. Хохфильцен (Австрия). Мужчины. Гонка преследования 12,5 км (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+19 декабря 2020, суббота. 15:00 МСК
+Этап 4. Хохфильцен (Австрия)
+Мужчины. Гонка преследования 12,5 км(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A72E48E026F6F7A6B2D05BBBB27BA08B460401
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520400   (142424) от 28.12.2021
+
+VA - Silent Night Chill-Out (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass - Polar Nights (Original Mix) (6:22)
+02. Chambre 7 - Rising to the Top (Original Mix) (3:56)
+03. Andre Wildenhues - Eagle Beach (Original Mix) (3:48)
+04. Tranquillo - As Days Go By (Original Mix) (6:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46663EC3BCC9503116B44CD59FF4B2232A6D047
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590264   (142425) от 17.12.2012
 
 Бывшая / Колишня [1-60 серии из 115] (2007) TVRip
@@ -6,7 +159,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142425.jpg" />
 </div>
 
 
@@ -30,7 +183,7 @@ Artstudio Pro 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142426.jpg" />
 </div>
 
 
@@ -54,7 +207,7 @@ magnet:?xt=urn:btih:B79E4FB2B34103D4AB2C3D9BDA259E87E8EE05CA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142428.jpg" />
 </div>
 
 
@@ -78,7 +231,7 @@ magnet:?xt=urn:btih:F5B39C48526B10C926221007F900D85B5BD20367
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142429.jpg" />
 </div>
 
 
@@ -103,7 +256,7 @@ magnet:?xt=urn:btih:BF123C952D614536BEF825B8F07CB8B7F7BA5237
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142430.jpg" />
 </div>
 
 
@@ -128,7 +281,7 @@ magnet:?xt=urn:btih:9F69E020844255C4BAC239CB49229F00A6017507
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142431.jpg" />
 </div>
 
 
@@ -152,7 +305,7 @@ VA - Music Lovers Club #002 (2020) [AAC|~300 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142433.jpg" />
 </div>
 
 
@@ -179,7 +332,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142434.jpg" />
 </div>
 
 
@@ -206,7 +359,7 @@ VA - Sensual Winter Chill, Vol. 1 (2019) [AAC|~335 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142436.jpg" />
 </div>
 
 
@@ -233,7 +386,7 @@ magnet:?xt=urn:btih:0593144AA475770311D6E69F367925CAA2A9757D
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142438.jpg" />
 </div>
 
 
@@ -257,7 +410,7 @@ magnet:?xt=urn:btih:A5EAB95AA021DE5D703564D1867787074362C2AE
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142439.jpg" />
 </div>
 
 
@@ -281,7 +434,7 @@ GeoGebra 6.0.518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142440.jpg" />
 </div>
 
 
@@ -305,7 +458,7 @@ magnet:?xt=urn:btih:3865C00CC83E4C8D046CC3DC72CFD86343118A47
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142441.jpg" />
 </div>
 
 
@@ -329,7 +482,7 @@ Muffler - Glitch In The System (2021) [AAC|~309 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142442.jpg" />
 </div>
 
 
@@ -356,7 +509,7 @@ VA - German Top 100 Single Charts 29.12.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142443.jpg" />
 </div>
 
 
@@ -383,7 +536,7 @@ magnet:?xt=urn:btih:4C85ED72959ED28B98AC7CCFE6DC815B5BDFD22B
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142445.jpg" />
 </div>
 
 
@@ -410,7 +563,7 @@ magnet:?xt=urn:btih:07269D48EF7758BD365D64F367B3FD81B0AA1560
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142446.jpg" />
 </div>
 
 
@@ -443,7 +596,7 @@ AIMP 4.00 Build 1683 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142447.jpg" />
 </div>
 
 
@@ -467,7 +620,7 @@ Task Calendar 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142448.jpg" />
 </div>
 
 
@@ -491,7 +644,7 @@ Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142450.jpg" />
 </div>
 
 
@@ -505,164 +658,6 @@ Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E85E75E102D899A634BD32631B622AEDD454C29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520326   (142451) от 28.12.2021
-
-VA - 5 Years of Hoofbeats Music (2021) [AAC|~335 Kbps] <Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. QO, Trilo - Push It To The Limit (4:56)
-02. QO, The Clamps - Krieg (5:03)
-03. Computerartist, QO, Rido - Get Down (Rido Remix) (4:17)
-04. Computerartist, QO, Merikan - Blockade (6:16)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE0F62C090E6657AB0B6AD040D6F39A1DD57537
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348564   (142452) от 28.12.2019
-
-CorelDRAW Graphics Suite 2019 21.3.0.755 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет профессиональных инструментов для редактирования фотографий, разработки дизайна и создания макетов страниц и векторных иллюстраций поможет вам существенно повысить вашу продуктивность и обеспечит удаленный доступ ко всем вашим материалам.
-
-Создавайте дизайн-проекты в любой точке мира с CorelDRAW® Graphics Suite 2019! Работайте в удобном для вас формате, в интуитивном (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455F4195DB99B1CE45DC4FBF6777B7AA157742E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087988   (142454) от 29.12.2016
-
-Dism++ 10.1.21.1B Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dism++ - утилита предназначена для продвинутых пользователей, которая поможет осуществить «генеральную уборку» в операционной системе Windows. С ней вы можете очистить систему от временных файлов, удалить логи, кэш и т.д. Интересной особенностью является поддержка сжатия уже установленной системы (% сжатия выбирается в настройках программы). помимо всего прочего (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614A103D8700B5DC0B62192DA096A65E9B8BF250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195471   (142455) от 29.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 36) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Леонид Кострица  -  Вернулся на Родину  3:22
-02.  Владимир Бунчиков и Владимир Нечаев  -  Ты да я  2:48
-03.  Клавдия Шульженко  -  Всё проходит  2:52
-04.  Людмила Гурченко  -  Песенка о хорошем настроении  2:39(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A91C1ACA9EEF9036F9E811F7CC01055775B1D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678888   (142456) от 23.11.2023
-
-Медвежонок и бобёр - Перезалив 1-3 (2023) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2023 - Перезалив 1
-2023 - Перезалив 2
-2023 - Перезалив 3 (старенькое)Жанр: AlternativeПродолжительность: 3 CD, 01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F8A192B476E35CFC75C4BCFA0862A5C0293BA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435706   (142457) от 29.12.2020
-
-Сноуборд. Кубок мира 2020-2021. Этап 2. Карецца (Италия). Параллельный гигантский слалом. Финалы (2020) IPTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок мира по сноуборду 2020–2021.
-17 декабря 2020 года
-Этап 2. Карецца (Италия)
-Параллельный гигантский слалом.(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404F1AD9574BFB37C62AF7619AC74C3E883804D7
 ```
 
 

@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59567.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D3C83E58CFBCFC6D045F8164AE8F42C825222BAD
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59568.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B940C00E200AB415D4F2CED170A99FFEAD5253C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59569.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Chronicles of Myrtana: Archolos / Хроники Миртаны: Архол�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59570.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:479833205F88661AB6492DAF975EBC002067B74B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59571.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1216A799B5E94487D958D6A548B140150E82F8D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59572.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2D2CA78DA83521133FE539C6224C24D713E36628
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59573.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C246F1CF592D3F799524A8F9EBD6D3B91D7B1D0D
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59574.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A7EB4119F584E8524871A3A674659697A543A405
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59575.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Photoshop Easy, PiXimperfect | The Ultimate Online Photoshop Course (2022) WEB-D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59576.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Windows 7 Домашняя расширенная SP1 x64 USB 3.0 NVDA 2017 дл
 >>Сборки Windows для незрячих
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59577.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:CBA339EB9C55EEFCC0258A1AF586741E47029ECB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59578.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:9A6BA15D257C3E78B831D6072D8D8730E49DB34C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59579.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:481FDE9E48207EEBA08ACA636511814E7B1E6786
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59580.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:800EA0CC04B9C5527778F94C59D07392F963E958
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59581.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59582.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:BEEA33ECD52A6158BA5587A56DF685645EE5C449
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59583.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:668415B098AAE0ACF83CA42A7A3AB74375818FF0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59584.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:668415B098AAE0ACF83CA42A7A3AB74375818FF0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59585.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:C07D85951FBE7EF5F33BFD933751DEA9A83D7D40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59586.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Windows Server 2022 LTSC [10.0.20348.2402], Version 21H2 (Updated April 2024) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59587.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:FADE25FBF9FE1B7D3FBA0F50B2C6B912B3723250
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59588.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Topaz Video AI 5.0.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59589.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:72098275B2F54CADD220C860088DF16D489596B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59590.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ PilotEdit Lite & Pro 18.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59591.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:5B5B0FA796B53998933C977A7D5CF2BCD30B5A91
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59592.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27121.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27121.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:85289CCB42521D1DAB574DA9DBB6FDE685DBBB5F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27228.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27228.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:8EA81F3875A5329DE4BADE1A44BAA8D04214FBD0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27235.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27235.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2E548E8C0E9E8586B0B64E831A2949FE37673D63
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28207.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28207.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:79C56F753CE347869C01D496BFFC64E5FF26AD87
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29251.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29251.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:07BD654600C3497868A3BAD3711DB0577D91C86A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30579.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30579.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:1E238C1AA9865F12FC8A6C4AD30E5C6B45304914
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31237.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:807E273F9EB232F43B58A296C13C83A3BEEC007E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31335.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:A88D342CEC73C93A2F3FF23BCC7E799CB17E030E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32065.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:50FA8919C7D68A86EB725B1818A86F398EA2D121
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32437.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Frances Buontempo | Learn C++ by Example (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33172.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Mikhail Sakhniuk, Adam Boduch | React and React Native (5th Edition) (2024) [PDF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33174.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Alexey Soshin | Kotlin Design Patterns and Best Practices (3rd Edition) (2024) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33205.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Jakub Narębski | Mastering Git, 2nd Edition (2024) [EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33333.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33355.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33356.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33360.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33361.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33363.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33365.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33369.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33374.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33385.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:249FF069CE629A392456C022C1F9C1A8F2161DC3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33539.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Daria Orlova, Esra Kadah, Jaime Blasco | Flutter Design Patterns and Best Practi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33570.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:7958D49BF8B550DB6FA6F8539ADA6E1D68E6791F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34109.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47415.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47416.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47417.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Vivaldi 6.8.3381.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47418.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:6FB2F8638704C672AE4A48674BEE06B7E44FBBDD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47419.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Plugin Alliance & THX - Spatial Creator 1.1.0 VST 3, AAX (x64) RePack by TCD [En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47420.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:BDA840A7324864E3D27E0BD35C00AEB230545D1B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47421.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F3C4B14528D342B11049C72C4A125D266F32E282
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47422.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:23B5D7C33541A3349F44E44940A8ED500648AA7D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47423.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Plugin Alliance & Brainworx - bx XL V3 3.0.1 VST, VST 3, AAX (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47424.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2998 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47425.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:3FA5387617ACE645186278771FC23CE5CB279F45
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47426.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - The Ultimate Background Playlist - Chillout Music FLAC (2024) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47427.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ MeteoHeroes (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47428.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:F6D03D0F2975AACBF40B860F45056FDA2FE9C5C6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47429.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47430.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ HammerFall - Avenge The Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47431.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:9D6AF8FFF49BC494D69739BB7DA4F5A479EE8A2D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47432.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47433.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Jack White - No Name (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47434.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Mushroomhead - Call The Devil (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47435.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Rhapsody Of Fire - Challenge The Wind (2024) Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47436.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ James-Johnson - Midnight Blues (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47437.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ The Winery Dogs - Studio Albums (4 releases) (2014-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47438.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (202
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47439.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Blues Pills - Birthday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47440.jpg" />
 </div>
 
 

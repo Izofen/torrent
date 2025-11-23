@@ -6,7 +6,7 @@ Tux Paint 0.9.34 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38203.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DxO PhotoLab 9.1.0 Build 488 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40972.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_40972.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Photo AI 3.2.0 Portable by conservator [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44147.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CorelDRAW Graphics Suite 2024 25.2.0.301 (x64) Portable by conservator [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44262.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Illustrator 2024 28.7.1.142 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44479.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Topaz Photo AI 3.2.0 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44646.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Serif Affinity Photo 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44834.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Serif Affinity Designer 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44843.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Serif Affinity Publisher 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44848.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Topaz Photo AI 3.2.0 (x64) + All Models Portable by FC Portables [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44869.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Screensaver Factory Enterprise 7.10.0 RePack (& Portable) by elchupacabra [Multi
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44913.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Radiant Photo 1.4.1.509 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44969.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Aiarty Image Enhancer 2.6 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45068.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Luminar Neo 1.20.1.13681 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45198.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adobe Character Animator 2024 24.6.0.66 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45291.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45484.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.0.12 (x64) Portable by 7997 [Multi/R
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45608.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Teorex Inpaint 11.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45647.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Teorex Inpaint 11.0.1 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45704.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Benvista PhotoZoom Pro + Plug-in for Photoshop 9.0.2 RePack (& Portable) by elch
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48335.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Xara Web Designer Premium 19.0.1.65946 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48392.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Exposure X7 7.2.0.25 (x64) Portable by conservator [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48506.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ DxO PhotoLab Elite 7.8.0 build 254 (x64) Portable by conservator [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48508.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48565.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ FotoJet Designer 1.3.5 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49082.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ FotoJet Photo Editor 1.2.3 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49083.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Glary Disk Cleaner 6.0.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122384.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Light Image Resizer 6.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122390.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sumatra PDF 3.6.15941 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122401.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Joplin 2.13.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122403.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ FastCopy Pro 5.5.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122405.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Chromium-Gost 120.0.6099.234 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122406.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ DxO FilmPack 7 for Mac v.7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122408.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ LDPlayer 9.0.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122415.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ USB Device Tree Viewer 4.0.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122416.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Find Any File (FAF) 2.4.2b5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122418.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Foobar2000 2.1.1 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122420.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Smart Launcher 6.4 build 006 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122424.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Google Chrome 120.0.6099.225 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122425.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Duolingo: изучай языки 5.134.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122427.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Internet Download Manager 6.42 Build 3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122432.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ qBittorrent 4.6.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122439.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ SamDrivers 24.0 Expert [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122444.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Topaz Video AI 4.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122446.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Microsoft Office 2021 for Mac LTSC v.16.81 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122451.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ AnyDesk 8.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122454.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VirtualBox 7.0.14 Build 161095 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122462.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122485.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122490.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ MouseBoost pro for Mac 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122491.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Stats 2.9.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122496.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Boxy SVG 4.21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122497.jpg" />
 </div>
 
 

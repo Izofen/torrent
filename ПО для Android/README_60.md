@@ -6,7 +6,7 @@ Daff Moon Phase (Фазы Луны) v3.49 Mod by shv7net [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170956.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Dictionary / Словарь PRO v16 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170958.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Shamdo  v1.3.1216 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170982.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ YouTube Music ReVanced 6.23.54 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171316.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ tvQuickActions Pro 3.3.1 Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171341.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:99DE48A649BCE300A6E21C720AE59D5EA0C8B68C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171666.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:B144E4F97105C118BDF72CD5C27467CA7B7905E5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171673.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Measure map v1.2.62 Mod by Alien, derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171698.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E3AFC5EBD1A01A7B3015F765125EC03780FD7BAE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171724.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Moon+ Reader Pro v8.5 (build 805000) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171859.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F2510A61667AF32075FFF9CF37B16C44A10E3D31
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171888.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Enhance it v4.1.7 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172049.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C1018D3B30B908C4BD0B5C0949A7D5CC2D9D2385
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172152.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:62FC3820DDFC90AD63903E0304BEF12E08F895B8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172242.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ SnapEdit - AI photo editor 4.9.1 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172259.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:76EFDB03ACDE769939AB05064F1A56E14BCC503A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172269.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C6C9B1A117A6425B87A45C4E57F5EC3CBF32FB0D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172588.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ AndroVid Pro Video Editor v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172634.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ PowerDirector – Video Editor v12.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172646.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Moovit v5.128.0.596 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172761.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ tvQuickActions Pro 3.3.0 Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172772.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Melon VPN - Secure Proxy VPN 7.9.511 Mod By AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172787.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Double Tap v1.8.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172792.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:3F3537C3031812F00E0152ADC828A2465983C5F9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172937.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ AGContacts v13.10.14.31819 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172956.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172979.jpg" />
 </div>
 
 

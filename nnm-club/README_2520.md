@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66268.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Markus Schulz - Global DJ Broadcast World Tour, Epic Club Prague, Czech Republic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66269.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:0A8DA076E528F06D2214C772CDB90586B3ED3375
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66270.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C2E211AFFCF6DE32BA07B8D3289F1FF5B4395231
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66271.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C6B8141F98ACCF2597CC9894058E3644276DDF15
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66272.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:BBEEBBCE1935B91F99D46ED36AC8560B03F153DB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66273.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66274.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Date a Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66275.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru | As a Reincarnated Aristocrat, I'll Us
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66276.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66277.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Rumpistol - Nebula (2025) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Experimental
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66278.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:D77DA6F78308FA0BE76F56E194B65C553ACCB44C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66279.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Duskfall - Studio Albums (5 releases) (2002-2014) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66280.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66281.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:63368FD53BAA92201146350F0F8B7C35F6ABD2DF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66282.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:EF002DCBE3EE8BF1131830257B3B3ECA888B36A3
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66283.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Sapid Steel - Feel The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66284.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - Sounds Like Summer, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66285.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Gemma Hayes - Night on My Side (2003) CD, Club Edition, Enhanced [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66286.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:3D058412F97BAE2F576903643D2FBC2D953E3485
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66287.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Rage - Secrets In A Weird World (1989) Reissue, 2002, Sanctuary [FLAC|Lossless|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66288.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Alien Ant Farm - ANThology (2001) CD, Album [FLAC|Lossless|tracks + .cue] <Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66289.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:399534EDFAB5F06A7C578A6D0AE7A5B1B982A320
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66290.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:3106890833A87CC6F87AE0EDEE1D007608052857
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66291.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Ardbeggar - Dark Horses and Underdogs (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66292.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:938E2CCE76488E4507249F466B771FE460B22BAB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66293.jpg" />
 </div>
 
 

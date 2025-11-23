@@ -6,7 +6,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.11 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124686.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ LibreOffice 7.6.4.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124715.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ToonMe 0.6.102 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124795.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ventusky: Прогноз погоды v30.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124800.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AndroVid Pro Video Editor v6.7.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124882.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124901.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Ashampoo WinOptimizer 26.00.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124941.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Spotify 1.2.26.1187 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124966.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Ubuntu Junior cube r 1.4 (На основе Ubuntu 10.04) 1.4 [x86] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125044.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ jetAudio HD Music Player Plus v12.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125078.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ NewPipe v0.26.1 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125089.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:E363770E48997784B445D5288D9531F84A915211
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125106.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Planet VPN 2.7.8.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125113.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125173.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FileZilla 3.66.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125204.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Transcend SSD Scope 4.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125210.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PotPlayer 231220 (1.7.22076) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125227.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ LDPlayer 9.0.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125230.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:87B27A0E608B82E0978664DC96B4AED501DD7A96
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125233.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ashampoo UnInstaller 14.00.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125255.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Adobe Photoshop 2024 25.3.1.241 (x64) PreActivated by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125259.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ EarthView 7.8.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125309.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ HWiNFO 7.69 Build 5305 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125311.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Comodo Dragon 120.0.6099.110 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125330.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ HopToDesk 1.41.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125333.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ SRWare Iron 120.0.6100.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125341.jpg" />
 </div>
 
 

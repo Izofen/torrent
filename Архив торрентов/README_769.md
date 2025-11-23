@@ -1,3 +1,78 @@
+###  Публикация: 967841   (158461) от 21.12.2015
+
+Slimjet 6.0.9.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0659A3AD4314005E8FFD9C72717D69F2304257A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967694   (158470) от 21.12.2015
+
+Подарок Мэгги / Дары волхвов / Gift of the Magi (2010) HDTVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодожены Джим и Мэгги живут в тесной квартирке и едва сводят концы с концами. Окончательно их добивает поломка автомобиля. Пара соглашается отказаться от подарков на Рождество в этом году, но в тайне друг для друга они готовят что-то грандиозное.Производство: СШАЖанр: ДрамаРежиссер: Лиза МулкахиАктеры: Марла Соколофф, Марк Веббер, Мишель Бимиш, Глайннис Кассон, Томас Грубе, Гари Хецлер, Имонн Хант, Джерри МакКанн, Бэрри МакГовернПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C86D0AB9D38A2E2275A85759193C9C80A03E019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967531   (158478) от 21.12.2015
+
+Skyzoo - Music For My Friends (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Day, Always (3:12)
+02. Suicide Doors (4:52)
+03. The Moments That Matter (feat. Kay Cola) (3:48)
+04. Luxury (feat. WestsideGunn) (3:42)(   Читать дальше...   )Производство: First Generation Rich, Inc., Empire Distribution – ERE-CD-180Жанр: Hip HopПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A8B8A6EEBD0E632436F6D2482CB274A5F1FE65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967653   (158479) от 21.12.2015
 
 Cyberfox 43.0.1 for AMD + Portable [Ru/En]
@@ -6,7 +81,7 @@ Cyberfox 43.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158479.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Typeeto 1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158488.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Her Blood In My Veins - Veliota (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158493.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:6FE37D916D0C56F529BD3C514E3F21B366C1CA5A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158496.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Slaughter Brute - Systematic Transmutations (2012) Beasts Studio records [FLAC|L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158501.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:EAC7BFB9239EA0F92D4D58CB61BD68B4B1DD3FED
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158511.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:D8D563A32A2C7FD0E1620E5B378E46889D741E9A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158512.jpg" />
 </div>
 
 
@@ -182,7 +257,7 @@ AnyDVD & AnyDVD HD 7.6.6.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158532.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ magnet:?xt=urn:btih:88792999AF8932E707CA15925CAB66CCFEFECC83
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158534.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ Plague Inc: Evolved (2014) [Ru/En] (0.9.0.4) Repack Decepticon
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158535.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ RuntimePack 15.12.20 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158536.jpg" />
 </div>
 
 
@@ -278,7 +353,7 @@ magnet:?xt=urn:btih:73B4D57875DBB058D0F3961D162749784C1612F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158539.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ Indigo Renderer Standalone 3.8.29 + plugin for Cinema 4D R11-R15 3.18.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158541.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ Alien Skin Software Photo Bundle Collection (upd 19.12.2015) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158552.jpg" />
 </div>
 
 
@@ -350,7 +425,7 @@ Project CARS (2015) [Ru/Multi] (7.0.0.0.1143/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158553.jpg" />
 </div>
 
 
@@ -374,7 +449,7 @@ Bandicam 3.0.1.1002 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158555.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ Windows 7 Максимальная SP1 x86 JAWS15 для незрячих.2015.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158560.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ magnet:?xt=urn:btih:B40A6687D03A4BD45EF1757BB05C9A00B261E66B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158565.jpg" />
 </div>
 
 
@@ -449,7 +524,7 @@ Free sms Russia v2.1 [Ru/En] - Бесплатная отправка SMS по Р
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158568.jpg" />
 </div>
 
 
@@ -473,7 +548,7 @@ IP-TV Player 0.28.1.8841 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158570.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ PhotoInstrument 7.4 Build 792 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158571.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ magnet:?xt=urn:btih:5B52E165BFDC821648C19FFCF39567ABCB72E1DB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158572.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ magnet:?xt=urn:btih:F8735C59898DDB172B8E4AB839DC92AB3B280DD7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158573.jpg" />
 </div>
 
 
@@ -556,78 +631,6 @@ magnet:?xt=urn:btih:F8735C59898DDB172B8E4AB839DC92AB3B280DD7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478C193EA44F56B87F85A09EF09877B538EE648D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967470   (158577) от 20.12.2015
-
-Raxco PerfectDisk Professional Business / Server 14.0 Build 885 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Raxco PerfectDisk - программа для дефрагментации жесткого диска. Оптимизирует при своей работе файл подкачки, MFT таблицу, а также физическое расположение на жёстком диске файлов и директорий. Для того чтобы начать дефрагментировать какой-либо диск, нужно выбрать сам диск и нажать кнопку запуска. При своей работе программа показывает изменяющуюся графическую таблицу, (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D27FCBC03CD74B1942A9939A3DB686B3990DBB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967283   (158578) от 20.12.2015
-
-Вечерний квартал 95. Выпуск №84 (2015.12.19) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята из "Вечернего квартала" продолжают устанавливать свои правила. И ни авторитет звезд шоу-бизнеса, ни статус влиятельных политиков, ни сам "президент Украины" не могут этому помешать. Здесь правила одни для всех, и "квартальщики" внимательно следят за тем, чтобы все "забавные законы" соблюдались. Злостных правонарушителей (   Читать дальше...   )Производство: "Студия 95 квартал", Телеканал "Интер"Телекомпания: 1+1Жанр: ЮморРежиссер: Владимир ЗеленскийАктеры: Владимир Зеленский, Юрий Крапов, Елена Кравец, Евгений Кошевой, Сергей Казанин, Александр Пикалов, Юрий КорявченковПродолжительность: 01:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC02946D63B3CC3F805BCC0C2C1CFAED6A06D724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967112   (158581) от 20.12.2015
-
-GIMP 2.8.16 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158581.jpg" />
-</div>
-
-
-###  Подробнее
-
-GIMP - средство для работы с изображениями. Программа может справиться с задачами создания графики и логотипов, масштабирования и кадрирования фотографий, раскраской, комбинирования изображений с использованием слоев, ретуширования и преобразования изображений в различные форматы. GIMP является одним из первых приложений подобного класса, которое распространяется (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1E95FDDDB0FB2DDD26B4E762F412C46F2907B4
 ```
 
 

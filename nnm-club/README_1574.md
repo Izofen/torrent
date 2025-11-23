@@ -6,7 +6,7 @@ Topaz Gigapixel AI 7.4.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41279.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:10251FE40D7C4BF7E2FA86CD45DE1625B0029387
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41280.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:FA075BE3D9D8A862DBE998194E3B2BBB26846CE4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41281.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9D4E8D25581D69A710D8FDBD0DE8AC41A0C2FB95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41282.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9D4E8D25581D69A710D8FDBD0DE8AC41A0C2FB95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41283.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:234BA116BFC66E4A5B13A2591221D67B8DD477D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41284.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Record Super Chart 05.10.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41285.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6ACE189692A87BAFE8B752943021EAD4B1641993
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41286.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:99DC40EE11D052C1188278F424A3BE70A924C81F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41287.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:36F48C89B3CDDCF427178AFCBC5476A890CC6FB8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41288.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Topaz Gigapixel AI 7.4.5 Beta (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41289.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Topaz Photo AI 3.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41290.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41291.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A806BA0BE2E2DDE3FAE0234981122B483A8E7553
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41292.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:3354CBEA77B02A60F5DEFD6E398DD162E166FB44
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41293.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:39947590B8B0FF0FCB353D9B8FD71F3F5638E295
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41294.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:39947590B8B0FF0FCB353D9B8FD71F3F5638E295
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41295.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:E0ECF4A67E11890E2D5369199E8E052EDB53E142
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41296.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:951FC4A01C6B4CED789217EAA6699391017BD01E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41297.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:856BB83D7630B59C7CAC2FB517DE77E752B8929C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41298.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:8710475D57093EA5CF924F3DD396C540886BCC9B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41299.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:7C0688A566C6314968DDC71B22273DBF58A21B9F
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41300.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v21 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41301.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41302.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:48E7ED2041762A5F725BE97F3C0CC20C67E07B0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41303.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:857826B179C1C934CE299BCB85E512BFBC76C81D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41304.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61295.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.02.941) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62494.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62616.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62730.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tank Operations: European Campaign (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62813.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69435.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Combat Mission: Red Thunder (2023) [En] (2.13/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69455.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Worms: Reloaded: Game of the Year Edition + 7 DLC [Ru] (RePack/1.0.0.475) 2012 |
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85038.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85433.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87497.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cannon Fodder 3 [Ru] (RePack) 2012 l Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87501.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизац
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88112.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88288.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101378.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Classified: France '44 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114281.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115105.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115249.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115771.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115909.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Solium Infernum (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115935.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Decepti
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116636.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116934.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116959.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117321.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.36.2/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117731.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118200.jpg" />
 </div>
 
 

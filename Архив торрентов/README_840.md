@@ -1,3 +1,76 @@
+###  Публикация: 1672685   (168145) от 29.10.2023
+
+Speedtest от Ookla 5.2.2 Mod by 0x7d [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 27.10.2023Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F6246B83AEEB5DEB6600A22073DB740D6DE43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596932   (168152) от 12.12.2022
+
+Sensei 1.5.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Оно включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2021 Oskar Groth / Cindori ABПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B981D71AAD31C674C68D37CD031AF3F5D3CA6CF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431115   (168154) от 12.12.2020
+
+Mirillis Action! 4.14.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
+Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E753A53FEB7C233B7ACD8309EF6B2B4055357F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596772   (168155) от 12.12.2022
 
 Kdenlive 22.12.0 + Standalone [Multi/Ru]
@@ -6,7 +79,7 @@ Kdenlive 22.12.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168155.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Scapple 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168157.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ MediaHuman Youtube Downloader 3.9.9.29 (build 0412) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168158.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ Wise Registry Cleaner Pro 10.8.5.706 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168166.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Auslogics Driver Updater 1.24.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168171.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:6BC5AAD210398EF95253D89E18ADE1AF73536F22
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168177.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ CADintosh X 8.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168178.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168181.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ Text Editor Pro 24.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168186.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ Ultra Mood - Sunrise (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168193.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ PhotoRoom 4.7.3 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168204.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ magnet:?xt=urn:btih:8763B0ABD87CE62B0D76B918D71F589780CC4853
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168207.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ System Dashboard Pro 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168215.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ File & Image Uploader 8.2.7 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168229.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ Chromium 79.0.3945.79+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168236.jpg" />
 </div>
 
 
@@ -375,7 +448,7 @@ magnet:?xt=urn:btih:833AA42223E75CE7B53DA8FBFD9BA0F96C1919A5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168240.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ Universal Media Creation Tool 07.12.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168257.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ Speedtest от Ookla 5.2.2 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168261.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ ContaCam 9.9.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168262.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ Node Video - Pro Video Editor 6.8.3 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168265.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ Live Wallpaper & Themes 4K Pro 14.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168267.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168271.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Jettison 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168288.jpg" />
 </div>
 
 
@@ -558,79 +631,6 @@ OS X имеет свою философию и некоторые вещи в с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF6BCA3B98EE4E508CA93AA928B9C95E166646BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596944   (168290) от 12.12.2022
-
-AnyGo 5.9.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168290.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением AnyGo легко имитируйте местоположение координат GPS на вашем iPhone / iPadТип издания: macOS SoftwareРелиз состоялся: 08.09.2022Разработчик: © 2022 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CECAD38434DAE71150D7386F1FC11DBD9B08F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672623   (168295) от 29.10.2023
-
-TG Pro (Temperature Gauge Pro) 2.85 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168295.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28..2023Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF9CD09E1F6454390A687D9799BEB2E2061DE4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515873   (168297) от 08.12.2021
-
-MediBang Paint Pro 27.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168297.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сути, MediBang Paint является графическим редактором, в котором авторами реализованы классические инструменты для создания рисунков: кисть, карандаш, различные художественные элементы, приемы и фильтры. Возможности приложения позволяют превратить, в умелых руках, монитор вашего устройства в настоящий цифровой холст. Тот набор инструментов, что предлагает этот (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE86957A720D21572D892A0E63DA2E65CE54730
 ```
 
 

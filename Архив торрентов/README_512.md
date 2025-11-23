@@ -6,7 +6,7 @@ Skype 8.114.0.214 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113404.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dato 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113406.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Gigapixel AI for Mac 7.0.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113409.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ QOwnNotes 24.3.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113419.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PortableApps.com Platform 29.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113421.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Speedtest от Ookla 5.3.3 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113422.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Opera One 108.0.5067.29 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113423.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ RSS Guard 4.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113430.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ XYplorer 25.70.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113437.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Speedtest от Ookla 5.3.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113438.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PDF Shaper Premium / Ultimate 14.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113440.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sumatra PDF 3.6.15987 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113441.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Opera One 108.0.5067.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113452.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ WiFiSpoof 3.9.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113467.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Cookie 7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113470.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Opera GX 107.0.5045.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113475.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ System Dashboard Pro 1.10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113486.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ FanControl V183 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113494.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Telegram Desktop 4.15.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113495.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Chromium 122.0.6261.129 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113496.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Topaz Video AI for Mac 4.2.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113498.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Brave Browser 1.63.174 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113503.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ RSS Guard 4.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113510.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113519.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ PDFCreator 5.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113524.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113529.jpg" />
 </div>
 
 

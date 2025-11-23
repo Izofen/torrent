@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103556.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F98AC0D8F5CDA58C6F5793E19DCC919FA61E3774
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103572.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:45E01FA540216239465BC37A9D309847EF10EB3A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103612.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3FE7A5284B9C9E38263B5A81E7342C8A3748E411
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103614.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F785308E2E3DAE6086596CC6972BAAE6EDAF1978
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103630.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:30993E02CE48AFB64DC8F1AF875B50440C9174E2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103649.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:A6CF010C4969AA9BFAA530FCA823D01E97F4688D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103652.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:060FD41F7CE499040B91F722B044D82FF362EAC8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103659.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:C5A8EE1D4C403CBE8440752F460FEDAA6E140FC9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103676.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:4E444C8E0DF13D01511A111DD082F4AA3342F66C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103677.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:66D4C83BEC847B6690EF348457B39A31E4D51844
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103682.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:655BB6812700A292F2F41471C6377DE9E672A902
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103769.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:2C1AD89F2ABF9D116FD12C50BAFCAD3231B353F3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103772.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:6E50C9E68DCCAD9C7890DD9C30CC6EF7EFE06460
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103774.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:C801D5DE8EAD4F5812894A309224DE2020C2AE9C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103780.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:D002412CCE37447F0842D10E944DDA971B393E85
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103804.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:408FFC470190D9BC1579DAEDC37C136E5F28A336
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103806.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:A929D2F2885AB3126624BEAB919AAA577D7AE1FA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103809.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:2488293DAD8184C2E7FEFD94E02F14DEEFF02B49
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103822.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:4419B20FCCF7FFC0BBF05347BA53F67533AA4743
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103831.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:1FBDDDEBB85B92597579256D39A7DAF6E0AFA08B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103936.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:FA16CF31C57FB3C50535A3706BDD53A32D673AE8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103939.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:231E57B667F822B8DB4420AF5CC78CBEDE8C46B8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103946.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:08A2AC21660DD75B7EBAFCA01D2928C86C024212
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103950.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:FB31F3B9FA4866CCA205C1EA127E6CA7D0BC65FC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103963.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:1BA29D44A4C9A36021F998CEE807568B27F266F1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103971.jpg" />
 </div>
 
 

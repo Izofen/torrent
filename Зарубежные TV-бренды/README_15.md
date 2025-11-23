@@ -6,7 +6,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164084.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164093.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:54DD2FBCB7CF41B208908149C1ECA66470902B07
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164116.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NG: На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164991.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BBC: Археология. Тайная история / Archaeology: A Secret H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165571.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A81D314343BC83F57B3D52AF677860D2A9CC0A3A
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165699.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:09624117FC4EAD4FE3F112EC74D09FDDD405E51E
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165758.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3A264DC1F41A0FE7ECEB3BBE20095217D3E3E3B5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165794.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:4959190DC8F321EC267F4E59FEE66B4856C8CDEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165810.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ NG. Потерянный мир Майя / Lost World of the Maya (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166174.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166652.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NG: Неразгаданные тайны Солнца / Dark Secrets of the Sun
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166657.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:1EC3BD30DA038322C6BF3756FA864EEAED17D53D
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166726.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG: С точки зрения науки: Предотвратить конец
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167182.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:CCDDCF197C6ABA6BBB91AF7DBDA130D81667D9F6
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167188.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167419.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167472.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167509.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:4E36933423E780D56046A7574152F6DCCE9620BA
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167559.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ NGW: Скрытые чудеса Африки / Africa's Hidden Wonders (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168323.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:0992CF2030C4CF83D2DABE4590F9BFCD39350002
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168579.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ NG. Ледяная дорога / Ice Road Rescue (2021) HDTV [H.264/1080i] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169093.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ NGW: Драконы Комодо / Komodo Dragons (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169290.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:DF01DB9CC001AF88918E0DBB735AC9BAB9C8CD33
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169534.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ BBC. Великие географические открытия / Voyages of D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170022.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170265.jpg" />
 </div>
 
 

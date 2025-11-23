@@ -6,7 +6,7 @@ Dinosaur Jr. - Farm (2009) 15th Anniversary Edition, 2024, Jagjaguwar[FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105379.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cold Chisel - 50 Years - The Best Of (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105388.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Red Moon Macabre (Renzo Tellez) - 13 Albums (2021-2024) [MP3|320 Kbps] <Goth
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105394.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eisregen - Abart (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105396.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hail Darkness - Death Divine (2024) [FLAC|Lossless|WEB-DL|tracks] <Occult Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105398.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Per Wiberg - The Serpent’s Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105400.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Extinction A.D. - To The Detested (2024) [MP3|320 Kbps] <Thrash Metal, Crossover
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105401.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kayas - By the Moon and the Stars (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105403.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105405.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Pentagram - Review Your Choices (1999) Remastered, 2024, Heavy Psych Sounds [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105420.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Voodoo Kiss - Feel The Curse (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105423.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mangrove - Bridge to Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105425.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Roulette - Now! (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105428.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Veil Of Eternity - Land of the Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105433.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Battle Lost - Into The Realms (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105441.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ritual - The Story Of Mr. Bogd - Part 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Cr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105442.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105456.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Robse - Harlekin und Krieger (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105459.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Miazma - 5 Albums (2011-2018) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105461.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Femme Fatale - Live + Demos (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105462.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Altar Of Oblivion - In The Cesspit Of Divine Decay (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105479.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Orgone - Pleroma (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105480.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mauro Montobbio - Scattered Memories (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105481.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Matt Mitchell & the Coldhearts - Mission (2022) Ultimate Edition, 2024, Matt Mit
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105487.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|image + .cue] <Gothic, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105491.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Pentagram - Sub-Basement (2001) Remastered, 2024, Heavy Psych Sounds [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105492.jpg" />
 </div>
 
 

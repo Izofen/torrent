@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10661.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C16EDF0BEE76EAAEE5FB5EF66448FBDEF922ED3E
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10662.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Music News For Forum vol.117 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10663.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5DE557C3DFB6A64B62238D7C7154D441CBAB1FD5
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10664.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Avicii. Я - Тим / Avicii - I'm Tim (2024) WEB-DL [H.264/1080p] [MVO]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10665.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:4A7E57AD9425EE267D5FAF589B8FE6CD24D32C2E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10666.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Ocenaudio 3.15.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10667.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C61803BFFB9E126964B7D9E264AFE20B4DCD41EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10668.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.17) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10669.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:BF7310D232832288C2A5D2AB558883CAE843BE1F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10670.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B5DC743C7EEA516270AF647A8BBDB7451AC3984F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10671.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B5DC743C7EEA516270AF647A8BBDB7451AC3984F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10672.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Inno Tools Ultimate Pack 2025 by Necros1404 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10673.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4B8AD87B23CF0DB355345613356339062243526B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10674.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:3F5AC5ECBF7142A7A9D2AB892B671A872FDC698A
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10675.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:04E4B3E5479CD34599A9D4D4A629B1759147A5C0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10676.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:EEFB5BFCB16D26C874A50D71234BD19A985C279E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10677.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:3FFE3EBADC9E8D8733373C892CA8DE711F071EED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10678.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VK Музыка: песни и подкасты v8.0 Mod by VK Equals [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10679.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:163DEC0A24CD5907CA924C75FAF104AB8D38F492
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10680.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ AIMP 5.40.2683 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10681.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:1A9FBF0629C0ECD0AECF8A925D843C0323AD67A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10682.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Fast Video Cutter Joiner 6.8.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10683.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:E37A5DA77F09247353107E8892ECA7155759C3FC
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10684.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:DA0C749596D2E27AD52DB96193D083B9BA4CB163
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10685.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:D299B473B197EC1C051CBA208337D7EF7FCE5F2D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10686.jpg" />
 </div>
 
 

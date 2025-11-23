@@ -1,3 +1,75 @@
+###  Публикация: 1684142   (127925) от 15.12.2023
+
+Легенда о самбо (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Московская спартакиада, 1936 год. Приглашена сильнейшая команда борцов. Решающий поединок: кто-то одержит победу, кого-то ждет поражение, а кого-то — неожиданный поворот судьбы… Два мастера боевых искусств. Один — с детства обучался искусству дзюдо в Японии — Василий Ощепков. Другой, прошедший русско-японскую войну, разрабатывающий приемы для самообороны — Виктор (   Читать дальше...   )Производство: Россия / АБС, Киностудия ХлебЖанр: Спорт, приключения, биография, драмаРежиссер: Андрей БогатыревАктеры: Вольфганг Черни, Дмитрий Павленко, Антон Вохмин, Алексей Шевченков, Ольга Сташкевич, Павел Абраменков, Вячеслав Шихалеев, Денис Кузнецов, Александр Давыдов, Георгий ПерадзеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990A36BDC08C5EC945FE41BDE0AA6D72F3A41872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126084   (127926) от 15.12.2023
+
+Непобедимый (1983) WEB-DLRip [H.264]
+
+>>След.
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в конце 20-х - начале 30-х годов. Андрей Хромов, одержимый идеей создать новый вид борьбы, «самозащиту без оружия», едет на Кавказ и в Среднюю Азию, где знакомится с местными борцовскими системами. Поступая в ученики к известным мастерам, он берёт из каждой школы лучшее, оттачивая своё собственное искусство. Он ещё не знает, что оно вскоре (   Читать дальше...   )Производство: СССР, Киностудия им. М. ГорькогоЖанр: Боевик, приключенияРежиссер: Юрий БорецкийАктеры: Андрей Ростоцкий, Хамза Умаров, Нурмухан Жантурин, Едгар Сагдиев, Гульнара Дусматова, Биродар Атабаев, Дильшот Исмаилов, Николай КарповПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382519C0A56251AAE44454992026BE8B3627FC02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684305   (127927) от 15.12.2023
+
+Гардемарины 1787. Война (2023) WEBRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представители западных держав в очередной раз начинают свои козни против России, но возмужавшие гардемарины и их повзрослевшие дети снова встают на защиту Родины. Проделав рискованный путь с острова Мальта до Крыма, они неожиданно становятся участниками исторического сражения при Кинбурне под началом генерала Александра Суворова.Производство: Россия / Сагиттариус - ДЖанр: Приключения, историяРежиссер: Светлана ДружининаАктеры: Дмитрий Харатьян, Александр Домогаров, Михаил Мамаев, Владимир Суровцев, Ольга Машная, Ника Здорик, Андрей Лаптев, Федор Гамалея, Даниил Зайцев, Фёдор ДобронравовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3950E54489F1B47251552EE0F4E357BFCAE1F432
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682836   (127928) от 15.12.2023
 
 Need for Speed: Porsche Unleashed (2000) [Ru] (3.6) Repack/Mod Финиган
@@ -6,7 +78,7 @@ Need for Speed: Porsche Unleashed (2000) [Ru] (3.6) Repack/Mod Финиган
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127928.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:233FFC413498EBA1C0B25334154249F3978A9661
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127929.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan | Бродяга Кэнсин [ТВ-2] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127930.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:5FE610EC7221BF96734A95CCB34BFF466FC52DCC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127931.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:05EC21A2EF212A610AB96A1379EBD4EFDC19D4E0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127932.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:D60B7F37489016CBBBC2EA4825FA1F6E21C2CF78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127933.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:39AFF71D1D9CD9534CEA233BF36DFDEACAEF7FD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127934.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127935.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:B038397C4E644808C01DCDE50182E68BF885401D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127936.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:FF755CD3D2A4AB3509D1FAFFD2A6E3F212AFDBF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127937.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Air: Большой прыжок / Air (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-b
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127938.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127939.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ HWiNFO 7.67 Build 5290 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127940.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127941.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ VA - The Best Of Gert 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127942.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ magnet:?xt=urn:btih:350CEDE794867ABF1B3FE968F49F268215AD9877
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127943.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ magnet:?xt=urn:btih:933B122BECE74A81F21861A312900DC000B065E2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127944.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:61A1BD8437A8E06522882717E4B8E568F02037E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127945.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127946.jpg" />
 </div>
 
 
@@ -479,7 +551,7 @@ Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127947.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ MUSICAL FREEDOM - Musical Freedom Radio The Best Of 2023 (2023-12-13) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127948.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Stam1na - X (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127949.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ magnet:?xt=urn:btih:A7BA724ACA07CC9BED0DBA5A77813FAF0A6D0369
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127950.jpg" />
 </div>
 
 
@@ -571,84 +643,6 @@ magnet:?xt=urn:btih:A7BA724ACA07CC9BED0DBA5A77813FAF0A6D0369
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AD9DA7AF19D7DE337958AB7FA17FF522973BEA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684152   (127951) от 14.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Трех Радостей» (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед образом Пресвятой Богородицы Трёх радостей принято молиться о семейном счастье, его дарят на свадьбу, как родительское благословение. Родители молятся о благополучии детей, особенно о том, чтобы, когда они вырастут, их семейная жизнь сложилась счастливо. Также у этого образа молятся об оправдании несправедливо обвинённых, об освобождении из плена, о возвращении (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10A2141218970387803A607298E7738E772E8A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684117   (127952) от 14.12.2023
-
-Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phase I: Singularity
-A-a - Prologue: The Blackboard
-A-b - The Theory Of Everything Part 1
-A-c - Patterns(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684247   (127953) от 14.12.2023
-
-Martin Trevy - Live @ Road To Ultra Guatemala (2023-11-04) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Trevy - I Found A Way w/David Guetta vs. Benny Benassi - Satisfaction (Hardwell & Maddix Remix)
-02. Hardwell & Quintino - Sloopkogel
-03. 7 Skies - Tokyo777
-04. Felguk & KVSH & Yass vs. Hypaton & David Guetta - Rhythm Of The Night vs. Be My Lover (Martin Trevy Mashup)(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1467F24DAA3859DD262BAF0920D8F7B0600B10B
 ```
 
 

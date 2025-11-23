@@ -6,7 +6,7 @@ VA - Retro Megadance Party (2009) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144127.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Veronica Unlimited - The Best Of The Singles Collection 1977-1982 (2003) [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144160.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144260.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144267.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Passengers - Casino: The Classic Collection (1994) Compilation [APE|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144285.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ C.C. Catch - Maxi Hit-Sensation (Nonstop DJ-Mix) (2006) [MP3|320 Kbps] <EuroDisc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144381.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144432.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Союз 57 (2015) [MP3|320 кб/с] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144512.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Alessi Brothers - Long Time Friends (1982) 2010, Wounded Bird Records [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144529.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:DBA877876C5598AAA17EE0560AE8BC9B8126AF09
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144553.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ C.C. Catch - MusicBox (2003) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144573.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ E-Rotic - Thank You For The Music (1997) [MP3|320 Kbps] <Europop, Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144678.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144718.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144863.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Bob-a-Rela - Bob-a-Rela (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144871.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - 100 Greatest Winter Songs (2019) [FLAC|Lossless|tracks] <Pop, Dance, Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144898.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Abba Revival Band - Thank You For The Music (1992) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145070.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vision Mastermixers - The Very Best 60s Megamix (1999) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145087.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:2FBFBF8FC6D90A592A994C9D2C85CEBFB09D5386
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145149.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145231.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Vision Mastermixers - Seventies Mixes (1995) [FLAC|Lossless|image + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145276.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Natasha St-Pier - Je n'ai que mon ame (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145332.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:18DC71BC9F207F433F1875319B1E9B4C7C8DFC92
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145530.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Best Of Disco House 2021 [Disco Balls Records] (2021) [MP3|320 Kbps] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145559.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Hustle Hits (1975) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145664.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - SpinCat Music - Best Of 2021 (2021) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145672.jpg" />
 </div>
 
 

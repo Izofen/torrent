@@ -1,3 +1,84 @@
+###  Публикация: 1719441   (110552) от 29.04.2024
+
+Maria Chiara Argiro - Closer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Jazz, Cinematic, Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light [00:02:51]
+02. Closer [00:03:23]
+03. Grow [00:02:45]
+04. September [00:03:37](   Читать дальше...   )Жанр: Electronic, Jazz, Cinematic, IndieПродолжительность: 00:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375AF16A4B80D944E465EADA5AE052AEA22F74BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719336   (110553) от 29.04.2024
+
+Ultimate - One Step Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – One Step Ahead
+02 – Forbidden
+03 – Nervous Breakdown
+04 – The Blood Is on My Way(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0634F5487B760A574D9019DEAA396CED9DE7836
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719417   (110554) от 29.04.2024
+
+Cos - Viva Boma (1976) Japanese Edition, SHM-CD, Reissue, Remastered, 2010, Belle Antique [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perhaps Next Record
+02. Viva Boma
+03. Nog Verder
+04. Boehme(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D213C04D78F4A9C0A70F5D72577CE14CC76E0536
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719508   (110555) от 29.04.2024
 
 Когда раздался ночной звонок / When the Night Call Came (1914) WEBRip [H.264/720p]
@@ -6,7 +87,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110555.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Stormborn - Zenith (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110556.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ Nomy - The House That Jack Built (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110557.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ The Mayfield Four (MF4) - Studio Albums (2 releases) (1998-2001) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110558.jpg" />
 </div>
 
 
@@ -109,7 +190,7 @@ Ard - Untouched By Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110559.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Morgul Blade - Heavy Metal Wraiths (2024) [FLAC|Lossless|WEB-DL|tracks] <Blacken
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110560.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Disbelief - Killing Karma (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110561.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ magnet:?xt=urn:btih:635062358A8853EABF8E0D104E8DB58D78F3757E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110562.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ Tygers Of Pan Tang - Live Blood (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110563.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ Big Star - #1 Record (1972) Remastered, 2024, Craft Recordings [FLAC 24/192|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110564.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ magnet:?xt=urn:btih:FA1806E65C778C29DAB1A0553E6914346AB182CF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110565.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ magnet:?xt=urn:btih:CEE732B583986DF1AEDF76B67E0D7CB6536B6D56
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110566.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ magnet:?xt=urn:btih:CA79E5C9B68EB7E785C76510992F77F2DC96DCD8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110567.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ magnet:?xt=urn:btih:2B1FF1A7221AD6CE0AFAC04F2C9DBA21FE902482
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110568.jpg" />
 </div>
 
 
@@ -369,7 +450,7 @@ Inter Arma - New Heaven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <doom metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110569.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ After Forever - Studio Albums (5 releases) (2000-2007) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110570.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ magnet:?xt=urn:btih:5F086759B5C23C58F13296B292A6A40677B029CF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110571.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ magnet:?xt=urn:btih:E9375EEFDD64277013BBFC42675AC9BD24AD3F60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110572.jpg" />
 </div>
 
 
@@ -473,7 +554,7 @@ Syst3m Glitch - The Brave Ones (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110573.jpg" />
 </div>
 
 
@@ -500,7 +581,7 @@ magnet:?xt=urn:btih:90CE3DCA9DDA625F7A7B4A8AF4186F02FDA329AD
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110574.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ magnet:?xt=urn:btih:A0896F6F2B06AA012302592180B871DB27734920
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110575.jpg" />
 </div>
 
 
@@ -548,7 +629,7 @@ Sacrothorn - Та сторона (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110576.jpg" />
 </div>
 
 
@@ -575,7 +656,7 @@ Markus Schulz - Global DJ Broadcast In Bloom (Vocal Dance Mix) (2024-04-25) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110577.jpg" />
 </div>
 
 
@@ -589,87 +670,6 @@ Markus Schulz - Global DJ Broadcast In Bloom (Vocal Dance Mix) (2024-04-25) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:339B10F98339C161466D645DAE3AD5FD11370133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719225   (110578) от 29.04.2024
-
-Sidilarsen - Que la lumiere soit (2024) [MP3|320 Kbps] <Rapcore, Frenchcore, Technometal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Adelphité [00:04:38]
-02 - Intox [00:04:33]
-03 - On revient sur terre [00:03:41]
-04 - Sunburn [00:04:09](   Читать дальше...   )Жанр: Rapcore, Frenchcore, TechnometalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9454479DCDE4815888505CA21D8304BBA6A085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719449   (110579) от 29.04.2024
-
-Александр Вестов - Алые розы (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не бросай её [3:17]
-02. Любовь - это ты [3:34]
-03. Я тебя не брошу [3:35]
-04. Одиночество [3:10](   Читать дальше...   )Жанр: ШансонПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB47834FEF0A199BBF241A765C2BC93D627FC68B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719457   (110580) от 29.04.2024
-
-Владимир Тимофеев - Северные лагеря (Блатные песни) (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волюшка-воля [4:56]
-02. Сибирские лагеря [4:14]
-03. Летний дождь [5:03]
-04. Сусуман [5:14](   Читать дальше...   )Жанр: ШансонПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68502659929E88C86D29677C73D45FDDCF87367
 ```
 
 

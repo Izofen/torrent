@@ -1,3 +1,81 @@
+###  Публикация: 1701341   (116480) от 20.02.2024
+
+djay - DJ App & AI Mixer 5.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116480.jpg" />
+</div>
+
+
+###  Подробнее
+
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2024 algoriddim GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC289DAE2555C8D02CC07FCDFDF672BEF685B2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701165   (116481) от 20.02.2024
+
+Hellman - Born, Suffering, Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The 4th Power (00:03:57)
+02 - Desktop Activist (00:02:57)
+03 - A Waste Of Human Being (00:03:27)
+04 - The Cycle (00:02:14)(   Читать дальше...   )Жанр: Death 'n' RollПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8DA01DA422E5A7FA28472DF84B67F8F2B01C85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701294   (116482) от 20.02.2024
+
+Svend Asmussen - Fit As A Fiddle (1996) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Wild [7:08]
+02. Bye Bye Blackbird [4:34]
+03. Take Off Blues [7:30]
+04. I Loves You Porgy [7:28](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291EEA5823DFF2946B281C31B312A89211FDF82D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701106   (116483) от 20.02.2024
 
 deer death - Next Death (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, Alternative Rock Music>
@@ -6,7 +84,7 @@ deer death - Next Death (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116483.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:18F0EAB0CE671E206D6865F96217EB479F3D5895
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116484.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116485.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Eddie Higgins - Eddie Higgins (1960) Victor [FLAC|Lossless|image + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116486.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Mahmood - Nei Letti Degli Altri (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116487.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Sound Siphon 3.6.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116488.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Belinda Metz - Electric Splash (1985) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116489.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ David Becker Tribune - Germerica (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116490.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Smash Palace - Smash Palace (1985) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Powe
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116491.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ magnet:?xt=urn:btih:636431F82C71EB3A14A2BD7BFE720B40F86A7C1A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116492.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Keith Thompson Band - Enigmatic Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116493.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Aname (Anamé) - 2 Albums (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116494.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ magnet:?xt=urn:btih:AC04301D4C1F210AA229913CDE8354B6824DC6A5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116495.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ magnet:?xt=urn:btih:EBEE7BA2A5487D223D357DBCC3779A9F6277DE4F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116496.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ Eynomia - Break Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116497.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Bokassa - All Out of Dreams (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116498.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116499.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116500.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ Motorowl - This House Has No Center (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116501.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ The Chris Plunkett Band - Origins (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116502.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ Markdown + 3.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116503.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ magnet:?xt=urn:btih:35F73139DDFFFEFA393105F1CFC8D7FB32177BB2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116504.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ Avenue Of Electric Sound - The Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116505.jpg" />
 </div>
 
 
@@ -599,81 +677,6 @@ Avenue Of Electric Sound - The Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62D4CB5A4C5D60AA291CD29804A4F3CEE1B2727
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701374   (116506) от 20.02.2024
-
-Благовест | Сила любви. По творениям преподобного Ефрема Сирина (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116506.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге, вышедшей в серии «Святые отцы о христианской любви», о необходимости стяжания и неустанного возгревания в себе чувства любви с читателями говорит преподобный Ефрем Сирин. В его творениях слово «любовь» выражает все грани бытия: любовь человека к ближнему своему, любовь человека к Богу и любовь Бога к человеку. Всё взаимопроникает и существовать по отдельности (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999165E5E5616DBC19FC7AEB77C115CB8EC590C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701284   (116507) от 20.02.2024
-
-File & Image Uploader 8.4.1 Portable + Skins [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116507.jpg" />
-</div>
-
-
-###  Подробнее
-
-File & Image Uploader - удобная и просто незаменимая программа для тех, кто часто загружает файлы, картинки и видео на файловые и онлайновые хранилища. В базе данных программы более 250 самых известных файлообменных ресурсов. Поддерживается работа с прокси, премиум аккаунтами, есть возможность параллельной загрузки, ограничение скорости и многие другие функции.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F3A53306283FE95CAF330B2C2C0B775DADD6E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701266   (116508) от 20.02.2024
-
-Romuvos - Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Folk, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Snake Dance (00:05:09)
-02 - Sun And The Morning Star (00:05:23)
-03 - World Tree (00:06:04)
-04 - Become As One (00:04:51)(   Читать дальше...   )Жанр: Epic Folk, Viking MetalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87086B6E0761C00DADE1C0EBAC207F040E8A402
 ```
 
 

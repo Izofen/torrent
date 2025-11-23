@@ -6,7 +6,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59983.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Inquisitor (2024) [Ru/Multi] (1.1/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59984.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D6DA53340FA35ED66AE796C46E68F0DB081AD5A3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59985.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59986.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Acrobat Reader 2024.002.20687.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59987.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5A7D6EE601D570508495B35E31E59A0725DCAB1D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59988.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:36EFD2A8DC2355BD10B53AC97EF606DE0DBD9B70
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59989.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:82142439207AE4866A9ECC834D8BB6ED01808576
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59990.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F4CE7804D578E2B6A4D465AE28335A03D98AEC76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59991.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:14C94A70F8ADEAD8D59CC953B97724789A9694D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59992.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:30A3FFAAC6A1D5AB7DB3B128771FCC5FB7BDB3E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59993.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:5FB32975894CEF27F8F44CCA7E1EB167F4083D85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59994.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:69B415BF9DC84A3C7510312DEDFB38FC3267CF41
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59995.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Фрирен, провожа
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59996.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:2E25466BD486992F50487F7A5E304BCA3565F545
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59997.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:BF8E1D719CB6F45DB5BFC3B8C096B773F47C3A0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59998.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:6075B33395D9BE7ABA07C41A816EAC4E8D4BD142
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59999.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:7346B620B8A79B13FF6286D8D79B04CB83C6A75D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60000.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ MInstAll v.10.03.2024 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60001.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:CC38152EEECB1CF360F87DC883AD64290D904127
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60002.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:5F9594BAA8CA595F606BC3F9FDA8DB0B24462F0E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60003.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:D165C9429C43D222BDACF37AB730A37F464C1DD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60004.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:9F593F10302C172AB2CE01F3FF94551976D8CEBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60005.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:8996B07E22770101454CB8EEFF7FC107DC969C3D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60006.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:FDEAF57A54444D015CC35DF19FD1A27356754ED1
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60007.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:49B0D54221FEC45EA875BCD452612AC65B2C6FE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60008.jpg" />
 </div>
 
 

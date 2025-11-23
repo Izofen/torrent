@@ -6,7 +6,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61061.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61101.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Svarog's Dream (2023) [En] (2.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61110.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MANIAC (2024) [Ru/Multi] (0.9.12B) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61142.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Repack FitGirl [Vanguard E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61152.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Montezuma's Revenge (2020) [En] (1.32) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61166.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Pepper Grinder (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61191.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ There's Something In The Ice (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61192.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Metal Unit (2021) [Ru/Multi] (010309) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61202.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Clash: Artifacts of Chaos (2023) [Ru/Multi] (28836/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61203.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61214.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61218.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Immortal Mayor (2023) [Multi] (1.0.14/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61221.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61228.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61236.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (2.7.6/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61238.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack FitGirl [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61242.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Three Kingdoms Zhao Yun (2024) [Multi] (1.1.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61263.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ PJ Masks Power Heroes: Mighty Alliance (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61273.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Scene SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61276.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61280.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Chef Life: A Restaurant Simulator (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61284.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61295.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:5AF2904735BFC03A989AA28DB8DC41DB75E79768
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61303.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61304.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ CD 2: Trap Master (2024) [Ru/Multi] (13869660) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61330.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Serif Affinity Photo 2.4.0.2301 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115058.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LibreOffice 24.2.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115059.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tails 6.0 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115061.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Visual Studio Code 1.87.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115064.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 11 Manager 1.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115068.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ WinRAR 7.00 Final Portable by FC Portables [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115071.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ R-Drive Image System Recovery Media Creator 7.2 Build 7200 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115074.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ AIDA64 Extreme Edition 7.00.6751 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115076.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Reg Organizer 9.40 (24.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115077.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Topaz Gigapixel AI 7.0.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115082.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ONLYOFFICE 8.0.1.31 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115086.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AIMP 5.30 Build 2540 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115087.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AIMP 5.30 Build 2540 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115089.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:45D485E34F1198E90AF74E0817D846ED7D567D10
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115092.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Start11 Version 2.0.6.4 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115093.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ IObit Driver Booster Pro 11.3.0.43 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115100.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ IObit Driver Booster Pro 11.3.0.43 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115108.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Microsoft Activation Scripts (MAS) 2.5 (28.02.2024) Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115148.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ K-Lite Codec Pack Update 18.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115162.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Monkey's Audio 10.52 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115172.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Text Edit Plus 14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115183.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tablacus Explorer 24.2.27 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115184.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115189.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ PrivaZer Pro 4.0.83 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115191.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Quick CPU 4.9.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115204.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ RAR for Linux 7.00 [x32, x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115205.jpg" />
 </div>
 
 

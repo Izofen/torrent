@@ -6,7 +6,7 @@ Octave Lissner - Learning to Live (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68516.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Unknown Mortal Orchestra - IC-02 Bogotá (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68518.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anouar Brahem - After the Last Sky (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68519.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ LaKnarra - Laknarra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68520.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jerry T. and the Black Alligators - Bourbon Cask Finish (10 Years Edition) (2025
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68521.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Defacement - Defacement (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68522.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Don Airey - Pushed to the Edge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68525.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ W.E.T - Apex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68532.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Don Dokken - Up From The Ashes (1990) [APE|24/96|image + .cue|Vinyl-Rip] <Hard R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68534.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nightwish - Once (2004) Released, 2013, Nuclear Blast [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68535.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ William Roche - Ramblin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68539.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Erja Lyytinen - Smell the Roses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68540.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Van Meurs Van Peppen - Blues and Soul for Lovers (2025) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68541.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Phil X & The Drills - Pow! Right In The Kisser (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68542.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bryan Ferry & Amelia Barratt - Loose Talk (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68548.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ DJ Elmoe - Battle Zone (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <djelmoe, fo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68559.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Einherjer - Norrøn (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68560.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Occult - 1992-1993 (2016) (Compilation) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68561.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Nightwish - Century Child (2002) Released, 2015, Spinefarm Records [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68574.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Maya Delilah - The Long Way Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68579.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mechina - Bellum Interruptum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmos
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68581.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68595.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ariana Grande - eternal sunshine deluxe: brighter days ahead (2024) brighter day
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68598.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Solefald - Norron livskunst (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Post-Bl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68619.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Judicator - Concord (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68620.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ryder - Menagerie (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68626.jpg" />
 </div>
 
 

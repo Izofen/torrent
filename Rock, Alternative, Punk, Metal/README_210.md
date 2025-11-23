@@ -6,7 +6,7 @@ Niacin - Time Crunch (2001) [WavPack|Lossless]<Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132154.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132222.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Deus Otiosus - Godless (2012) [FLAC|Lossless]<Old School Death / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132237.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Deus Otiosus - Godless (2012) [FLAC|Lossless]<Old School Death / Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132324.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132344.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) 2xCD, Remastered, 202
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132377.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Angra - Cycles Of Pain (2023) [FLAC|Lossless|image + .cue] <Progressive Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132393.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ SideQuest - The Story of No One, Pt. 1-2 (2022-2023) [MP3|320kbps] <Symphonic Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132410.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132414.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Night In Gales - Thunderbeast (1998) [APE|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132426.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Autopsy - Ashes, Organs, Blood And Crypts (2023) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132427.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Skeletal Remains - Condemned to Misery (2015) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132428.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Night In Gales - Nailwork (2000) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132429.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Night In Gales - Necrodynamic (2001) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132430.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Night In Gales - Towards the Twilight (1997) [APE|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132433.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Starer - Wind, Breeze, or Breath (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132435.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Skeletal Remains - Beyond the Flesh (2012) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132442.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Graveyard - 6 albums (2007-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132489.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Smokie - Greatest Hits (3xCD) (2006) [FLAC|Lossless]<Pop-Rock, Soft-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132603.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Peter Gabriel - i/o (2023) 2 x CD [FLAC|Lossless|tracks + .cue] <Contemporary Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132625.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Cemetery Of Scream - Oceans (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132644.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ghost - 13 Commandments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132647.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Five Finger Death Punch - The Wrong Side of Heaven and The Righteous Side of Hel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132667.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132707.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Suffocation - Hymns From The Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132709.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132713.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 428296   (132888) от 02.12.2023
+
+Владимир Даль | Сказки (2009) [MP3, Вячеслав Герасимов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Детская аудиокнига.
+Писатель, этнограф, лингвист, создатель знаменитого Толкового словаря живого великорусского языка Владимир Иванович Даль первый сборник своих сказок озаглавил так: «Русские сказки, из предания народного изустного на грамоту гражданскую переложенные, к быту житейскому приноровленные и поговорками ходячими разукрашенные».Жанр: Русская литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 03:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:001E174FA1A72EA214264DB62E3BBA50D5568A46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595083   (132889) от 27.12.2012
+
+Final Cut Pro X 10.0.7 [Multi/Eng]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio,
+так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+Инструменты Motion и Compressor ещё больше расширяют ваши возможности в работе с видео.
+В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как удобно автору, в то время как другие клипы тут же пропадают с экрана. Автор может использовать функцию Clip Connections для склейки основных клипов с другими элементами, такими как титры и звуковые эффекты, сохраняя идеальную синхронизацию всех элементов независимо от их передвижения. Автор сможет совместить связанные по смыслу элементы в составной клип (Compound Clip), который можно редактировать как единый. Революционная новая функция Auditions позволяет переключаться внутри коллекции клипов, мгновенно сравнивая альтернативные дубли.Название программы: Final Cut Pro XРелиз состоялся: декабрь 2012Тип издания: Mac OS X softwareЯзык интерфейса: English, Chinese, French, German, Japanese
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595001   (132890) от 27.12.2012
+
+ACDSee Pro 6.1 Build 197 Final [Английский + Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132890.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACDSee Pro - профессиональная программа для работы с цифровыми фотографиями, которая обладает расширенным набором функций, рассчитанных на профессиональных фотографов. Поддерживает более 100 форматов графических файлов, позволяет работать с RAW-изображениями, автоматически сортировать фотографии по параметрам, полученным из цифровых фотокамер, содержит эффективный визуальный метод добавления к изображениям метатегов и быструю пакетную обработку большого количества картинок, в том числе и в RAW формате. Кроме того, здесь присутствуют инструменты для независимого регулирования цветовых каналов, исправления артефактов фотографий, появляющихся из-за погрешностей оптики, добавления "водяных знаков", работы с IPTC-метаданными, имеется возможность архивирования графических коллекций в ZIP-файлы, запись на CD или DVD и многое другое.
+
+(   Читать дальше...   )Язык интерфейса: Английский + Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 346596   (132891) от 02.12.2023
 
 ТВИК-ЛИРЕК | Золотая коллекция сказок. Восточные сказки (2006) [MP3, Валерия Коваленко и др.]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132891.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ magnet:?xt=urn:btih:018BDBDB95E1A843FA232E49914A244581BC8CF9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132892.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ magnet:?xt=urn:btih:7B31AEDB650736383C775FEA3C183ADED23D1AE5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132893.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:6F88FFD935DCEB8446886CE23BE8DB8F5A818FB6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132895.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ magnet:?xt=urn:btih:DE49D33393AAA5153C94946C7BDE1434D3B84E09
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132896.jpg" />
 </div>
 
 
@@ -131,7 +209,7 @@ magnet:?xt=urn:btih:1485872886FD8712214BD03C9D8352C78684491E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132897.jpg" />
 </div>
 
 
@@ -155,7 +233,7 @@ magnet:?xt=urn:btih:1485872886FD8712214BD03C9D8352C78684491E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132898.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ magnet:?xt=urn:btih:432D242840322213628F0DC246FE937F71311BDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132899.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ magnet:?xt=urn:btih:E9BA66620093C70C5670E552550B47C326F9CA22
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132900.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ magnet:?xt=urn:btih:7AC34389CCF4513C8752DB1B58851D08249A23AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132901.jpg" />
 </div>
 
 
@@ -252,7 +330,7 @@ magnet:?xt=urn:btih:93A28C4C73C397845045125043C5C6D72CD75378
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132902.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ magnet:?xt=urn:btih:70185B2427BC445175A5D73E392BD2AD0970DE7A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132903.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ magnet:?xt=urn:btih:382AD620627F9268F6A3CF3B627889F168B81AED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132904.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ magnet:?xt=urn:btih:382AD620627F9268F6A3CF3B627889F168B81AED
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132905.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ FUEL [Ru/En] (L) 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132906.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ magnet:?xt=urn:btih:E1EF2D2D3ADCEB3DD2FDD9791E3961AEE417AAAF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132907.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ magnet:?xt=urn:btih:1D81C0A7CDA41362DA1ACA4C2986D40205A77548
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132909.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Queen - The Platinum Collection: Greatest Hits I, II & III (2011) 3xCD Super Jew
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132910.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132914.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ Pro Basketball Manager 2024 (2023) [Ru/Multi] (1.22-20112023) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132915.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ magnet:?xt=urn:btih:E63E1A5FC844170C8835D95363DDD5A559C6C23E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132916.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ magnet:?xt=urn:btih:2798A452C8F2E5D144F1808B5435BC4FE9D65008
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132917.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ VA - ЕвроХит Топ 40 Europa Plus 01.12.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132919.jpg" />
 </div>
 
 
@@ -569,81 +647,6 @@ VA - ЕвроХит Топ 40 Europa Plus 01.12.2023 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C18CC264B849DD5A83B40E167527E47DEE7300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681361   (132921) от 02.12.2023
-
-Matthias Develtere | Дизайн и моделирование робота / Design and Model a Robot (2021) [PDF] [EN]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот PDF-файл содержит 380 страниц о том, как создать дизайн и модель робота в 3ds Max. Но вы можете применять те же советы и рекомендации в любом другом 3D-пакете.
-
-Он посвящен только дизайну и моделированию.
-(   Читать дальше...   )Жанр: 3D моделированиеЯзык: АнглийскийИздательство: ArtStationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A7AC08A8AFEADA03BB1B73AAA91E98686A4D0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591339   (132922) от 27.12.2012
-
-WindowBlinds 7.4.0 build 320 Enhanced [Eng] + 141 best visual styles
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132922.jpg" />
-</div>
-
-
-###  Подробнее
-
-WindowBlinds 7 – программа, предоставляющая пользователям возможность полностью изменять графический интерфейс Windows посредством установки визуальных стилей оформления. В раздачу включены лучшие из них от дизайнеров: vStyler, 2of3, Tom Richter, Essorant, MadCat21, Ross Fairbanks, LightStar, Mike Bryant, adni18, Mirsguy, Xiandi, JJ. Ying, Stardock design и других. Программа WindowBlinds включает такие полезные функции как: поддержку сворачиваемых кнопок (roll-up buttons), расположение кнопок поверх других объектов (always-on top buttons), ссылки и многое другое. Стили визуального оформления в WindowBlinds способны обеспечивать анимацию, звуковое сопровождение, альфа-прозрачность панели задач, изменяемые иконки на панели инструментов.Язык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681159   (132923) от 02.12.2023
-
-Студия 54 / 54 (1998) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132923.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Студия 54» была самым популярным клубом Нью-Йорка. Случайно попасть туда было невозможно. Но оказавшись однажды, ты хотел остаться навсегда. Это история о знаменитом вертепе и его людях. О простом парне, чудом оказавшемся здесь; о наркотиках и беспорядочном сексе; о попытках заставить мечты сбыться любой ценой. Об оборотной стороне славы, о любви и разочарованиях, (   Читать дальше...   )Производство: США | Miramax Films, FilmColony, DollfaceЖанр: Драма, музыкаРежиссер: Марк КристоферАктеры: Райан Филипп, Сальма Хайек, Нив Кэмпбелл, Майк Майерс, Села Уорд, Брекин Мейер, Шерри Стрингфилд, Эллен Альбертини Дау, Камерон Мэттисон, Ноам ДженкинсПеревод: Профессиональный многоголосый (R5)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F1457F907BC7CD8F54A9FF3FE98298353AD123
 ```
 
 

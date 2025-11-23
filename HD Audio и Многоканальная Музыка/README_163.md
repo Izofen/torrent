@@ -6,7 +6,7 @@ AC/DC - Fly On The Wall (1985)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114232.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AC/DC - Flick of the Switch (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114235.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Max Magro and the Wolfgang - Commit a Crime (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114283.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hunter Francis - Daggermouth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114293.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114295.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session w
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114296.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:570001576E29DE793FB5DC5625C02540BFD9CF54
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114297.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114299.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Odd Chap - Collaborations (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114301.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Van Morrison - The Legendary Bang Sessions (1994) Remaster, 2024, Charly Digital
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114304.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Timo Lassy and Jukka Eskola - Nordic Stew (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114305.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114306.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Solitude Aeturnus - Hour of Despair (2024) Deluxe Edition [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114309.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sarah L King - Fire Horse (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Voca
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114310.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Malted Milk - 1975 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114312.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Observers - The Age of the Machine Entities (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114315.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114316.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114320.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114322.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114329.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114335.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114345.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Creedence Clearwater Revival - Бродячий оркестр. Архив по�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114347.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Black Sabbath - Sabotage (1975) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114350.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Deep Purple - Дым над водой. Архив популярной музы
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114361.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:1D0B97578B507A2B7FA2C3FDAE59E9C857FB1EF5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114368.jpg" />
 </div>
 
 

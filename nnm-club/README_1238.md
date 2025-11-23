@@ -6,7 +6,7 @@ Youtube Downloader HD 5.9.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32541.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B8A5BB11B6F7B09F7ED73DE3452B3CA72C7A5171
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32542.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:17878116B465C9D27D59277BD44535ADE986E1CC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32543.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8EB8CFE2C4A4D0D035B527894DC4A83A294ADA5C
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32544.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2D3423684671A8F8D23D32B98FF451D31F691F79
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32545.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0E774C2F0F3BCD37E65852D2FE816D7F34C79BAB
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32546.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:57C03AF8F84E11483D94E0C8E4B86106598489EF
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32547.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32548.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Topaz Gigapixel AI 8.1.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32549.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Kami no Tou: Koubou-sen | Tower of God: Workshop Battle | Башня Бога: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32550.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:99CA2261FA62701102A814EB8B06C2705049DD67
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32551.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D50424D7939FF63B7977027A51C9D594F96AB9BB
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32552.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:D50424D7939FF63B7977027A51C9D594F96AB9BB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32553.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Deck of Souls (2024) [Multi] (1.0.6) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32554.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:B0FCE6834F16194B2E08AC041CFD3E9B2C0861B0
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32555.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:86C50C0EA4755B9A4EFD876D26A250219D097810
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32556.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ TRAIL OUT (2022) [Ru/Multi] (3.1/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32557.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D29B72F21A69A3FB12B5DCE56190E85065AE2E8F
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32558.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.6/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32559.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:36F10546C87F27B755F6C65A978E1AE9E6F4B887
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32560.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:60CA9178C2AF7273C603E399C32F3ED76FFA14B8
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32561.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8B581FA237E9D98EB62AC510991DC40220240248
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32562.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:6A9CD976EDA266390296746D5FF7C82CB5D17561
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32563.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:B47B614E08E8CDEB28FAC763101C486D6DD9DA35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32564.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:1F755516A5B05611A1486CD2D6DE67ED1D1E3553
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32565.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:74B5F1B25E71BF7EB02E9318A2AAB92485C38BE4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32566.jpg" />
 </div>
 
 

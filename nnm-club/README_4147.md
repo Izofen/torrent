@@ -1,3 +1,76 @@
+###  Публикация: 1684915   (127509) от 17.12.2023
+
+Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Торонто Мэйпл Лифс (16.12.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127509.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 декабря 2023, воскресенье. 03:00 МСК. Стадион: Скотиабанк-Арена (Торонто, Канада), 18 921 зритель (93% при вместимости 20 270)
+Главный судья: Кендрик Николсон (Милвертон, Канада); Главный судья: Джейк Бренк (Детройт Лейк, США)Телекомпания: SNPITЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C08A9EB4CD9ADE4F85CAC65BBAEF8EF4734A60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684875   (127510) от 17.12.2023
+
+Щенячий патруль  / PAW Patrol (2021 - 2023) BDRip [H.264/720p] [Дилогия]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда злодей Хамдингер становится мэром города Приключений, бесстрашные щенки бросают ему вызов. Райдера с друзьями ждут опасности и веселье, тайны прошлого и новые знакомства — так, к патрулю присоединяется находчивая такса Либерти. Вооружившись новыми гаджетами, смекалкой и дружбой, команда хвостатых героев готова противостоять Хамдингеру и спасти жителей города (   Читать дальше...   )Производство: Канада, США / Spin Master Entertainment, Nickelodeon Movies, Paramount AnimationЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Эндрю Хиксон, Кэллан БрункерПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:26:01 / 01:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A791EA60328C907DA0A0AF5391B697891F244C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684687   (127511) от 17.12.2023
+
+Антология Five Nights at Freddys [PS3] [USA] Rebug/Rogero [Repack] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Nights at Freddy's 4 - данной части игрового процесса игроку необходимо выжить до шести утра. В это время за персонажем игры охотятся кошмарные версии маскотов вымышленной компании Freddy Fazbear's Pizza. Персонаж игрока находится в комнате с двумя дверьми, шкафом и кроватью, последняя находится у главного героя за спиной. Также вне этой комнаты располагаются (   Читать дальше...   )Тип издания: RepackРазработчик: Скотт Коутон, Scottgames, Clickteam LLC USAЖанр: Экшен, Инди-игра, Horror, Приключенческая игра, StrategyЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995A959A56A1F3278DCD6D13298A7F1633535384
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 341710   (127512) от 17.12.2023
 
 Путешествия Синдбада-морехода (Аудиоспектакль) (2007) [MP3, Олег Исаев]
@@ -6,7 +79,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127512.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:79080F3E12024065EEF90B97B4C8BB590D617D10
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127513.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:E008FF79438A4264B270B51EF81CA0E1BFE6E39A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127514.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:FC8C6B2BD1CEA0970F532FCCCF89B87E70169D8E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127515.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:34686DDE02B34031DE00E9F72DF4DC643EF2F806
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127516.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert!
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127517.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127518.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ magnet:?xt=urn:btih:A988C18E4CAB410C894F0DF266A1743B86A0DCEA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127519.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127520.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:2DC6E19EB1BF044944B55954CC80CA5211AF418B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127521.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ magnet:?xt=urn:btih:EF3C73B3E51FA8B254383ECE34DDBBAA5DA69D11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127522.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127523.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ magnet:?xt=urn:btih:AB3CDEA353630CDBC8FCA347CCF0E3C648B71984
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127524.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.300/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127525.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:B002BBB81B9ECC47DC74BF9EA8F35288A9A41049
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127526.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127527.jpg" />
 </div>
 
 
@@ -393,7 +466,7 @@ God of War: Ragnarok - Deluxe Edition (2022) PS4 [EUR] 9.0 (Backport до 5.05) 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127528.jpg" />
 </div>
 
 
@@ -417,7 +490,7 @@ God of War: Ragnarok - Deluxe Edition (2022) PS4 [EUR] 9.0 (Backport до 5.05) 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127529.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ WordPress plugin - Oxygen 4.8 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127530.jpg" />
 </div>
 
 
@@ -465,7 +538,7 @@ magnet:?xt=urn:btih:60E4D23A96805ABBA4CB6B11BA53D77AC5124C77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127531.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ Boushoku no Berserk / Berserk of Gluttony / Ненасытный берсерк 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127532.jpg" />
 </div>
 
 
@@ -513,7 +586,7 @@ WordPress plugin - Advanced Custom Fields PRO 6.2.4 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127533.jpg" />
 </div>
 
 
@@ -537,7 +610,7 @@ magnet:?xt=urn:btih:57083F29F3602C3350B7C4A5D09C69F1DA060D44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127534.jpg" />
 </div>
 
 
@@ -548,78 +621,6 @@ magnet:?xt=urn:btih:57083F29F3602C3350B7C4A5D09C69F1DA060D44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501882680C048E08EA276CD31EB7F6D0098A0E2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684836   (127535) от 17.12.2023
-
-LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127535.jpg" />
-</div>
-
-
-###  Подробнее
-
-LEGO 2K Drive предлагает получить уникальный опыт вождения в мире LEGO, позволяя геймерам гонять где угодно, с кем угодно и строить автомобили своей мечты. Однако на пути к победе не обойтись без препятствий, ведь множество эксцентричных соперников по гонкам с нетерпением ждут, чтобы бросить вызов игрокам в борьбе за желанный трофей Sky Trophy.Тип издания: RepackРазработчик: Visual Concepts EntertainmentЖанр: Racing, ArcadeЯзык озвучки: Английский, Испанский, Итальянский, Корейский и другиеЯзык субтитров: Английский, Испанский, Итальянский, Корейский и другиеЯзык интерфейса: Английский, Испанский, Итальянский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAC80DC91E2950458B4D679807CB5B195544D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684311   (127536) от 17.12.2023
-
-Последнее дело Мистера Монка / Mr. Monk's Last Case: A Monk Movie (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Эдриан Монк, страдающий обсессивно-компульсивным расстройством и широким спектром фобий, возвращается, чтобы раскрыть свое последние дело, связанное с его падчерицей Молли. Последнее дело Мистера Монка – полнометражное продолжение детективного сериала «Детектив Монк» с Тони Шэлубом в роли очаровательного полицейского, который был вынужден оставить работу (   Читать дальше...   )Производство: США / Universal Content Productions (UCP), PeacockЖанр: комедия, криминалРежиссер: Рэндолл ЗискАктеры: Тони Шэлуб, Трейлор Ховард, Джейсон Грей-Стенфорд, Гектор Элизондо, Тед Левайн, Джеймс Пьюрфой, Кэйтлин МакГи, Остин Скотт, Эмма Ишта, Паулину НунешПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанскиеПродолжительность: 01:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3B4AF62B1963998661456B564E01B882FB2B64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684840   (127537) от 17.12.2023
-
-Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может утолить жажду скорости? Только очередная часть легендарных гонок. Более 20 роскошных автомобилей от ведущих мировых производителей. Два режима игры - чемпионат и уличные гонки с полицией - по 33 уровня в каждом. Доступна игра за полицию в качестве "копа", где вы можете вызывать подкрепление, вертолеты, сбрасывающие бомбы на злостных нарушителей, (   Читать дальше...   )Тип издания: RepackРазработчик: EA SeattleЖанр: Racing, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
 ```
 
 

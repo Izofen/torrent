@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65410.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:B52E649E9BEF21D1B9E2A8729FB9733190754C49
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65411.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Joe Pass Quartet - Live At The Encore Theatre (1964) 2017, Phono [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65412.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ In a Darkened Room - VOIX (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave /
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65413.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Pelican - Flickering Resonance (2025) Japan Edition [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65414.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Morris Nanton Trio - The Original Jazz Performance Of Roberta (1958) 2012, Warne
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65415.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Trisha Yearwood - (Songbook) A Collection Of Hits (1997) CD, HDCD, Compilation, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65416.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Crossroad Jam - In the Beginning (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65417.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Bare Wires - Cheap Perfume (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65418.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hellfox - The Spectrum Of Human Gravity (2025) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65419.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Alldori - Isle of Lesbos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65420.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Cult Of Frey - By The Blood Of Odin, Pt. 2: Asgard (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65421.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Mississippi MacDonald - Slim Pickin' (acoustic) (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65422.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ You+Me - Rose Ave (2014) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65423.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:3774A34ADF55CF7A461C9AA127DD93D2A4FBAAA2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65424.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Dead Fields Of Woolwich - Monarch Of The Grave (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65425.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65426.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ DGM - Endless (2024) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65427.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Miyeon - Drive (Live) (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65428.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:50F88101C29AA50609C53417AAAC1ADEEF80F4E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65429.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:00100ADB25A5B7C4B7B6C28B218823F9DC8E59D7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65430.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Apotheus - Ergo Atlas (2023) [FLAC|Lossless|image + .cue] <Art Rock, Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65431.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:F6E9FA59A6F57B00924838AFECE0B3679ECFD2E0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65432.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Brunhilde - In Love Yours Hate (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65433.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Rusty Sharks - Long Way to Freedom (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabi
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65434.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:D9EA5A3AD954947E4E39DA2BD2FD7AA2ECF89F74
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65435.jpg" />
 </div>
 
 

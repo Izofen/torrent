@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43957.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:67CB103635655660AF63826710247A573904C2C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43958.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:67CB103635655660AF63826710247A573904C2C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43959.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Maou Gun Saikyou no Majutsushi wa Ningen datta / Сильнейший маг а�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43960.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Son and Bone (2024) [En] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43961.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:A997824330E1C3A94055CF29159E6DD460892244
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43962.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Manjaro 24.0.8 Wynsdey (Xfce, KDE Plasma, Gnome) (Official images Manjaro Team) 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43963.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Rhinoceros 3D 8.11.24254.15001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43964.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EA6CA271964F2833C048B1C2B3E915BDEDF2B5EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43965.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:75085C3E26571D47EEAA2F7E08738DB560460D4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43966.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:491A9956C12040B8FB911F45E8CD80089D468609
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43967.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B5A04808D6E6E2B8D4C4EBF2C22A1CC6B7CA913E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43968.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:192F1EBCF191674957440B6AC0096BB496F8DB67
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43969.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:88E9D813B50D34567A33D671F66EA9692235C311
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43970.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Pulsar Modular Complete Effects Bundle 2024.9.8 VST 3, AAX (x64) RePack by TCD [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43971.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Edge of Sanity - Studio Albums (12 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43972.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 9 (2024) [MP3|224-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43973.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Telegram Desktop 5.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43974.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Victory - Circle Of Life (2024) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43975.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Steve Cropper and the Midnight Hour - Friendlytown (2024) [FLAC|Lossless|image +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43976.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:1E4498FA411C7AB80A72E823550B410623A6E12E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43977.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Galaxy Observer - Through the Solar System (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43978.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ghostwriter Society - Long Weekend (2024) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43979.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:BEF202533B4119971EFC1FA98B68EAFA5C2C348B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43980.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:933741C259E3D35A15834D58F67C94CF11E18B59
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43981.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:40016ACEB898EDBC0B248BC94882162E7CD8FBF9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43982.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13564.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CE031879D197ED9EECCA8F167B0F7C285F3633DF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13565.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13566.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:46DE7C417C5298220FEC4E8E26D95D4F7F1198D5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13567.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:80E0B026226F59AD4EAB0F8D160B85E39FE12AE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13568.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FE4ADA0344556B590F1689E336DD67F9DE2FE0EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13569.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E6A0C215751037DDF64D4B3356F293978D47C621
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13570.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BD0190CD3C75C4F9CB53EA88C40BE80FCCE9B3AF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13571.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - 100 EDM Hits (2013) [MP3|320 Kbps] <Electro House, Techno, Tech House, Elec
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13572.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:EDDB93219F373FFEC8A31C671597CDE3EC3C58C3
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13573.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Brainworx & Plugin Alliance - bx_masterdesk Bundle 2025.6 VST, VST 3, AAX (x64) 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13574.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:B750BAA37DEE392EECCDC5CC2A32AB70AC32F990
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13575.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:00D9D035D9748EE2005C411E30EEBF4462D815A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13576.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:A3458C37D3B448912AE51C53D16C89F69A15140B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13577.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:A43E1F9D97AC0865017F84F775EEE2B3DC712025
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13578.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:A099F5146FD5BFAED4F52C082AC247C49697A48B
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13579.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13580.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13581.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Firefox Browser 140.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13582.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:2D3EC76A093BE456D886C6B712A428B07C8B4D80
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13583.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13584.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13585.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:FBE18A68751A95510D547A58DF6B3144832BE15E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13586.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:867988CEBF68360858C7F90D375711442A632908
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13587.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:6E581D959C26E0EAB69B413A32328D3C18AF1A07
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13588.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:166747493AAF3E378ADD980D9E00D68E52F1410D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13589.jpg" />
 </div>
 
 

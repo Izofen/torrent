@@ -6,7 +6,7 @@ CCleaner 6.24.11060 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55628.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Gigapixel AI 7.2.0 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55637.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Bat! Professional 11.2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55681.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Snappy Driver Installer Origin R764 | Драйверпаки 24.05.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55682.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Photoshop 2024 25.9.0.573 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55703.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microsoft Visual Studio 2022 Professional 17.10.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55704.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Atlantis Word Processor 4.3.10.1 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55705.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DBB4EBC019E69337E9509D5C209C0D89B2492480
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55706.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Blender 3.6.12 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55709.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Google Chrome 125.0.6422.77 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55713.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Glary Utilities Pro 6.10.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55717.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Spotify 1.2.36.959 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55718.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Foxit PDF Editor Pro 13.1.1.22432 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55719.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft PowerToys 0.81.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55721.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Duolingo: изучай языки 5.151.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55728.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NVIDIA GeForce Desktop Game Ready 555.85 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55738.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Driver Easy Pro 6.0.0.25691 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55740.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Adobe Photoshop 2024 25.9.0.573 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55750.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:186EA13E6B43A3537F8AC38505BEEF2DF9535922
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55755.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ ADB AppControl 1.8.4 hotfix 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55759.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rufus 4.5 (Build 2180) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55804.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Avidemux 2.8.2 Nightly(r240520) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55809.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Imagine 1.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55819.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Rosetta Stone: Изучение языков v8.25.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55822.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ HandBrake 1.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55823.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ RAM Saver Professional 24.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55826.jpg" />
 </div>
 
 

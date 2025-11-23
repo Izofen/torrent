@@ -1,3 +1,81 @@
+###  Публикация: 593847   (134374) от 24.12.2012
+
+Bandicam 1.8.5.303 Portable by dinis124 [MULTi / Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_134374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.
+
+(   Читать дальше...   )Название программы: BandicamЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680338   (134375) от 29.11.2023
+
+batchCONVERTER for Mac 2.00 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134375.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью batchCONVERTER все изображения в папке определенного формата можно пакетно конвертировать и скопировать в другую папку. Теперь поддерживается еще десять форматов, включая иконки (.icns) и даже PDF.
+Являясь частью серии пакетных программ от dragonBTV, batchCONVERTER, несомненно, унаследовал традиции обеспечения безопасности исходных файлов и эффективности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.02.2023Разработчик: © 2011-2023 dragonBTVПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C615A59D33720B7DC4E240B47B4058A93D95E94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680435   (134377) от 29.11.2023
+
+Scarblade - The Cosmic Wrath (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Die In The Night
+2. Point Of No Return
+3. Escape
+4. Power Of Hate(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA6FFCF2237DC60F6AD7832A2FA3255779831AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593598   (134378) от 24.12.2012
 
 Генрик Сенкевич | Сборник произведений [1883-1914] [FB2]
@@ -6,7 +84,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134378.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Gigi Gryce & Donald Byrd - Jazz Lab (1957) 2010, Jubilee [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134379.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ magnet:?xt=urn:btih:F366DB09C6F5D3D65CFC0F4F3EC543E81B22C155
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134380.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ Mp3tag 1.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134381.jpg" />
 </div>
 
 
@@ -107,7 +185,7 @@ GraphicConverter for Mac 12.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134383.jpg" />
 </div>
 
 
@@ -131,7 +209,7 @@ The Crotals - Conjure (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134385.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ Il Divo - The Greatest Hits (2012) 2CD Deluxe Edition [FLAC|Lossless]<Neo-Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134386.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ magnet:?xt=urn:btih:6689012B7A4F1AF492C2CA88B2B2FE3BC70F1A8B
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134388.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Bandicam 1.8.5.303 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134390.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134390.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ The Outer Worlds (2023) [Ru/Multi] (1.6411.19706.0/dlc) License GOG [Spacer’s 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134392.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ MInstAll v.25.11.2023 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134394.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ magnet:?xt=urn:btih:EB1A6BC7C1C0A78055DFD2E7FFEF7DDB98791566
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134396.jpg" />
 </div>
 
 
@@ -313,7 +391,7 @@ Alt-J - An Awesome Wave (2012) [MP3|320 кб/с]<Indie-Pop, Indie-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134397.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ magnet:?xt=urn:btih:8EA8661304052237DB8E52E24D39F95567CFF090
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134398.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ magnet:?xt=urn:btih:1AB102BF1A2D116CA477255206595AEBB2D3FCFC
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134399.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ VA - Вийди, вийди, сонечко. Українські народні
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134400.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ magnet:?xt=urn:btih:03258EB3FD622C75F2EFE8466C64C6CA2D81B11F
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134401.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134401.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ magnet:?xt=urn:btih:03258EB3FD622C75F2EFE8466C64C6CA2D81B11F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134402.jpg" />
 </div>
 
 
@@ -472,7 +550,7 @@ magnet:?xt=urn:btih:4BF1B6068B61792980843C040CE383C3256A6BC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134404.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ magnet:?xt=urn:btih:43A08924800E3600D1CAEE4465BE9D924D766F65
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134405.jpg" />
 </div>
 
 
@@ -520,7 +598,7 @@ MacCleaner 3 PRO 3.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134406.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ STAR WARS Empire at War (2006) [Ru/En] (1.120/1.121/dlc) Repack dixen18 [Gold Pa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134407.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ Eric Gales - 19 Albums (1991 - 2022) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134408.jpg" />
 </div>
 
 
@@ -582,81 +660,6 @@ Eric Gales - 19 Albums (1991 - 2022) [FLAC|Lossless|image + .cue|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C670375CEE8CDAA78553514A1A89AD573A6D9B79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680225   (134409) от 28.11.2023
-
-3D модели - Unreal Engine Marketplace Bundle (5 January 2023) [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная подборка бандлов ассетов для движка Unreal Engine.
-В данном наборе содержится огромное количество дополнительных ассетов для Unreal Engine v.4.xx - 5.xx
-В состав сборки входят такие ассеты, как: материалы, саунд-эффекты, блюпринты, визуальные эффекты, оружие, окружающая среда и многое другое.
-(   Читать дальше...   )Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D645564AEDB8BA22E96147E4AA1F8DF9F0E474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 336825   (134410) от 28.11.2023
-
-Алан Александер Милн, Борис Заходер | Винни-Пух и все-все-все (Аудиоспектакль) [2009] [MP3, Алексей Шишигин и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винни-Пух – довольно толстый медвежонок – больше всего на свете любит поесть. А кроме этого он сочиняет песенки, пыхтелки, сопелки и кричалки на все случаи жизни. Многие из них ты знаешь по мультфильмам про Винни. Но друзья – Кристофер Робин, Пятачок, Иа-Иа, Кролик, Тигра, Кенга и Ру - любят его не за это. Пусть Винни-Пух не очень сообразительный медвежонок, зато (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Аудиокнига, АСТ Москва, АстрельПродолжительность: 05:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11ADEC87E33795665E63924E082B9DE51DA667B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593928   (134411) от 24.12.2012
-
-Код апокалипсиса (2007) [1080p] Blu-Ray
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Боевик, ПриключенияРежиссер: Вадим ШмелевАктеры: Анастасия Заворотнюк, Венсан Перес, Владимир Меньшов, Алексей Серебряков, Олег Штефанко, Оскар Кучера, Сергей Газаров, Борис Токарев, Георгий Тесля-Герасимов, Анжелика Каширина, Александр Цуркан, Анатолий Котенев, Сергей Перебоев, Александр Тютин, Кирилл Сафонов, Руслан Хабибуллов, лексей АванесовСубтитры: АнглийскиеПродолжительность: 01:50:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 

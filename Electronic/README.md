@@ -6,7 +6,7 @@ VA - Talla 2XLC pres. Trance Forever (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 3 (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_252.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Ori Uplift - Uplifting Only Episode 659 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_742.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Armin van Buuren - A State Of Trance 1244 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_761.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Summer Sunset (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_775.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Trancendence, Vol. 04 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_779.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Igorrr - Сollection (2006 - 2025) 8 CD [FLAC|Lossless|tracks + .cue] <IDM, Brea
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_845.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - A State of Trance - Classics Top 10, Vol. 8 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_966.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Meute - Jubel (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_974.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Uplifting Only Top 15: September 2025 (Extended Mixes) (2025) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1280.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Deep Currents (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1282.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 25 Years Of Anjuna Mixed by Elevven (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1423.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1777.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - 100% Ibiza (The Beach Club Closings 2025) (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1792.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - 50 DJ Tracks Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1809.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Ori Uplift - Uplifting Only Episode 658 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1949.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Dancefloor Sessions, Vol. 04 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1956.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Armin van Buuren - A State Of Trance 1243 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1959.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Magic Deep-House, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1990.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Best of Vocal Trance 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2009.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Best of Vocal Trance 2025 [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2030.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - A Spa & Wellness Chill Experience (2025) [FLAC|Lossless|WEB-DL|tracks] <Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2157.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Igorrr - Amen (2025) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Metal, Breakcore,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2288.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - In Search of Sunrise 21 Mix 3: Nocturnal Voyage (Mixed by Markus Schulz) (2
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2314.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Ibiza Closing Season Sampler 2025 (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2318.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Ibiza Afterlight - Chillout Soundscapes (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2593.jpg" />
 </div>
 
 

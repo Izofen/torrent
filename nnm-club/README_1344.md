@@ -6,7 +6,7 @@ VA - Новые хитовые песни 2024, Часть 12 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35297.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Greatest Love Songs (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35298.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E8CD607354B947056F2ED30CDC99755BB87AB34C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35299.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mflex Sounds - Flashback Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35300.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:289F69A993ED33A3D06BF4E11AB353E6730D00EE
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35301.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Mflex Sounds - Flashback Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35302.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:09A8FD364675F4A5FC38376710DD6C57342395AB
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35303.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:67FBD5C711011F2F1FDC65E02C53BBDDE486039A
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35304.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:680E8DB4D147386FFE436647C28633E7537B475C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35305.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Snowy Evenings: Chillout Your Mind (2024) [FLAC|Lossless|tracks] <Balearic,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35306.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Mflex Sounds - Flashback Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35307.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:F9D3F5E39D9B6337639B8C3FCE5B90995D5B4500
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35308.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Smooth Jazz Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35309.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 1 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35310.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Whiskey Sour: Bar Blues, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35311.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35312.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Dance Electro Swing For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35313.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:15E0F243A7FC1F42E77AC2E291043722515B1217
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35314.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:AAD91FC955D7C94D82D6FD4E8EE80644D54A8DED
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35315.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:248F3A8B1CE8650C27008811A8BB24E2A56C292E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35316.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Little Glee Monster - Break Out of Your Bubble (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35317.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:70891E1AFDDA5842B91F47A85045E6E19F211E76
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35318.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Amsterdam Music Festival, Johan Cruijff ArenA, Netherlands (2024-10-19) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35319.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Gershwin – The Gershwin Songbook - 'S Marvelous (1994) CD, Compilation [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35320.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Посередине века. Трибьют Константину Арб
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35321.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:241C57A6ED76CEA8AB471B3C08520AFD34A09B02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35322.jpg" />
 </div>
 
 

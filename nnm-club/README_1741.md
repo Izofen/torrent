@@ -6,7 +6,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45621.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45622.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Audition 2024 24.6.0.69 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45623.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1A40214AA80E341490B5B65D40926FD6195AE10F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45624.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Deep Purple - 106 Albums (1968 - 2024) 280 CD [FLAC|Lossless|image + .cue|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45625.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45626.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:D01A545B959E0C5DF3896A77796B8AAA4E3A0C6E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45627.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D01A545B959E0C5DF3896A77796B8AAA4E3A0C6E
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45628.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:FB3BA9C1D35F71EE01EE7818E3DF60CF4D8DC264
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45629.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:716D9A442DC768F72A463BC0CA292840BE4B28DA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45630.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A811FBFE9A9A48E2C65A651979B7715C4F20FFAC
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45631.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:826FF05D77448DC7FB3A471CF69F43B051F10A31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45632.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:B74278CDD1DD5F33C7E9887D579ED9EB7A173854
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45633.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:2B386B39256EE9092E0E9FBA0EBABA44CF2CF3F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45634.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:C8E4DA5947C88BA977FBF738D63946C7C7BE08CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45635.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Kiss: "Rock the nation. Live!" (2005)  DVD9x2
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45636.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F6582C18BB9E36431DBCDE8AD7E8B3A7C3F157AB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45637.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Intel прекратила разработку и поддержку попул
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45638.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Intel прекратила разработку и поддержку попул
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45639.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45640.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:ACB1AABB9D054FBA55E1A5CE033CCFB07F1FCAAD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45641.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:397D12AB61DFC576D0EB8831A272F8A687C31E8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45642.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ CCleaner 6.27.11214 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45643.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45644.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:0B53E47198CD1869F83DD5461BBAB9E36ADE6AA1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45645.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:D931A8B9B9600AF68A3F9767C2F0C00DE2C28618
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45646.jpg" />
 </div>
 
 

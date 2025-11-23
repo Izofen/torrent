@@ -1,3 +1,81 @@
+###  Публикация: 1738606   (106288) от 23.07.2024
+
+RJ TextEd 16.26 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106288.jpg" />
+</div>
+
+
+###  Подробнее
+
+RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D738772E421FDD787261D00AD4E1A110907A60DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738331   (106289) от 23.07.2024
+
+Richard "Groove" Holmes - Comin' On Home (1971) 2002, Blue Note [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovin' for Mr. G [4:14]
+02. Theme from Love Story [3:38]
+03. Mr. Clean [5:04]
+04. Down Home Funk [5:22](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5348EC73AB864D8459A2645F7585B3EE6AFDEA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738532   (106290) от 23.07.2024
+
+The Swing Bot - Tournedisc (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna MMM (Electro Swing Bot Mix) (3:44)
+02. Doin' the Jive (Electro Swing Bot Mix) (3:25)
+03. Tropical Jive (3:18)
+04. St. James Infirmary (3:15)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B874759BF1E000B0374333B91FF83A86CD6DC766
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738522   (106291) от 23.07.2024
 
 Chris Cain - Good Intentions Gone Bad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -6,7 +84,7 @@ Chris Cain - Good Intentions Gone Bad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106291.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:A8894148B57AC445797F68D95B7FAB4DCE48D9CC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106292.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Neko to Ongaku (Cats & Music) - Swing Tails ~Cats Jazz Band~ (2024) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106293.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Saxtribution - Relaxing Smooth Saxophone Tunes (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106294.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Historia - Echoes Of The Will (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106295.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Saxtribution - Refreshing Soothing Saxophone Classics (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106296.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ The Fault Lines - 60 Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106297.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ Mark Lettieri - Can I Tell You Something (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106298.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ Sara D'Angelo - Drunken Monkey (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106299.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ Tixati 3.28 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106300.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ ISO Workshop Pro 13.0  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106301.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ magnet:?xt=urn:btih:6499E1A37DBD8681B8896B6DD6F1252F2F2DFE0C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106302.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ FotoJet Collage Maker 1.3.0 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106303.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Peter Frampton - Frampton (1975) SACD, Remastered, 2023, Intervention Records [D
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106304.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ VA - Compilation part 101 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106305.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ VA - Bossa Nova Lush Life (2024) [MP3|320 Kbps] <Easy Listening, Bosa Nova>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106306.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ magnet:?xt=urn:btih:918B010982CF876C8BFDA9FFF883677C8D358CE3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106307.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ magnet:?xt=urn:btih:3B898C51ED9D58850D1D35E8B31B4401C02D149D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106308.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ FotoJet Designer 1.3.5 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106309.jpg" />
 </div>
 
 
@@ -498,7 +576,7 @@ Sonic Tribe - 2 Albums (2000-2002) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tranc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106310.jpg" />
 </div>
 
 
@@ -525,7 +603,7 @@ OCCT 13.1.2 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106311.jpg" />
 </div>
 
 
@@ -549,7 +627,7 @@ Wild Cherry - 4 Albums (1976-1979) Collection LP [MP3|320 Kbps] <Rock, Funk, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106312.jpg" />
 </div>
 
 
@@ -576,7 +654,7 @@ InnoExtractor Ultra 8.0.0.603 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106313.jpg" />
 </div>
 
 
@@ -588,81 +666,6 @@ InnoExtractor - это мощное приложение, которое пом�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A232E6DD8FF52BF8FE3EA96D1090212D14262F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738562   (106314) от 23.07.2024
-
-Google Chrome 126.0.6478.183 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6EC65B87819F9B4819DB5A43ED66B1427DF067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738265   (106315) от 22.07.2024
-
-Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock/Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Riverside — польская рок-группа, образовавшаяся в 2001 году в Варшаве.2003 - Out of Myself
-2005 - Second Life Syndrome
-2007 - Rapid Eye Movement
-2009 - Anno Domini High DefinitionЖанр: Progressive Rock/MetalПродолжительность: 11:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738349   (106316) от 22.07.2024
-
-И если я умру во сне / Si muero antes de despertar (1952) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по одноимённому рассказу Уильяма Айриша (он же Корнелл Вулрич)... Школьник Лучо поклялся своей однокласснице хранить тайну о том, что взрослый незнакомец давал ей леденцы и планирует отвести её в свой сказочный домик из конфет в лесу. Когда позже находят её тело, Лучо разрывается между тем, чтобы сдержать слово, данное убитой девочке, или сказать отцу, полицейскому (   Читать дальше...   )Производство: Аргентина / Estudios San MiguelЖанр: триллерРежиссер: Карлос Уго КристенсенАктеры: Нестор Саварсе, Бланка дель Прадо, Флорен Дельбене, Омеро Карпена, Вирджиния Ромэй, Мариса Нуньес, Мария А. Тронкосо, Марта КинтелаПеревод: любительский одноголосыйЯзык озвучки: русский, испанскийСубтитры: английские хардсабыПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE66680D627C91372BAA33BDEBDB62E70EDDF235
 ```
 
 

@@ -1,3 +1,127 @@
+###  Публикация: 1651830   (194540) от 08.08.2023
+
+Asjad Athick | Getting Started with Elastic Stack 8.0 (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стек Elastic поможет вам работать с огромными объемами данных для реализации сценариев использования в области поиска, наблюдаемости и безопасности.
+
+Эта книга, состоящая из 3 частей, начинается с введения в Elastic Stack с комментариями высокого уровня о решениях, для которых можно использовать этот стек. Второй раздел посвящен каждому основному компоненту, давая (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55DE1C00D7FC77B59F5A463B818F9555B58FB4F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651715   (194609) от 07.08.2023
+
+Brian Okken | Python Testing with pytest, 2nd Edition (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тестируйте большие и маленькие приложения, пакеты и библиотеки с помощью pytest - самой мощной среды тестирования Python. pytest поможет вам быстро писать тесты и поддерживать их читабельность и работоспособность. В этом полностью переработанном издании вы познакомитесь с суперспособностями pytest - простыми утверждениями, фиксаторами, параметризацией, маркерами (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: The Pragmatic ProgrammersФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE42FCC4F3E1BC21C25EB37AD553180D8F20F300
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651709   (194611) от 07.08.2023
+
+Michael Kaufmann, Andreas Meier | SQL and NoSQL Databases, 2nd Edition (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный учебник предлагает комплексное введение в реляционные (SQL) и нереляционные (NoSQL) базы данных. Авторы подробно рассматривают современное состояние средств и методов работы с базами данных и анализируют грядущие новинки.
+
+Авторы подробно анализируют управление, моделирование, языки, безопасность и архитектуру реляционных баз данных, графовых баз данных и (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Springer ChamФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63FA77DEF646F0F9B9C29377F5B41D9E33C9FFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651467   (194635) от 06.08.2023
+
+Майк МакГрат | Программирование на Python для начинающих (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Программирование на Python для начинающих» является исчерпывающим руководством для того, чтобы научиться программировать на языке Python. В этой книге с помощью примеров программ и иллюстраций, показывающих результаты работы кода, разбираются все ключевые аспекты языка. Установив свободно распространяемый интерпретатор Python, вы с первого же дня сможете создавать (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883E2CA5F18A29F038D631DC7CDF1DC4DB7222AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651369   (194642) от 06.08.2023
+
+Олег Цилюрик | Linux. Сеть. Как она устроена и как это использовать (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор являлся непосредственным участником разработок, на протяжении свыше 40 лет, в проектах из области системотехники и программного обеспечения разного масштаба и разной целевой ориентации. Практически все из которых, в большей или меньшей мере, были связаны с сетевыми обменами. Текущий текст является обобщением практического опыта автора. Но, как и всякий практический (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Интернет-изданиеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CF09AF591E5AE7474F343AAAD7D887D38B65ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651857   (194643) от 08.08.2023
 
 Addy Osmani | Learning JavaScript Design Patterns (2023) [PDF][EN]
@@ -6,7 +130,7 @@ Addy Osmani | Learning JavaScript Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194643.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194643.jpg" />
 </div>
 
 
@@ -32,7 +156,7 @@ magnet:?xt=urn:btih:B8E3D4FB964C86C36618BB8B575E2F63631F0818
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194685.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194685.jpg" />
 </div>
 
 
@@ -56,7 +180,7 @@ Michael Dinder | Becoming an Enterprise Django Developer (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194839.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194839.jpg" />
 </div>
 
 
@@ -82,7 +206,7 @@ magnet:?xt=urn:btih:E4ABB528FAEA0BD4E2F1502FC6C74B128DBC5B8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194853.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194853.jpg" />
 </div>
 
 
@@ -108,7 +232,7 @@ Eric Smith | Game Development with Rust and WebAssembly (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194891.jpg" />
 </div>
 
 
@@ -132,7 +256,7 @@ magnet:?xt=urn:btih:EE53DE32B714CCF93191AA03A57A90D2CB7F4D96
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194919.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194919.jpg" />
 </div>
 
 
@@ -156,7 +280,7 @@ magnet:?xt=urn:btih:A2EA7E1EF81E05541E69B21538418FF9BFA048ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194951.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194951.jpg" />
 </div>
 
 
@@ -180,7 +304,7 @@ magnet:?xt=urn:btih:700768D1D6FBC48EE2DFEE71B874D2D19A0ED0E5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194976.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194976.jpg" />
 </div>
 
 
@@ -207,7 +331,7 @@ magnet:?xt=urn:btih:1CAE99E7DC41011321B3C11328EAF6834D0D014B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194982.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194982.jpg" />
 </div>
 
 
@@ -231,7 +355,7 @@ Ben Weidig | A Functional Approach to Java (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195123.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195123.jpg" />
 </div>
 
 
@@ -255,7 +379,7 @@ magnet:?xt=urn:btih:86301F5D61F265A829056E48A32FDD40BD8255B9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195125.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195125.jpg" />
 </div>
 
 
@@ -279,7 +403,7 @@ Daniel Sipos | Drupal 10 Module Development (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195152.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195152.jpg" />
 </div>
 
 
@@ -303,7 +427,7 @@ magnet:?xt=urn:btih:A6A35FF19051C30F37FAE6EAC93467169734925C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195359.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195359.jpg" />
 </div>
 
 
@@ -327,7 +451,7 @@ magnet:?xt=urn:btih:CB4C9EBF05032936006D753483E265056A1D2932
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195605.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195605.jpg" />
 </div>
 
 
@@ -351,7 +475,7 @@ magnet:?xt=urn:btih:A2AAF9C8910AF7C8EE6EBFEBFAD57DB10CF0BAB0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195705.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195705.jpg" />
 </div>
 
 
@@ -375,7 +499,7 @@ Ben Shaw, Saurabh Badhwar, Chris Guest и др. | Web Development with Django (2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195832.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195832.jpg" />
 </div>
 
 
@@ -399,7 +523,7 @@ magnet:?xt=urn:btih:172F7EADD5E429F4446EEB4547BDC8AF1C391C8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195923.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195923.jpg" />
 </div>
 
 
@@ -424,7 +548,7 @@ magnet:?xt=urn:btih:9F37D4C4CFBCAA272CA3F2AF8CE88967B7C2B595
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195965.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195965.jpg" />
 </div>
 
 
@@ -448,7 +572,7 @@ magnet:?xt=urn:btih:D43F6F3202B803613B3A008A322474F7FB27CAD6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196002.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196002.jpg" />
 </div>
 
 
@@ -474,7 +598,7 @@ magnet:?xt=urn:btih:21E1199C8CF232E1ECC7E43DC7CDECADFD7D2673
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196073.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196073.jpg" />
 </div>
 
 
@@ -498,7 +622,7 @@ magnet:?xt=urn:btih:D48CF4D879926F076266D2F835184B17A687E928
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196150.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196150.jpg" />
 </div>
 
 
@@ -509,130 +633,6 @@ magnet:?xt=urn:btih:D48CF4D879926F076266D2F835184B17A687E928
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2FB3C22BBD7BDAC3641F58F76D9AB5F508DDA63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644309   (196159) от 05.07.2023
-
-Крис Риккомини, Дмитрий Рябой | Readme. Суровые реалии разработчиков (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начинающим программистам требуется нечто большее, чем навыки программирования. Столкнувшись с реальной работой, вы моментально понимаете, что самым нужным вещам, имеющим критическое значение для карьеры, не обучают ни в университетах, ни на курсах. Книга "Readme. Суровые реалии разработчиков" призвана восполнить этот пробел.
-Познакомьтесь с важнейшими практиками (   Читать дальше...   )Жанр: ПрограммированиеПеревод: С.В. ЧерниковИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420DE8A37323A96DF7F64CBB122679C3039A8C4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643099   (196322) от 30.06.2023
-
-Стейнхарт Джонатан | Тайная жизнь программ. Как создать код, который понравится вашему компьютеру (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомы ли вы с технологиями, лежащими в основе вашей собственной программы? Почему «правильный» код не хочет работать? Истина проста и банальна — нужно сразу создавать код, который будет работать хорошо и не будет прятать в себе трудноуловимые ошибки. Для этого Джонатан Стейнхарт исследует фундаментальные концепции, лежащие в основе работы компьютеров. Он рассматривает (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892F1F6CD3D6C5A295D3D7AE2436FA9BEA42A09B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641160   (196801) от 21.06.2023
-
-Ицик Бен-Ган | Оконные функции в T-SQL: По ту сторону анализа данных (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге на конкретных примерах рассматриваются все типы оконных функций: агрегатные, ранжирующие, статистические, а также функции смещения и функции упорядоченного набора. Вы узнаете, как использовать оконные функции для повышения эффективности запросов, которые раньше писали с применением предикатов; освоить концепцию работы с окнами в SQL и строить запросы (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FBBB405C74F713D52B6353DD1F733F15B4036A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638424   (197277) от 08.06.2023
-
-Л. Йольан и др. | Трехмерное глубокое обучение на Python (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197277.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом руководстве исследуется современное трехмерное глубокое обучение:
-приводятся пошаговые объяснения базовых понятий и концепций, а также
-практические примеры, на основе которых вы сможете создавать собственные
-модели. Вы научитесь обрабатывать 3D-данные с использованием облаков точек,(   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. В. ЛогуноваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44C6928A549172721083A87E6E1EC8EB2C20666
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638520   (197315) от 08.06.2023
-
-Solomon Eseme | Architecting Vue.js 3 Enterprise-Ready Web Applications (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из этой книги вы узнаете, как настроить и установить Vue.js 3 и API композиции и использовать его для создания реальных приложений. Вы приобретете навыки создания многократно используемых компонентов и масштабирования производительности в приложениях Vue.js 3. По мере продвижения книга поможет вам масштабировать производительность с помощью асинхронной ленивой загрузки, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03D36DE6C986CD60D8797A011ED1A02F74A1588
 ```
 
 

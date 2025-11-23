@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57487.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:422AD3C3765EF74439A71081BE0248244F8AEAE8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57488.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Substance 3D Sampler 2024 4.3.3 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57489.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Substance 3D Stager 2024 2.1.4 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57490.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6E002F028C2132E179EED78B8208CE094189C75E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57491.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4855A63A426A6F221F5645D3D31499E21F2C994C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57492.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DCA963966CD8B7A21CFA9530BF8732CB6ACA12EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57493.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6CE3758CDAA257B3C5970CF1601E93DBD49AA985
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57494.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:5287AF8EA657E13491367B9980AA2A8F4A04DF8A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57495.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sand Land: The Series | Страна песков [2024, Web, 13] WEBRip 1080p r
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57496.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:244B18D38ADE37D70EDB3BF80B44E1F81EC6185B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57497.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ KiCad 8.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57498.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:D24276F0CD75A79D8103F42414A7FD83457EA80B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57499.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Accept - Russian Roulette (1986) Reissue, Remastered, 2014, Hear No Evil Recordi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57500.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E513B96446716CB1DD39D62141DD5362BF8A1E57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57501.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:11D2C61C89CFCEE33D4003C6D50171B8CB6BC7F2
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57502.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Music News vol.372 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57503.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.1.615 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57504.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:B36914CF5AC5F54A042E14A97C682149D5481351
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57505.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:38D9349D7302B7A069B9EF85BA19F9AD992707E8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57506.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ FrostWire 6.13.2 build 321 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57507.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:40002EFC5B6A89566312A21B4C95719B345E22C3
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57508.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:396F7A24B9E3C3048DF540F8F5596F41C9B50A5E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57509.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:245C41DD7CA8258BA870BC9CE7C38D66DA05A9C4
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57510.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:5F599706599B4E887450D8AD48AC9401213F15AA
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57511.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ PDFsam Basic 5.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57512.jpg" />
 </div>
 
 

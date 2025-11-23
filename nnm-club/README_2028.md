@@ -6,7 +6,7 @@ VA - Hammond Organ Jazz&Blues (2024) [MP3|320 Kbps] <Hammond, Blues, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53093.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:43E30689C4119C0E34DE1A2F5A2B1CDB492BF67F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53094.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EF1BCECB7BA0F2BFE9ACF2B484C14BCAC2665FF7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53095.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ OpenNumismat 1.9.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53096.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53097.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7B89D7BC2DDEB1BF60262801E425F169449F8A98
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53098.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ meteoblue weather & maps Cirrus Uncinus 2.7.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53099.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth editi
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53100.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Fire From The Gods - Soul Revolution - The Collabs (2022) Deluxe, 2024, Better N
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53101.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:90569A7EB778A4551684A0B16FD54D2540493985
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53102.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:9312B7BB0BC2DA17DDD4BEF3249DF99575AA1858
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53103.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Sigil 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53104.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53105.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Chillhop Essentials Summer (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53106.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:5F4FBD779E02CB20B5FCC99CDD8C3A2E1093BFA9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53107.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:E14C597710904C993B40DF3DC77F5533A3B44CD1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53108.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:B4D96A62144F85AF8060ACE1BADC4FDA1293CC81
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53109.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:CCFFE7BD5FCEFB79EA6C849CC7F09ABD76F72C3E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53110.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:2050EF4B07EFB30654AC2BB50CD5AB655B309456
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53111.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Hallo northern sky 4.3.2 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53112.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Free Download Manager 6.23.0.5756 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53113.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:DC68F836632ECDB1C7F9A8E546EF5BB900A52317
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53114.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:DC68F836632ECDB1C7F9A8E546EF5BB900A52317
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53115.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:D31E50DD86868AE0BD433AD1F6D1B5396606A833
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53116.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Freedom Force (2002) [En] (1.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53117.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ O&O DiskImage Professional 19.1 Build 146 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53118.jpg" />
 </div>
 
 

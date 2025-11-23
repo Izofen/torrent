@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37273.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37274.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:148E4DA6730E3D559F1763FFD8B658072C961ECC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37275.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Ideя Fix - 12 Снов (2007) [FLAC|Lossless|tracks + .cue] <Alternative, Mall 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37276.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:F1D820BF2C82A1B6F24A1034A905BA2421CBC8E7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37277.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Nickelback - Live From Nashville (Live From Nashville) (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37278.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Naomi Sharon - Obsidian (Extended) (2024) [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37279.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:DE2A9D884EAD8C05560ED2FC69D8EC6EEC8055CA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37280.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Afro Celt Sound System - OVA (2024) [MP3|320 Kbps] <Folk, Ethnic Fusion, Worldbe
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37281.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Voltage Arc - Sextasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37282.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wildheart - Music to Survive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock , H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37283.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ George Harrison - Living in the Material World (50th Anniversary) (1973) Reissue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37284.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Circles Of Illusion - Lionheart (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37285.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Lilah Blackwood - White Lines (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37286.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Anjunabeats presents Euphoria 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37287.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:76CF53FFD5DCA3F1EB287203B8FE7A39ACD24E77
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37288.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Abc - 2 Albums (2022, 2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37289.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Starchaser - Into The Great Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37290.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37291.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:2ADFA0193C6B546E15C675C5C16BA5AD72ED59E7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37292.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Lionville - Supernatural (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37293.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ di liberta - 2 Albums (2020, 2024) [FLAC|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37294.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:9AE2BEBE35841931B76D314DD85E28460F7687C3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37295.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Nevergreen - Harag es remeny (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37296.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:D9ACA439B7B930E7090971583953A8265CDE236E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37297.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Topaz Photo AI 3.3.2 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37298.jpg" />
 </div>
 
 

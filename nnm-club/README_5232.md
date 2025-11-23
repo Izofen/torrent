@@ -1,3 +1,181 @@
+###  Публикация: 1599011   (161469) от 21.12.2022
+
+Aiseesoft iPhone Cleaner 1.0.18 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft iPhone Cleaner  - это лучший способ для очистки мусора на платформе iOS, удаление ненужных документов и данных на вашем устройстве. Это также защищает вашу конфиденциальность и делает ваш iPhone / iPad / iPod Touch быстрее и безопаснее.Тип издания: macOS SoftwareРелиз состоялся: 12.12.222Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1415FCA4AEBA7B7D9624DE0957A12F2F0B19CE54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598994   (161470) от 21.12.2022
+
+Herbert Gronemeyer - Chaos (1993) [FLAC|Lossless|image + .cue] <rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaos 04:52
+02. Die Härte 03:43
+03. Land unter 05:03
+04. Fisch im Netz 04:26(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53628E07CED20CBC848BC18F7BD415474229169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433507   (161471) от 20.12.2020
+
+GrandTotal 7 v7.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161471.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2020Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60A61C54A6B9F2FBE06A9E62415FAC97C80FE1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433464   (161472) от 20.12.2020
+
+PhotoMill X 1.8.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161472.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoMill X – групповая обработка фотографий
+PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать watermark с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
+Удалите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Gwinno Software IncПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EA74F7D6BBE62B3D4E6C504D97C48D161F6C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599020   (161473) от 21.12.2022
+
+Чарли Чейз. Пугливый кот / The Fraidy Cat (1924) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161473.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой комедии Джимм Джамп трусоват. Да что там трусоват - он откровенный трус. Его даже соседские дети шугают и насмехаются над ним. А ведь он хочет завоевать сердце местной красотки. А для этого мужчиной надо быть. Во всех смыслах. Может что-то сможет его встряхнуть и вселить в него мужество?Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джеймс ПэрротАктеры: Чарли Чейз, Бет Дарлингтон, Эрл Мохан, Джо Кобб, Мики Дэниелс, Хелен Гилмор, Эрнест Моррисон, Энди Сэмюэл, Эмма ТэнсиПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DD3DF240072062F9621C55A2FB22820C4212EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433308   (161474) от 20.12.2020
+
+Middle 1.5.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287D175310B5C01DEAD3020C39141763793AFEB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599029   (161475) от 21.12.2022
+
+EditReady 22.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
+Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
+
+Поддерживает контейнеры:(   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2014-2022 The Sync FactoryПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C814E5CE374E6FE22D164B90E7DE6574F2781722
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517803   (161476) от 17.12.2021
 
 Нина Трамунтани | Ярость воды (2022) [FB2]
@@ -6,7 +184,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161476.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ Folder-Factory 7.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161477.jpg" />
 </div>
 
 
@@ -57,7 +235,7 @@ magnet:?xt=urn:btih:6E85C00056B025321A850BBB8656BDEBE4AF3988
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161478.jpg" />
 </div>
 
 
@@ -81,7 +259,7 @@ Chakal - Man Is A Jackal 2 Man (2017) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161479.jpg" />
 </div>
 
 
@@ -108,7 +286,7 @@ VI Labs Audio - Ravenscroft 275 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161480.jpg" />
 </div>
 
 
@@ -132,7 +310,7 @@ Endstille - DetoNation (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161481.jpg" />
 </div>
 
 
@@ -159,7 +337,7 @@ Cookie 6.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161482.jpg" />
 </div>
 
 
@@ -184,7 +362,7 @@ Cardhop 2.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161483.jpg" />
 </div>
 
 
@@ -209,7 +387,7 @@ PDF Search 13.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161484.jpg" />
 </div>
 
 
@@ -233,7 +411,7 @@ magnet:?xt=urn:btih:BE7442267FFFD81632AE2E41240D8C44D5942F8A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161485.jpg" />
 </div>
 
 
@@ -257,7 +435,7 @@ Death Stranding (2020) [Ru/Multi] (1.06/dlc) SteamRip =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161486.jpg" />
 </div>
 
 
@@ -281,7 +459,7 @@ magnet:?xt=urn:btih:058E8AC2D03AA72C77E366EECE11F2CF60A590E5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161487.jpg" />
 </div>
 
 
@@ -306,7 +484,7 @@ magnet:?xt=urn:btih:23B2E8262D08726A960495A4C834D40A31AFA0DB
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161488.jpg" />
 </div>
 
 
@@ -331,7 +509,7 @@ Warseid - A New Land to Find (2017) [FLAC|Lossless|image + .cue] <Symphonic Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161489.jpg" />
 </div>
 
 
@@ -358,7 +536,7 @@ magnet:?xt=urn:btih:F4211DEE70D2DC46461916E54266C74D8C404EA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161490.jpg" />
 </div>
 
 
@@ -382,7 +560,7 @@ PullTube 1.8.5.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161491.jpg" />
 </div>
 
 
@@ -406,7 +584,7 @@ System Toolkit 5.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161492.jpg" />
 </div>
 
 
@@ -430,7 +608,7 @@ magnet:?xt=urn:btih:EF6A138B05C0388DC99185E0BAE82CADAE0C6D59
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161493.jpg" />
 </div>
 
 
@@ -454,7 +632,7 @@ BELOFF 2020.12 Full (Юбилейный сборник)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161494.jpg" />
 </div>
 
 
@@ -465,184 +643,6 @@ BELOFF 2020.12 Full (Юбилейный сборник)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B17C63E68B5F2A43E3B0EDEA50842552C3EEA91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517996   (161495) от 17.12.2021
-
-Робин Хобб | «Сага о живых кораблях» Книга 2. Безумный корабль (2021) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161495.jpg" />
-</div>
-
-
-###  Подробнее
-
-О живом корабле «Совершенный» ходит дурная слава: его считают безумным, кораблем-убийцей. Но он единственный, кто может спасти другой корабль – «Проказницу», – захваченный в плен пиратами. «Безумный корабль», как и первый роман трилогии о живых кораблях, переведен мастером художественного слова писательницей М. Семёновой, автором «Волкодава» и «Валькирии».Жанр: Боевая фантастика, Героическая фантастика, ФэнтезиПеревод: Марии СеменовойПродолжительность: 40:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45CE0E4B00281ED8A5B2D0A81CB53EF78627A76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674154   (161496) от 05.11.2023
-
-Asmodean - By a Thread (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Undoing (00:04:31)
-02 - Below the Line (00:03:50)
-03 - Defying Truth (00:05:23)
-04 - Scorned (00:04:19)(   Читать дальше...   )Жанр: Progressive Metal, Hard RockПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA8D3E254084612900C5FA87C8D4A0C1FD565D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598938   (161497) от 21.12.2022
-
-Black Anvil - Regenesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Gates of Brass (01:17)
-02 - In Two (05:39)
-03 - The Bet (04:32)
-04 - 8-Bit Terror (04:17)(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FEF26B162475C0B3F5AFB57EB34816C0B21CE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390694   (161498) от 19.12.2020
-
-Desperados III (3) (2020) [Ru/Multi] (1.7/1.5.8/dlc) License GOG [Digital Deluxe Edition]
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Desperados III — это хардкорная тактическая игра в жанре «стелс» с захватывающим сюжетом, события которой происходят на безжалостном Диком Западе. В этом долгожданном приквеле к всеми любимой классической Desperados: Wanted Dead or Alive Джон Купер объединится со сбежавшей невестой Кейт, скрытным наемным убийцей Доком Маккоем, траппером-великаном Гектором и Изабель (   Читать дальше...   )Тип издания: LicenseРазработчик: Mimimi GamesЖанр: Strategy (RTS)Язык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADE5C7387AB8F96EEBC3E0A220883AAAB70C1B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517773   (161499) от 17.12.2021
-
-OpenNumismat 1.8.12 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161499.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenNumismat является удобным и надежным приложением, предназначенным для коллекционеров монет и нумизматов, для создания нумизматической коллекции.
-С OpenNumismat вы сможете организовывать и управлять коллекцией монет: создавать подробный каталог ваших монет, списки нужного и проданного, просматривать статистику вашей коллекции.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F5C6A01D54219025556438289305839827626D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598963   (161500) от 21.12.2022
-
-AnyMP4 iOS Cleaner 1.0.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161500.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 iOS Cleaner может помочь вам освободить больше места для ускорения работы iPhone. Это программное обеспечение для очистки iPhone может очищать различные данные, такие как кеш приложений, документы, приложения, ненужные файлы, память, электронную почту, системные файлы, вирусы, мультимедийные файлы и т. д. Чтобы освободить место для iPhone, iPad и iPod. Выборочно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842FFE50B3300BF8B18B3A0B44A2A3C797914CEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674396   (161501) от 05.11.2023
-
-Wizard - Odin (2003) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prophecy
-02. Betrayer
-03. Dead Hope
-04. Dark God(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4186D349F5C4D482D539521F45FBC6E432D5B4
 ```
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1722653   (109642) от 13.05.2024
+
+Metal Riot - Birth of Terror (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Die Young [00:04:31]
+02. Into the Fire [00:04:28]
+03. Eternal Speed Death [00:02:55]
+04. War [00:03:16](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355074262AAED080B07F6BA58D512B6BB46375FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722953   (109643) от 13.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 3-й матч) Ванкувер Кэнакс - Эдмонтон Ойлерз (12.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109643.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 мая 2024, понедельник. 04:30 МСК. 1/2 финала - Запад. 3-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
+Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Главный судья: Крис Руни (Бостон, США); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8432DED961439D23A91586209856EED5C0A1F80E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722811   (109644) от 13.05.2024
+
+Дмитрий Силлов | S.T.A.L.K.E.R. Снайпер 2. Закон снайпера (2019) [MP3, Серафим Новиков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он не помнит, как попал в Зону. Но Зона помнит о нем и всеми силами пытается уничтожить. Но он – Снайпер и он идет к цели, несмотря ни на что. Его цель – Монолит, который даст ответы на все вопросы. Если только Снайпер доберется до цели и останется жив, ведь это не удавалось никому, даже знаменитым Легендам Зоны.
+Главная особенность произведения от других романов (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 09:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBD1BE85E293596BA47A2511351CFD9B77D90A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722531   (109645) от 13.05.2024
 
 MAMA RUSSIA - Любовь, комсомол и роботы (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Steam-punk-Rock>
@@ -6,7 +83,7 @@ MAMA RUSSIA - Любовь, комсомол и роботы (2024) [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109645.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:B1817606275C019CFABEAFAAD3D3138E5B56C13C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109646.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ Fort Firewall 3.12.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109647.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ VA - Soul, Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109648.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ Plugin Alliance & Dmitry Sches - DS Thorn 1.3.3 VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109649.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ PotPlayer 240510 (1.7.22227) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109650.jpg" />
 </div>
 
 
@@ -156,7 +233,7 @@ magnet:?xt=urn:btih:875683EFDDD6A55119566AE5B96400762B38F7BF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109651.jpg" />
 </div>
 
 
@@ -182,7 +259,7 @@ magnet:?xt=urn:btih:B47CDFB13D11C01216750E0758598BF4851C72F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109652.jpg" />
 </div>
 
 
@@ -206,7 +283,7 @@ Q-Dir 11.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109653.jpg" />
 </div>
 
 
@@ -231,7 +308,7 @@ YT Downloader 9.7.17 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109654.jpg" />
 </div>
 
 
@@ -255,7 +332,7 @@ magnet:?xt=urn:btih:EAFEB4D6056FA6DCFA4BD59943B7986A60F0EE9E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109655.jpg" />
 </div>
 
 
@@ -280,7 +357,7 @@ VA - Peaceful Resort Experice: Urban Chillout Music (2024) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109656.jpg" />
 </div>
 
 
@@ -307,7 +384,7 @@ magnet:?xt=urn:btih:8759FFAF7A0E6794B1ACA34FB76007849EB5FB80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109657.jpg" />
 </div>
 
 
@@ -331,7 +408,7 @@ Brave Browser 1.65.132 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109658.jpg" />
 </div>
 
 
@@ -355,7 +432,7 @@ magnet:?xt=urn:btih:DA79A0A2EFE8D6814AE861F14A49654735654FC8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109659.jpg" />
 </div>
 
 
@@ -380,7 +457,7 @@ The Reverend Shawn Amos - Soul Brother No. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109660.jpg" />
 </div>
 
 
@@ -407,7 +484,7 @@ Kenny Barron - Wanton Spirit (1994) Verve [FLAC|Lossless|image + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109661.jpg" />
 </div>
 
 
@@ -434,7 +511,7 @@ Neil Stout - Older and Bolder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109662.jpg" />
 </div>
 
 
@@ -461,7 +538,7 @@ The Sidekicks - Homemade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109663.jpg" />
 </div>
 
 
@@ -488,7 +565,7 @@ magnet:?xt=urn:btih:4E49BD6C3AFDD52867125D723B3021F35F8A7906
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109664.jpg" />
 </div>
 
 
@@ -513,7 +590,7 @@ Mason Smart - The Third Rail (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109665.jpg" />
 </div>
 
 
@@ -540,7 +617,7 @@ Burial Rot - Do Not Desecrate the Sleep of the Dead (2020) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109666.jpg" />
 </div>
 
 
@@ -567,7 +644,7 @@ Ironsmith - IRONSMITH (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109667.jpg" />
 </div>
 
 
@@ -581,87 +658,6 @@ Ironsmith - IRONSMITH (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDBEC05E1022FF68CE54015D50E3D067AF82ED7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722645   (109668) от 12.05.2024
-
-The Hazytones - Wild Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Fever [00:05:31]
-02. Red [00:05:34]
-03. Inside of Your Brain [00:04:44]
-04. Night is Young [00:05:12](   Читать дальше...   )Жанр: Hard-Rock, stoner RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C063B182F440E94D44E847802915841BC3064E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722598   (109669) от 12.05.2024
-
-George Shearing & Brian Torff - Blues Alley Jazz (1979) 1989, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One for the Woofer [8:31]
-02. Autumn in New York [5:03]
-03. The Masquerade Is Over [6:27]
-04. That's What She Says [4:00](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CBE4A862D17CC435E31C5E06305E2664ACA100
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722705   (109670) от 12.05.2024
-
-Jimmy Kells - Vacation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise (4:10)
-02. Know It's True (3:31)
-03. Honky Tonk (3:18)
-04. Hard Times (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDDB7D10EC25030A799F3F64A766A299EFCD763
 ```
 
 

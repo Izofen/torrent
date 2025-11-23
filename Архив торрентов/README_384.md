@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89685.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:63B7ABDEF0BD42697953795A1DCE0041A86869CE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89705.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:63B7ABDEF0BD42697953795A1DCE0041A86869CE
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89710.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:89F78598D00F047F320A39FB62F0BBCA4A3FC258
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89723.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:89F78598D00F047F320A39FB62F0BBCA4A3FC258
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89726.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:89F78598D00F047F320A39FB62F0BBCA4A3FC258
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89735.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:89F78598D00F047F320A39FB62F0BBCA4A3FC258
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89737.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:89F78598D00F047F320A39FB62F0BBCA4A3FC258
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89738.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Mathworks Matlab R2012a 7.14 [x86 + x86_x64] (iso)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89752.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Botanicula [Ru] (RePack) 2012 l Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89759.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Various Artists - Temple Of Kilowatts (2000) [mp3|320 kbps] <Industrial, Experim
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89762.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - 100% Автохит Клубный (2012) [MP3|256 кб/с]<Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89765.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Dream Theater - Systematic Chaos (2007) [AC3 5.1|tracks (DVD-Video)]<progressive
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89780.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:9D9BAF0AA08F722528EC4E09E305DC74044BCFBA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89781.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:1A97232E152EDA7961087BBBDB14EF1142232A5E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89794.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - 100% Rap Francais (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89799.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:A60A3F6B1BFC0FEE9374FF768E03460C3B8FCFAE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89802.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dropbox 1.3.39 Experimental [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89803.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Dropbox — облачное хранилище данных, принадлеж
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89807.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dropbox — облачное хранилище данных, принадлеж
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89808.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:58B3E99F47340CFBA552B0B0C729D6028097A220
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89813.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:0D070C8127695AC32A11F3FC6E2B90B72AEA3B5B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89816.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:24ECE0996871401766A4C80DA217F9923035BC13
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89836.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Grendel - Timewave: Zero (Limited Edition) (2012) [MP3|~ 245 кб/с (V0)]<Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89839.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:5AD53006F84974E054896D52884EA6AF0804D3F2
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89859.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:58965008EC503A3B1F1E82C479333AE1D534A7F6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89860.jpg" />
 </div>
 
 

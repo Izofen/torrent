@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20319.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20319.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ FreeCommander XE 2025 donor v929 x64 + portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20320.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:00E1F6FD2B9811F281301F34E33202064954F97F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20321.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20321.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0.5/dlc) Repack Let'sРlay [Centurion Bundl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20322.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:35BCE3A0850AFD3EE322DBAEDB0C3CCB42B564DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20323.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20323.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack seleZen [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20324.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20324.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:74AB2D8805347DC73F494F1C924CF326BBDC15D6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20325.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20325.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20326.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:42065530C951CAE36AEBB9D594A57D22257726C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20327.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20327.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F9BB07748D07308A613AEAC4FB6E7FBCCC0BDB2B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20328.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:42E788C2C350D2DC5F1C77655A437647809B4255
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20329.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20330.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:5B4BD5622E5A88BEEB05D13BE8A544A7955CBC80
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20331.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:EF020918DD5234C3D6A46312C659E2D7B3282F01
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20332.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20332.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BIOMORPH (2024) [Ru/Multi] (2.0.27583) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20333.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:2DD8391894EC20890AD25142FFC00562D98CB609
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20334.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:E3FA0AC57B0EE0E29BCEEB14A85325517541F41E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20335.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20335.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:042A954C5DB352109B2B9B92B25D0B6C75721FCB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20336.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20336.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Udemy, Christ Raharja | Cloning Yourself with AI: Create AI Version of Yourself 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20337.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ IPTV Pro v9.0.15 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20338.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20338.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:29A2FBF17CC348D6F1E00474B40766F1BB9A9FBA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20339.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20339.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Capture One 23 Enterprise 16.5.10.2850 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20340.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:819FA83DF644EDD515954647A45D32BCBDF625E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20341.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0.4.13/dlc) License GOG [Deluxe Edition] (�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20342.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:82D03DC0D76851C4FAD81EA2405E4CA873B6D253
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20343.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:03462B96716622C9CAC3EC89C7C2E0F0EF644441
 >>Глухарь
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20344.jpg" />
 </div>
 
 

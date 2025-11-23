@@ -6,7 +6,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16014.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16015.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DCD3CF7D265B9BD8EB2359955D344D7933BCC31F
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16016.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:041EB2449211C9E0C61299D0DB766BA224C943EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16017.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kathy Rain 2: Soothsayer (2025) [Multi] (1.0.3.4089) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16018.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AOMEI Backupper Technician Plus 7.5.0 WinPE by FC Portables [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16019.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C1EA0A0FD7EEB2E522A8C6876F37D9548A2014A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16020.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16020.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B802C20626F26613282726F45EDC2EEF9FC6C705
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16021.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Warchild - This World Ends In Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16022.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4C9D49445180835440DE2EBF1393378A15BEF121
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16023.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F68608DB8310163D531CB8518084F0A1134F5CD9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16024.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:2CD7FBA3EA6DA3E2F0486475D21CA46943D8BFEE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16025.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sonible smart:deess 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16026.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:17EC4E33246835AE481BCDAE8A9C918F7ED3FBE0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16027.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B85B44006F33EAF7D22134797577833A7768A6A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16028.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:5D9A882466761F2D0D2A6E9390ED9903A0E209BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16029.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:779276C6B82AF6FDADC7462C94E6AC094DFA4A72
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16030.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16030.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:2E100EAAAD460B984F1A12F1C865FE760E663C03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16031.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:9DAB684930CB1AB1C8E1C2B2E262377B90BD855A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16032.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16033.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Музыка в машину (~2000-2025) [MP3|129-320 Kbps] <Pop, Rock, Ot
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16034.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8A4DF0066A462089BC8D88AB3753CC0AF549B87A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16035.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:1854C3CAB724DE3B536B60A5E2E58A012E4C3445
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16036.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:DB7ED05AACC796262B59597933255C26B0554615
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16037.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Windows 11 Enterprise LTSC x64 24Н2 (build 26100.4061) by ivandubskoj 24.05.202
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16038.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:E0B0D9756BBFCEAEE33A67424C681AB191A9D26B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16039.jpg" />
 </div>
 
 

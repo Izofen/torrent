@@ -1,3 +1,324 @@
+###  Публикация: 1663801   (186434) от 23.09.2023
+
+Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Days
+02. Now or Never
+03. Beautiful
+04. Still Loving You(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A53B1CA06606FC69F15AFCF28CA4FA83B469F7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663510   (186548) от 22.09.2023
+
+Kylie Minogue - Tension (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam (2:46)
+02. Hold On To Now (3:58)
+03. Things We Do For Love (3:10)
+04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3382E4ADD0F6256B377591A4DF816361710FEEB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591510   (186744) от 19.11.2022
+
+Secret Service - Secret Mission (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Mission (3:34)
+ 02. How Can I Get over You (4:05)
+ 03. You Stole My Heart (ft. Clara-Corina) (3:44)
+ 04. Jane (3:10)(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B047EE9170467299C26548ED89F91FBAEEE5717F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591804   (186761) от 19.11.2022
+
+Michael Jackson - Thriller 40 (2022) 40th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin'
+02. Baby Be Mine
+03. The Girl Is Mine
+04. Thriller(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81F0A5DB0FCABABE0D6FAD3F8916917F5847720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591386   (186793) от 19.11.2022
+
+Michael Jackson - Thriller 40 (1982) 2022, Epic/Legacy [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin' (6:03)
+02. Baby Be Mine (4:20)
+03. The Girl Is Mine (3:42)
+04. Thriller (5:58)(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997957B30EEBC900F244824D0D3704C1009B3EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663352   (186869) от 21.09.2023
+
+Mitski - The Land Is Inhospitable And So Are We (2023) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bug Like an Angel (03:32)
+02. Buffalo Replaced (02:40)
+03. Heaven (03:44)
+04. I Don't Like My Mind (02:25)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C59D209373C74F32087212D597A1CD864DDE48E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591588   (187116) от 18.11.2022
+
+D.White & DimaD. - The Butterfly Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Have Fun Tonight (Album Version)
+02. 600 Km (Album Version)
+03. Verone (Album Version)
+04. You Are My Love(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E71520147202A36FA249EB66F9E4EF97D5D965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663157   (187182) от 20.09.2023
+
+Laura Marano - i may be an actress, but i can’t fake how i feel (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_187182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Keep Waiting [00:03:42]
+02. ACT I: Enough [00:01:05]
+03. Powerless [00:03:40]
+04. BAD TIME GOOD TIME [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D96F78AF02BB8D1B328F7BD7A012C6B747001B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662830   (187405) от 19.09.2023
+
+Linda Jo Rizzo - Passion (The Original Maxi-Singles Collection) (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_187405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion
+02. You're My First, You're My Last (Maxi Version)
+03. Perfect Love (Maxi Version)
+04. Heartflash (Tonight) (Maxi Version)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91580579590AD87DA61198E2B54C1029363DC2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590660   (187717) от 16.11.2022
+
+Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Ten Years AgoЖанр: Italo-DiscoПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590366   (187732) от 16.11.2022
+
+VA - Happy New Year 1995! (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Eurodance, Pop, Rock>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Do - Eins, zwei, Polizei (03:16)
+02. Army of Lovers - Sexual Revolution (03:50)
+03. Marie Claire D'Ubaldo - The Rhythm Is Magic (04:03)
+04. DJ BoBo - Deep in the Jungle (03:53)(   Читать дальше...   )Жанр: Eurodance, Pop, RockПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591022   (187782) от 16.11.2022
+
+Лицей - Паровозик-облачко (1997) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лицей - Паровозик-облачко (03:49)
+02. Лицей - Было и прошло (03:25)
+03. Лицей - Расставание (04:26)
+04. Лицей - Девушка-зима (03:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8062FBC38AF45E0873BADB0122F4F2AE76469084
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590478   (187798) от 16.11.2022
 
 C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
@@ -6,7 +327,7 @@ C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187798.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187798.jpg" />
 </div>
 
 
@@ -33,7 +354,7 @@ Bee Gees - Number Ones (2004) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187799.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187799.jpg" />
 </div>
 
 
@@ -60,7 +381,7 @@ Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187811.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187811.jpg" />
 </div>
 
 
@@ -86,7 +407,7 @@ C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187813.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187813.jpg" />
 </div>
 
 
@@ -113,7 +434,7 @@ C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187814.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187814.jpg" />
 </div>
 
 
@@ -140,7 +461,7 @@ C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Sy
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187817.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187817.jpg" />
 </div>
 
 
@@ -167,7 +488,7 @@ VA - Николай Добронравов: Лучшее... (2013) Мелоди�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187853.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187853.jpg" />
 </div>
 
 
@@ -194,7 +515,7 @@ VA - NRJ Music Awards 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187865.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187865.jpg" />
 </div>
 
 
@@ -221,7 +542,7 @@ Triangolo - Triangolo (1979) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188053.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188053.jpg" />
 </div>
 
 
@@ -248,7 +569,7 @@ Digital Emotion - Digital Emotion & Outside In The Dark (2002) [OGG Vorbis|480 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188210.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188210.jpg" />
 </div>
 
 
@@ -275,7 +596,7 @@ VA - 80's Revolution - Disco Pop Volume 02 (2012) 2 CD [OGG Vorbis|480 Kbps] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188217.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188217.jpg" />
 </div>
 
 
@@ -302,7 +623,7 @@ VA - KuschelRock 11 (1997) 2CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188244.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188244.jpg" />
 </div>
 
 
@@ -329,7 +650,7 @@ Giampiero Boneschi - Unusual Beat Sounds Fantasy (1979) LP [MP3|320 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188251.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188251.jpg" />
 </div>
 
 
@@ -356,7 +677,7 @@ Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188552.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188552.jpg" />
 </div>
 
 
@@ -370,325 +691,6 @@ Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D773C40C9E2ADA422DC40E6C00C4168E02C4C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152326   (188949) от 13.11.2022
-
-Boney M. - Ten Thousand Lightyears (1984) [FLAC|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus (Noah's Ark 2001) (5:19)
-02. Wild Planet (4:06)
-03. Future World (3:53)
-04. Where Did You Go (4:11)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25999307F1A1C0A1A2FCADD2766343B699D2A67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590408   (189046) от 13.11.2022
-
-Roxette - The Very Best of Roxette (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roxette - Joyride (04:24)
-02. Roxette - The LookЖанр: Pop RockПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590262   (189061) от 13.11.2022
-
-Андрей Губин - Только ты (1998) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Губин - Зима-холода (03:55)
-02. Андрей Губин - Я знаю, ты знаешь (03:52)
-03. Андрей Губин - Милая моя далеко (04:15)
-04. Андрей Губин - День и ночь (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F134AEBE482D87A012B05B49E6B3F2508013E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590421   (189124) от 13.11.2022
-
-C.C. Catch - Strangers By Night (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strangers By Night
-02. One Night's Not Enough
-03. 'Cause You Are Young
-04. Don't Wait Too Long(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D6268FE783F11FC5EBB136CB5219F5849CEB3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590460   (189151) от 13.11.2022
-
-Living in a Box - Blow the House Down (1989) Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living in a Box - Blow the House DownЖанр: PopПродолжительность: 00:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871CFF66D334BCE754E4004E0AF01CD9BE093BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659583   (189185) от 13.09.2023
-
-VA - Italo 2000 - Italo Dance Classics Vol. 1 (1998) 2CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolce Vita - Ryan Paris
-02. Happy Children - P. Lion
-03. Feel The Drive - Doctor's Cat
-04. Hey Hey Guy - Ken Laszlo(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 02:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA601313A23D298B74FEE80FBD05453D5865F20C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660389   (189234) от 13.09.2023
-
-VA - Italo 2000 - Italo Dance Classics Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On - Alan Berry
-02. I'm Your Lover - Joe Yellow
-03. Stop Bajon (primavera) - Tullio De Piscopo
-04. Delirio Mind - Scotch(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 02:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B26A952996FE2847BF7820B9D3E8AF23DB15C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660667   (189261) от 13.09.2023
-
-VA - Italo 2000 - Italo Dance Classics Vol. 3 (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Box - Ride On Time
-02. Albert One - Hopes & Dreams
-03. Linda Jo Rizzo - Perfect Love
-04. Solo - Harem(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 02:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A707EB7F913A44DAAD92B5071B0CB5FA8753FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660693   (189299) от 13.09.2023
-
-Mariah Carey - Music Box (1993) 2023, 3CD, 30th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189299.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dreamlover
-02. Hero
-03. Anytime You Need A Friend(   Читать дальше...   )Жанр: Pop |Продолжительность: 02:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDFEE12ECAF27D63705047F771872F53BA66A08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590073   (189326) от 12.11.2022
-
-Юлия Савичева - Стихия (2022) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189326.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скажи мне
-2. Жёлтое такси
-3. От его голоса
-4. Незнакомец(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659467   (189340) от 13.09.2023
-
-The Coral - Sea Of Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychedelic, Baroque, Alternative, Cinematic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189340.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Actor And The Cardboard Cowboy (1:10)
-2. Cycles Of The Seasons (2:54)
-3. Faraway Worlds (3:51)
-4. Wild Bird (3:12)(   Читать дальше...   )Жанр: Indie rock, Psychedelic folk, Baroque pop, Alternative, Cinematic rockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815B65D0388781C67237457997C143BFB26A2390
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589893   (189610) от 11.11.2022
-
-DJ Bobo - Evolut30n (Evolution) (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolut30n (Evolution)
-02. Better Days
-03. Together We Fly
-04. Love(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE670C2BCA3B6BC02AE969B68479B41060E9D3A5
 ```
 
 

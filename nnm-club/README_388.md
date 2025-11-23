@@ -6,7 +6,7 @@ Telegram Desktop 5.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10256.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Music Collection 3.9.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10257.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4E8F21864B41C45F4FA68DA1876642F1A3FA584F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10258.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:30EA20EBE97469564A9B15911634E4D509FDEE6C
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10259.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:66CD5FABB21DF1A0680604E1B5C25560AD975607
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10260.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4F48441F0B323C3C0E88DD56794E609A6664C6C0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10261.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:98AF638969FE8C1DA293CAEF7C557436FCA09B4D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10262.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:0147282421E68EA2BBA9FE38700FB949B975C940
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10263.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B80FFC48ADD918A8DC98ED3E9F4ED5F610DBA896
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10264.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Grocery Store Tycoon (2025) [Ru/Multi] (0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10265.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) Repack FitGirl [Fine Dining Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10266.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sigil 2.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10267.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Jigsawscapes® - Пазлы v4.1.6 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10268.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:27B863A78B850A428095E967173966025137CE8D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10269.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PageEdit 2.5.0 (x64) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10270.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:3D69DE765DD8AB1B72FB8B376381AFB720313DEE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10271.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Enhance it v4.2.2 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10272.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Auslogics Duplicate File Finder 11.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10273.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:FB13E5CBDA3A07D34FD6F3B2A86FC9681F488F19
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10274.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:8A4DE049D9615C284AB92548891EE5D6F02CF25C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10275.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D513756F6E8E9B14AB9235A3F55484BCD406D40A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10276.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:AF10A06B6AC73F211BA0DD46D00A8B0A78D509A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10277.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Auslogics Disk Defrag Pro 12.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10278.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:195E6422A3970D9A08BC6E667EDBA4119E012694
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10279.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:009435022335FB090CB20B8D29DDFFCEF0E09FFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10280.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:BD45C3C7E954ADC6D5E272E5A8EF09D155351040
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10281.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Evo-Lution - Progress (2025) [MP3|320 Kbps] <EBM, Synthpop, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11915.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Zebra Type 1 - Teleport (2025) [MP3|320 Kbps] <Darkwave, EBM>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11923.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - A State Of Trance Year Mix 2014 (Mixed By Armin Van Buuren) (2014) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12075.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 11 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12114.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Das Ich - Staub (1994) Vinyl Edition, Remastered, 2024, Danse Macabre Records[MP
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12120.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jon O'Bir - Ascendancy (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12130.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Pet Shop Boys - Discography - Complete Singles Collection (1991) [MP3|320 Kbps] 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12137.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Intimate Hours - Best Chillout for Late Evenings (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12235.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ V.A. - Buddha-Bar - Summer Sessions Monte-Carlo (2025) 2CD [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12326.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Dance Report, Vol. 1 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12437.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Summer Dance Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12528.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Armada Electronic Elements presents Timeless (Extended Versions) (2025) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12535.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Armin van Buuren - A State Of Trance 1232 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12542.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Ibiza Summer (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12543.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Skin to Skin Chillout & Lounge for Lovers (2025) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12735.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Tiesto - Live @ PRISMATIC, Palacio De Los Deportes Mexico City (2025-06-14) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12737.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Top 11 April 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12741.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Bloomscape: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balear
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12967.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ ExoMight - Removal (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12971.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Ibiza Dance Party 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13242.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Balkan Connection Summer 2025 (2025) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13246.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Armin van Buuren - A State Of Trance 1231 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13251.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Redux Selection, Vol. 7 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13256.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Yunus Guvenen - Red Pilot / Ways Of Life (2001) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13264.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Ori Uplift - Uplifting Only Episode 646 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13266.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Armin van Buuren - Breathe (2025) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13273.jpg" />
 </div>
 
 

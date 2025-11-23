@@ -6,7 +6,7 @@ Ghost Hounds - Almost Home (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67462.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dream Theater - Images And Words (1992) Reissue, 2025, ATCO Records [DSD256|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67467.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Russ Ballard - Songs From The Warehouse - The Hits Rewired (2025) 2 x CD [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67484.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DS2 - Electro Swing Dance (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Sw
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67485.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67493.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67494.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hilastherion - Studio Albums (3 releases) (2007-2019) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67496.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ System Shock - Studio Albums (3 releases) (2004-2008) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67497.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Samael - Blood Ritual (1992) Reissue, 2011, Floga Records [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67498.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Soulfly - Primitive (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67499.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ancient Bards - Artifex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67500.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Primal Fear - Far Away (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67502.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Marc Bolan / T. Rex - Archived records 1967, 1972 (1991) Compilation, Unofficial
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67505.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Fear Factory - Genexus (2015) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67506.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Cosmic Cathedral - Deep Water (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67508.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Trail Of Tears - Studio Albums (8 releases) (1998-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67511.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Manowar - Fighting the World (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67512.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67515.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67516.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Cougar Synth - 2013 (2014) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67517.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Machine Head - Unatøned (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67524.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Art Nation - The Ascendance (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67529.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ H.e.a.t. - Welcome To The Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67530.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Bob Roy Orchestra - Disco-Flash (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67532.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Gary Moore - Dirty Fingers (1983) Reissue 1992 [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67535.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Blue Foundation - Close To The Knife (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67547.jpg" />
 </div>
 
 

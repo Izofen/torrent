@@ -6,7 +6,7 @@ CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152377.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152382.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Manu Zain - Don't Give Yourself Away (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152396.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stanislav Vdovin | Unit 21 | Initial Run - Collection 11 Releases (2007-2017) Oc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152406.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Fg Top 10: December 2017 [MP3|320 Kbps] <Trance, Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152464.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Delicate Lounge (feat. , Jana Tarasenko) (2012) [MP3|320 кб/с]<Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152845.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Sandra - My Favourites (1999) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153018.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Alphaville - Forever Pop (2001) [FLAC|Lossless|image + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153144.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Pier-O - Discography 11 Releases (2013-2021) [MP3|320 Kbps] <Lounge, Chillout, D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153763.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Workout Music Perfect Playlist (2019) [FLAC|Lossless|WEB-DL|tracks] <Balear
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153918.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Schiller - Sonne Live (2013) 2CD [APE|Lossless|image + .cue] <Ambient, Chillout>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153931.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Above & Beyond - Group Therapy Best Of 2022 pt.1 (2022) DJ Mix [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154027.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - The Christmass Tea: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154059.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Strike '85 - Tears in Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154082.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ enCAPSULAte (aka Capsula) - Alan Watts Encapsulated (2017) [FLAC|Lossless|WEB-DL
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154084.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154099.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Musik (Vanity Records) (1981/2019) Kyou Records | Reissue, Remastered [FLAC
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154250.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Octal Industries - Our Seasons (2019) Vertex Recordings [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154275.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154324.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Sport Club Hits Vol.1 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154337.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Abora Chillout: Best of 2017 [MP3|320 Kbps] <Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154372.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154374.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ TCH - Sinflower (1997) Iridium [FLAC|Lossless|tracks+.cue] <Experimental, IDM, A
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154400.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Mega Dance Party 2019 (2018) [MP3|320 Kbps] <Deep House, Dance, Bigroom, Pr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154499.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Disco Electronica Vol.36 (2018) [MP3|320 Kbps] <Deep House, Funky, Nu Disco
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154518.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ S36 - Turkish Delight EP (2018) Sumo Smash Record [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154527.jpg" />
 </div>
 
 

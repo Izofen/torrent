@@ -6,7 +6,7 @@ HWiNFO 7.73 Build 5385 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113677.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GeoGebra 6.0.830.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113683.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mp3tag 1.8.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113692.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GarageSale 9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113695.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113696.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Desktop Stickers 2.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113697.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113698.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ WiFiSpoof 3.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113699.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113701.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Cardhop 2.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113702.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Cookie 7.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113703.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DaisyDisk 4.26.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113704.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ TG Pro (Temperature Gauge Pro) 2.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113718.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Wondershare PDFelement Pro OCR 10.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113726.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ K-Lite Codec Pack Update 18.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113727.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ iNet Network Scanner 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113792.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ PdfFactory Std & Pro 8.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113800.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ GeoGebra 6.0.829.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113813.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Photo Studio PRO v2.7.3.2372 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113831.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Screen Wonders 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113836.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113838.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113839.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113842.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113850.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ QOwnNotes 24.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113863.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ PowerDirector – Video Editor v13.3.0 b1227071 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113869.jpg" />
 </div>
 
 

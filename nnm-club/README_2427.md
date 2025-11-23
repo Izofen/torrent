@@ -6,7 +6,7 @@ SуперКопы: Миссия «Бабушка» / 3 jours max (2023) WEB-DLRi
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63467.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:509451A5C16F01CD0BB7C8DEDB97CC80CD935533
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63468.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63469.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ BBC. Вена - столица империи / Vienna: Empire, Dynasty and Drea
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63470.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:32B76D72DAB0953298D9D9D6A1C3855A641A354F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63471.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:EDB41CA2A28D0D94DB2EAC1B278996A0031962AC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63472.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:44048783ACCA88E86035AC2FF4C3D132CA849FB8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63473.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:F8BDC28DABB982821578A71209E78E78356F1726
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63474.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:014FD6A17F1622E1F06834594100D12A4D58F6E0
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63475.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ FileMenu Tools 8.4.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63476.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B5FEDE8AB71930670271E4E17A4959FEDD97A2AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63477.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ FileMenu Tools 8.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63478.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:9AC8C8A7101168F1AD1B930634F63D6AA268A0CF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63479.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7567A261EE19242EC2E653F6F24F9EC1A440331D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63480.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Electronic compilation part 63 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63481.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:66EBDCCECE9DB9D15FD732AF1EC8830E762887A0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63482.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63483.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:0B7FF0843199BB84DED5C00FA92692D4CB3808C7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63484.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - Electronic compilation part 62 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63485.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:05EE86034D685AA04A899847313BCB4C3662950E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63486.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:F43D4160C301A2FF41AB1D535C9E4EFDEA83E033
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63487.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Textra SMS v4.71 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63488.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Binance представила аромат CRYPTO, который призва�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63489.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Bananarama - Glorious - The Ultimate Collection (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63490.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Bananarama - Glorious - The Ultimate Collection (2024) [MP3|320 Kbps] <Disco, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63491.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Norah Jones - Visions (2024) [MP3|320 Kbps] <Contemporary Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63492.jpg" />
 </div>
 
 

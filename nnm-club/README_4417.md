@@ -1,3 +1,81 @@
+###  Публикация: 1347266   (136701) от 16.10.2025
+
+Мужчина в поисках эротики / The Erotic Man (2010) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друг и верный соратник Ларса фон Триера Йорген Лет отправился в путешествие по самым экзотическим странам мира (Гаити, Сенегал, Филиппины, Бразилия, Аргентина и многие другие) в поисках природы эротики. О чем думает женщина, когда смотрит на мужчину? Что она чувствует, когда мужчина смотрит на ее обнаженное тело? Есть ли у обнаженного женского тела свой особый язык? (   Читать дальше...   )Производство: Дания / Nordisk Film, Zentropa ProductionsЖанр: ДрамаРежиссер: Йорген ЛетАктеры: Йорген Лет, Энджел Баяни, Марисса Сью Прадо, Мари Марта Дороти Лагуэрре, Джованна Биотто, Сара Гоглер, Часийен Анн да Силва Оливьера, Ана Флавия Кавальканти Рибейро, Хелена Серелло, Паула Юбе...Перевод: Многоголосый, закадровыйСубтитры: НетПродолжительность: 01:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E430CEB2A5C48A87FD4DBE62DE27E39846D644D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825261   (136702) от 16.10.2025
+
+Kaash Paige - 2 Late To Be Toxic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative, R&B, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GOD SAVE ME [00:02:49]
+02. What happened 2 us [00:02:31]
+03. Sexy Freestyle [00:01:46]
+04. High [00:03:21](   Читать дальше...   )Жанр: Alternative, R&B, SoulПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65AB6E4E8B1E5E65EC18D195F4F7C5CE01E57FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825253   (136703) от 16.10.2025
+
+Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volume 1
+01. Gloria: In Excelsis Deo [00:05:55]
+02. Redondo Beach [00:03:25]
+03. Birdland [00:09:13](   Читать дальше...   )Жанр: Punk, Alternative Rock, Indie RockПродолжительность: 01:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C666046CF83AC2A067B28A68F5F94D33669E4F4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825325   (136704) от 16.10.2025
 
 Connie Francis - The Italian Collection: Vol. 1 & 2 (1997) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop, Swing>
@@ -6,7 +84,7 @@ Connie Francis - The Italian Collection: Vol. 1 & 2 (1997) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136704.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:182ED5F97AEE5B79C98C219206953990E3965D5F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136705.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:D7E3BAFB9F61A4BA32596AA835497212B53ADED7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136706.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:9ECFFE1298781F83DEBE7CB7782C3534F9D7B89A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136707.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ magnet:?xt=urn:btih:D6320B1A3EFAB576DB75029631ADDC8288822285
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136708.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ Chromium 141.0.7390.108 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136709.jpg" />
 </div>
 
 
@@ -153,7 +231,7 @@ Crypt Of Kerberos - Cyclone of Insanity / Visions Beyond Darkness + Demos (2017)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136710.jpg" />
 </div>
 
 
@@ -180,7 +258,7 @@ Terminator-Rex - Holograms - Ghosts (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136711.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ magnet:?xt=urn:btih:07AD2DC1BF39DB21A6DA5CEB709970F0B82A1F0E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136712.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ magnet:?xt=urn:btih:18111D74740EFA765CDBA96515B19B5A4991B2D0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136713.jpg" />
 </div>
 
 
@@ -255,7 +333,7 @@ The Legacy (2025) [Ru/Multi] (build 20303577) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136714.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ The Dream Syndicate - Medicine Show: I Know What You Like (1984) Reissue, Remast
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136715.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ Chrissie Hynde - Duets Special (2025) [MP3|320 Kbps] <Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136716.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ magnet:?xt=urn:btih:ACBE6ED8BEB74C3210E5978DF2DB6C1CEED31313
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136717.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ Rick Wakeman - Melancholia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136718.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ Scorpions - From The First Sting (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136719.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ Jump King (2019) [Ru] (Build 14374430) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136720.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ David Gilmour - The Luck And Strange Concerts (2025) [FLAC 24/96|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136721.jpg" />
 </div>
 
 
@@ -462,7 +540,7 @@ MathType 7.9.1.454 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136722.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:03ECA369F0FAFC15A53DFDBE2DB9717DD1BA5B73
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136723.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ magnet:?xt=urn:btih:4C1B1F69CF0BBE53A4C2B2CED5F70F68780767EF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136724.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ magnet:?xt=urn:btih:D04948250B30588C685F12BFE7F72DF1E09EEC85
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136725.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ magnet:?xt=urn:btih:A3D91D6B3B747F7F236475A6251B0171F69CEBE5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136726.jpg" />
 </div>
 
 
@@ -570,81 +648,6 @@ magnet:?xt=urn:btih:A3D91D6B3B747F7F236475A6251B0171F69CEBE5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73A6118AA7A5C88617E322E8276E90C30823165
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825538   (136727) от 17.10.2025
-
-К Хэллоуину приготовиться / Haul Out the Halloween (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые соседи, помешанные на Хэллоуине, вдохновляют жителей Эвергрин-Лейн использовать самые жуткие костюмы и декорации, чтобы стать Эверскрим-Лейн.Производство: США / Hallmark MediaЖанр: комедияРежиссер: Маклейн НельсонАктеры: Лейси Чаберт, Уэс Браун, Стивен Тоболовски, Мелисса Питерман, Эллен Траволта, Лора Уордл, Уолтер Платц, Кимберли Дж. Браун, Дэниел Каунтц, Питер ДжейкобсонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732AE9B92157AA84DD5BA5C2090FC6F89B988BE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825547   (136728) от 17.10.2025
-
-Battle Beast - Steelbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Burning Within
-02. Here We Are
-03. Steelbound
-04. Twilight Cabaret(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D04FBCBE7B6025B7F84850F389825CCD98FB05F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825532   (136729) от 17.10.2025
-
-ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite (17.10.2025) RePack by KpoJIuK [Ru/En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136729.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACDSee Photo Studio Ultimate сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AE165AB44B0613738947F11404D3895E408ADE
 ```
 
 

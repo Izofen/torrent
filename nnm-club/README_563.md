@@ -6,7 +6,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14947.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0A871582D3E2CBDECEC48B8C3CF13643D55A1D2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14948.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Reanimation inc / Скорая Помощь Inc v72 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14949.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:220AF9A95EB0FAF431D8A5A27F47AF8025ABC2D3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14950.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cockos REAPER 7.40 + Portable (x86/x64) [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14951.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:088BCAF9229EC75FF036C401C535672B8220FF77
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14952.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Listen Audiobook Player v5.2.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14953.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3E75BD2D5746A4080CA370722B0455BFA8667A1E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14954.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:00EFB507485ACE60A8B526F0F9B2378119828E0B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14955.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4178E2387F6C7E398A2EF8B7523B188DC814F66C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14956.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5E67B8884BE7CA56E000675393A798273F9EFBA6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14957.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B03DFCC5D5B8BDCA7373DEF6C101D8611FCAB5C4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14958.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:011644AC9F7C0919370EB3B54274CAAE8B3274D1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14959.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F15E4963203C891AE58D2A32382937E463938E44
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14960.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:70688E8DA4024E209D4287DD7EAA1915ADC6B8C6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14961.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ableton - Live 12 Suite 12.2 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14962.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WinRAR 7.12 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14963.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:FA5832A71B0C9B50FD6C936C071E9294CDBD7B62
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14964.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:3F71731EBC5A898D1314221B216AB218E8BAB271
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14965.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:D67D03D125D1824BB0672B1CE582DA7A3B4CBC06
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14966.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:6D2A0DB3B4945277D48B8F61AAC688076BCA7D62
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14967.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Youtube Downloader HD 5.9.8.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14968.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Gumroad, Dan Kenton | Magazine Texturing Tutorial (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14969.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6EB2CD37228C9F23411100A18113388DE1E0874B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14970.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ AIMP 5.40 Build 2682 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14971.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ MediaHuman YouTube Downloader 3.9.12 (1006) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14972.jpg" />
 </div>
 
 

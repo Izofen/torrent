@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11448.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11449.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11451.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MAGIX Vegas Pro 22.0 Build 250 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11455.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11458.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11466.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11467.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11468.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11471.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:7CCE6B213D0AB572DDA45B21F82DC58BD37DC3EA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11476.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:7CCE6B213D0AB572DDA45B21F82DC58BD37DC3EA
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11477.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:14EBAC07796523B4D5F55AA8CD6B7EA29EBB7485
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11478.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ MultiTimer: МультиТаймер v1.9 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11486.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:30CFB29DDF987726DE3D5BEDD8DB64C5B955F735
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11510.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ FireAlpaca 2.13.20 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11513.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:255998723C3B1DC885FF675C505B61430862F9F1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11532.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ MediaHuman YouTube Downloader 3.9.14 (1407) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11534.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Tricky Words / Хитрое слово: слова из букв v10.0.1 Mod by 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11536.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Imagine 2.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11538.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Aiseesoft Screen Recorder 3.1.26 RePack (& Portable) by elchupacabra (x64) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11541.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ DjVu Reader & Viewer (читалка) v1.0.134 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11544.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ CyberLink PowerDVD Ultra 24.0.0623.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11545.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Cent Browser 5.2.1168.57 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11552.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ SIV (System Information Viewer) 5.82 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11557.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:7477959EB9AD86712859CA70733ECB2B9D3BAFD5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11558.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:1FA4641997B0F69D53B8C3B1412345A4845DF197
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11559.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 11 Manager 1.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129011.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:62B2A78A80C90950E6B0DF67E5E910209010C6FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129014.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C28E3DC69E9A9AC848BCBA5DF928051BD7EDBBA6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129020.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5370D1EAA7E211271C226BD4F317EEE7E0CA51CD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129023.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D737F4B5DCAF10D79AB4A34FFBE35464E10F0D06
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129032.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Windows 10 21H2 (19044.1466) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129042.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PotPlayer 220106 (1.7.21595) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129049.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:DF318FF23283A8898E476EAB0A0980E88BF261E3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129052.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ uTorrent Pro 3.5.5 Build 46148 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129053.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B9769A9F159A831F29F38F323726FE74284D2664
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129058.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E45E6941273B5A6B91FEB44177AFE099BF5C0DA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129059.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:176848FA7D449710055AB7F9471CC78473AB7511
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129066.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ StartAllBack 3.2.2 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129076.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129092.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ WinISO Standard 6.1.0.4499 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129096.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Bartender 4 v4.1.29 beta U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129112.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Zentimo xStorage Manager 1.6.2.1217 + RePack by elchupacabra + RePack by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129113.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Mirror for Fire TV  2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129118.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Battery Indicator for Mac 2.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129120.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ uDock 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129122.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ EdgeView 3 v3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129126.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:DEEDEC5F2A4FF915F7ED002A61F21DE35BCAD394
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129127.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Bartender 4 v4.1.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129134.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:998151126B2D50CECD3535C1A60E8468C16F202A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129135.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ DirEqual 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129136.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - 15 Top Trance Hits 04 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129137.jpg" />
 </div>
 
 

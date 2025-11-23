@@ -1,3 +1,81 @@
+###  Публикация: 1745042   (105170) от 24.08.2024
+
+Михаил Иноземцев - 1/4 века с поэтами (2024) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Колесо любви [00:04:20]
+02 - Пятый лепесток сирени [00:03:37]
+03 - Поздняя любовь [00:04:00]
+04 - Аллея опять в цвету [00:03:45](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2978B87B45223EEDF23A679DBC5835DB883CFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745086   (105171) от 24.08.2024
+
+Екатерина Яшникова - Кончается лето (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Завтра
+2. В танце
+3. История
+4. Мелочи(   Читать дальше...   )Жанр: PopПродолжительность: 00:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F9EB2032DFEA5DC2496C6AB2DF230F59A34E2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744965   (105172) от 24.08.2024
+
+PhotoRoom v5.2.6 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 23.08.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E20568B0C4604F9760D743AC75E33CB9F9847D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745013   (105173) от 24.08.2024
 
 Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
@@ -6,7 +84,7 @@ Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105173.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:4528BA6D40765584C9C529ABD1B972C706DB5CB2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105174.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:C29C14BECC09DF3073F435BC716AA40516F422FA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105175.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ Glass Spells - Crystals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105176.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:63091467967FF552D9B3CCA17B57BDF69A593B51
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105177.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:DEE3E5D7F37D434DB29E6F6F8B2FB476E0CB824D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105178.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ Duran Duran - Planet Earth (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105179.jpg" />
 </div>
 
 
@@ -186,7 +264,7 @@ Soen - Studio Albums (7 releases) (2012-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105180.jpg" />
 </div>
 
 
@@ -213,7 +291,7 @@ magnet:?xt=urn:btih:877852EBAD88A61CC6DD85F96CF4471BEEE052B1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105181.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Emperor Machine - Island Boogie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105182.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ magnet:?xt=urn:btih:8CFB6A78C5F4A36E1A4DEA6BE391BDE6DDE4FC37
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105183.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Burning Point - Studio Albums (8 releases) (2001-2021) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105184.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105185.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105186.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ magnet:?xt=urn:btih:0E32D35E815219A32618E75E1B69F26FA69EA9FD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105187.jpg" />
 </div>
 
 
@@ -395,7 +473,7 @@ magnet:?xt=urn:btih:8B8B49114C03B32AE51BE9328DB7E01EC717F73D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105188.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ magnet:?xt=urn:btih:A8198893EFF70964DD3B47E3246BED7A46644FC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105189.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ AirBrush: ИИ Фоторедактор v7.1.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105190.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105191.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ Sabrina Carpenter - Short n' Sweet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105192.jpg" />
 </div>
 
 
@@ -521,7 +599,7 @@ magnet:?xt=urn:btih:32416C1DEBDD015BD73327CBDAA6F65DA5E271FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105193.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ magnet:?xt=urn:btih:385A6B32EE1E2FF13A80CA5DCF46EBB0B6EA10DA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105194.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ magnet:?xt=urn:btih:A6DD4D02732A6688CC54FF789589A5A46D768DAA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105195.jpg" />
 </div>
 
 
@@ -580,81 +658,6 @@ magnet:?xt=urn:btih:A6DD4D02732A6688CC54FF789589A5A46D768DAA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50CC9631233ECD5E12BB0DBA1E4366D742644279
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744962   (105196) от 24.08.2024
-
-Димитрий Ростовский | Жития святых. Месяц январь (2023) [MP3, Лилия Лепшина, Вадим Максимов]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жития святых издавна были основным содержанием Миней-Четьих - произведений русской церковно-исторической и духовно-учительной литературы. Повествования о жизни святых Православной Церкви излагаются в Минеях-Четьих по порядку месяцев и дней каждого месяца. Из четырех известных сочинений такого рода Минеи-Четьи Св. Димитрия Ростовского, написанные на церковно-славянском (   Читать дальше...   )Жанр: ПравославиеИздательство: Неофициальное изданиеПродолжительность: 24:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642F55CC11C0D761881CB82F76B657AA9081CF3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744980   (105197) от 24.08.2024
-
-Миссия Дарвина / G-Force (2009) WEB-DL [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105197.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Миссия Дарвина» – это суперкоманда морских свинок, работающих на правительство США. Для выполнения специальных заданий зверьков подготовил один ученый, и теперь они могут проникать в места, недоступные для людей, вооружившись самыми современными технологиями.
-
-В спецподразделение входят: Дарвин – командир отряда, спец по коммуникациям; Хуарес – единственная девушка (   Читать дальше...   )Производство: США / Jerry Bruckheimer Films, Walt Disney Pictures, Whamaphram ProductionsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Хойт ЙетменАктеры: Билл Найи, Уилл Арнетт, Зак Галифианакис, Келли Гарнер, Тайлер Патрик Джонс, Николас Кейдж, Сэм Рокуэлл, Джон Фавро, Пенелопа Крус, Стив БушемиПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3E1E68FF9EACDEBB46510BD34BC00118CDDA45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744996   (105198) от 24.08.2024
-
-Chillymouse - Rhythm Is A Dancer (Timster & Ninth Remix) (2019) [FLAC|Lossless|tracks] <Eurodance, Techno-pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillymouse - Rhythm Is A Dancer (Timster & Ninth Remix) (5:20)
-02. Chillymouse - Rhythm Is A Dancer (Timster & Ninth Remix Edit) (3:32)Жанр: Eurodance, Techno-popПродолжительность: 00:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E522380E2276AB01A0546313C0FF080753F7582F
 ```
 
 

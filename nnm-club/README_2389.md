@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62479.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62480.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62481.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:456776CB0A00126C76DE30C15E692AF67BA33614
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62482.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Commander One PRO - FTP client 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62483.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Death Trick: Double Blind (2024) [Multi] (1.1.13) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62484.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Fedora 39 Workstation / Server / Spins / Atomic [x86_64] 19xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62485.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ CentOS 9 Stream [x86_64 / aarch64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62486.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7B5013B728C0FD58FE4365629947141F08A01D81
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62487.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ JetBrains WebStorm for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62488.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B8CB7D5B8A5076826011C32A57CCE9672F8654D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62489.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ The Lord of the Rings: War of the Ring / Властелин колец: Войн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62490.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:4BD436694871A024AE71BFEBA43CB1CC850AB641
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62491.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:BDAF994CB5E6BAC551435F7DB76E105154DD07DD
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62492.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:CA0E4F51FC51D389FC03DE191C8DF2CB7792EBF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62493.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.02.941) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62494.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1E69B136F3984C264DA690E08CCEA2236A765B52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62495.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:2DC397770822AC940AE310B8AFA533CE42E79C15
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62496.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ BBC: Дуб - искусство выживания / Oak Tree: Nature's Greates
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62497.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Debian 12.5 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62498.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:4D54760D917E9AC58CF3D443C6B04724CB87FF98
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62499.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:90EAFC15BC6DC70C32E18B2896EE3ACBEEA75640
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62500.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0442ECCB330B4CF7DD4C5F0F3AAB69CF488F43F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62501.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:A4135F60082BBA159D386F61ABE7C481B497EBCB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62502.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ BricsCAD Ultimate 24.2.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62503.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:AFDCAEFA39CF2F89E514774889F03BA57A582CA2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62504.jpg" />
 </div>
 
 

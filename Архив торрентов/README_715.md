@@ -1,3 +1,75 @@
+###  Публикация: 589181   (149990) от 14.12.2012
+
+Джанго освобожденный / Django Unchained (2012) [1080p] HDTVRip [Трейлер]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксцентричный охотник за головами, также известный как «Дантист», промышляет отстрелом самых опасных преступников на Диком западе. Работенка пыльная, и без надежного помощника ему не обойтись. Но как найти такого и желательно не очень дорогого? Беглый раб по имени Джанго — прекрасная кандидатура. Правда, у нового помощника свои мотивы — кое с чем надо разобраться…Жанр: Вестерн, ДрамаРежиссер: Квентин ТарантиноАктеры: Джейми Фокс, Кристоф Вальц, Леонардо ДиКаприо, Керри Вашингтон, Сэмюэл Л. Джексон, Джона Хилл, Джеймс Руссо, Эмбер Тэмблин, Джеймс Римар, Дон ДжонсонПеревод: ДублированныйПродолжительность: 00:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDAC6673BE78736FF3D6B991FAD6D77CD05DA40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589184   (149999) от 14.12.2012
+
+Тихоокеанский рубеж / Pacific Rim (2013) [1080p] HDTVRip [Трейлер]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда из морских глубин поднялись легионы чудовищ, известных как Кайдзу, началась война, которой суждено было забрать миллионы жизней и свести «человеческие ресурсы» почти к нулю всего за несколько лет. Чтобы сражаться с пришельцами, было создано специальное оружие: огромные роботы, названные Джегерами, они управлялись одновременно двумя пилотами, чьи сознания соединены с помощью нейронной связи. Но даже Джегеры оказываются почти бессильны перед лицом безжалостных Кайдзу. На грани поражения у защитников человечества нет выбора, кроме как обратиться к двум весьма сомнительным героям — никому не нужному бывшему пилоту и неопытному стажеру — которые объединились, чтобы повести в бой некогда легендарного, но сейчас устаревшего Джегера. Вместе они оказываются единственной надеждой человечества, последним препятствием перед надвигающимся апокалипсисом.Жанр: фантастика, боевикРежиссер: Гильермо дель ТороАктеры: Идрис Эльба, Рон Перлман, Чарли Ханнэм, Ринко Кикути, Чарли Дэй, Клифтон Коллинз-мл., Макс Мартини, Берн Горман, Хитер Дирксен, Диего Клаттенхофф, Брэд Уильям Хенке, Роберт Казински, Дэвид Ричмонд-ПекПеревод: ДублированныйПродолжительность: 00:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9862B821806F90BF1BDFB2BA7429800231172FBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271314   (150002) от 23.12.2018
+
+PDF Shaper Premium 8.9 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3630464BC0AC6361D6F45289164887CDCD1112FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589262   (150006) от 14.12.2012
 
 Новый Камеди Клаб / Комеди Клаб / Comedy Club/ Выпуск №346 (14.12.2012) SATRip
@@ -6,7 +78,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150006.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Wise Data Recovery 4.11.210 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150007.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ PullTube 1.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150016.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:4AF4DFC66387DCCD5A69F8D257D75DBCC1A34A9E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150018.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:73DCDB1CC95BFB451F4326523FCF69626674AA2E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150020.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Paw 3.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150032.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:984404A8AD7ECA243DE01194C23026277616A024
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150043.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Angry Birds [En] (L/3.0.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150044.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ OpenVPN 2.6.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150050.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:4BA12885AAF004E40DAADA6E9D78949C3D95D67D
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150052.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ DJ Kevlar - You Gots T'Challa (The Best of 2018 Mix) (2018) Mixtape [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150062.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ iFlicks 2 v2.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150081.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ Luminar Neo 1.16.0.12503 Repack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150085.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ magnet:?xt=urn:btih:BDF88A2575AEA5FE8293172CC435063751FDD601
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150091.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ Wise JetSearch 3.16.154 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150097.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ magnet:?xt=urn:btih:E24F1A8260EA5EE67639796AE811F9837E70E700
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150103.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ magnet:?xt=urn:btih:E24F1A8260EA5EE67639796AE811F9837E70E700
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150119.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ magnet:?xt=urn:btih:F5FDBC3071DB38B602DE033A084B3979F4AFDC02
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150128.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ magnet:?xt=urn:btih:16E33D0583C02052A0446C2D34F7BA218A637235
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150134.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ Windows 8.1 x86 Professional NVDA для незрячих. 2015.12.13 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150143.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ MacX Video Converter Pro 6.4.0 (20181213) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150145.jpg" />
 </div>
 
 
@@ -529,7 +601,7 @@ Comedy Баттл. Последний сезон. Этап 2. Выпуск №39
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150146.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ magnet:?xt=urn:btih:ECA3A854AAD406695F6C223F26CD306D63C7A01B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150147.jpg" />
 </div>
 
 
@@ -564,80 +636,6 @@ magnet:?xt=urn:btih:ECA3A854AAD406695F6C223F26CD306D63C7A01B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA929D698B92DB01974FC9870A33F0EBC8B587B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677670   (150151) от 18.11.2023
-
-Turbo Studio 23.11.19.0 Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turbo Studio - это программа, которая служит для виртуализации приложений. Она дает возможность упаковать любое приложение в единый исполняемый файл (контейнер), позволив запускать его без предварительной установки. Программа использует собственный формат контейнеров и предоставляет доступ к огромной библиотеке дистрибутивов популярного софта. В отличие от своего (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F436A92642D5EE2380C1411DFFDA74B293CC1F1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589214   (150155) от 14.12.2012
-
-All My Movies 7.3 Build 1406 [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150155.jpg" />
-</div>
-
-
-###  Подробнее
-
-All My Movies - каталогизатор фильмов для всех. Ведь все мы смотрим фильмы, кто-то в кинотеатре, кто-то дома. Со временем впечатления о просмотренном фильме угасают и порой бывает трудно вспомнить о чём же был тот или иной фильм и кто в нём играл. Наша программа - это простой в использовании инструмент для создания каталога вашей коллекции видео. Не важно, на каком носителе находятся ваши фильмы, будь то видеофайлы (AVI, MKV и другие), Blu-ray, DVD, CD, VHS кассеты или что-нибудь еще... All My Movies - это простой в использовании органайзер видео и фильмов. Покажи другу свой каталог фильмов! Удиви!
-
-(   Читать дальше...   )Название программы: All My MoviesЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968968   (150163) от 25.12.2015
-
-WinTools.net Premium 16.0.0 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150163.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2601B1C496EDF03FB059CD993109BB18C2296E
 ```
 
 

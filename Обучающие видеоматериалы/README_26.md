@@ -6,7 +6,7 @@ CG Masters, Chris Plush | 3D Cars: Inside and Out in Blender [Chapters 1-37] (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56959.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Grasser, Алёна Ижак | Курс по пошиву нижнего бел�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57087.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Udemy, Александр Малейко | Тестирование API (Postman
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57120.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B46BBA99FB035DFBB810EB324DCBBDCE15B7148D
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57134.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Blender Market, Jean-yan BABOIS | The Ride - A Blender Car Animation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57252.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Zrobim architects | Авторский курс интерьерного диз�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57354.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57432.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57438.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Product University | Анализ данных с AI (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57534.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57537.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Product University | Антистартап (2024) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57546.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ DevEducation | Курс Frontend 2.0  (2022 -2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57555.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Product University | UX/UI Design. Дизайнер интерфейсов  (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57558.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Product University | Основы контент-маркетинга (2024) WEB
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57569.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Product University | Telegram-бот Developer (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57570.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Pat Warner | Универсальный ручной фрезер (The Versatile
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57595.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57619.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57644.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57650.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57656.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Product University, Алексей Черняк, Павел Сидоров | Blo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57661.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:2ACEC73C611E8A1C385D1331200A9EA0D8B2DDE6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57675.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Pat Warner | Универсальный фрезер. Приемы работы.
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57690.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Learn Python, М. Корнеев, И. Лебедев, В. Филонов и др
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57691.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:9D05DDFD50957F912149F3CF8B98FED3122B040B
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57793.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:DABAEBC06F66D6E6D0BC80F7046789F839DBB250
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57798.jpg" />
 </div>
 
 

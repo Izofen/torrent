@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47155.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:9A3A0FC858FB075942E0388DDC702ED49F2A7F0C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47156.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47157.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:29430D65FE2295A8759AF3EFF8760D03DBFC2D97
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47158.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.09 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47159.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:728D58184EF4B7ECAB9BADA10C8B1BA606FA21E7
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47160.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:C10309BCB0751033ED360EB0CCA806D3EC5AA91D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47161.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9D49E11CDFC41A9BCFB0CBDFDE21B655BC485C64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47162.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:AC1787803011B07DA30AB7F7449F1F9F222271D2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47163.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ WPS Office + PDF v18.12 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47164.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ InControl 1.0.2 (DC-28.02.2024) Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47165.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:3EB52BDDD36D9581C878A996A38D8F5834F2A3A4
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47166.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:09280A36413A9C57A95BCE67464DE6FFCF137C80
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47167.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:6ADA7F732D2B08B3272EDDA1533FB9344CEAD97A
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47168.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:07AC28B624C2F01259C476E069F5458297A2430A
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47169.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ jetAudio HD Music Player Plus v12.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47170.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:999108D7C584597F22C26EF54ACD1E13F35943C9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47171.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:999108D7C584597F22C26EF54ACD1E13F35943C9
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47172.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:6B22B52E783931D4F50CEE3F02204E7B057F5DA7
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47173.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3C84AD681A7E2DE6B4A68CE4FBC7F023B8E233E1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47174.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Taxi Rush (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47175.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:E1D2FA8E575EE61D58A19754C10DC88834B8A7FE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47176.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E18E220C92C7B88D5873A04297FCB8E37C35F322
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47177.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ FxSound Pro 1.1.26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47178.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:B21172FCFB6373D53215E3A2F86D05FDBE34773A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47179.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:D60A9D9968171A6F896F665AC9AA5AF91558EAC6
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47180.jpg" />
 </div>
 
 

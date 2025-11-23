@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15649.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ZWCAD MFG 2026 SP0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15650.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CFE2E40191E884F3FB5D0DF28769DD7C63E77F93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15651.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B4799C311A00B10461419B87D81312271BA3C4A5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15652.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Loess - battens (2025) [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, Experimental
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15653.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4B9E9801128C61E5BA0E4D9171CDD88290976A18
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15654.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BAF6599F543EDFA0D28AF155DA49BECF3360A2FE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15655.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15656.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Filatov & Karas - Collection (2014-2025) [FLAC|Lossless|tracks] <House, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15657.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:C598B625FEB20F75CCB4A34BBF794E26F575E33F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15658.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Rainshow - Old and New Compilation (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15659.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15660.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6A8AF234B4058195B8D2B0CE3190EA50977999E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15661.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:2183DE1A4DDB99FDBFDF552189A35AA6928F2A1A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15662.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:EF152676F85BF01829FC25EDBD891D51A4639E94
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15663.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Anyma - The End Of Genesys (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic House &
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15664.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:1F6DA0DCFB96ECEB8D6B49F48D9C0751A03FD037
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15665.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:B7EF2A9F248A55ECEDD455001CDC25EC579E8F79
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15666.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MediaHuman YouTube Downloader 3.9.12 (2405) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15667.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:3204AD08308657D7775EAEF9C8FFFE60AB03DFC1
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15668.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:EAB783DFD383BAF6CEC10F42B2CA2214A2BD5018
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15669.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ PreSonus Studio One Pro 7 7.2.0 (x64) + Bonus [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15670.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:376232A9D6054CAABEB2F519DB7B756CA57AC0C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15671.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:FE13609AF44B08E2C42F19D3C936EC2D49B73D6E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15672.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:8C8359648765634C80451468714031388EACE688
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15673.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:91F980AE8080BC99D0ECAF7B5C3369172AB42ACE
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15674.jpg" />
 </div>
 
 

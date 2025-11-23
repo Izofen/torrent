@@ -1,3 +1,83 @@
+###  Публикация: 1763463   (102803) от 01.12.2024
+
+Чудо техники с Сергеем Малозёмовым (01.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эликсир долголетия от животных: поможет ли это людям и когда появится эликсир молодости?
+ Новая угроза для любителей выпить по выходным.
+ Реклама обещает, что контейнер для еды из инновационного материала не царапается, не впитывает запахи и прослужит сотню лет — так ли это и, главное, достоин этот товар маркировки «чудо»?
+ Роботов, возможно, придется меньше программировать: (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B218DB9FA53A6EDEFFB51B7DC67C4D1B21314489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763484   (102804) от 01.12.2024
+
+Jane Monheit - Jane Monheit (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On a Clear Day You Can See Forever
+02. Young and Foolish
+03. Whatever Lola Wants
+04. My Brazil(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7694EB1CF4B32CF492FBABAB7B5180C605D12FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763451   (102805) от 01.12.2024
+
+Первая передача на НТВ. Автомобильная передача (01.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инспектор ДПС подставил водителя, на которого повесили чужой долг в 1,5 млн. Мужчина доказал свою невиновность в суде, но как быть с упрямой системой, не признающей ошибки сотрудника?
+ Баня в салоне: испытание средств против запотевания стекол и боковых зеркал.
+ Тряпка с узлом справа: кто и зачем устраивает подобные трюки? И что водителю нельзя делать, заметив обмотанное (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08D3A3748BFF670599E733E175FA2381978FF12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763509   (102806) от 01.12.2024
 
 The Rudy Boy Experiment - Voodoo Lovin' Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +86,7 @@ The Rudy Boy Experiment - Voodoo Lovin' Woman (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102806.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Eva Carboni - Blues Siren (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102807.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ Elvis Costello - Spike (1989) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Alternative R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102808.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ Geoff Moore - A Beautiful Sound (2002) [FLAC|Lossless|tracks + .cue] <Acoustic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102809.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ magnet:?xt=urn:btih:1AABA998D3D553DC92789F49F9AAA92774B59984
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102810.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ The Anthony Paule Soul Orchestra - What Are You Waiting For (2024) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102811.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ The JD3 Band - Some Kind of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102812.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ Stacy Jones Band - Family Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102813.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ Stormin' Norman and the Cyclones - Road Trip (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102814.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ Amber Rachelle & The Sweet Potatoes - Pipin' Hot! (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102815.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102816.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102817.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ VA - The Orient Collective: The Ancient (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102818.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ VA - The Orient Collective: The East (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102819.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ magnet:?xt=urn:btih:44B604422C97BE20BA3E7C58035C8FC7FC1E932A
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102820.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ magnet:?xt=urn:btih:03ACEB7ED97565E96C56CED2B30C7C2AE8353866
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102821.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ Downhome Kin - Roots Run Deep (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102822.jpg" />
 </div>
 
 
@@ -453,7 +533,7 @@ magnet:?xt=urn:btih:990A6C2F01F318828D89E36823D414B5990F24BB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102823.jpg" />
 </div>
 
 
@@ -477,7 +557,7 @@ VA - The Orient Collective: Shadow Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102824.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.114 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102825.jpg" />
 </div>
 
 
@@ -529,7 +609,7 @@ Linkin Park - Hybrid Theory (2000) Japan, WPCR-10877, 2001 [FLAC|Lossless|image 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102826.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ Jazz Sabbath - The 1968 Tapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102827.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ Tony Carey - Steeltown (2013) 2024 Remixed & Remastered [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102828.jpg" />
 </div>
 
 
@@ -597,81 +677,6 @@ Tony Carey - Steeltown (2013) 2024 Remixed & Remastered [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C382262C71F7798207AB74924C2A53277F5A9634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763445   (102829) от 01.12.2024
-
-Журнал | Смена №12 (декабрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «СМЕНА» издается с января 1924 года. На протяжении своей почти 100-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза классиков (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367EB252434FB3D801AC9976BE4C05C29FA69B51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763476   (102830) от 01.12.2024
-
-Винтовая лестница / The Spiral Staircase (1946) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий фильма написан на основе романа Этель Лины Уайт «Кто-то должен поберечься» (1933)... Начало ХХ века. Маленький городок в Новой Англии. Садист-душитель сеет страх среди местных жителей. Его жертвами становятся молодые девушки, имеющие физические недостатки или хронические заболевания. Ставшая немой из-за перенесённой в детстве травмы Хелен работает служанкой (   Читать дальше...   )Производство: США / Dore Schary Productions, RKO Radio Pictures Inc., Vanguard FilmsЖанр: нуар, ужасы, драма, детектив, триллерРежиссер: Роберт СьодмакАктеры: Дороти МакГуайр, Джордж Брент, Эльза Ланчестер, Этель БэрриморПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F94D2E08B7B15E44F835030F6EA15F9A3ACA05F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763223   (102831) от 30.11.2024
-
-Something Else! - Soul Jazz (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filthy McNasty (4:56)
-02. Too Blue (7:55)
-03. Mean Greens (4:05)
-04. The Chicken (4:57)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A0B111D84E9A672D73767855F7C991F9204398
 ```
 
 

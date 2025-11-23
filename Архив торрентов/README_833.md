@@ -1,3 +1,78 @@
+###  Публикация: 1672897   (167283) от 30.10.2023
+
+Soulver 3 v.3.9.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего Excel много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
+Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2023 Acqualia Software OÜПоддерживаемая ОС: macOS X 11.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DB4C7B259D45CE090218B5386812429195269B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431374   (167285) от 13.12.2020
+
+Adobe Media Encoder 2020 14.7.0.17 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Media Encoder 2020 - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCFCDAB4E91177B64C4EB30C410ABEEE892EC49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515880   (167288) от 09.12.2021
+
+Psiphon 3 build 170 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры.
+
+Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB0CC9A0B0BFDB5E7DCAC88CDDC7EA9DB82FD97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431344   (167309) от 13.12.2020
 
 Adobe Animate 2021 21.0.1.37179 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +81,7 @@ Adobe Animate 2021 21.0.1.37179 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167309.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Navicat Premium 16.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167317.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Disk Xray 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167319.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Internet Download Manager 6.40 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167320.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Wise Care 365 Pro 6.4.1.618 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167324.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ XnViewMP 1.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167333.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ WhatsApp 2.2146.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167338.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:A21E14032DC480DDEEACD8FA957D1C96B2355C1B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167346.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ Magic Disk Cleaner 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167351.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ Adguard 2.9.2 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167352.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ NirLauncher Package 1.23.68 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167356.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ Opera GX 64.0.3417.150 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167372.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ MWeb Pro 4.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167394.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ Ditto Clipboard Manager 3.24.220.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167395.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ AIMP 5.10 Build 2417 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167397.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ Allegorithmic Substance Alchemist 2019.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167399.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ EdgeView 4.3.7[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167401.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ AIMP 5.10 Build 2417 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167404.jpg" />
 </div>
 
 
@@ -445,7 +520,7 @@ WinUtilities Professional 15.78 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167405.jpg" />
 </div>
 
 
@@ -469,7 +544,7 @@ HitPaw Video Converter 2.6.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167411.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ Spectrasonics Omnisphere Software 2.8.2c (x64) RePack by vkDanilov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167416.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ magnet:?xt=urn:btih:078B9A22E09583A23633E56E2ED7CB0C25483D1A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167426.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ Notepad++ 8.1.9.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167434.jpg" />
 </div>
 
 
@@ -554,79 +629,6 @@ Notepad++ - бесплатный редактор текстовых файло�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A611F259709D281B8DC1FC44C701BCF1561D5BA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597146   (167438) от 13.12.2022
-
-Wondershare Recoverit 10.6.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473DE2B64FFC89936F58124192254ABACC8C1F6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431285   (167439) от 13.12.2020
-
-Trimble Tekla Structural Design Suite 2020 SP5 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tekla Structural Designer - мощный инструмент для анализа и проектирования зданий, созданного для инженеров-проектировщиков, работающих в сфере проектирования коммерческих строительных объектов. Tekla Structural Designer дополняет основную программу Tekla Structures и позволяет полноценно использовать все преимущества 3D-моделирования, благодаря единому рабочему (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D980EF239D742587E6D590270E8FFB86C0D9B46C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515911   (167446) от 09.12.2021
-
-SQL Dynamite 2.5.1.9 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа исследует объекты базы данных различных типов (определяемых пользователем функций, хранимых процедур, триггеров, представлений, таблиц и индексов, внешних и первичных ключей, типов, синонимов, последовательностей, типов) для поиска вхождений искомого текста по их именам и по их содержанию. Поиск можно вести с учетом или без учета регистра.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B017C0BE5A91D42238A519DB3FD674EA2E4D1155
 ```
 
 

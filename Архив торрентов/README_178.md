@@ -6,7 +6,7 @@ simplewall 3.8.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43399.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hard Disk Sentinel PRO 6.20.3 Build 13190 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43415.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B41FF6BAD0B1FEA66DD5CE1860CF84F581445F33
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43426.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ ZBrush 2025.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43427.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Shotcut 24.09.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43446.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Directory List & Print Pro 4.32 + Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43455.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Araxis Merge Pro 2024.6001 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43458.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ HomeBank 5.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43460.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Simple Sticky Notes 6.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43462.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Disk Drill 5.6.912 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43466.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ FxSound 1.1.27.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43519.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43528.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [15.09.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43534.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ FL Studio Producer Edition 24.1.1.4285 - All Plugins Edition (Rev.1) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43539.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ FanControl V202 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43569.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ ScreenToGif 2.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43588.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:AC745DF334C06AC1BEFC9446730B8A846954321D
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43592.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Telegram Desktop 5.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43607.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Kaspersky Small Office Security 21.18.5.438 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43649.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Text Edit Plus 14.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43682.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Calibre 7.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43686.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ StartAllBack 3.8.8 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43699.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Alfa eBooks Manager 8.6.38.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43704.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Display Driver Uninstaller 18.0.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43711.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ XnView Shell Extension 4.1.11  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43726.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Microsoft Activation Scripts (MAS) 2.7 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43737.jpg" />
 </div>
 
 

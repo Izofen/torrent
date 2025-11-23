@@ -6,7 +6,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2637.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:78BF20B9D1B4ADD5F6A0F6D65F44BA67A31A1DC6
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2638.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Myth Finders / Искатели мифов (2025) [Ru] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2639.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:80091B469DA6E05EF8D054CE4A26582E44F00362
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2640.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E7C79B74885D982700065AE819ACADE0D161D27B
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2641.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:25BA5676B732B1A9CFFFBBE72FEEE6F2BA8FEF1F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2642.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5BEE1F80278C51D2830E6F634C7328C19A80C2B0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2643.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2644.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2645.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2646.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2647.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:398AD7A6BB3AF9C7C672939AD12736DF7D7EC902
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2648.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:3D20ADBAEA5CCB0FF1AF01FC86C783974EC44C34
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2649.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ SolarWinds Platform 2025.2.1 [Multi]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2650.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:83A1CFBFCDCD8BAD226D880656DA75544ACACA9D
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2651.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:2B96FC34051F77649618F6255FB9313975DC4D06
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2652.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ SIV (System Information Viewer) 5.83 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2653.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Auslogics Driver Updater Pro 2.0.1.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2654.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:61AF5DD523982CF93878DC6F7F936D53B2ADE4A8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2655.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:7B759BCE44E30B7FB660EA9E7CF439E93BB11B9A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2656.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:A53F20EC088CA3E51B21205DBB880F16467620EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2657.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:065465A9FB5BD882AD038625E1F6985576545EFE
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2658.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:449F2B4914F32E778DCFA349D1444055D705D8EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2659.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:D625877BBB5A16A1A93FE5894D6DDEFAA402D949
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2660.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:2E37136D8FE2A766B93DFC13ACAC1D7A87B41A7F
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2661.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:558E3A351C955EA4E86F2703340FBE8559AA620A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2662.jpg" />
 </div>
 
 

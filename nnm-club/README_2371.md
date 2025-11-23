@@ -6,7 +6,7 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62011.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38DD2D9A81FA492F5E7FAD2E8DB8D3FEF999A81B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62012.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fork 2.41.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62013.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E8736911678D02C4ACD1965F82A43382CE38341D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62014.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B8D71F0E43560CCCF2F125CDDA11752CF46A3693
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62015.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DE47C27037EF1726FDF17DE8203C315B830A01C5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62016.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:2B35523497FB0F719B26C0F8977FE04E9600FB9D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62017.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ FBackup 9.9.860 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62018.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Thenx v5.50 [En] Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62019.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:FE8005C6059DB3D5B6E3A7DAD787A413E3A3C43D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62020.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Mike Mareen - The Maxi-Singles Collection Part 3 (2023) Compilation, Remastered 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62021.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:508BCFEC55482160C0F8CD8AB4FE53BB220DA2F5
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62022.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:ADCA2A97250678786B1ECBA3F1F61C48047282CD
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62023.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Music News vol.355 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62024.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:1B54348E900323BC79219CAFEC51F50E554147E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62025.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:71E9B3AE2D7D5292CF5BBAF1A432C7F83661356E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62026.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:22361231693B4A005EFCE07BE2B42CA2AD530FD9
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62027.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ FanControl V185 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62028.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9A44E5819CCF667B2C5535C697F91CD0709C1118
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62029.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ MediaHuman YouTube Downloader 3.9.9.90 (0321) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62030.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:77CD13DD71638B80B069F5AB704F4068C5C49BE6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62031.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Tixati 3.24 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62032.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Corbid! A Colorful Adventure (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62033.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:53C6F81B4311E3089C623BCBFCF6F6E080899A90
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62034.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:4227FBD3D2A687A0B26858D46A68304D5FA10C19
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62035.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:AB5EE9F797FD0C8C89F031DD1F3AECE308CE4406
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62036.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1698150   (117910) от 13.02.2024
+
+Главная проблема литиевых батарей решена. Созданы аккумуляторы, которые не взрываются и не горят
+
+>>След.
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые из Китая и США нашли способ сделать литиевые аккумуляторы безопасными. Они придумали, как предотвращать их возгорание при повреждении или перегреве, что является главной их проблемой. Решение лежало на поверхности, и оно не из разряда научной фантастики – безопасные батареи можно начать производить прямо сейчас.Второго Galaxy Note 7 не будет
+Группа американских (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645732   (117911) от 13.02.2024
+
+DAVE THE DIVER v.1.0.2.353 (2022) [Multi] [macOS Native game]
+
+>>Игры для macOS
+>>Quests, Adventure, Arcade для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в "DAVE THE DIVER", морское приключение в таинственной Голубой Дыре. Днем исследуйте море вместе с Дэйвом, а ночью управляйте рестораном суши. Раскройте секреты Голубой Дыры и разгадайте эту морскую тайну, в которой участвуют три друга, каждый из которых обладает индивидуальностью. Вас ждут новые приключения.Тип издания: macOS Native gameРелиз состоялся: 2022Разработчик: MINTROCKETПоддерживаемая ОС: 10.15+Жанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5209830C5F5A4AAA0DBD5F760F654B8C999449
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699268   (117912) от 12.02.2024
+
+Boinx FotoMagico Pro 6 v.6.5.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117912.jpg" />
+</div>
+
+
+###  Подробнее
+
+FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
+В состав программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 2024 Boinx Software International GmbHПоддерживаемая ОС: macOS 10.15.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC25C52855DC35496B7891C2B9E6A3415FD247C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699212   (117913) от 12.02.2024
 
 EazyDraw 11.5.0 [Multi]
@@ -6,7 +80,7 @@ EazyDraw 11.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117913.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ FSNotes 6.6.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117914.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Smokehouse Porter - My Ears Are Ringing (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117915.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ Frankie Boy & The Blues Express - Young Man's Blues (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117916.jpg" />
 </div>
 
 
@@ -108,7 +182,7 @@ Mass - When 2 Worlds Collide (2018) Reissue, 2024, Escape Music Ltd [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117917.jpg" />
 </div>
 
 
@@ -135,7 +209,7 @@ Iolanda Lomuscio - Jazzscape Harmony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117918.jpg" />
 </div>
 
 
@@ -162,7 +236,7 @@ Dropover for Mac 4.13.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117919.jpg" />
 </div>
 
 
@@ -186,7 +260,7 @@ Crush++ - Power Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117920.jpg" />
 </div>
 
 
@@ -213,7 +287,7 @@ Archie Baker - Carbrook (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117921.jpg" />
 </div>
 
 
@@ -240,7 +314,7 @@ Gregory Aigersson - White Morning & Valentine Coffee (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117922.jpg" />
 </div>
 
 
@@ -267,7 +341,7 @@ djay - DJ App & AI Mixer 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117923.jpg" />
 </div>
 
 
@@ -291,7 +365,7 @@ Iadora's Journey - Iadora's Journey: Journey 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117924.jpg" />
 </div>
 
 
@@ -318,7 +392,7 @@ Soren Andersen - City of Angels (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117925.jpg" />
 </div>
 
 
@@ -342,7 +416,7 @@ Cookie 7.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117926.jpg" />
 </div>
 
 
@@ -367,7 +441,7 @@ Ossian - Angyalok es Emberek (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117927.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117928.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ The Funeral Procession - In Still Silence (2024) [MP3|320 Kbps] <Progressive Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117929.jpg" />
 </div>
 
 
@@ -448,7 +522,7 @@ John Coltrane - And The Jazz Giants (1956 - 1958) 1986, Prestige [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117930.jpg" />
 </div>
 
 
@@ -475,7 +549,7 @@ Strider - Dominion Of Steel (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117931.jpg" />
 </div>
 
 
@@ -502,7 +576,7 @@ Coming soon 3 v.3.20 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117932.jpg" />
 </div>
 
 
@@ -526,7 +600,7 @@ Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117933.jpg" />
 </div>
 
 
@@ -553,7 +627,7 @@ Joey Alexander - Continuance (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117934.jpg" />
 </div>
 
 
@@ -580,7 +654,7 @@ Sandboxie 5.68.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117935.jpg" />
 </div>
 
 
@@ -591,79 +665,6 @@ Sandboxie - yтилита для контроля за работой разли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA90CB416C36149EDE19FDA3E0937421E52BD8A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699223   (117936) от 12.02.2024
-
-BoltAI 1.13.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117936.jpg" />
-</div>
-
-
-###  Подробнее
-
-BoltAI — это универсальный инструмент, который повышает производительность в широком спектре профессий, от написания текстов и разработки до управления и предпринимательства.
-BoltAI — это мощный помощник ИИ, предназначенный для пользователей macOS. Он использует технологию OpenAI GPT для предоставления помощи ИИ в приложениях macOS. В нем есть библиотека подсказок, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2023 Podzim LLCПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21F003BB2C55607DBA163903C033BD5FE91029F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699300   (117937) от 12.02.2024
-
-Журнал | Здоровье №1-2 (802) (январь-февраль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ИД журнала «Здоровье»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398921D93059D82FA68B9E267A9DFFD2AB0EB44B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699339   (117938) от 12.02.2024
-
-AlDente Pro fo Mac 1.25 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энтузиасты из Австрии создали небольшую, но полезную утилиту под названием AlDente. Она способствует более щадящему и эффективному использованию аккумуляторов любых MacBookТип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2023 AppHouseKitchenПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF42DBDE9F16DA900C1B2FDDA8E1C1166D64111
 ```
 
 

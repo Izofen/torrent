@@ -6,7 +6,7 @@ Windows Server [10.0.25398.763], version 23H2 (Updated March 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62505.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Luxion KeyShot Enteprise / Network Rendering / VR 2024.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62506.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Acrobat Pro 2024.001.20604 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62507.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ R-Drive Image System Recovery Media Creator 7.2 Build 7201 RePack (& Portable) b
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62508.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A53F08D51D5E32A969011BE553CD9DA86048E687
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62509.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:45AA8080172EF6B63A70BAB1F2FE2D75EC70F8F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62510.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Karpov.courses | Продвинутая аналитика данных (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62511.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6E7A0D243B20E05A6FA7D6B2F9438A24BEE96C46
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62512.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:796BBF9B24DEB7366EFF1A534B483E303FE76B06
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62513.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:A6DD43CABA5B8A147D83765A566000F85481E260
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62514.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62515.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Windows Server 2022 LTSC [10.0.20348.2340], Version 21H2 (Updated March 2024) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62516.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Quarry (2022) [Ru/Multi] (1.07/dlc) Repack Decepticon [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62517.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:B4AB794951BD77DC297276D08210B5232A542C81
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62518.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:E65C9ADF68B14DAF95D0484BA98D121EE0BF36F1
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62519.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Hikari no Ou | The Fire Hunter | Пожинатель огня [2023, TV, 20 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62520.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:70FBA34BFEAC0CD91F0382673FCF4C1920779BD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62521.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:116D9555F5B4B2A9ABBDCADB0FE5AAAD1889C696
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62522.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:B3A71443C6A09D1FB971B4A7C0DE184073E268CE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62523.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:BBCB368C551D0B4800C641195FFD44C9D155847A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62524.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:41284AF1B09DF173CB3F7CC150DC236440502569
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62525.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:B10B181CFDE6B0873EBE16FFC091820E210E3C37
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62526.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:30DE03FD3A933E158798535F3D17882114069262
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62527.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:6EB2D4567A566D8E4911C2E027C22F851BA9CEE5
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62528.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62529.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ ON1 NoNoise AI 2024 for Mac v18.2.0.15224 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62530.jpg" />
 </div>
 
 

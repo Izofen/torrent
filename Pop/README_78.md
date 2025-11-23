@@ -6,7 +6,7 @@ Rick Astley - Are We There Yet? (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172998.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LKDR and Aria - Maria Magdalena (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173185.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Meduza - Meduza (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173200.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bee Gees - 19 Albums (1967-1993) LP Collection [MP3|320 Kbps] <Pop, Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173317.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AlimkhanOV A. - The Best (The 5th Album) (2025) 2CD, Limited Edition [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173578.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173651.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173651.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Romantic DANCE (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173671.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:CBCD022E8C7212135A1B05DACDB276884F8C8F03
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173776.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173776.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Ретро Шлягер Новогодний (2006) [MP3|320 Kbps] <Рет�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173814.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173814.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ C.C.Catch - The Best Of C.C. Catch (2000) 3 CD [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173859.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173859.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174007.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174007.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - DMC Essential Hits 2022 December (2022) 3CD, Compilation [MP3|320 Kbps] <Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174011.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174011.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174335.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174335.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:B89CCFB21C68FAE0689A4C0E2476F696EFFE904A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174457.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174457.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cesare Cremonini - 1 Album, 1 Single (2022) [MP3|320 Kbps] <Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174551.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174551.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:36795E0BA3230E5C6418DD99FA8DF4B7D89F05E4
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174707.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:5A17B01951B5C42AC8F77C0117E067E2DF9A8977
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174880.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174880.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Трибьют «Иванушки International» (2022) [MP3|320 Kbps] <Po
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174941.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174941.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:02473530E78FA709DE9FE552FC37ABF1EBA63BF5
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174943.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174943.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Julie Parsons - Piano Lady (1977) LP [MP3|320 Kbps] <Pop, Funk-Soul, Easy Listen
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175101.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175101.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175469.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175469.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175474.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175474.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:6CB4E31A818773AD3A0E770E3E3FB933DC14EB8F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175745.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:C105630D5DCDCD3B74F6EA6418ECD99C44239951
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175776.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ V.A. - 90's Dance Rarities, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175929.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ VA - Chilled Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175934.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175934.jpg" />
 </div>
 
 

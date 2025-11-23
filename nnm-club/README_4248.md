@@ -1,3 +1,76 @@
+###  Публикация: 368875   (130530) от 18.01.2022
+
+А. Михайловский | Лук и самострел (1928) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для детей среднего и старшего возраста, подробно описывающая изготовление лука, самострелы, пращи, метательной стрелы, дротика и способы стрельбы в цель.Жанр: Оружие, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D98612CFFF1DD31E04270EDCB7BC813A006056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491456   (130531) от 03.05.2012
+
+Пробуждающийся лес / Wake Wood (2011) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родителям девочки, которая была убита дикой собакой, дается возможность провести три дня с их умершей дочерью.Жанр: Ужасы, Триллер, ДрамаРежиссер: Дэвид КитингАктеры: Ева Бертистл, Эйден Гиллен, Элла Коннолли, Амелия Краули, Брин Глисон, Дэн Гордон, Рут МакКейб, Тимоти СполлПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:30:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524915   (130532) от 18.01.2022
+
+ArtCraft, Александр Шаповалов | 3D Pro. Game environment pipelines (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Считаешь себя 3D-шником? Работаешь по прямому пайплайну, клепаешь лоуполи, запекаешь, текстуришь, используя PBR, но все равно получаешь пинки от арт-лидов, а рекрутеры не отвечают после выполнения тестового задания в ААА-проекты?
+Для решения этих проблем и повышения твоей квалификации, мы разработали курс с использованием актуальных пайплайнов, набитых шишек и пройденных (   Читать дальше...   )Производство: ArtCraftЖанр: 3D графикаПродолжительность: 22:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09706E48A3B47927D4A9AE04704DB80F1D3A7547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523994   (130534) от 18.01.2022
 
 Разработчик испортил свой проект с целью «наказать» корпорации
@@ -6,7 +79,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130534.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130535.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130536.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ PotPlayer 220106 (1.7.21595) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130537.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:A9D386D2E3DAA0C4459E019DBC9F046C1474B355
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130538.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:12D85CFCD0A337842728B09F29BABD7643017789
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130539.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:CC4EC9EEE03BFCC52B2A966F24C3C53FF7BA91B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130540.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ VA - Summer Klub`80 Volume 5 (2011) 2CD [FLAC|Lossless]<Italo-Disco, Hi NRG, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130541.jpg" />
 </div>
 
 
@@ -207,7 +280,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2022) WEB-DL [H.264/1080
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130543.jpg" />
 </div>
 
 
@@ -231,7 +304,7 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130544.jpg" />
 </div>
 
 
@@ -255,7 +328,7 @@ Transarctica (RePack) 1993 [En] | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130545.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ Microsoft Windows 10.0.19044.1466, Version 21H2 (Updated January 2022)  - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130546.jpg" />
 </div>
 
 
@@ -305,7 +378,7 @@ magnet:?xt=urn:btih:4697F5FC6F817932788DE1F1F434DFC6F26F7B0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130549.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ magnet:?xt=urn:btih:D9C2ED2A067B49DCFD6C8FDF48F35560DE88A93C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130550.jpg" />
 </div>
 
 
@@ -353,7 +426,7 @@ magnet:?xt=urn:btih:6C023838C075F12459388B4BF7DC244CD386058B
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130551.jpg" />
 </div>
 
 
@@ -380,7 +453,7 @@ Internet Download Manager 6.11 Build 7 Final  [Мульти, есть русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130552.jpg" />
 </div>
 
 
@@ -404,7 +477,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.469 (Updated January 2022) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130553.jpg" />
 </div>
 
 
@@ -428,7 +501,7 @@ magnet:?xt=urn:btih:FCCB9F76E33FD8177A0AA502EBF5CF2605DEE43E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130559.jpg" />
 </div>
 
 
@@ -452,7 +525,7 @@ magnet:?xt=urn:btih:F449A9314A962AA546035FB975C8E9AD587AFCA5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130563.jpg" />
 </div>
 
 
@@ -478,7 +551,7 @@ magnet:?xt=urn:btih:8B663AB1755A20483FD090C9595A3DFA1E993ACD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130565.jpg" />
 </div>
 
 
@@ -502,7 +575,7 @@ magnet:?xt=urn:btih:8B663AB1755A20483FD090C9595A3DFA1E993ACD
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130568.jpg" />
 </div>
 
 
@@ -526,7 +599,7 @@ Race Driver: GRID [Ru/En] (RePack/1.3) 2007 | R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130569.jpg" />
 </div>
 
 
@@ -554,85 +627,13 @@ magnet:?xt=urn:btih:10B665A6CACC6BAFB67AED8EFD08BD394073C37B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130571.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Лояльность Бонда своей начальнице М под угрозой со стороны ее прошлого, которое внезапно даст о себе знать. MI6 подвергается нападению, и агент 007 должен ликвидировать угрозу, несмотря на цену, которую придется заплатить.Жанр: Боевик, Триллер, Криминал, ПриключенияРежиссер: Сэм МендесПродюсер: Барбара Брокколи, Майкл Дж. Уилсон, Чи Ва ЛиАктеры: Дэниэл Крэйг, Рэйф Файнс, Хавьер Бардем, Хелен МакКрори, Бен Уишоу, Джуди Денч, Альберт ФинниПеревод: ДублированныйПродолжительность: 02:23:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596785   (130572) от 31.12.2012
-
-Облачный атлас / Cloud Atlas (2012) [720p] BDRip
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть историй — пять реинкарнаций, происходящих в разное время, тесно переплетаются между собой… Многослойный сюжет начинается с истории американского нотариуса из 19 века, за ним следом идёт бедный музыкант-англичанин из 1930. Далее — издатель гламурных журналов, герой нашего времени. В ближайшем будущем центральным персонажем станет клон-бунтарь, и всё закончится (   Читать дальше...   )Жанр: фантастика, драма, детективРежиссер: Лана Вачовски, Том Тыквер, Энди ВачовскиПеревод: ДублированныйСубтитры: английскиеПродолжительность: 02:52:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596699   (130573) от 31.12.2012
-
-Bishoujo Senshi Sailor Moon Super S Sailor 9 Senshi Shuuketsu! Black-Dream-Hole no Kiseki / Sailor Moon SuperS: The Movie - Black Dream Hole / Красавица-воин Сейлор Мун Супер Эс - Фильм (1995, 1 из ...
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё начинается с того, что в три часа ночи дети, зачарованные флейтой, покидают свои дома и исчезают. Ничего не подозревая, Усаги и её подруги готовят сладости, восхищаясь кулинарным искусством своих мам, которые их когда-то всему научили, и рассуждая о том, почему же третий час называют волшебным. Чиби Уса в тот же день знакомится со странным мальчиком по имени Перуру, который умеет с помощью своей флейты заставить сладости танцевать. Злодейкой, похищающей детей, оказывается некая мадам Вадиан, с которой Сейлор-воинам придётся сразиться, а заодно узнать, что сладости могут оказаться о-о-очень опасными...Жанр: Махо-сёдзё, приключения, драма, сёдзёРежиссер: Сибата ХирокиПродолжительность: 59мин 57сек
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1232EEB4AD75CE457DD869CC1E38BF211DE20B88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596784   (130574) от 31.12.2012
-
-Облачный атлас / Cloud Atlas (2012) [1080p] BDRip
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть историй — пять реинкарнаций, происходящих в разное время, тесно переплетаются между собой… Многослойный сюжет начинается с истории американского нотариуса из 19 века, за ним следом идёт бедный музыкант-англичанин из 1930. Далее — издатель гламурных журналов, герой нашего времени. В ближайшем будущем центральным персонажем станет клон-бунтарь, и всё закончится (   Читать дальше...   )Жанр: фантастика, драма, детективРежиссер: Лана Вачовски, Том Тыквер, Энди ВачовскиПеревод: ДублированныйСубтитры: английскиеПродолжительность: 02:52:07
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41045.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ExtraDisks 24.8.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41046.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F024F12E5619BB90318EA56B014AFED0DEB32294
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41047.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:194B0B9149124F8490CA1F01C96AE7C56432C306
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41048.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FEFABDDB5E1FFD0B512A8FFBA222427E65E59078
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41049.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AC57E02B1205813CE754BEBD436EC20A6D5BD117
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41050.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:15E7437E1F6B08166940F2B23BB23ACDDB6C85E2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41051.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Telegram Desktop 5.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41052.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ FanControl V206 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41053.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:BA007B88138EB5F05E4A3E3ECDE319C20A10594A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41054.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8D56A9ECC35CA5DEEB5D0C2C84DAB957C2DF19C2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41055.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kodeco Team, Shai Mishali, Florent Pillet, Marin Todorov | Combine: Asynchronous
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41056.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:DE1B2F79E328A08117B9209F4D229559A58DED7C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41057.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3627D642755A243467E2CD336561D659EA2BD98A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41058.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:1DB1CCA8BC20A7B18812DA46C907893E51ABCD91
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41059.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Matt Neuburg | iOS 15 Programming Fundamentals with Swift (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41060.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ GeoGebra 6.0.861.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41061.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:60B187CE014EB352AE72F2A715AC180841C4A271
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41062.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:88C4C6A4C1C77EC2AA4D9571C6F15EC700D5BF7A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41063.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Новые хитовые песни 2024, Часть 10 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41064.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:2238188AD6A34A3FCE898DA8CC756A9AAC9FAADB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41065.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ The Offspring - Hurricane Festival (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41066.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Light Image Resizer 7.0.9.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41067.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ PhotoRoom v5.3.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41068.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:9FD6287CBD9C56951C5A5DE4C8F36B4880AD019E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41069.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ XYplorer 26.50.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41070.jpg" />
 </div>
 
 

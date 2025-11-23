@@ -6,7 +6,7 @@ Nemoy and the NPCs - Warzone Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70097.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mellow Blues - Mellow Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70098.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gyasi - Here Comes The Good Part (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70100.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mary Ann Hawkins - Helsinki Surf City (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70102.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ No Money Kids - Fireworks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70115.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70190.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70212.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70214.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70235.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70250.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Valempar - Taboo Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70255.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cerrone - Disco Symphony (Symphonic Version) (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70307.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ King Gizzard & The Lizard Wizard - Live In Adelaide '19 (2023) (Live) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70317.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Last Sentinel - Testament of the Tiamat (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70329.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bleeding Through - NINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70334.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Cymande - Renascence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Funk, Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70337.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70339.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Little Freddie King - I Use To Be Down (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70342.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lilly Hiatt - Forever (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70343.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Jolly Joker - Jolly Joker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70344.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Electric Mojo - One for the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70355.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Cut The Kids In Half - What We Became (2025) [FLAC 24/48|Lossless|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70356.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ David Rose - In the Spotlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70359.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ LMsc - Mystery Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70362.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ David Rose - Add More Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70363.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Eddie Blues Barney - Blues on the other side (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70366.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1736027   (106756) от 11.07.2024
+
+Glis - Phoenix (2013) Deluxe Edition, 2024 , Glis [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Industrial, Futurepop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse Parties [00:05:19]
+02. Insomniac [00:05:30]
+03. Dead Set 7AM [00:03:46]
+04. Keep the Memory [00:02:56](   Читать дальше...   )Жанр: EBM, Industrial, FuturepopПродолжительность: 01:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4E16B2DCC9D33E27B5870CA7CA7C2DBB2F250B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735889   (106757) от 10.07.2024
+
+Empyre One Feat. Scarlet - I Turn To You 2k20 (2020) [FLAC|Lossless|tracks] <Electro Pop, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empyre One Feat. Scarlet - I Turn To You 2k20 (3:00)
+02. Empyre One Feat. Scarlet - I Turn To You 2k20Жанр: Electro Pop, Electro HouseПродолжительность: 00:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7350A6082340831592A23BA2CB8EEF56A90EE90C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735656   (106758) от 10.07.2024
+
+Troyen - Unfinished Business (2024) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Used To Be (03:42)
+ 02. Twist Of Fate (04:27)
+ 03. Hoax (03:38)
+ 04. On The Outside (Don't Go!) (04:15)(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4F427548219FF34C8139A60C1F1C3424EC3200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735990   (106759) от 10.07.2024
 
 Когда влюбленные расстаются / When Lovers Part (1910) WEBRip
@@ -6,7 +85,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106759.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:D1C619CBFB023AE7636D859118C67310F7DE8CC6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106760.jpg" />
 </div>
 
 
@@ -54,7 +133,7 @@ Seth Lee Jones - Tulsa Custom (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106761.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ Ray Brown, Monty Alexander, Sam Most - A Ray Brown 3 (1982) 2002, Victor Enterta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106762.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ Sean Webster - Summer Has Gone (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106763.jpg" />
 </div>
 
 
@@ -135,7 +214,7 @@ The Roses - Out Of The Fear (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106764.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Nocturnus AD - Unicursal (2024) [FLAC|Lossless|image + .cue] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106765.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Zuli - Lambda (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <trip hop,  techno an
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106766.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ Ivan Marcio - 30 and Still Counting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106767.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ The Skintight Revue - The Ever Lovin' Travelin' Show (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106768.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ Black Hole Deity - Profane Geometry (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106769.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ FanControl V195 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106770.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ magnet:?xt=urn:btih:59C0C01DDA48C3F15C802157E21659710A822685
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106771.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ magnet:?xt=urn:btih:1AA5C145DF2B5AC64E1E25AF80A6C129C6CC8EE1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106772.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ Slade - Live In London 1972 (Live) (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106773.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ Evercloud - From Light To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106774.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ DJ Pulse Feat. Donna Marie - Wherever You Go (2019 remixes) (2019) [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106775.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ The Yardbirds - The Ultimate Live At The BBC (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106776.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ magnet:?xt=urn:btih:C4DFD38812895DB9FE5398C48579DB4982A38589
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106777.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ Seasick Steve - A Trip A Stumble A Fall Down On Your Knees (2024) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106778.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ magnet:?xt=urn:btih:601F63929C7DEBCC1C293012CE99D8FE106BC0B4
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106779.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ Mr. Big - Ten (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106780.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ magnet:?xt=urn:btih:588C5E5E493A3B71386B45666DD7501CC6876131
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106781.jpg" />
 </div>
 
 
@@ -595,78 +674,6 @@ magnet:?xt=urn:btih:588C5E5E493A3B71386B45666DD7501CC6876131
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF147815F93FDC282ABE9BEEDB6E6969E9891E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736038   (106782) от 10.07.2024
-
-4K Video Downloader 4.31.2.0102 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106782.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A9E3DB3684B7955D8CC522E7AA6D8179D9A15D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735854   (106783) от 10.07.2024
-
-Photo Supreme 2024.2.0.6544 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23EBA586EC38437A18ACFA6BEC0F21B4D5B77711
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735933   (106784) от 10.07.2024
-
-Протоиерей Петр Смирнов | Изложение Христианской Православной веры (2005) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106784.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сравнительно небольшом объеме книги простым и ясным языком рассказывается о том, что составляет суть и содержание Православной Христианской веры.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06C7AB29EE0F0B58FCFF748B99855F07DD83C39
 ```
 
 

@@ -6,7 +6,7 @@ THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46976.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46978.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:E95EFBD3B5D1555E2E5E752CB1ADF92FC95325FC
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46986.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46996.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Dream fest. День звезд российской эстрады (2024) WEBRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47008.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47068.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47088.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47089.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:EEB5FE6ABA16B53B60D6B505C4FFB982F843B9AB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47125.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:983D4179133EC13527ED3A94DC46B7131B93D7FA
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47163.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:D9A5BBF0660F19F25944C4812CD591EDE4B283CE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47177.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:BA5F637BEE8431D1E7AAF3D57B8A4070871F30C9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47179.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Def Leppard - Historia: In the Round In Your Face (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47182.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Chickenfoot - Get Your Buzz On Live (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47188.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:8C33A696C927643A3AD6D63590517B372A25FD78
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47195.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47279.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BBC - Top Of The Pops [1967-2004] (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47308.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Beth Hart / Live at Paradiso (2005) DVD9 <Blues rock, Jazz fusion, Soul>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47314.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:176F0724A4DD713E65AE20FC44FAB15AF12140D8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47386.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Black Sabbath - The Last Supper '99  (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47406.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47408.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47409.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47412.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47416.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47483.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ W.A.S.P. / 1993 - First Blood... Last Visions... (2007) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47485.jpg" />
 </div>
 
 

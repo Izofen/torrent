@@ -1,3 +1,82 @@
+###  Публикация: 469402   (97135) от 18.03.2012
+
+Грегори МакДональд | Жребий Флетча [1996] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C564A4A2566DC648E9A4B78435319285E15035
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469952   (97136) от 18.03.2012
+
+Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Мужчины. Масс-старт 15 км (2012) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужская гонка с масс-старта на 9 этапе кубка мира по биатлону в Ханты-Мансийске (Россиия)Жанр: СпортПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A65168FA588BFD88103AE8AE8DDF5D357033385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470061   (97137) от 18.03.2012
+
+Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989) [FLAC|Lossless]<New Age, Instrumental, Melody>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989)
+Год: 1989
+Жанр: New Age, Instrumental, Melody
+Продолжительность: 01:01:42Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: image+.cueТрек лист:
+01.  And So To Dream [09:52]
+ 02. Solace (2) [09:46](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469385   (97138) от 18.03.2012
 
 VA - TOP 30 Клубные РУССКИЕ Новинки (17.03.2012) [MP3|128-320 кб/с]<Dubstep, Drum & Bass, Trance, Electro-House, Club House, Dance, Club, Pop>
@@ -6,7 +85,7 @@ VA - TOP 30 Клубные РУССКИЕ Новинки (17.03.2012) [MP3|128-3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97138.jpg" />
 </div>
 
 
@@ -39,7 +118,7 @@ VA - Русская Супер 200-ка (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97139.jpg" />
 </div>
 
 
@@ -72,7 +151,7 @@ magnet:?xt=urn:btih:9FBC9F53D30E37D2245A7EE6734CBCD767E37164
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97140.jpg" />
 </div>
 
 
@@ -100,7 +179,7 @@ magnet:?xt=urn:btih:87EE6E05322C72E0B5CA21F313C9CACD9BF434FC
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97142.jpg" />
 </div>
 
 
@@ -124,7 +203,7 @@ magnet:?xt=urn:btih:4C2A561368674A4F05E6E9477DB1E0BEEF8722D9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97144.jpg" />
 </div>
 
 
@@ -154,7 +233,7 @@ Ruthie Foster - Let It Burn (2012) [MP3|~245 кб/с (V0)]<Blues, Gospel, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97145.jpg" />
 </div>
 
 
@@ -187,7 +266,7 @@ Mozilla SeaMonkey 2.8 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97146.jpg" />
 </div>
 
 
@@ -211,7 +290,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97147.jpg" />
 </div>
 
 
@@ -235,7 +314,7 @@ magnet:?xt=urn:btih:9701E5A8CFCE8A6BBD404FB070BC90D5ECEC0594
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97148.jpg" />
 </div>
 
 
@@ -259,7 +338,7 @@ VA - Vocal Trance Collection Vol.84 (2012) [MP3|320 кб/с]<Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97149.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ magnet:?xt=urn:btih:7A9AFFF8142DE9A7574FC3754A3694AA208CA93C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97150.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97150.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Kaido Player 7.1.36.35 [theme glass]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97151.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97151.jpg" />
 </div>
 
 
@@ -343,7 +422,7 @@ Kaido Player 7.1.36.35 [theme glass]
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97154.jpg" />
 </div>
 
 
@@ -367,7 +446,7 @@ Janiva Magness - Stronger For It (2012) [MP3|320 кб/с]<Blues, Vocal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97155.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ magnet:?xt=urn:btih:9D70C801C88FA6BC1E78AA8C4FBCC77DAB4A763E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97156.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97156.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ magnet:?xt=urn:btih:9D70C801C88FA6BC1E78AA8C4FBCC77DAB4A763E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97157.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ magnet:?xt=urn:btih:CB6D63ABF8D2C1B87FF8FB0FE8C9ADCF22DF161D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97163.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ magnet:?xt=urn:btih:2BCE16709AA9BED3702F371C34414DF5CE99FD5A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97165.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ magnet:?xt=urn:btih:1D6DCF58071CEFC88676D5EF3955DE145E4E00EA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97166.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ VA - Example @ Arena Moscow (GeneticBros Official Mix)(2012) [MP3|320 кб/с] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97168.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97168.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ VA - Example @ Arena Moscow (GeneticBros Official Mix)(2012) [MP3|320 кб/с] <
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97169.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ magnet:?xt=urn:btih:8CF971E376909B1696AEF3976166832DA64B71E5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97170.jpg" />
 </div>
 
 
@@ -612,7 +691,7 @@ magnet:?xt=urn:btih:59E92645E3A2BF5CD4B8F36344CFC2F1F7121D04
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97171.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97171.jpg" />
 </div>
 
 
@@ -623,82 +702,6 @@ magnet:?xt=urn:btih:59E92645E3A2BF5CD4B8F36344CFC2F1F7121D04
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469823   (97172) от 18.03.2012
-
-Мастерская рыбака. Модернизация зимнего балансира (2011) TVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ловля зимой на балансир очень популярный вид ловли в среде наших рыболовов. И сейчас, когда купить такую приманку не составляет большого труда, встает вопрос: а можно ли изменить или модернизировать такую приманку, чтобы она стала ещё более уловистой. Сегодня А. Гуров покажет вам, как можно сделать такой балансир в домашних условиях.Жанр: Документальный, Телепередача, СпортПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52D6B84A70CD50086050B696621D3A3AADD5946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469686   (97173) от 18.03.2012
-
-Спартакиада. Локальное потепление (2007) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселая новогодняя комедия о том, как встретились две противоположности и вопреки своей природе взяли да полюбили друг друга. А было дело так: небедный владелец фабрики по производству новогодней мишуры ехал в офис, а очутился на спартакиаде, где познакомился с блондинистой карьеристкой, на дух не переносящей бизнесменов…Жанр: Фэнтези, Комедия, СемейныйРежиссер: Виктор ЛакисовАктеры: Анна Горшкова, Анатолий Калмыков, Саша Комарова, Максим Коновалов, Александр Носик, Сергей Олексяк, Галина Петрова, Вячеслав Разбегаев, Илья Рутберг, Алексей МаклаковПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470019   (97175) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 100
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97175.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 100
-Название: Desktop Wallpapers Pack 100
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46A09050035DF889B85E37B836FCF1D6974FF4B
 ```
 
 

@@ -1,3 +1,89 @@
+###  Публикация: 1523942   (129792) от 20.01.2022
+
+Вечные / Eternals  (2021) WEB-DL [H.264/1080p] [IMAX Edition] [UKR, EN / UKR, EN Sub] [Line]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечные — представители расы генетически улучшенных суперлюдей, тайно живущих на Земле. Наделённые невероятными суперспособностями, на протяжении тысячелетий они скрывались от человеческой цивилизации, втайне защищая людей от монструозных девиантов. Однако, последние события и действия Таноса заставили их выйти на свет.Производство: Великобритания, США / Marvel Studios, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Хлоя ЧжаоАктеры: Джемма Чан, Ричард Мэдден, Анджелина Джоли, Сальма Хайек, Кит Харингтон, Кумэйл Нанджиани, Лиа МакХью, Брайан Тайри Генри, Лорен Ридлофф, Барри КеоганПеревод: Украинский  дублированный (Line)Язык озвучки: Украинский, английскийСубтитры: Украинские (Forced), английские (Full, SDH)Продолжительность: 02:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DB485B28F458D12DB5AB5163A46A22601A971B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478813   (129793) от 01.05.2012
+
+Chain Reaction - Коллекция (11 дисков, 27 винилов) (1995-2003) [MP3|192-320 кб/с]<Dub Techno, Minimal, Techno, Ambient, Abstract, IDM>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый берлинский электронный лейбл Chain Reaction, получивший широкую известность в узких кругах минимал-техно-манов, отпочковался от легендарного лейбла Basic Channel, детища Морица фон Освальда и Марка Эрнестуса.
+
+Chain Reaction как лейбл-последователь Basic Channel - это внимательный взгляд в сторону даб-техно, спокойные, повторяющиеся ритмические пассажи, абстрактные картины, рисуемые шуршащими, звенящими, слегка поскрипывающими звуками, которые при долгом прослушивании гипнотизируют, подчиняют, и заставляю слушать, слушать и слушать - в общем, все то, за что и любят даб-техно! На этом лейбле выпускали свои релизы многие известные музыканты: Vladislav Delay, Monolake, Substance, Fluxion, Hallucinator и другие. Последняя пластинка, вышедшая на лейбле (релиз Hallucinator, имеющий название Morpheus), датирована 2003 годом и имеет номер CR-35.CD1Продолжительность: 01:00:48
+
+01. Fluxion - Aviation (6:06)
+02. Fluxion - Bipolar Defect (8:58)
+03. Fluxion - Multidirectional I (9:04)
+04. Fluxion - Bilateral Motion (4:15)
+05. Fluxion - Friction Pulse (5:19)
+06. Fluxion - Omnibus (3:27)
+07. Fluxion - Stream I (5:32)
+08. Fluxion - Stream II (4:23)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683051   (129794) от 09.12.2023
+
+Джеймс Мэтью Барри | Питер Пэн (2012) [MP3, Ксения Большакова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Мэтью Барри создал шедевр мировой детской литературы о мальчике Питере Пэне. Герой этой сказки никогда не постареет, а всегда будет побеждать врагов и помогать своим друзьям выбраться из трудных ситуаций, он дружит с феями и умеет летать!
+В пересказе Ирины Петровны Токмаковой.
+Для младшего школьного возраста.
+(   Читать дальше...   )Жанр: Зарубежная литература, сказочная повестьИздательство: АСТ, Астрель, АудиокнигаПродолжительность: 04:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C6D654F71688F38B24F25A75756418B8720EAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519888   (129795) от 20.01.2022
 
 Девять королев / Nine Queens / Nueve reinas (2000) DVDRip [H.264] [DVO]
@@ -6,7 +92,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129795.jpg" />
 </div>
 
 
@@ -30,7 +116,7 @@ magnet:?xt=urn:btih:5FA8EAFDEC6DBBE5289DF22841358F5C5E6DF8CA
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129796.jpg" />
 </div>
 
 
@@ -54,7 +140,7 @@ VA - Автозвук От Русских Диджеев (2012) [MP3|224 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129797.jpg" />
 </div>
 
 
@@ -87,7 +173,7 @@ Wise Data Recovery 3.03 Beta + Portable [Мульти, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129798.jpg" />
 </div>
 
 
@@ -111,7 +197,7 @@ Dezperadoz - Dead Man's Hand (2012) [APE|Lossless]<Western Metal / Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129799.jpg" />
 </div>
 
 
@@ -144,7 +230,7 @@ Dezperadoz - Dead Man's Hand (2012) [APE|Lossless]<Western Metal / Thrash Metal>
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129800.jpg" />
 </div>
 
 
@@ -168,7 +254,7 @@ magnet:?xt=urn:btih:5942980038C82D6296D139A572F232F2739F2C17
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129801.jpg" />
 </div>
 
 
@@ -192,7 +278,7 @@ Karmamoi - Strings From The Edge of Sound (2023) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129802.jpg" />
 </div>
 
 
@@ -219,7 +305,7 @@ Talla 2XLC - All The Dreams I Share (The Vocal Album) (2023) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129804.jpg" />
 </div>
 
 
@@ -246,7 +332,7 @@ magnet:?xt=urn:btih:A90D88808167AA255D7C20A23A35089F2302E6FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129806.jpg" />
 </div>
 
 
@@ -270,7 +356,7 @@ Amy Winehouse - Stronger Than Me (2003) Remastered, 2023, UMC [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129807.jpg" />
 </div>
 
 
@@ -297,7 +383,7 @@ magnet:?xt=urn:btih:25DD276A32B0E1C71F648B5FF78CEFE1ED80F233
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129809.jpg" />
 </div>
 
 
@@ -321,7 +407,7 @@ Cybotron - Enter (1983) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129810.jpg" />
 </div>
 
 
@@ -348,7 +434,7 @@ magnet:?xt=urn:btih:8ED5E45DECD7494EE46123F724FE9948F89165FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129812.jpg" />
 </div>
 
 
@@ -373,7 +459,7 @@ magnet:?xt=urn:btih:A87D561CF528B87CA5CC0C06693DC7744CC529CC
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129813.jpg" />
 </div>
 
 
@@ -397,7 +483,7 @@ Total Commander 10.0 MAX-Pack 2021.11.30 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129815.jpg" />
 </div>
 
 
@@ -421,7 +507,7 @@ VA - Soft Rock Mix (Female Singer-Songwriters Vol. 1) (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129817.jpg" />
 </div>
 
 
@@ -448,7 +534,7 @@ magnet:?xt=urn:btih:72AAF68F4DAC7F2AC8A82E14776E874B12A2E8F1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129818.jpg" />
 </div>
 
 
@@ -473,7 +559,7 @@ magnet:?xt=urn:btih:F81C691B53C81EDFBC5A3773E14F6F84BEFEA739
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129819.jpg" />
 </div>
 
 
@@ -500,7 +586,7 @@ The Big Pink - Future This (2012) [MP3|320 кб/с]<Folk, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129820.jpg" />
 </div>
 
 
@@ -533,7 +619,7 @@ School of Motion, EJ Hassenfratz | Cinema 4D Basecamp (2018) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129821.jpg" />
 </div>
 
 
@@ -558,7 +644,7 @@ magnet:?xt=urn:btih:D927A98799F6A93DB4736EA81A12E5F2DE9EAD45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129822.jpg" />
 </div>
 
 
@@ -582,7 +668,7 @@ magnet:?xt=urn:btih:66A597A1440129AFC949764D0E0F19B1EFA9FD14
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129823.jpg" />
 </div>
 
 
@@ -593,81 +679,6 @@ magnet:?xt=urn:btih:66A597A1440129AFC949764D0E0F19B1EFA9FD14
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CC402AB6D07BC22B115271AC295D789D4904D07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525287   (129824) от 20.01.2022
-
-GRAN TURISMO 5 Prologue Spec III (2007) [PS3] [JAP] 2.42 [Cobra ODE / E3 ODE PRO ISO] [License] [Jp]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gran Turismo 5 Prologue - это предисловие к Gran Turismo 5, которая вышла 2010 году, показывает невероятную мощь Sony PlayStation 3. Но, несмотря на то, что это так сказать платная демоверсия - она может предложить покупателям даже больше, чем полные версии игр некоторых конкурентов.Тип издания: LicenseРазработчик: Polyphony DigitalЖанр: АвтосимуляторЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D54437479E6D3BFAC3B6FFCE296CD6AA2567C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682941   (129825) от 09.12.2023
-
-Газета | Загадки истории №08 (532) (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129825.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C5D63C3A558413639F73701D5B783A94673358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525317   (129827) от 20.01.2022
-
-Proko, Stan Prokopenko | Figure drawing fundamentals (2012) WEBRip [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вводный курс в фигуративный рисунок, пропорции, упрощение анатомии, рисование объёмных форм и затенение. Для новичков.
-Темы охватывали:
-Как найти движение тела по жесту
-Как упростить туловище, чтобы быстро найти его положение в пространстве с помощью «боба»(   Читать дальше...   )Производство: ProkoЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 15:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE39657C421786601EC49D0428F28C152097609
 ```
 
 

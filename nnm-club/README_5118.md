@@ -1,3 +1,175 @@
+###  Публикация: 967583   (158466) от 21.12.2015
+
+Полуденный паром / Keskpaevane praam (1967) DVDRip [EST / Rus Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за небрежности беспечной влюбленной пары на перегруженном пароме загорается машина с хлопком. Трагичность положения усугубляется тем, что рядом стоят две цистерны с бензином, которые по знакомству разрешил погрузить штурман парома. Вот-вот может произойти взрыв и тогда погибнут десятки людей. Капитан отдаёт приказ высадить детей и женщин в шлюпку, а также столкнуть (   Читать дальше...   )Производство: СССР, ТаллинфильмЖанр: драмаРежиссер: Кальо КийскАктеры: Энн Краам, Керсти Герн, Ада Лундвер, Эйно Тамберг, Уно Лойт, Леа Унт, Арне Лаос, Калью Караск, Хейно Арус, Роберт Гутман, Рудольф Аллаберт, Кальо Комиссаров, Тыну Карк, Милви Крузе-Бродская, Маре Гаршнек-Хелластэ, Лев Жуков, Хельмут Вааг, Эха Сикк-Кард, Руут Тармо, Пауль Руубель, Малле Моисеева, Рут Репнау, Айме Тюкк, Николай КрюковПеревод: ОтсутствуетЯзык озвучки: ЭстонскийЯзык субтитров: РусскийПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194E2847B7A5D24E4F0DA8A556D0A6CFB04F9894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967625   (158467) от 21.12.2015
+
+Йост Смирс, Марейке ван Схендел | Представьте, что копирайта нет. А также размышления о транснациональных корпорациях, контролирующих культурные активы (2012) [FB2, PDF, DOCX]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158467.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя
+Нидерландские исследователи Йост Смирс и Марейке ван Схендел считают, что нынешние условия защиты авторского права несовместимы с принципами демократического общества. Эта "крайняя форма цензуры" не защищает авторов произведений, а служит, в первую очередь, гигантским корпорациям, которые с легкостью решают, что мы должны увидеть, услышать или (   Читать дальше...   )Жанр: Публицистика, АнтикопирайтФормат: FB2, PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8AD8A4DF4557BDCA24E8E8970A135FBD5F71CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967797   (158468) от 21.12.2015
+
+Журнал | Вязание для вас №1 (январь 2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию спицами и крючком в разных стилях и техниках, элегантных и практичных, оригинальных и красивых женских, мужских и детских моделей одежды и аксессуаров. Каждая модель сопровождается фотографией и подробной схемой.Жанр: Вязание, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BB855747499C4A01D94B2757F2247F682725F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966831   (158469) от 21.12.2015
+
+Черный коридор (1988) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель истории в день своего юбилея получает анонимное письмо, в котором его называют "очагом общественной заразы" и угрожают убийством. Страх и вопрос "за что?" напоминают ему о том, что почти забыто.Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Вадим ДербеневАктеры: Иннокентий Смоктуновский, Владимир Ильин, Ион Унгуряну, Ольга Кабо, Константин Каретников, Сергей Гармаш, Раиса Куркина, Федор Стуков, Ирина Феофанова, Маша Морева, Женя Хайдуков, Инна Выходцева, Михаил Рогов, Алексей Веселкин, Павел СиротинПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF77139C8FBEAD9A05DEB64F1DEF8254038457CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967694   (158470) от 21.12.2015
+
+Подарок Мэгги / Дары волхвов / Gift of the Magi (2010) HDTVRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодожены Джим и Мэгги живут в тесной квартирке и едва сводят концы с концами. Окончательно их добивает поломка автомобиля. Пара соглашается отказаться от подарков на Рождество в этом году, но в тайне друг для друга они готовят что-то грандиозное.Производство: СШАЖанр: ДрамаРежиссер: Лиза МулкахиАктеры: Марла Соколофф, Марк Веббер, Мишель Бимиш, Глайннис Кассон, Томас Грубе, Гари Хецлер, Имонн Хант, Джерри МакКанн, Бэрри МакГовернПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C86D0AB9D38A2E2275A85759193C9C80A03E019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967676   (158471) от 21.12.2015
+
+VA - Rock Dawn: Selected Rockin' Hits (2015) [MP3|320 кб/с] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dwain Edward Miller - The Will to Survive
+02. Bryan Jay - Don't Give a Damn
+03. Ron Keel - I Want to Live
+04. Jeff Pilson - Imaginary Jesus 2(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53451094CED8EFE147232E7AD57360A43F61A440
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966924   (158472) от 21.12.2015
+
+Эрнст Скотт | Люди тайны (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Направляются ли биологическая эволюция и человеческая история иерархией разумов, низший уровень которых может вступать в контакт с человечеством? Каков смысл понятия «древняя мудрость», на страже которой стоят скрытые хранители, или Учителя? Возможно, невидимые Хранители нашей планеты "оплодотворяют" земные культуры, наделяя человечество потенциалом куда (   Читать дальше...   )Жанр: ЭзотерикаПеревод: А. Степанова, Ю. ПереведенцеваПродолжительность: 15:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A976F2064B19A218A3A06EE0540E7E0A4239B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967745   (158473) от 21.12.2015
 
 Влюблённые в небо (2015) HDTVRip [720p-LQ]
@@ -6,7 +178,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158473.jpg" />
 </div>
 
 
@@ -32,7 +204,7 @@ OCRKit 15.12.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158474.jpg" />
 </div>
 
 
@@ -58,7 +230,7 @@ magnet:?xt=urn:btih:D3EDA499C6FC0D5A8712747B0E0EED5704A28511
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158475.jpg" />
 </div>
 
 
@@ -83,7 +255,7 @@ Highly Suspect - Mister Asylum (2015) [MP3|320 кб/с] <Hard Rock, Stoner, Prog
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158476.jpg" />
 </div>
 
 
@@ -110,7 +282,7 @@ magnet:?xt=urn:btih:0E5AD6615CF8EC9F0DE7B1A9A503D8E343448B16
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158477.jpg" />
 </div>
 
 
@@ -137,7 +309,7 @@ Skyzoo - Music For My Friends (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158478.jpg" />
 </div>
 
 
@@ -164,7 +336,7 @@ Cyberfox 43.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158479.jpg" />
 </div>
 
 
@@ -188,7 +360,7 @@ magnet:?xt=urn:btih:224FD5786E1C8AA3AC2986EFD7520945A3F5C40B
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_158480.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_158480.jpg" />
 </div>
 
 
@@ -212,7 +384,7 @@ magnet:?xt=urn:btih:224FD5786E1C8AA3AC2986EFD7520945A3F5C40B
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158481.jpg" />
 </div>
 
 
@@ -236,7 +408,7 @@ Deadwood - In the Meantime (2015) [MP3|320 кб/с] <Country Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158482.jpg" />
 </div>
 
 
@@ -263,7 +435,7 @@ magnet:?xt=urn:btih:5CB0F5EFA37D9E66E7A49E5EC06BFB51ABFE01ED
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158483.jpg" />
 </div>
 
 
@@ -287,7 +459,7 @@ magnet:?xt=urn:btih:CC0EA7478353682A58159A0E0C91636887512801
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158484.jpg" />
 </div>
 
 
@@ -312,7 +484,7 @@ magnet:?xt=urn:btih:46437F941E99E6CE5A28D2F58FE274053E8582A4
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158485.jpg" />
 </div>
 
 
@@ -336,7 +508,7 @@ magnet:?xt=urn:btih:A9CF7DE583D70C7303D51E75CFECD649ED99D99C
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158486.jpg" />
 </div>
 
 
@@ -360,7 +532,7 @@ Bernward Koch - Silent Star (2011) [APE|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158487.jpg" />
 </div>
 
 
@@ -387,7 +559,7 @@ Typeeto 1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158488.jpg" />
 </div>
 
 
@@ -411,7 +583,7 @@ magnet:?xt=urn:btih:9B6CC3BF7EDAF5DF50FD1FA6343503F0E7E38FE8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158489.jpg" />
 </div>
 
 
@@ -435,7 +607,7 @@ VA - Уголовочка от радио Шансон. Часть 4 (2015) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158490.jpg" />
 </div>
 
 
@@ -462,7 +634,7 @@ VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158491.jpg" />
 </div>
 
 
@@ -476,186 +648,6 @@ VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF42A8CBC3FCEB2E16C887A03A08E213FC70935C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967539   (158492) от 21.12.2015
-
-Andrea Motis, Joan Chamorro, Orquestra Simfonica del Valles - Live at Palau De La Musica (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitude (Live) (5:24)
-02. Sophisticated Lady (Live) (4:51)
-03. My Favorite Things (Live) (4:05)
-04. Sophisticated Lady (Live) - Solitude (Live) (5:53)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED70B93341370B1C383849788EBBA97E1255BADC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967598   (158493) от 21.12.2015
-
-Her Blood In My Veins - Veliota (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Memorial (02:34)
-02. We're Loosing Time, No One Can Help, But... (03:52)
-03. As She Drowns - Into - Her Final Sleep (03:49)
-04. Haltlos (04:23)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE37D916D0C56F529BD3C514E3F21B366C1CA5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967688   (158494) от 21.12.2015
-
-VA - The Many Faces Of Elvis (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, Rock-n-roll, Soul, Gospel>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work With Me, Anne (Bill Black's Combo) [02:02]
-02. Maybellene (The Blue Moon Boys (Elvis, Scotty & Bill)) [01:57]
-03. Have Guitar, Will Travel (Scotty Moore) [02:01]
-04. Dig A Little Deeper (The Jordanaires) [01:46](   Читать дальше...   )Жанр: Pop Rock, Rock-n-roll, Soul, GospelПродолжительность: 01:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D0C52D37414D1C38D625B764A2F74258909656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967681   (158495) от 21.12.2015
-
-VA - Majesty Trance: Psy Goa Party (2015) [MP3|320 кб/с] <Psychedelic, Psy Trance, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coming Soon - Bring The Action (Perplex & EffectivE remix) 06:14
-002. Eranga, Cari - Moon Rays (Original Mix) 04:53
-003. Dust - Fou 06:12
-004. Side Effects - Brain Signal (Original Mix) 07:02(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, Goa TranceПродолжительность: 11:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC7F79EED5F0DE955A3941D0AD2C0FDE9F10C7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967712   (158496) от 21.12.2015
-
-Что, если Санта… снова? / Il mio amico Babbo Natale 2 (2006) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158496.jpg" />
-</div>
-
-
-###  Подробнее
-
-На севере Милана в супермаркете под Рождество были украдены все игрушки. Надо срочно найти воришку и вернуть десять тысяч игрушек, так как дети остаются без подарков на Рождество. На помощь полиции, Корпорация Санта Клаусов посылает Санту Эдзекьеле, который оказался самым незанятым.Производство: Италия / Taodue FilmЖанр: СемейныйРежиссер: Лучо ГаудиноАктеры: Джерри Скотти, Микаела Рамаццотти, Памела Виллорези, Карлотта Маззолени, Серджо Грациани, Фабио Сартор, Джанни Фантони, Карлотта МонтанариПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F25981D0A7FA801832C850B6FC11117FAC6506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967789   (158497) от 21.12.2015
-
-Право голоса. "Санкции без изоляции?" (21.12.2015) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158497.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Евросоюз продлил санкции в отношении России ещё на полгода. И это несмотря на то, что очень многие представители европейского бизнеса и европейских государств неоднократно говорили, что эти ограничения вредят, в том числе и самой Европе. Как данное решение скажется на нашей экономике?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0DC27C964566E39569F8FAF5D1B490A03A3B18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967639   (158498) от 21.12.2015
-
-Эллен Руппел Шелл | Голодный ген (2004) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество стремительно толстеет. Что тому причиной? Слабоволие, мешающее обуздать аппетит? Генетическая предрасположенность к полноте? Особенности внутриутробного развития? Или агрессивный натиск фастфуда и отказ от традиционной культуры питания? Ответ на вопрос ищите в книге американской журналистки.Жанр: Публицистика, ЗдоровьеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8BAA55E8914B0429D308064E065A8834EAD84D
 ```
 
 

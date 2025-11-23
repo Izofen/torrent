@@ -1,3 +1,79 @@
+###  Публикация: 485569   (89720) от 20.04.2012
+
+Тормоз / Brake (2012) DVDRip
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секретного Агента Джереми Рейнса похищают загадочные незнакомцы. Одного из лучших мастеров своего дела обвели вокруг пальца и используют в качестве приманки в террористической операции. Жизнь Джереми и всей его семьи — на волоске. Счет идет на минуты, и у него остается все меньше и меньше времени, чтобы сдать похитителям секретную информацию, которую он поклялся хранить ценой собственной жизни.Жанр: Боевик, ТриллерРежиссер: Гейб ТорресАктеры: Стивен Дорфф, Кайлер Ли, ДжейАр Борн, Том Беренджер, Кали Роча, Марк Уоллес, Прюитт Тэйлор Винс, Сэмми Шейк, Кент ШокнекПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D826741BF115DC6E50614F37949AD98C39D1E1A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485220   (89721) от 20.04.2012
+
+FLYTEC TRADING LTD | Английский язык. Intellect. 25 кадр. 5DVD5 [2008] DVD5
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89721.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Intellect 25 кадр" - это новейшая компьютерная программа для изучения иностранных языков, разработанная с учётом современных образовательных технологий. Этот CD-курс поможет Вам за короткое время выучить иностранный язык для общения на хорошем разговорном уровне.В основе обучения лежит уникальная методика, основанная на использовании эффекта 25-го кадра. Это позволяет добиться удивительной скорости в освоении лексики иностранного языка. За каждые 60 часов занятии ученик усваивает до 3000 слов и выражений! Материал разбит на части, темы и уроки. Каждый урок, в свою очередь, состоит из нескольких этапов: суггестологический режим, аудиорежим, режим самоконтроля и тесты.
+
+Начальный уровень знаний: с нуля или начальные знания языка.
+Результат обучения: знание языка на ХОРОШЕМ РАЗГОВОРНОМ уровне.Жанр: Обучающие программы для учебыПродолжительность: 1:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB59D036D1F43A97B224AAC0DB76723C3C5AEB19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483558   (89722) от 20.04.2012
+
+Евгений Карташов | «Новинки Adobe Photoshop CS6 beta» [2012] PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем недавно компания Adobe анонсировала новую версию программы Adobe Photoshop! Это версия CS6 beta. Она распространяется бесплатно и предназначена для свободного тестирования пользователями. По информации из проверенных источников, могу сказать, что это уже практически финальная версия. Программа прекратит свою работу через месяц после выхода официального релиза, а до этого времени Вы, сможете наслаждаться новыми вкусностями и удобствами совершенно бесплатно!
+   Я подготовил несколько видеоуроков, чтобы Вы, Андрей, могли познакомиться с некоторыми нововведениями более подробно.Жанр: ВидеоурокиПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8741B673EF768F45BBBE6D2C7F571AC16C9D39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485320   (89723) от 20.04.2012
 
 Игра престолов / Гра Престолів / Games of Thrones (2011) HDTVRip [сезон 1, полный] [UKR]
@@ -6,7 +82,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89723.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89725.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:4999EB716C8474FB761ECC3336CA6B13DD110D68
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89726.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ magnet:?xt=urn:btih:4999EB716C8474FB761ECC3336CA6B13DD110D68
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89727.jpg" />
 </div>
 
 
@@ -102,7 +178,7 @@ magnet:?xt=urn:btih:700DAF3B9FDB50ABCF465B5DBC10C849499788C1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89728.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ magnet:?xt=urn:btih:700DAF3B9FDB50ABCF465B5DBC10C849499788C1
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89729.jpg" />
 </div>
 
 
@@ -152,7 +228,7 @@ magnet:?xt=urn:btih:700DAF3B9FDB50ABCF465B5DBC10C849499788C1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89730.jpg" />
 </div>
 
 
@@ -178,7 +254,7 @@ magnet:?xt=urn:btih:4A8773D367E55A9DC217188D326B3E67E56BE17C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89732.jpg" />
 </div>
 
 
@@ -202,7 +278,7 @@ magnet:?xt=urn:btih:FF73F57239D2B7665468F2B641D2CD0BA545DC80
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89733.jpg" />
 </div>
 
 
@@ -226,7 +302,7 @@ magnet:?xt=urn:btih:FF73F57239D2B7665468F2B641D2CD0BA545DC80
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89735.jpg" />
 </div>
 
 
@@ -250,7 +326,7 @@ magnet:?xt=urn:btih:FF73F57239D2B7665468F2B641D2CD0BA545DC80
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89736.jpg" />
 </div>
 
 
@@ -277,7 +353,7 @@ magnet:?xt=urn:btih:FF73F57239D2B7665468F2B641D2CD0BA545DC80
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89737.jpg" />
 </div>
 
 
@@ -302,7 +378,7 @@ magnet:?xt=urn:btih:FF73F57239D2B7665468F2B641D2CD0BA545DC80
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89738.jpg" />
 </div>
 
 
@@ -326,7 +402,7 @@ The Witcher 2: Assassins of Kings [XBOX360] [RUSSOUND] [XGD3] [LT+3.0] [PAL] (20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89742.jpg" />
 </div>
 
 
@@ -354,7 +430,7 @@ SamDrivers 12.4 Final - Сборник драйверов для Windows x86/x64
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89743.jpg" />
 </div>
 
 
@@ -378,7 +454,7 @@ SamDrivers 12.4 Final - Сборник драйверов для Windows x86/x64
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89745.jpg" />
 </div>
 
 
@@ -402,7 +478,7 @@ Pole Position 2012 [Multi5-] (L) 2012 | FairLight
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89747.jpg" />
 </div>
 
 
@@ -429,7 +505,7 @@ magnet:?xt=urn:btih:63EF4C67BB5E404A27485992A1BFAD8332E3BFD7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89748.jpg" />
 </div>
 
 
@@ -453,7 +529,7 @@ magnet:?xt=urn:btih:63EF4C67BB5E404A27485992A1BFAD8332E3BFD7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89750.jpg" />
 </div>
 
 
@@ -481,7 +557,7 @@ Mathworks Matlab R2012a 7.14 [x86 + x86_x64] (iso)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89752.jpg" />
 </div>
 
 
@@ -507,7 +583,7 @@ MATLAB – это высокоуровневый язык технических
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89755.jpg" />
 </div>
 
 
@@ -534,7 +610,7 @@ magnet:?xt=urn:btih:9E433FA34D4F6CEE0E01A2A184F5BC61CA550A3C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89756.jpg" />
 </div>
 
 
@@ -558,7 +634,7 @@ Windows 7x86 Ultimate UralSOFT & miniWPI v.4.8.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89758.jpg" />
 </div>
 
 
@@ -569,91 +645,6 @@ Windows 7x86 Ultimate UralSOFT & miniWPI v.4.8.12 (2012) (Rus)
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485355   (89759) от 20.04.2012
-
-Botanicula [Ru] (RePack) 2012 l Naitro
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о последнем семени умирающего дерева, изнуренного нашествием злобных паразитов. Пять удивительных созданий отправляются в путешествие от его верхушки к самым корням, чтобы спасти от гибели свой любимый дом... В двух словах, Botanicula - это интереснейшие исследования, множество занимательных забавных головоломок, незабываемые знакомства со странными (симпатичными и не очень) существами, чарующая музыка... И все это - на одном необыкновенном огромном растении!Тип издания: RePackЖанр: AdventureЯзык озвучки: Музыкальное сопровождениеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A51DF5BFAFF671C05D72F1FFBDAE171258DD3D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486097   (89761) от 21.04.2012
-
-Dark Tranquillity - Zero Distance [EP] (2012) [MP3|320 кб/с]<Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Zero Distance [00:04:30]
- 02 - Out Of Gravity [00:04:32]
- 03 - Star Of Nothingness [00:02:07]
- 04 - To Where Fires Cannot Feed [00:03:51]
- 05 - The Bow And The Arrow [00:03:53]2012Жанр: Melodic DeathПродолжительность: 00:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA42DA3422A47B4E9CCC2D194C9B29B871F5C9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486202   (89762) от 21.04.2012
-
-Various Artists - Temple Of Kilowatts (2000) [mp3|320 kbps] <Industrial, Experimental, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ildfrost - Song For Patricia (01:42)
-02. Tripwire - Mr. Abomb (04:38)
-03. Simply Dead's - Wormwood (07:12)
-04. Rapeeltronic - Dreaming Digital (03:09)
-05. Ildfrost - While We Made (04:08)
-06. Tripwire - You Make Me Sick (04:09)
-07. Ab Ovo - Icefield (04:42)
-08. Nymph Faithest - Impious Sins (05:35)
-09. Ontario Blue - The Looking Glass (04:13)
-10. Northaunt - Øde (Nightmix) (04:29)(   Читать дальше...   )2000Жанр: Industrial, Experimental, AmbientФормат: CD, CompilationПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE57231DA1B5C757D27BA79E8F5B7D0900D50AF6
 ```
 
 

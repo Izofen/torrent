@@ -1,3 +1,175 @@
+###  Публикация: 1432225   (165166) от 16.12.2020
+
+MuseScore 3.5.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165166.jpg" />
+</div>
+
+
+###  Подробнее
+
+MuseScore — великолепное приложение для создания партитур.  Программа распространяется бесплатно, имеет открытый исходный код.  Данное средство предназначено, скорее, для начинающих музыкантов, потому что хотя и имеет огромное количество инструментов и возможностей при этом остаётся невероятно простым для понимания программным обеспечением. Удобство и полезность программы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC07ABF297FE249D3EE01A23CAD503A56E13444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426688   (165167) от 16.12.2020
+
+Королева Келли / Queen Kelly (1929) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165167.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некоем вымышленном европейском государстве... Королева Регина V страстно желает выйти замуж за Принца Вольфрама и решает ускорить свадьбу. Разгульной жизни этого красавца и повесы вскоре будет положен конец. Но как раз накануне, при обстоятельствах довольно комичных, принц Вольфрам встречается с хорошенькой девушкой из монастыря - Патрицией Келли. Решившись на (   Читать дальше...   )Производство: США, Gloria ProductionsЖанр: ДрамаРежиссер: Эрих фон Штрогейм, Ричард БолеславскийАктеры: Глория Суонсон, Уолтер Байрон, Сина Оуэн, Сильвия Эштон, Уилсон Бендж, Сидни Брейси, Рэй Даггетт, Флоренс Гибсон, Мэдж Хант, Талли МаршаллЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE36A1611E40B629CC39426FF576E54FDDB2441E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597902   (165168) от 16.12.2022
+
+VA - FSOE 750 - Kings & Queens (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Gillies - Nostalgia (Extended Mix)
+02. Billy Gillies - Density (Extended Mix)
+03. George Acosta & Fisher - True Love (Billy Gillies Remix)
+04. Billy Gillies - Lovesick (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 06:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A7BC560EBC2AA5E97CE798A088E8AE3663C475
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516720   (165169) от 12.12.2021
+
+Формула-2. Сезон 2021. 8-й Этап. Гран-при Абу-Даби. Гонка 3 (12.12.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165169.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 декабря 2021, воскресенье. 12:00 МСК. Этап 8, ОАЭ, Абу-Даби. Третья гонка (33 круга)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0B6894DDAA3D2D6753BA28AA2C6FA1C9FFFB79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597749   (165170) от 16.12.2022
+
+Эдуард Шим | Лето на Корбе (1951) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия коротких рассказов, про то как автор проводил лето с дедом Мокеичем, познавая природу.
+Для детей младшего школьного возраста. Иллюстрации Т.Шишмаревой и В.Власова.Жанр: РассказФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB687C2C16BE5E7186FB14DDD28C01A1EE6783C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431255   (165171) от 16.12.2020
+
+Право силы или сила права (2016) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нюрнбергский процесс над руководителями гитлеровской Германии был не только актом справедливого возмездия. Здесь рождались нормы международного права, направленные на сохранение мира и безопасности. Но полвека спустя расклад сил изменился. Теперь уже победители «холодной войны» диктовали миру свои законы. Бомбардировка Югославии, смена режимов в Ливии и Ираке – так (   Читать дальше...   )Производство: Россия, ВГТРК, ООО "Вианж Продакшн"Жанр: Документальный, историяРежиссер: Овез НарлиевЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D6EAF76EE2DC8EAE3B9F001D26F71C71F25816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432092   (165172) от 16.12.2020
+
+Сборник | Ужасы и герои (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник мистических рассказов иностранных авторов в жанре хоррор. Истории легко читаются, держат в напряжении от начала и до конца, и что самое главное, все они содержат в себе элемент интриги и неожиданные сюжетные повороты. Любителей качественных страшных историй эта книга точно не оставит равнодушным.Жанр: МистикаПродолжительность: 16:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51882002DF2ECFFA12EC257A80814AB04726A21A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516686   (165173) от 12.12.2021
 
 Джейн Мэнсфилд: звезда Фабрики грез / Jayne Mansfield: The Hollywood Dream Factory (Jayne Mansfield: La tragedie d'une blonde) (2013) SATRip [H.264]
@@ -6,7 +178,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165173.jpg" />
 </div>
 
 
@@ -30,7 +202,7 @@ Sideburn - Fired Up (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165174.jpg" />
 </div>
 
 
@@ -57,7 +229,7 @@ magnet:?xt=urn:btih:B7DB06E6BDCF8F2BF0C72E30E2CF90A72EEF2BF2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165175.jpg" />
 </div>
 
 
@@ -82,7 +254,7 @@ magnet:?xt=urn:btih:608D970136689FA4EE40857A804E61B18F3951E0
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165176.jpg" />
 </div>
 
 
@@ -106,7 +278,7 @@ JixiPix Premium Pack 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165177.jpg" />
 </div>
 
 
@@ -130,7 +302,7 @@ Sticker Maker v0.0.3-20 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165178.jpg" />
 </div>
 
 
@@ -157,7 +329,7 @@ IceCream Ebook Reader Pro 6.40 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165179.jpg" />
 </div>
 
 
@@ -181,7 +353,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.16.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165180.jpg" />
 </div>
 
 
@@ -207,7 +379,7 @@ Apeaksoft iPhone Transfer 2.0.58 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165181.jpg" />
 </div>
 
 
@@ -231,7 +403,7 @@ Lacuna Coil - Live From The Apocalypse (2021) [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165182.jpg" />
 </div>
 
 
@@ -258,7 +430,7 @@ Acoustica Premium Edition 7.5.1 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165183.jpg" />
 </div>
 
 
@@ -282,7 +454,7 @@ App Tamer 2.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165184.jpg" />
 </div>
 
 
@@ -306,7 +478,7 @@ Resource Hacker 5.2.4.386 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165185.jpg" />
 </div>
 
 
@@ -330,7 +502,7 @@ magnet:?xt=urn:btih:022AAE94F12243DD30F1E0924EAD0F0BED85339A
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165186.jpg" />
 </div>
 
 
@@ -354,7 +526,7 @@ PullTube 1.8.4.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165187.jpg" />
 </div>
 
 
@@ -378,7 +550,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.0.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165188.jpg" />
 </div>
 
 
@@ -402,7 +574,7 @@ VA - Калина красная 20•Песни, спетые сердцем (2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165189.jpg" />
 </div>
 
 
@@ -429,7 +601,7 @@ magnet:?xt=urn:btih:2E438EB570E75DFE5503FA6652B8565CDAD60705
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165190.jpg" />
 </div>
 
 
@@ -453,7 +625,7 @@ magnet:?xt=urn:btih:6B5E50955DCF7DFFD90844D8F4610EF2E58EEC5E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165191.jpg" />
 </div>
 
 
@@ -464,182 +636,6 @@ magnet:?xt=urn:btih:6B5E50955DCF7DFFD90844D8F4610EF2E58EEC5E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C333D30638A58395797523EE0D1B03C0A11F3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345960   (165192) от 17.12.2019
-
-LunaRave - Transmigration (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transmigration - Album Trailer 30:30
-02. In Control 07:18
-03. Space Time 08:09
-04. Virtual Circus 06:32(   Читать дальше...   )Жанр: Goa Trance, Full OnПродолжительность: 01:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD883F099BAB9AA5320D3CC4A89D935932B7AC98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597809   (165193) от 16.12.2022
-
-Юлиан Тувим | Детям (1949) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стихов польского поэта - Юлиана Тувима.
-Для детей младшего школьного возраста. Иллюстрации В. Конашевича.Жанр: СтихиПеревод: Е.Благинина, С.Маршак, М.Живов и др.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A342E9E5BA67F4DBA244BEAC897A052A2CBD387A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516789   (165194) от 12.12.2021
-
-Джефф Нун | Вирт (Книга 01). Вирт (2021) [MP3, Сергей Оробчук]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165194.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вирт» - фантастический роман британского писателя Джеффа Нуна, получивший в 1994 году премию Артура Кларка.
-Роман рассказывает историю Скриббла и его команды «Тайные Райдеры».
-Действие романа происходит в альтернативной версии Манчестера, где общество сформировано «виртом» - общей альтернативной реальностью, доступ в которую можно получить, употребив галлюциногенный (   Читать дальше...   )Жанр: КиберпанкПродолжительность: 08:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169E15ACD9C8FEE55BA3FF243BFE31D707FB0AEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673378   (165195) от 01.11.2023
-
-Зелимо / Zelimo (2001) DVD5 [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165195.jpg" />
-</div>
-
-
-###  Подробнее
-
-О трудной жизни еврейского мальчика из России, оказавшегося в лагере для еврейских детей в США и терпящего всяческие унижения от своих приятелей.Производство: США / IVM Productions Inc.Жанр: драмаРежиссер: Алекс РозенбергАктеры: Сай Бонди, Marek Skupienski, Jake Gomolinski-Ekel, Марио Прадо мл., Кристофер М. Паган, Louis Candelaria, Макс Файнстоун, Татьяна Збировская, Генри Лопез, Адам СигелПеревод: авторский (Антон Алексеев)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EC8D5E4EFFB744B5538A043236E48AC14A7487
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432129   (165196) от 16.12.2020
-
-Emurasoft EmEditor Professional 20.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165196.jpg" />
-</div>
-
-
-###  Подробнее
-
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5257938600B685223F8D8CE7434B1F48047F2F6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345688   (165197) от 17.12.2019
-
-Алла Шлыкова, Елена Шубина (сост.) | Птичий рынок [сборник] (2019) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165197.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли несколько десятков рассказов и повестей современных писателей: Людмилы Улицкой, Татьяны Толстой, Анны Матвеевой, Евгения Бабушкина, Дмитрия Воденникова.
-Все произведения повествуют о братьях наших меньших, но не только о кошках и собаках разных пород. В сборнике есть рассказ о героическом осле, который спас хозяина. А еще грустная история о четырехлетнем (   Читать дальше...   )Жанр: Современная русская литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8EB26790365E5B830D87039C14F6579B302B806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673428   (165198) от 01.11.2023
-
-Extreme Picture Finder 3.65.11.0 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для автоматического поиска, скачивания и сохранения любых файлов (картинки, видео, музыка, архивы, флэш и т.д.) с Интернет сайтов, а также для поиска картинок в Интернет по ключевым словам. Extreme Picture Finder позволит Вам автоматически скачать только нужные Вам файлы, избавив от просмотра назойливой рекламы, всплывающих окон и т.д. Просто укажите начальный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9062AB2C937FF11FC2F318DAA4FF6686A2102860
 ```
 
 

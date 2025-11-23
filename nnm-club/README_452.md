@@ -6,7 +6,7 @@ The Last of Us: Part I (2023) [Ru/En] (1.1.5.0/dlc) Repack Other s [Digital Delu
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11992.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Last of Us Part I – игра для ПК от 3-го лица, предс�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11993.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BA60558C9A5797393967DBC1F57FE2FA8873A870
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11995.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.4652 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11996.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6093 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11997.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:1D3A3AEE920FBED15B471D81ADBEF92DBD046E13
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11998.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:AEE6736D90EC4F228A57E4DC66FF341A1E42884E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11999.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:FA95BB9972BA75F4E75F550A56EA559C62744A42
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12000.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:084D86D9D5154A1C12665F38002B6C806C669011
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12001.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:084D86D9D5154A1C12665F38002B6C806C669011
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12002.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:7089A0B8B9BC7A2061471846E94A7DD99710D47E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12003.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:09D771DD9116E38B2AD63282D7A77CFBDFC03B6D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12004.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:CA0A14921E992131568EFB3DB4AFC722DB275A00
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12005.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:452B40273C24D1F22DBC387A02302870775D8F64
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12006.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12007.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:0ED4C548F147CDEC673F8C9760D460911F46C188
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12008.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PhotoDirector v20.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12009.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:67136A7C989C8546AD37F492F31F233E319979B1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12010.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:F929CDDA9A037E456A22146B7CBE85F6C6118E2F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12011.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:74847475623FE3EF190EA8DFA2E2710F076B41F4
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12012.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:B68098696BA5824347F3D625ACFB5F1D29049ED8
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12013.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:1783C79222FDB1F3B3606CE55BABBB36F9874483
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12014.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:6B95F5FCAAACF14A662245B7D8F62C66915C0326
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12015.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:F1A5F494ED15E0030E5D9AF29337B8A8F244F17A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12016.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|t
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12017.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:C6F0EC498934F8E2C5C401E347DF34EC24C77CDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12018.jpg" />
 </div>
 
 

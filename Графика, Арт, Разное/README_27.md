@@ -1,3 +1,102 @@
+###  Публикация: 1831801   (212203) от 29.10.2025
+
+Фотография - Laura Byrnes & Madelyn Kime - Retro Fashion [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция из 223 фотографий в стиле пин-ап с фотографиями стажёра Мэделин Ким.Формат: JPGРазрешение файлов: 370x600 - 1000x2083
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5127CFDD2F73E7CEA3381CADC8A25C736E752D36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831790   (212205) от 29.10.2025
+
+Промты - Creative Market - 539 Midjourney Street Prompts - 42166555 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 539 настраиваемых промтов Midjourney для создания стрит-фотографий. Каждый промт содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE323B87A8701446221844198D9669059DE140A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831729   (212250) от 29.10.2025
+
+Книжная иллюстрация - Pepin Press - 5000 Animals [TIF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212250.jpg" />
+</div>
+
+
+###  Подробнее
+
+«5000 Animals» — это незаменимый визуальный архив и рабочий инструмент для дизайнеров, художников, иллюстраторов и всех, кто работает с графикой.
+
+Эта книга представляет собой обширную коллекцию из 5000 высококачественных изображений животных. Она наполнена тщательно отобранными винтажными иллюстрациями, гравюрами, ксилографиями и детализированными контурными рисунками. (   Читать дальше...   )Формат: TIFРазрешение файлов: 259х252 - 11335х12655
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC3E5DD9466E32B57CFB7BB2E63490ECFB6145B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831049   (212547) от 28.10.2025
+
+Иконки - UI8 - Shinobi 3D Pack: Classic Ninja Gear [FIG, PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3D-инструментов ниндзя в стиле фетра, разработанный для современных интерфейсов и визуальных проектов. Каждый элемент в наборе Shinobi 3D Pack отражает аутентичную эстетику ниндзя с мягкими фетровыми текстурами, сбалансированным освещением и чёткой детализацией, создавая первоклассный вид.
+Все ресурсы представлены в форматах PNG и Figma высокого разрешения (   Читать дальше...   )Формат: FIG, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A03CA1DA0D47C40042AB5603DCE08C44931C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1831026   (212561) от 28.10.2025
 
 Промты - Creative Market - 321 Midjourney Prompts for Patterns - 25408213 [TXT, JPG]
@@ -6,7 +105,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212561.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212561.jpg" />
 </div>
 
 
@@ -30,7 +129,7 @@ magnet:?xt=urn:btih:4C9D4DA90B69FB908B1CABC1FD20596ABC98C5FF
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213545.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213545.jpg" />
 </div>
 
 
@@ -54,7 +153,7 @@ magnet:?xt=urn:btih:451D781D453D66AA831009BE4B53E1A33D575EF9
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213649.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213649.jpg" />
 </div>
 
 
@@ -78,7 +177,7 @@ magnet:?xt=urn:btih:FDE997565A781D0178881CF018FBE648C83BFB21
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213665.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213665.jpg" />
 </div>
 
 
@@ -102,7 +201,7 @@ magnet:?xt=urn:btih:C0F730574F0B52E4019CA9171C089EDA40658C31
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213675.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213675.jpg" />
 </div>
 
 
@@ -126,7 +225,7 @@ magnet:?xt=urn:btih:2441374ACD0CFD2CD972818E1B7B157D166DF980
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214440.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214440.jpg" />
 </div>
 
 
@@ -150,7 +249,7 @@ magnet:?xt=urn:btih:AF936CAF484585A8D857AF7F011CE7317CAB66EA
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214521.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214521.jpg" />
 </div>
 
 
@@ -174,7 +273,7 @@ magnet:?xt=urn:btih:DA5BC0403E0FF56C3857C058901F0DFC7046DBB2
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214618.jpg" />
 </div>
 
 
@@ -198,7 +297,7 @@ magnet:?xt=urn:btih:64D0281132E1BB62C25B83D23A1ABFCAFA022112
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214699.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214699.jpg" />
 </div>
 
 
@@ -223,7 +322,7 @@ magnet:?xt=urn:btih:D4F9AB5AA84F73521298419BAB518409DF833041
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217175.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217175.jpg" />
 </div>
 
 
@@ -247,7 +346,7 @@ magnet:?xt=urn:btih:6BD1C999274FEC04D5FB6F59CBE885B7AA0AF431
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217223.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217223.jpg" />
 </div>
 
 
@@ -271,7 +370,7 @@ magnet:?xt=urn:btih:C9821C54BFBCFEDE332D0E2CF21374CA152FC1CE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217549.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217549.jpg" />
 </div>
 
 
@@ -295,7 +394,7 @@ magnet:?xt=urn:btih:8D95FBB48D357B3921620FCBFDB0076D11FCED48
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217785.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217785.jpg" />
 </div>
 
 
@@ -319,7 +418,7 @@ Creative Wallpapers (10.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218016.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218016.jpg" />
 </div>
 
 
@@ -343,7 +442,7 @@ magnet:?xt=urn:btih:AB37637BEC3BF21A4900D7686604D815F3EC3E76
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218436.jpg" />
 </div>
 
 
@@ -367,7 +466,7 @@ Abstract HD Wallpapers (10.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218437.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218437.jpg" />
 </div>
 
 
@@ -391,7 +490,7 @@ New year wallpapers 2013 (10.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218459.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218459.jpg" />
 </div>
 
 
@@ -415,7 +514,7 @@ magnet:?xt=urn:btih:46107BBE70866EE7E9272E16937CC5898DB083FF
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219622.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219622.jpg" />
 </div>
 
 
@@ -439,7 +538,7 @@ magnet:?xt=urn:btih:AF53B19ACD030C6882A188848FA114E6160D0CCB
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220211.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220211.jpg" />
 </div>
 
 
@@ -463,7 +562,7 @@ magnet:?xt=urn:btih:875E34D67292780BE859D9FEC71478C67E7006A4
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220309.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220309.jpg" />
 </div>
 
 
@@ -490,7 +589,7 @@ magnet:?xt=urn:btih:9ABBCE5358CE01D8BC7DF3BFAED62C82C35DC87D
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220356.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220356.jpg" />
 </div>
 
 
@@ -514,7 +613,7 @@ magnet:?xt=urn:btih:61C1884ED37A3AD85FB021FD11313E7D9F8B73C7
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220366.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220366.jpg" />
 </div>
 
 
@@ -525,103 +624,6 @@ magnet:?xt=urn:btih:61C1884ED37A3AD85FB021FD11313E7D9F8B73C7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76173398CEE3E0631E66659CCE65B992A55F0974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513975   (220428) от 01.12.2021
-
-Фотография - ArtStation - Grafit Studio - 750+ Gunman Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет референсов содержит более 750 фотографий стрелка в высоком разрешении. Это будет отличный набор для любого художника, работающего над персонажами, концепт-артом, фотосъемкой, моделированием и многим другим.
-Позы были сняты с использованием вращающейся платформы, которая позволяет вам иметь любой угол одной и той же позы.Формат: JPGРазрешение файлов: 3840x5760, 5760x3840
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A64A3D9F24F3C62FFD069672AE3FA411FDFB12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513954   (220456) от 01.12.2021
-
-Фотография - ArtStation - Grafit Studio - 850+ Castles and Fortresses Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет референсов включает в себя более 850 фотографий с замками и крепостями, показывающих различные сезоны и время дня, внешний и внутренний вид, а также различные детали и крупные планы. Это будет отличным инструментом для создания иллюстраций окружающей среды, концепт-арта, мэтт-пейнтинга и многого другого!Формат: JPGРазрешение файлов: 5352x3568 - 5616x3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F91E971192A1CC05AA582B6BB62F838E859426
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965975   (222209) от 16.12.2015
-
-Картинки - Анимашки [GIF]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разные анимационные картинки на любой вкус, для удобства разложены по папочкам для ваших работ....(мне например пригодилось при создании клипов в программе ProShow Producer)Формат: GIFРазрешение файлов: от 46х53 до 1000х1786
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFCD2E5068F355D74E021A3ED4B1A6D24334B63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966013   (222243) от 16.12.2015
-
-Обои - Winter Landscapes Wallpapers 4 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему зимних пейзажейФормат: JPGРазрешение файлов: 1920x1200 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9990AFB6BF095D2C73230BFF8301D1C901DCB84
 ```
 
 

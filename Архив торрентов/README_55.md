@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18164.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2022 Professional 17.14.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18210.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VCap Downloader 0.1.31.6535 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18253.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Atlantis Word Processor 4.4.5.5 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18260.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5854 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18274.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Snappy Driver Installer Origin R815 | Драйверпаки 25.04.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18278.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ OCCT 14.0.11 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18284.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18286.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Magic Eraser / Магический ластик v2.21.19 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18289.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Daily Yoga (Ежедневная йога) v8.68.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18291.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Smart AudioBook Player Pro v11.3.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18295.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.47 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18299.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Smart AudioBook Player Pro v11.3.5 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18307.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4F6E1A878C584E0D449D56B98393C6634B1A31DC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18309.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D691100D37A78AC6EBD4F47430E194CCB9C3865A
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18323.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:BD06E315DD2BBDF315B326B0E141151D079BF044
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18330.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Capture One 23 Enterprise 16.5.11.2898 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18334.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SIV (System Information Viewer) 5.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18336.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Wondershare PDFelement 11.4.17.3480 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18341.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Adguard 7.20.3 (7.20.4994.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18353.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:FA54D5064DAD3C72C965A18C937C95A9B55FBBF5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18365.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18387.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Notification Widget v1.5.174 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18397.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Bria Mobile: VoIP Softphone v6.19.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18404.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Notification Dots v1.2.63 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18411.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:AFB6BD612BCB3DF7D1BA9518F236985A2AB60684
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18418.jpg" />
 </div>
 
 

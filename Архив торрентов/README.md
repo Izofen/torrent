@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BBB42EB59261913A1454807E52B5E21BC68809DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_435.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Display Driver Uninstaller 18.1.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_534.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Internet Download Manager 6.42 Build 47 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_571.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C0BAB6FD7E7C4369EDCD65E7296790B67C44A21A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_642.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C0BAB6FD7E7C4369EDCD65E7296790B67C44A21A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_679.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:055E5345E8F36F37B7F66CD96571BF304735E5FA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_685.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0ABE56FAE4413FF263B6AB515AAF16D273195C99
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_711.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Internet Download Manager 6.42 Build 46 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_856.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:F6363127772D8F44EA3E1E5EEF0A97517943372F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_891.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:F6363127772D8F44EA3E1E5EEF0A97517943372F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_913.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ MassTube Ultra 21.0.2.166 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1006.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Internet Download Manager 6.42 Build 46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1039.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Native Instruments - Kontakt 8.7.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1161.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ MassTube Ultra 21.0.2.166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1197.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.0 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1291.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Purvpn 9.4 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1295.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Vanced Tube v5.4.80.365 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1343.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Vivaldi 7.6.3797.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1435.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Imagine 2.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1489.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Serif Affinity Designer 2.6.3.3322 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1631.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ ExamDiff Pro 16.0.1.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1639.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Serif Affinity Publisher 2.6.3.3322 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1641.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Purvpn 9.3 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1650.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VueScan Pro 9.8.47.01 RePack (& Portable) by elchupacabra (DC 15.09.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1652.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ YT Downloader 9.17.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1653.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bridge to Another World Remastered: Burnt Dreams / Мост в другой ми
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19148.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F56D365B2681972ED8FCF0DCEA396D5505336E79
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19149.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ OCCT 14.0.10 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19150.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DDFF9D3D10EBCA8E18C6EE35B4FBE33805DCD83D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19151.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DDFF9D3D10EBCA8E18C6EE35B4FBE33805DCD83D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19152.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:27C84B114C47E0D120D2023F77816B647B80BE01
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19153.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F48038046907714AA84A3236CEBFF968DF88597A
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19154.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:214CC6DD8C7F199D3DBA7B6CD697CCBEC4CE06D2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19155.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:AE3BA159DA962E80E2659A836142A523D5C313A9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19156.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Fan Control V224 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19157.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:08EC68A24C4C90041B3DD76559DE3C663DFC9B22
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19158.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Auslogics Disk Defrag Pro 12.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19159.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:1E8906C882E13C88091CB7FD9617AFBEFA490E65
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19160.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:1E8906C882E13C88091CB7FD9617AFBEFA490E65
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19161.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:6BA360E72E6F5AF83117F554629DE2953AB057E2
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19162.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C7410D7C3289B342E44DA057DBD7497EB4E5D696
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19163.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Like, Omigod! The '80s Pop Culture Box (Totally) (2002) 7 x CD, Compilation
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19164.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:0AFA29ED278D41D6253CC6B687A552AA67CFFAEE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19165.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8C1689A5BB24A5ACBEF933E1657EC38CCBC4CC00
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19166.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Auslogics Duplicate File Finder 11.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19167.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:F6736938C251E7A46CD2612C9993850457479ECA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19168.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:429926FE6E339CBC0D0ED573872A80925EE010B7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19169.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Auslogics File Recovery 12.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19170.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:4AEC989D0D564B4430BAAA17DA5CCAEDDBD13E33
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19171.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:243AA2833F99B0E5EBD29D0E90111BCE1F36B7FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19172.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Way of the Hunter Wild America v1.0.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19173.jpg" />
 </div>
 
 

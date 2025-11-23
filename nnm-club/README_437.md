@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11591.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FE4E12CAB3269B44E454BCB7BF29949DF30AF21E
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11592.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Do Not Press The Button / Or You'll Delete The Multiverse (2025) [Multi] (1.0) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11593.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Compilation Part 173 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11594.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:7DB4C05366B8C2CC92E6C7C4C9BB348B41C675D6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11595.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:08E683DE8FBC231741440F8F323D365C3691A2D7
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11596.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Linkedin, Bart Van de Wiele | Adobe Firefly Essential Training (2025) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11597.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Skillshare, Mel Armstrong | Illustrate a Children’s Book Cover in Procreate (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11598.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:73858AEAB42749AE7CC929C52AC4F078FC5E628B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11599.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2D5EC347CCE891021F00CC36B205334FC44CB5BA
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11600.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:EB2C0A95F140EFCFBFB978BB6BA500D62705712A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11601.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FL
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11602.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F4605ECDE9CA7B2C05A691FC5507FAA25CB4EDD3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11603.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:335D7D1702394EB1D8FEB528E4CCB17C69B9041E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11604.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sting - The Dream Of The Blue Turtles (1985) 2025 Expanded Edition [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11605.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:404511C5CE11D11B579BBF8A6CABAB8CC4A5298E
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11606.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:D09DDF9F079B6EDB88790A98283C8C6830FBB82A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11607.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:02077C607897A0A48FD07CE7237CBE318827F0D2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11608.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:8E67D371FEC8FBE982563689EA875DD8BD977B68
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11609.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:C2095551CE47BB8817912A72009D7550E9CE9187
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11610.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Udemy, Jutta Schneider | Draw With Me in Procreate: Mid-Century Cookbook Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11611.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11612.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:30D7A56D69CEEFF6032E7EE5735B876345BD76DC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11613.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:1E450FA24C685F7FD3AA500E8B5F195D7F4F18CA
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11614.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:BA37919E9A0FB6D3F41B67EB99DDFD9E3E60CF83
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11615.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:1483863B38D675704999BEB6B446814315327F92
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11616.jpg" />
 </div>
 
 

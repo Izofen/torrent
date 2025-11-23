@@ -1,3 +1,76 @@
+###  Публикация: 1645117   (209494) от 08.07.2023
+
+Лицо со шрамом / Scarface (1983) BDRip [H.265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем — «Лицо со шрамом»…Производство: США / Universal PicturesЖанр: драма, криминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель Салазар, Арнальдо СантанаПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D306F1DD66417B32B75F05B60C4D8CCD3A706867
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644760   (209566) от 06.07.2023
+
+Ксения, любимая жена Фёдора (1974) DVDRip [H.264/1080p-LQ] [hand made Remastered Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о любви, о непростых семейных отношениях, о душевной ёмкости и щедрости — о том, что необходимо в жизни каждому человеку.
+Муж и жена в течение пятнадцати лет мотались по стройкам в ожидании собственного жилья. Наконец, семье дают отдельную квартиру, и Ксения ждёт ребёнка. Однако появляются новые проблемы.Производство: СССР, ЛенфильмЖанр: мелодрамаРежиссер: Виталий МельниковАктеры: Лев Дуров, Алла Мещерякова, Василий Меркурьев, Олег Белов, Станислав Любшин, Азат Шеренц, Мамикон Манукян, Людмила Зайцева, Владимир Татосов, Нина Ильина, Армен Хостикян, Мария Артемова, Лаура Геворкян, Зинаида Дорогова, Игорь НагавкинПродолжительность: 01:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E48F857E7E05CD58A59349CC4C6D09B64F25281
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644317   (209653) от 05.07.2023
+
+Эта замечательная жизнь / It's a Wonderful Life (1946) BDRip [H.265/2160p]  [10 bit] [Hand made upscale AI, Colorized]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж Бейли, владелец кредитной компании в выдуманном американском городке Бедфорд Фоллс, честный, отзывчивый, любящий муж и отец, подавлен свалившимися на него невзгодами и подумывает о самоубийстве. Очевидно, что человек, отказывающийся от самого большого дара Бога – жизни – нуждается в помощи ангела-хранителя. И Небеса отправляют ему на выручку Кларенса, единственного (   Читать дальше...   )Производство: США, Liberty FilmsЖанр: фэнтези, драма, мелодрама, семейныйРежиссер: Фрэнк КапраАктеры: Джеймс Стюарт, Донна Рид, Лайонел Бэрримор, Томас Митчелл, Генри Треверс, Бьюла Бонди, Фрэнк Фэйлен, Уорд Бонд, Глория Грэм, Х.Б. УорнерПеревод: Многоголосый профессиональный (MVO, DVD Магия)Язык озвучки: русский, английскийСубтитры: русские (pgs), английские (pgs)Продолжительность: 02:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DB461E9EA816EA9A811FC4E25F4EF6BB76525E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605575   (209655) от 18.01.2023
 
 Завещание профессора Доуэля (1984) DVDRip [H.265/1080p] [hand made Upscale AI]
@@ -6,7 +79,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209655.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209655.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:DFF29D8AD5109F844F5F6D3CF6E0FEA8AF120ACA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209679.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209679.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:65A6F7B0F60008FC096F0B84F33D578D66F6379C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209781.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209781.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:033C8099E5BDB358401386AEA3EF99B5D51A55B6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209806.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209806.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:E82CDB5B313CD51F5B3E150674D8259776178535
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209815.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ magnet:?xt=urn:btih:F71679517910594CB78AB449255805EA6C40F86F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209929.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209929.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:87650D8390D63F6C649EDDD218ACC20779AEA9FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210078.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210078.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:E7926FDB372367B16AA2488AA551A172CE4DBA4C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210089.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210089.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:F813B14003CCA701BD3441C9F8E65DC4C4025741
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210106.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210106.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:567ECB49B47F3EA840CF86B34FB0586B82006259
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210201.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210201.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:AECF6DAF94F71A71367945545C4EB210C4D1215D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210279.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210279.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ magnet:?xt=urn:btih:143B132B6A1594BA32512B8D7ACB1DA06AF68CED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210298.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210298.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ magnet:?xt=urn:btih:CEE07EBD77B671EACCA975B2C1E769FCE21CD598
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210498.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210498.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:3FD3D2E4206EABFCA5C330605DEF33E72279B7EA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210588.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210588.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ magnet:?xt=urn:btih:E3AA79166649CAE018FC8CF53C225F02E97F9E17
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210619.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210619.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:FB3DFEFAD0F536ABC2834B69137C053C6074A8C4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210755.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210755.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:B3E1B76F1CB3B1B6CA8A2D0FCBC3B152693BF98A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210763.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210763.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ magnet:?xt=urn:btih:BE8D3E9FBE1D11F9C920F14D06E44FC87FED0019
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210852.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210852.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ magnet:?xt=urn:btih:FDFBCF1EEFA3186E9A46089CEA5C321CDF1B96D1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210932.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210932.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ magnet:?xt=urn:btih:F2037F8050D4EAAE61DBB92AFF39377943F45D1E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211109.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211109.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:CEFC5431BB3EA1C15712E69451122BA9B91840F9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211117.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211117.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ magnet:?xt=urn:btih:19304E7CEB048DA3CF98B45E2CA41269395B0A00
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211147.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211147.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ magnet:?xt=urn:btih:58FDFE29E3FE4352CF7F73CB84A9D468EDD06DC7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211154.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211154.jpg" />
 </div>
 
 
@@ -552,78 +625,6 @@ magnet:?xt=urn:btih:58FDFE29E3FE4352CF7F73CB84A9D468EDD06DC7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46400513C3C25AF34783C83402AFC9C377AD1A9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640810   (211156) от 19.06.2023
-
-Злой дух Ямбуя (1977) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211156.jpg" />
-</div>
-
-
-###  Подробнее
-
-По повести Григория Федосеева, основанной на реальных событиях. Первые послевоенные годы. В таежных лесах Восточной Сибири проводятся геодезические исследования. В лагере экспедиции готовятся к возвращению на базу. Радиограмма из штаба о том, что на гольце Ямбуй бесследно исчез наблюдатель, заставила изменить планы.Производство: СССР, киностудия им. М. ГорькогоЖанр: триллер, драма, приключенияРежиссер: Борис БунеевАктеры: Ольга Ензак, Родна Ешонов, Юрий Заборовский, Феликс Сергеев, Александр Кавалеров, Владимир Зимин, Владимир Круглов, Зинаида ПикуноваПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B61D924D8D762D7FBFBCB4C00817B08BA71645
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567335   (211164) от 04.08.2022
-
-Апокалипсис / Apocalypto (2006) BDRip [H.264/2160p] [Handmade upscale AI] [DVO]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211164.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме показана жизнь народа майя до прихода испанских конкистадоров: жестокие войны с соседними племенами, человеческие жертвоприношения, загадочные мистические ритуалы. В один день рушится мир индейца по имени Лапа Ягуара. Его деревню захватывает соседнее племя, уничтожая хижины, забирая местных жителей в плен. Его ведут в город, чтобы принести в жертву богам. (   Читать дальше...   )Производство: США / Icon Entertainmnet International, Icon Productions, Touchstone PicturesЖанр: боевик, триллер, драма, приключенияРежиссер: Мэл ГибсонАктеры: Руди Янблад, Далия Эрнандез, Джонатан Брюэр, Моррис Бердйеллоухэд, Карлос Эмилио Баез, Рамирез Амилкар, Израэл Контрерас, Израэль Риос, Мария Исабель Диас, Эспиридион Акоста КачеПеревод: Двуголосый профессиональный, авторский одноголосыйЯзык озвучки: Руссский, МайяСубтитры: русский, английский, украинскийПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78F52DCFEB7DF2942CEE6CA26A87005262BF794
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640273   (211269) от 17.06.2023
-
-Возвращение с орбиты (1983) SATRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211269.jpg" />
-</div>
-
-
-###  Подробнее
-
-На орбитальной космической станции из-за метеоритного потока происходит авария, в результате которой командир корабля получает тяжелое ранение. Его необходимо срочно доставить на Землю и продолжить испытания. Сделать это может только экипаж Кузнецова-Мухина, много лет готовившегося к полету...Производство: СССР, Киевская киностудия им. А. П. Довженко, ТО «Радуга»Жанр: фантастикаРежиссер: Александр СуринАктеры: Юозас Будрайтис, Виталий Соломин, Александр Пороховщиков, Тамара Акулова, Игорь Васильев, Валерий Юрченко, Михаил Чигарёв, Игорь Дмитриев, Галина Долгозвяга, Владимир КостюкПродолжительность: 01:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A592D133E7ADCC9D05943B9F7B6C65D7FB25ED
 ```
 
 

@@ -1,3 +1,100 @@
+###  Публикация: 1669213   (172994) от 15.10.2023
+
+Attribute Changer 11.30 + Portable [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Attribute Changer - простенькая утилита для удобного изменения основных атрибутов файлов и папок. После установки программы она интегрируется в проводник Windows, добавляя в контекстные меню соответствующий пункт.
+Этот инструмент поможет установить такие атрибуты, как только для чтения, скрытый, архивный, системный и др. Кроме того, доступны изменение даты файла (   Читать дальше...   )Язык интерфейса: Английский и другие (Русского нет!)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9096A3A61E3CB0CF393044E3A3A8471002BFFC62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669285   (172995) от 15.10.2023
+
+JRiver Media Center 31.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172995.jpg" />
+</div>
+
+
+###  Подробнее
+
+JRiver Media Center — мощный мультимедийный центр, объединяющий в себе работу с музыкой, видео и фотографиями. Проигрывает большинство популярных аудио и видео форматов, включая MP3, аудио CD (поддерживает CDDB) и DVD, может преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты (убирая при этом помехи и шумы), а также создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230336492EDB658B863F978A0E1C4C65DE04EE3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669088   (173001) от 15.10.2023
+
+Icecream Screen Recorder Pro 7.30 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8996BBB0D30F314C8A1318B3DBC733B455C55D5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669092   (173005) от 15.10.2023
+
+Ashampoo Photo Optimizer 9.4.7.36 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Photo Optimizer 9 представляет собой программное обеспечение для оптимизации и улучшения качества фотографий. Ashampoo Photo Optimizer предлагает автоматическую и ручную оптимизацию изображений, коррекцию перспективы, пакетную обработку и множество творческих инструментов. Идеально подходит для быстрого и качественного редактирования фото.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539F950533430519FAB966D7561DA9E9EA69D1E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669298   (173006) от 15.10.2023
 
 Wondershare PDFelement Pro OCR 10.0.6 [Multi/Ru]
@@ -6,7 +103,7 @@ Wondershare PDFelement Pro OCR 10.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173006.jpg" />
 </div>
 
 
@@ -30,7 +127,7 @@ Scrivener 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173023.jpg" />
 </div>
 
 
@@ -55,7 +152,7 @@ SSH Config Editor Pro 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173027.jpg" />
 </div>
 
 
@@ -79,7 +176,7 @@ Path Finder 2161 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173035.jpg" />
 </div>
 
 
@@ -103,7 +200,7 @@ Mirror for LG TV 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173040.jpg" />
 </div>
 
 
@@ -127,7 +224,7 @@ Dato 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173049.jpg" />
 </div>
 
 
@@ -152,7 +249,7 @@ Yate 6.17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173057.jpg" />
 </div>
 
 
@@ -178,7 +275,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.2.3593 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173075.jpg" />
 </div>
 
 
@@ -202,7 +299,7 @@ Psiphon 3 build 180 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173141.jpg" />
 </div>
 
 
@@ -228,7 +325,7 @@ eM Client Pro 9.2.2157.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173147.jpg" />
 </div>
 
 
@@ -252,7 +349,7 @@ Microsoft Edge WebView2 Runtime 1.3.177.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173150.jpg" />
 </div>
 
 
@@ -277,7 +374,7 @@ Mullvad Browser 13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173160.jpg" />
 </div>
 
 
@@ -302,7 +399,7 @@ Epic Pen Pro 3.12.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173161.jpg" />
 </div>
 
 
@@ -326,7 +423,7 @@ DxO PhotoLab 7 ELITE Edition 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173170.jpg" />
 </div>
 
 
@@ -351,7 +448,7 @@ Luminar Neo 1.14.0.12151 (x64) Portable by conservator [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173172.jpg" />
 </div>
 
 
@@ -377,7 +474,7 @@ Sumatra PDF 3.5.15711 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173176.jpg" />
 </div>
 
 
@@ -402,7 +499,7 @@ Process Lasso Pro 12.4.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173179.jpg" />
 </div>
 
 
@@ -426,7 +523,7 @@ SnapEdit - AI photo editor 4.9.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173181.jpg" />
 </div>
 
 
@@ -450,7 +547,7 @@ Photo Supreme 2023.2.0.5052 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173183.jpg" />
 </div>
 
 
@@ -474,7 +571,7 @@ Topaz Photo AI 2.0.5 (x64) Portable by conservator [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173198.jpg" />
 </div>
 
 
@@ -498,7 +595,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2941 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173201.jpg" />
 </div>
 
 
@@ -522,7 +619,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173207.jpg" />
 </div>
 
 
@@ -534,102 +631,6 @@ iTubeGo YouTube Downloader Pro for Mac 7.1.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9442850BF88BC406B661E5ECEFDAA5510725E9F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668914   (173214) от 14.10.2023
-
-USBclean 3.7.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9933AEF102DEF7926C616B3FF29136377BA4A1FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668911   (173238) от 14.10.2023
-
-Proxyman for Mac 4.12.0 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proxyman — это современное и интуитивно понятное приложение HTTP Debugging Proxy. Не позволяйте громоздким инструментам веб-отладки сдерживать вас. С родным приложением Proxyman для macOS вы можете с легкостью захватывать, проверять и манипулировать трафиком HTTP(s).Тип издания: macOS SoftwareРелиз состоялся: 30.09.2023Разработчик: © 2023 Proxyman LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7899102324B249FDAB645F3D5B8C55F222368C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668904   (173244) от 14.10.2023
-
-TechSmith Camtasia 2022 Studio 2022.6.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.10.2023Разработчик: © 1995 - 2021 TechSmith CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896CE7546490D2978DBF569E4DF6DCD047F6800C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669031   (173245) от 14.10.2023
-
-YT Saver Video Downloader & Converter for Mac 7.1.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неограниченная загрузка с помощью YT Saver Downloader, с помощью этого приложения вы можете загружать неограниченное количество видео и плейлистов с потоковых сайтов и получать доступ к своим видео в автономном режиме, а также загружать несколько видео одновременно.Тип издания: macOS SoftwareРелиз состоялся: 22.09.2023Разработчик: © 2023 YT Saver StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAE1392A7795BBD140AE46CEA0E7153A6E33B38
 ```
 
 

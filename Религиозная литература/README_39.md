@@ -1,3 +1,75 @@
+###  Публикация: 1530877   (244579) от 12.02.2022
+
+Прот. Владимир Соловьев (ред.) | Журнал Московской Патриархии в 1931-1935 годы (2001) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не все православные читатели знают, что первый номер «Журнала Московской Патриархии» - главного печатного органа нашей Церкви - вышел в свет еще в далеком 1931 году. Материалы, публиковавшиеся в те годы, интересны для нас как уникальное свидетельство о том, что церковная жизнь не угасала и в период наиболее ожесточенных гонений на Церковь. Помимо этого они представляют (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362771588209F61AC5C6FEC1CE277E7958E2ED05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631877   (244620) от 07.05.2023
+
+Иеромонах Владимир (Мусатов) | Ответы старца на вопросы келейного ученика (2018) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Печатается по изданию: «Сто вопросов келейнаго ученика с ответами на них старца о разных предметах душеспасительных» Киево-Печерския Лавры иеромонаха Владимира (Мусатова). М., 1855.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D8AD8ED9BB1F56D723EADC143F7F73401C866C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631887   (244637) от 07.05.2023
+
+Преподобный Антиох Монах | Всеобъемлющее собрание (Пандекты) Богодухновенных Святых Писаний (2015) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244637.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Всеобъемлющее собрание (греч. – Пандекты) Богодухновенных Святых Писаний» – известное святоотеческое нравственно-аскетическое произведение, написанное преп. Антиохом Монахом, игуменом палестинской Лавры святого Саввы Освященного, около 620 года. Это собрание 130 бесед (слов) на самые различные духовные темы. «Пандекты» преп. Антиоха были известны в Средние века (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9530972533F61791625DD9A18BE0C873CCBE7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631883   (244646) от 07.05.2023
 
 Авва Исаия | Митерикон. Собрание наставлений аввы Исаии всечестной инокине Феодоре (2015) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +78,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244646.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244646.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:8FAD4ACA6705C7D4D37AD254DAD25336D88B4628
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244809.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244809.jpg" />
 </div>
 
 
@@ -59,7 +131,7 @@ magnet:?xt=urn:btih:DE6EAFADC0D1DBD70D0ABEC92F3928D9CD8AAE0E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244884.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244884.jpg" />
 </div>
 
 
@@ -85,7 +157,7 @@ magnet:?xt=urn:btih:DEDA21EC48B0C62F6C57905C829EF63F10E23425
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244980.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244980.jpg" />
 </div>
 
 
@@ -109,7 +181,7 @@ magnet:?xt=urn:btih:ED4706FF278E9C52F977668656D8A0C9498E1FE9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245074.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245074.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ magnet:?xt=urn:btih:922292277E9A627F290E3C4866D3EF0D725D102B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245138.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245138.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:3F6268FEBF75E1CB3BB9F6C5125D5F4172D1175D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245187.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245187.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:D9F658BCC20FE69CD3C8B0244D4004B5A6D3196D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245225.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245225.jpg" />
 </div>
 
 
@@ -211,7 +283,7 @@ magnet:?xt=urn:btih:C5A97D495E5FBC01FE8762F80A133BC51F6AB309
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245248.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245248.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ magnet:?xt=urn:btih:D060C48EAE1E96BE519126B2F75A00BED40EEB55
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245254.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245254.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ magnet:?xt=urn:btih:4CB7352FED1F41C4EFF5C9B06F16970FD458A01A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245362.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245362.jpg" />
 </div>
 
 
@@ -289,7 +361,7 @@ magnet:?xt=urn:btih:5E1606705916FFEB05AB408389EB288F56D4DF9C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245374.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245374.jpg" />
 </div>
 
 
@@ -315,7 +387,7 @@ magnet:?xt=urn:btih:EDEB95AB3644B9ED8AFF5C85651A753A0B93A3AA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245380.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245380.jpg" />
 </div>
 
 
@@ -339,7 +411,7 @@ magnet:?xt=urn:btih:C948C32B8682E18BB8DC21DB98AD4BAEA276B99D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245393.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245393.jpg" />
 </div>
 
 
@@ -363,7 +435,7 @@ magnet:?xt=urn:btih:C9AFBE56B70E8C5A181A41E5672640DDA06D114B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245398.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245398.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ magnet:?xt=urn:btih:0ECF385AD93319AF73D6A259F569AB2AB05B500E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245401.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245401.jpg" />
 </div>
 
 
@@ -411,7 +483,7 @@ magnet:?xt=urn:btih:8FD33DF0904612522F19B6DBEAD65F3502873A45
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245772.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245772.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ magnet:?xt=urn:btih:BB6AC88E639248A070BB4A82B2599495C13481FF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245800.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245800.jpg" />
 </div>
 
 
@@ -461,7 +533,7 @@ magnet:?xt=urn:btih:30AD17E3E1120DE2DD2DB034899BA8C976460B6E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246004.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246004.jpg" />
 </div>
 
 
@@ -485,7 +557,7 @@ magnet:?xt=urn:btih:629B951F8E93CC50C7D5FDB55B51DF8ABFD2C793
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249750.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249750.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ magnet:?xt=urn:btih:CDC9E21083E3053919EA14458F0255D7B151DAD1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249786.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249786.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ magnet:?xt=urn:btih:9C1CFFFBAB6FB5E6C8389D14FB7FC60B9FC011FD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249790.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249790.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:D7817D4657B7AC4B42216ED4CE5943A11ED34B0B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249805.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249805.jpg" />
 </div>
 
 
@@ -572,80 +644,6 @@ magnet:?xt=urn:btih:D7817D4657B7AC4B42216ED4CE5943A11ED34B0B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:548A764946C4C5AEB33F5FCCE8ADFFE40051BD60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617240   (250265) от 07.03.2023
-
-А. И. Сидоров | Святоотеческое наследие и церковные древности: в 7-ми томах (2011-2022) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Алексей Иванович Сидоров, ученый-патролог, хорошо известен в кругу православных читателей. По его трудам изучают богословие слушатели Духовных школ, его книги помогают обычному мирскому человеку найти ответы на те вопросы, которые возникают при более глубоком изучении церковной истории. Сложные богословские темы изложены автором доступным обычному человеку (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811F3D3ED15C3DB09681475BEF0D7E1AA8EB09A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617226   (250298) от 07.03.2023
-
-Сибирская Благозвонница | Жития святых. Земная жизнь Пресвятой Богородицы. Пророк, Предтеча и Креститель Господень Иоанн. Апостолы Христовы (2012) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, представленная вниманию читателя, объединяет повествование о земной жизни Божией Матери, пророке, Предтече и Крестителе Господнем Иоанне и апостолах Христовых.
-
-Пресвятая Богородица явила миру великое смирение и неизреченную преданность воле Божией. Весь Ветхий Завет в лице праотцев, ожидавших Мессию, стал лишь приуготовлением для рождения Девы, способной (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C17BA41305FF793F494F03155CF72B641DC3A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617212   (250310) от 07.03.2023
-
-Сибирская Благозвонница | Преподобных отцов Варсонофия и Иоанна руководство к духовной жизни в ответах на вопрошения учеников (2014) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250310.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Примите, возлюбленные братия, душеполезнейшую книгу сию с радостью и усердием и читайте ее прилежно, ибо она весьма полезна архиереям и иереям, начальствующим и судиям, а особенно монахам: безмолвствующим и общежительным, новоначальным, средним и совершенным, преимущественно же немощным, находящимся в различных искушениях и страданиях и имеющим посему нужду в духовном (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFA58D234BEC6505F06F2F5246A32D52EC0FDD1
 ```
 
 

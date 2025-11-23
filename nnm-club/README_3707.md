@@ -1,3 +1,77 @@
+###  Публикация: 1701912   (116064) от 23.02.2024
+
+Кирилл Тесленок | Граф Булгаков (Книга 1). Укротить Аномалию (2024) [MP3, Никита Степаненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116064.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Укротить Аномалию» – роман Кирилла Тесленока, первая книга цикла «Граф Булгаков», жанр бояръ-аниме, попаданцы в магические миры, боевое фэнтези.
+
+Глава рода Булгаковых умер – и алчные аристократы бросились делить его наследие. Они не ожидали, что в теле старшего наследника переродился я – сын Тёмной Богини Подземного мира. И я умею такое, что никому из Одаренных (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-аниме, ПопаданцыИздательство: ИДДКПродолжительность: 11:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8660240464CAE9925CF8DB8E1CDADE121C7F69F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702135   (116065) от 23.02.2024
+
+Природа любви / Simple comme Sylvain / The Nature of Love (2023) WEBRip [H.264/1080p] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116065.jpg" />
+</div>
+
+
+###  Подробнее
+
+София легко цитирует Платона и Шопенгауэра. Сильвену чинить крыши легче, чем рассуждать о чувствах. Она пьет изысканное вино, он завсегдатай пивного бара. Она преподает теорию любви, а ему интереснее теории заговоров. У этих двоих так мало общего, что они могли бы возненавидеть друг друга. Или влюбиться без памяти.Производство: Канада, Франция / Metafilms, MK Films, Fonds QuebecorЖанр: комедия, мелодрамаРежиссер: Монья ШокриАктеры: Магали Лепин Блондо, Пьер-Ив Кардинал, Франсис-Уильям Реом, Монья Шокри, Стив Лапланте, Мари-Джинетт Гуай, Мишлен Ланкто, Гийом Лорин, Линда Сорджини, Мэтью БаронПеревод: Профессиональный многоголосый (СиПиАй Филмз / CPI Films, звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:21Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701965   (116066) от 23.02.2024
+
+"Крематорий" 40 лет. Юбилейный концерт (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная московская рок-группа КРЕМАТОРИЙ выпустила новый фильм-концерт, посвящённый 40-летию коллектива. В основу концертной части релиза легли съёмки юбилейного шоу, состоявшегося в московском ДК имени Горбунова в Москве 25 ноября 2023 года.Жанр: концерт, музыкаПродолжительность: 01:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8661E53B5F727683C8EB52B6C30570B64891C8BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701938   (116067) от 23.02.2024
 
 Красная черепаха / La Tortue Rouge / The Red Turtle (2016) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +80,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116067.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ UltraSearch Professional 4.1.2.912 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116068.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:1CDC644FA6634C756B40CFA8B51A59FB259331A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116069.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Google Chrome 122.0.6261.70 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116070.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:BDCC2204345453659E231D76BAE72B4EF48A919B
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116071.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ AnyTrans for iOS 8.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116072.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ magnet:?xt=urn:btih:CACDEFA336A16FE7A0B708411FBE4852EFB7DEC6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116073.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:6DE771C42E5DB8ECEAFD2F0C7D12A8B6D6B68828
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116074.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ magnet:?xt=urn:btih:3E28CAC97C031CE8B1096B9FA280E595EC121D62
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116075.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ magnet:?xt=urn:btih:C518EE0377B3B184A4C9296A8D55E7CB33327A6B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116076.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ Akumi Wars (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116077.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ magnet:?xt=urn:btih:1EE04E7E2593BCF4BF06EDB51447159916DCA760
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116078.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ magnet:?xt=urn:btih:773A196FE3AFE94FC868E68C3F5C70EB821AC0A6
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116079.jpg" />
 </div>
 
 
@@ -320,7 +394,7 @@ magnet:?xt=urn:btih:5499B90A143803393A30A1910DCE15D7EB41AAB2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116080.jpg" />
 </div>
 
 
@@ -344,7 +418,7 @@ Stand Up (2024.02.23) SATRip (сезон 11, выпуск 15)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116081.jpg" />
 </div>
 
 
@@ -368,7 +442,7 @@ magnet:?xt=urn:btih:5B4A95B7E51E0EE9A8DF4A998B2ABE1841A15723
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116082.jpg" />
 </div>
 
 
@@ -392,7 +466,7 @@ BlueStacks App Player 5.20.110.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116083.jpg" />
 </div>
 
 
@@ -416,7 +490,7 @@ magnet:?xt=urn:btih:6436B6DE8A94BFBF183EA6BC4F08AEDCBFEA2E44
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116084.jpg" />
 </div>
 
 
@@ -440,7 +514,7 @@ magnet:?xt=urn:btih:3262352FA4AD29F93D89C9A6A791B2B5D22B3677
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116085.jpg" />
 </div>
 
 
@@ -464,7 +538,7 @@ PicPick Free+Pro 7.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116086.jpg" />
 </div>
 
 
@@ -488,7 +562,7 @@ magnet:?xt=urn:btih:076DBAA5C738522C72E6267A2311DF31898788C8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116087.jpg" />
 </div>
 
 
@@ -512,7 +586,7 @@ magnet:?xt=urn:btih:50F7EB0F79199634E74F1056E37FD69AB72CD279
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116088.jpg" />
 </div>
 
 
@@ -536,7 +610,7 @@ magnet:?xt=urn:btih:7A412EEA23780A96A349A827A6F4B376624F22C1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116089.jpg" />
 </div>
 
 
@@ -547,79 +621,6 @@ magnet:?xt=urn:btih:7A412EEA23780A96A349A827A6F4B376624F22C1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17ED2BC42D770295E828FB2636D5A9DC4B447322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702121   (116090) от 23.02.2024
-
-MEmu 9.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116090.jpg" />
-</div>
-
-
-###  Подробнее
-
-MEmu — эмулятор устройств под управлением операционных систем Android. Разработчики компании Microvirt предлагают пользователям всего мира совершенно бесплатно использовать для эмуляции данный продукт.
-MEmu позволит играть в любимые игры на персональном компьютере управляя мышкой, а также пользоваться огромным большинством приложений для Android на компьютере с операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329184B320DAF26BF35C8D3D0A15F6A9107B716F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702196   (116091) от 23.02.2024
-
-Display Driver Uninstaller 18.0.7.3 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DD826283318DF82B9A2D0E49256FB5E390330A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694075   (116092) от 23.02.2024
-
-Вечная дочь / The Eternal Daughter (2022) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джули Харт и её мать Розалинда приезжают в отель, чтобы вместе провести выходные. Отель раньше был поместьем Розалинды, где она провела детство и зрелые годы. Это место полно воспоминаний, которые начинают возвращаться. Джули пытается вызвать эти воспоминания у матери, чтобы лучше её понять, так как работает над фильмом о себе и Розалинде. Это заставляет её пережить (   Читать дальше...   )Производство: США, Великобритания / Element Pictures, A24BBC FilmsЖанр: драма, детективРежиссер: Джоанна ХоггАктеры: Тильда Суинтон, Карли-София Дэвис, Зинния Дэвис-Кук, Август Джоши, Луис, Джозеф Майделл, Альфи Санки-ГринПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (Kleinzeit), английскиеПродолжительность: 01:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A67C991A1ED7CD5DDEB567A9ADA5E22726B23EA
 ```
 
 

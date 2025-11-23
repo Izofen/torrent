@@ -1,3 +1,78 @@
+###  Публикация: 1551871   (119054) от 06.02.2024
+
+Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аманэ - обычная женщина, живущая в одном из крупнейших городов Японии, который с каждым днем ​​становится все опаснее. Люди исчезают, особенно молодые женщины, и, прежде чем она узнает об этом, она обнаруживает причину: их похищают опасные монстры, называемые чудовищами. Монстры нападают на нее однажды ночью по дороге домой, и как только она вот-вот встретит (   Читать дальше...   )Тип издания: LicenseРазработчик: Shimobashira WorkshopЖанр: Ролевая игра, Приключение, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEE82F81DC490556F3B782866F05C464076F6F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697375   (119055) от 06.02.2024
+
+Тысяча и один / A Thousand and One (2023) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк. Середина 1990-х годов. Мать-одиночка Инес скитается по хостелам, а её маленький сын Терри живёт в приюте. Однажды Инес принимает непростое решение - она похищает собственного сына и уезжает в другой город, чтобы там начать новую нелегальную жизнь...Производство: США / Sight Unseen Pictures, Focus Features, Hillman GradЖанр: драма, криминалРежиссер: А.В. РокуэллАктеры: Тейяна Тейлор, Аарон Кингсли Адетола, Авен Кортни, Джозайя Кросс, Уильям Кэтлетт, Терри Эбни, Делисса Рейнольдс, Амелия Уоркмэн, Адриан Ленокс, Гэвин Шлоссер, Вольде Саймон мл., Азза Ел, Алисиа Пилгрим, Женниан ПалмерПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (надписи и полные), английскиеПродолжительность: 01:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C729CDA4B98211E57FC87927F3AE3421E872882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364076   (119056) от 06.02.2024
+
+Tesla - 22 Albums (1986 - 2023) 30 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tesla - американская хард-рок-группа. Команда сформировалась в 1984 году как City Kidd. На первых порах коллектив развлекался тем, что играл на разогреве у "Y and T", "Dokken", "Rail" и записывал демки, которые продюсировал Ронни Монтроуз. Когда группа немного повзрослела, к ней начали проявлять интерес различные лейблы, и вот в один (   Читать дальше...   )Список альбомов:
+1986 - Mechanical Resonance
+1989 - The Great Radio Controversy
+1990 - Five Man Acoustical JamЖанр: Hard RockПродолжительность: 30:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1660F5A48B75164FF630CC478712C89D810857B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697467   (119057) от 06.02.2024
 
 Thinknetica PRO, Дмитрий Титов | Cовременная разработка на GO (2023) WEB-DL [RU]
@@ -6,7 +81,7 @@ Thinknetica PRO, Дмитрий Титов | Cовременная разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119057.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ magnet:?xt=urn:btih:4E68882AF6C94F9EAD5F0467B8A38DFF82C6E009
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119058.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:DAB278F095A3FC97D21106773427A38F24FE968D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119059.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:8318173C9D596CDD0EACD4FE10CE5187054AD564
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119060.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ Windows Server 2025 Beta builds 23H2 26010.1000 [EN] (Updated January 2024) 23H2
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119061.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:9095CDD6E9557828DB3FF6B7DAFA03F973969EDE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119062.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ Buta no Liver wa Kanetsu Shiro / Heat the Pig Liver / Разогревай св�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119063.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ magnet:?xt=urn:btih:5F0A5541D01B87B7DE745E31243CC673C939E0E9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119064.jpg" />
 </div>
 
 
@@ -200,7 +275,7 @@ magnet:?xt=urn:btih:F82E3ED69650C9E8A8B7953D5E42BFFF5D2999F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119065.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ magnet:?xt=urn:btih:7A69753D1F01D2F3296A0DE19AF5EF7AE5680EEE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119066.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ magnet:?xt=urn:btih:ACAE1E8C0C5E796390FABFEAD43D4C3F88E4861C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119067.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ Boxy SVG 4.23.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119068.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ Donald Byrd & Gigi Gryce - Jazz Lab (1957) 2014, Sony Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119069.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ Running Wild - Port Royal (1988) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119070.jpg" />
 </div>
 
 
@@ -353,7 +428,7 @@ magnet:?xt=urn:btih:CB7331FCC8121D7F48AC92F31C9E795D4DBD319F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119071.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ Seventh Crystal - Wonderland (2023) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119072.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119073.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ Clearview X 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119074.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ Kmfdm - Hyëna (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119075.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ Running Wild - Gates To Purgatory (1984) [APE|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119076.jpg" />
 </div>
 
 
@@ -510,7 +585,7 @@ Madder Mortem - Old Eyes, New Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119077.jpg" />
 </div>
 
 
@@ -537,7 +612,7 @@ South Of Sundays - Honey Tongue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119078.jpg" />
 </div>
 
 
@@ -564,7 +639,7 @@ Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119079.jpg" />
 </div>
 
 
@@ -577,87 +652,6 @@ URNE - британская рок-группа. Сложно определит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D3D90B3739BF06799A27D9662E946428322A2AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697276   (119080) от 05.02.2024
-
-Hit The Ground Runnin' - Control Yourself (2000) Reissue, Remastered, 2023, Pride & Joy Music [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control Yourself (4:08)
-02. Back Again (4:19)
-03. Shanghaid (3:50)
-04. Lost (4:40)(   Читать дальше...   )Жанр: AOR, Hard RockПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2023C54D7507E0C8212BD4E36779BD14BFE9E031
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697183   (119081) от 05.02.2024
-
-Black Paisley - Perennials (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want Your Soul (5:06)
-02. Day by Day (4:09)
-03. Sometimes (4:03)
-04. Mother (5:10)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11557F08B6B547F76CE45AB85CD7086C0A7399F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697195   (119082) от 05.02.2024
-
-Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119082.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ravnens Banner
-A2 Frosne Vind
-A3 Må Du Brænde I Helvede
-B1 Latvian Fegurð(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
 ```
 
 

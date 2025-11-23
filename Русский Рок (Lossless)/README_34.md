@@ -1,3 +1,84 @@
+###  Публикация: 1649831   (227762) от 30.07.2023
+
+Zhaba - Brave New Trip (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner Rock, Dark Jazz>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meeny Moe [00:08:28]
+02. The Moist Trail [00:05:17]
+03. Quickcest [00:07:45]
+04. My Seeds Gone Sprout [00:06:24](   Читать дальше...   )Жанр: Psychedelic Stoner Rock, Dark JazzПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D501F38671882B0EA8FADDE1A0F97777DB67FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907424   (228945) от 28.07.2023
+
+Воскресение - Лучшее (2009) 2CD [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_228945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Все сначала
+02. Есть у меня
+03. Не оставь меня
+04. Я привык бродить один(   Читать дальше...   )Жанр: RockПродолжительность: 02:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFAC7AD84569F3DF7F2AF0041B04B2A73002A63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424271   (229317) от 16.11.2020
+
+Колибри - Найди 10 Отличий (1995) [FLAC|Lossless|image + .cue] <Pop, Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ремикс
+02. Я Иду
+03. Не Рядом
+04. Волна(   Читать дальше...   )Жанр: Pop, Rock, ExperimentalПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84289C0DB8F2F685C03DD601697E3CD9EBFFD0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559331   (229499) от 28.11.2019
 
 спЛин - Обман зрения (2012) [WavPack|Lossless] <Rock>
@@ -6,7 +87,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229499.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229499.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:6532F2AFD46F22979E314E3D8FBE85CC25083DA4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230379.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230379.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:82A9FA4EFAE80A5DC6AD2137679F7E0E3D35F5C4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230416.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230416.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:9993DA65045AE2369636751265316101FE9099C6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230426.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230426.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Crazy Space Gun - Тройничок (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230770.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230770.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ ssshhhiiittt! - rawlove (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230784.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230784.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Ankhagram - ReANKHarnation (2006) Reissue, 2014, Satanarsa Records [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230786.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230786.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ magnet:?xt=urn:btih:883D84D07069E70A5A8F0E27DCB753CAD232D037
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231079.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231079.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Der Dobermann - Don't Be Afraid, You Already Dead (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231428.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231428.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ magnet:?xt=urn:btih:2813D0AEEB2182786CCB3DB582A3FA058738DE25
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231469.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231469.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Disaver - Nemesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231518.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231518.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Radiance - Корабли (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231617.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231617.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Kickrox - THE NOTE(s) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, N
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231682.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231682.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ Forces United - Golden Ballads (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231686.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231686.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ magnet:?xt=urn:btih:6953BD4F03BC3486F7BF23037C80C757403DD109
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231767.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231767.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ Pussy Pistol - Икона стиля (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231875.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231875.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ magnet:?xt=urn:btih:9924CABEA0BF481A27F4555D72293F4CAE3067F5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231961.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231961.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ WLVS - Камео (2023) [FLAC|Lossless|WEB-DL|tracks] <emocore, hardcore punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232057.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232057.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ magnet:?xt=urn:btih:998121AA7780462F72B709C088B1747D5B76EEBE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232126.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ magnet:?xt=urn:btih:B42B3648CF4113E2F54AFE95B6EED6A4FE5D5EB0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232160.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232160.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ magnet:?xt=urn:btih:36916261719F5C10F4E7A3C0B4BFA58D52A0C028
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232335.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232335.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ magnet:?xt=urn:btih:C8D02E1484A4B6846BAD2E13217B5C82A389F289
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232352.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232352.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ magnet:?xt=urn:btih:35C9731E53CE5E6669315A5EB72C4F661174AD3F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232365.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232365.jpg" />
 </div>
 
 
@@ -614,87 +695,6 @@ magnet:?xt=urn:btih:35C9731E53CE5E6669315A5EB72C4F661174AD3F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB13D7C6DC06528758EC53037CBCD54B31EC7BFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635369   (232492) от 25.05.2023
-
-Александр Барыкин - Лучшее для друзей (2001-2011) (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не забудешь никогда (Русский снег) (4:22)
- 02. На реке (4:24)
- 03. Волга (4:43)
- 04. Парус (5:08)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D23DF45AABD411C382E25217A133861C828385F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635045   (232676) от 24.05.2023
-
-Александр Барыкин - Лучшее для друзей (1981-1989) (1989) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Букет (3:37)
- 02. 20:00 (3:59)
- 03. Чудо-остров (4:33)
- 04. Девчонка (4:22)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA08B8B41DB4569559C7C3F52BC2F86826AA4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635171   (232685) от 24.05.2023
-
-Александр Барыкин - Лучшее для друзей (1990-1996) (1996) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Программа передач на завтра (3:17)
- 02. Боб Марлей и тётя Варя (4:50)
- 03. Голубые глаза (4:13)
- 04. Любовь моя (4:24)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F065B7DF115095D25B9BA2DA0696C02B1EA973
 ```
 
 

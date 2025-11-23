@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50044.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:49314BA4A5926463EEC683898D9A65D281962216
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50048.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6C6ECAE0C28C298E8CC7F6DBC744589FE879503C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50055.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:96F501F51E62C7F3F071895AE7516A7F7F93AAE0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50058.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EEEDDE09EBEEF6233F66B8CB2EA21BB730F558E8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50059.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:6A55F6152CFDB4623EEC4A873894B39ED16AFE65
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50062.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:B536F094BBBBE421412F557356BC73E759EE5564
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50067.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:8422B2DB1019472037EB1DCC34FCC5021B9EBB7F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50069.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:F61AD869571E03F17C4BA9DB603EFBCD167D9676
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50072.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:EA8AD43AAFB1731079A8AC1B575345F65B19E04F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50075.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:7A06C84217806DBDBD4B457E8BA9503B00EECB68
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50076.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:50B554C10A237728AF5FC8AD5A2B5E1683B81D17
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50083.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:285D28E2D0DF770F33DEE9C2FC9A9A1782B42EB8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50090.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Electric Light Orchestra - ZOOM - Tour Live (2001) [DVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50101.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Electric Light Orchestra - The Early Years (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50106.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:61A83A30589B74DC0A30E4E911861C74C06C0071
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50108.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:1F84D80249C297DED7AC691F8FDFE5DF24745C5E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50157.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:6BE016099496A2822FCE9878B2E629A6DC439B70
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50158.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:D2F72B756DE2748C96A5B206940EB4EFD6085956
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50159.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:0B3DED161C9B2E317CAE8A599DEDC022798D8100
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50171.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:22E259583BDC5290DC001A02FE49925196845B8E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50172.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:BC6B8C4874808F20D7903281899B832041B21F2D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50184.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:429D1980CF2D3791F5061BEFB6AB37F00569E5A0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50187.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:DFD9FC4C3CFBEEA70465B3A544201CD751D5F798
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50189.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ZZ Top: Greatest Hits (2004) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50210.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:871AFA9761BC49C91AFB7AB29ECE1794E23F64D2
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50212.jpg" />
 </div>
 
 

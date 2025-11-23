@@ -6,7 +6,7 @@ Windows 11 3in1 x64 24Н2 (build 26100.4351) by ivandubskoj 20.06.2025 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13962.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:541002E306A738B17077B20DEE34D50F1273B8C7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13963.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13964.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8D30A6E82E052A94E33C545ACFC384D67E41652E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13965.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:7C05821FA1F46C00A3FEFA828D616B46B4D52278
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13966.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Dreams in the Witch House (2023) [En] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13967.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Ore wa Seikan Kokka no Akutoku Ryoushu! | Я злой лорд межгалак�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13968.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Windows 11 PRO 24H2 26100.4351 Update 16 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13969.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:103701EEC384F6E8C4F4507ED7DBFCBBB79BD470
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13970.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:103701EEC384F6E8C4F4507ED7DBFCBBB79BD470
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13971.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:15D8BA761C082D47E68AC5466187AB71C056782D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13972.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:69F1AF16DCEDA69EA7D6EA31CDB962F294CC86B6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13973.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:D6DB5A9BC77AF46A3A1198BD818C5A964FEA9485
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13974.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Ultimate Classical (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13975.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:23AF159749A7295F9689C13E2796E95EA1026FDA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13976.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:6AC60D29096E1B603E89C3A222D1111B81913B15
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13977.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:6BE5D5EF64801B8F8F3ADFEB6531251F92DFC774
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13978.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:C575D4495E3308009791353B0BAA5D6CE24A3053
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13979.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:755E3A632CDC8F20D8AF7B2E61DA6985589248B6
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13980.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:2A77EA4822936CB1E9560E4AE72A5482769798F5
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13981.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:2D066FB830EA9CDE68BC8650089F34AA634AC036
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13982.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:63A0EC91F072A58E848C8CB1113EA6908E780F09
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13983.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:CD358FDE528C8B3CB06F488A8F5846F76F295B13
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13984.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:FF37B2E708E2295C78AC2612F9001E397E7CE065
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13985.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Midnight Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13986.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:215ACA2B0E26AD36BE65B9A6658819CD50F22677
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13987.jpg" />
 </div>
 
 

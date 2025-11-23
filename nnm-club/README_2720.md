@@ -6,7 +6,7 @@ Obsidian Path - Ignite the Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71468.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eric Prydz - Live @ 20 Years Of Pryda, HISTORY Toronto, Canada (2025-01-18) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71469.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anbaric - Energy Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71470.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Across the Shade - Madness (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71471.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:D7572B6B1D2C93086962078475031C31270797B3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71472.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:39AA1F726C1BC827BE7BFF8977D20DA571333310
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71473.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:0CBF30C147A94DCF93EDD0903071D4FA4758C3F4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71474.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Markus Schulz - Year in Review 2024 (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71475.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Dance Classics Gold 2 (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71476.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Rosy Vista - Forty (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71477.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:2655308AD38D473A24AABDDE088808E11C4DEED9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71478.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Empire Of The Sun - Ask That God (2024) Deluxe Edition, 2025, EMI Recorded Music
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71479.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DJ Maretimo - Winter Time Vol.13 - 18 Premium Trax...Chillout, Chillhouse, Downb
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71480.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - The Orient Collective: Eastern Bloom (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71481.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Clouds - Desprins (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71482.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Amaranthe - The Catalyst (2024) Bonus Version, 2025, Nuclear Blast [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71483.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E576E747C55FDB60F2CA53CD1D5DBADB655DC7C1
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71484.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:6BC08EF86C8DEA36A50D3BE1D0DFEB1F6B1A7F4C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71485.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ De/Vision - Devolution (2003) 2CD [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71486.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71487.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:5A00B67CCDB3F2158E505D9F3030239808674061
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71488.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Dance Classics Gold 3 (1992) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71489.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Dance Classics Gold 2 (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71490.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wildness - Avenger (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71491.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Holly Cole - Dark Moon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71492.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71493.jpg" />
 </div>
 
 

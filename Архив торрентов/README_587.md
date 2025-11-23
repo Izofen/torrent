@@ -6,7 +6,7 @@ Chasys Draw IES 5.29.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127069.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ File & Image Uploader 8.3.7 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127071.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PeaZip 9.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127072.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shotcut 23.12.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127080.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7D99B2D3C75984781A124DF5B91FA4A4695EF8EB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127081.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Firefox Browser ESR 115.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127087.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kdenlive 23.08.4 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127089.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Firefox Browser 121.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127090.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Firefox Browser 121.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127091.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Strawberry 1.0.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127098.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ HWiNFO 7.68 Build 5300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127102.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SplitCam 10.7.24 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127115.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:252C5CB429F851C3D7BDC91BB6385CF556F5B309
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127136.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kingston SSD Manager 1.5.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127137.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ SnapEdit - AI photo editor 5.4.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127157.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Adobe Photoshop 2024 25.3.1.241 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127183.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ FL Studio Producer Edition 21.2.2.3914 - All Plugins Edition (Rev.1) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127190.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:E1973978F85F4BDD0D324FFC8875EFD927C5125E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127192.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Text Editor Pro 28.3.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127233.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ RS Explorer / RS Проводник 2.0.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127235.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ GeoGebra 6.0.817.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127240.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Imagine 1.3.8 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127248.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Music Collection 3.6.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127250.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ f.lux v4.130 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127251.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ RisohEditor 5.7.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127254.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Draw.io 22.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127255.jpg" />
 </div>
 
 

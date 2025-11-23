@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45387.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EB284FCC0ADAE236F491146262300F29BCA65D83
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45388.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D7857E47694B7B829BCB08CB6C45D8322A9DE6BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45389.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0D48371DC927F62C5F308B47FF2BA30A0F7D17B6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45390.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D0407ED03A6223B86C6FF4139E558577E6E49F34
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45391.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ IPTV Pro v8.1.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45392.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:32AFE84DFA84CEFA524EB64DAB81EA8A85497CF2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45393.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Music and mp3 Player v6.9.7 Premium Unlimited Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45394.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:CAA4A7F666A7F658BAD46B643A3D1E01AEB6F850
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45395.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ SoftMaker Office Professional 2024 Rev. S1218.0824 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45396.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ AnyDesk 8.0.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45397.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:03C975B025E7FFFD62ADC20CCD6A50D21A47DDF6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45398.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:2E6CDB23FBD7845DAF7AABA9B4206929927C60DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45399.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AIMP 5.30 Build 2563 RePack (& Portable) by elchupacabra (Extended + Standard) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45400.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:DE1129F4FB284E3D0A2B5BCCC4BEFA6B5E8A6436
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45401.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Spotify 1.2.44.405 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45402.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45403.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45404.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:2EDF6ECD6859C590046DA22974097DEECD1C4031
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45405.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Paris in 2000 Years (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45406.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:FE6656091236B9F4794368BED369797B4594C105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45407.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Mozilla Thunderbird 128.1.1esr [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45408.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:EF58519BD674000F52D419AAFD17E01D044E36C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45409.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:97376B4CFA328606BC42B9707D79264D31F9F916
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45410.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:F8E672F76B5D6046B574F51813D67E8D723D9C07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45411.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.10 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45412.jpg" />
 </div>
 
 

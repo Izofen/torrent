@@ -6,7 +6,7 @@ VA - Kohl's Cares For Kids: Songs Of The Season 2001 (2001) CD, Compilation [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65407.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Grupo Bryndis - Tu Amor Secreto (1995) [FLAC|Lossless|WEB-DL|tracks] <Latin, Cum
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65614.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Global Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65667.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65854.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Billboard Top Hits: 1987 (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65872.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Shazam Hall Of Fame (2015) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65882.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nick Carter - LOVE LIFE TRAGEDY (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65999.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ slo/tide - The Blur (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Synthpop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66115.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66117.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66242.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Ultimate Dance Party 1997 (1996) [FLAC|Lossless|tracks + .cue] <Electronic,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66330.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cher - Love Hurts (1991) CD, Album [FLAC|Lossless|tracks + .cue] <Electronic, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66340.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Spencer Sutherland - The Drama Deluxe (The Encore!) (2025) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66373.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Soulmates (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66406.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ PinkPantheress - Fancy That (2025) Mixtape [FLAC|Lossless|tracks + .cue] <Dance-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66606.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Ultimate Dance Divas (2003) CD, Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66629.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ MIKA - The Boy Who Knew Too Much (2009) CD, Album [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66635.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ NSYNC - Celebrity (2001) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66702.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Barry Manilow - Ultimate Manilow (2002) CD, Compilation, Club Edition [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66772.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67234.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67256.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Dance Classics - Pop Edition Vol. 1-3 (2009-2010) [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67330.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C9
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67509.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67832.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Meghan Trainor - Title (2015) 10th Anniversary Edition, 2025, Epic Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68537.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ne
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68556.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1517504   (161812) от 16.12.2021
+
+Windows 10 21H2 (19044.1415) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка windows 10 выполнена на основе оригинальных образов Microsoft Windows 10.19044.1415 Version 21H2 (December 2021 Update) (MSDN) и содержит три редакции ОС в одном образе. Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B2D578E44ABE52DC412BC1F3C397461DD3F14D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433014   (161813) от 19.12.2020
+
+Bootstrap Studio 5.5.1 RePack (& Portable) by xetrin [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - мощная программа для создания красивых веб-сайтов с использованием структуры Bootstrap. Bootstrap Studio помогает создавать стильные сайты. Он идет с большим количеством встроенных компонентов, которые вы можете перетаскивать, чтобы собрать удобные по навигации веб-страницы. Он построен на основе чрезвычайно популярной структуры Bootstrap и экспортирует (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F88F4C8645AECAC386432923ABC3BA4DF964940
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598765   (161822) от 20.12.2022
+
+JRiver Media Center 30.0.41 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161822.jpg" />
+</div>
+
+
+###  Подробнее
+
+JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD256C73E11D3BC4BE49349936F311249D33946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598826   (161828) от 20.12.2022
 
 SoundSource 5.5.7 [Multi]
@@ -6,7 +78,7 @@ SoundSource 5.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161828.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ The Bat! Professional 10.5.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161835.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Vivaldi 5.6.2867.50 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161837.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Strawberry 1.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161850.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ HitPaw Video Converter 2.6.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161861.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ CCleaner 5.88.9346 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161869.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Tipard Video Converter Ultimate 10.1.10 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161873.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161878.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ AnyBurn 5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161886.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ Audio Hijack 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161889.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ Trojan Killer 2.1.57 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161890.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ HiBit Uninstaller 3.0.25 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161895.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Wireshark 3.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161897.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ Steinberg Cubase Pro 13.0.10.123 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161900.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ IObit Uninstaller Pro 11.2.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161907.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ Revo Uninstaller Pro 4.5.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161912.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ IObit Driver Booster Pro 9.1.0.140 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161917.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ Affinity Photo 2 v.2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161929.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Clip Studio Paint EX 2.2.2 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161938.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ Q-Dir 11.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161943.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Affinity Designer 2 v.2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161948.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ K-Lite Codec Pack Update 15.9.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161949.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ Negative - Studio Albums (6 releases) (2003 - 2010) hand made [restored, declipp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161957.jpg" />
 </div>
 
 
@@ -559,81 +631,6 @@ Negative — финская глэм-рок-группа, основанная �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82DBE18EB7CD94DC5496D2003782CE9E21B1C26F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433158   (161962) от 19.12.2020
-
-ProPresenter 7 v7.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161962.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
-Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
-Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Renewed Vision LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский  и д.р.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB79CA809C906E2FEC4771E701F88082DD7FE1A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517556   (161981) от 16.12.2021
-
-IObit Driver Booster Pro 9.1.0.136 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A62C9D04E6FBD3E1FEAF12E102176D55BC2853
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598648   (161988) от 20.12.2022
-
-Affinity Publisher 2 v.2.0.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реализуйте свое видение с помощью Affinity Publisher, самого современного профессионального программного обеспечения для публикации от разработчиков отмеченных наградами приложений Affinity Designer и Affinity Photo.
-Это невероятно плавное, интуитивно понятное приложение дает вам возможность комбинировать изображения, графику и текст, чтобы сделать красивые макеты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Serif (Europe) LtdПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A0C4A02ADF5C944333A24607D262028362CA78
 ```
 
 

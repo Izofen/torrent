@@ -6,7 +6,7 @@ Ulcerate - Cutting The Throat Of God (2024) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70168.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B0B40709FBB7B4652BCBAD616A06B71A39D86981
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70169.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, War
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70170.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Michael Weiss Quartet - Power Station (1997) DIW Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70171.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:7B0CA7CE673C4A5ACE6FDD42A125BD56D14503D3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70172.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Modern 80's - The Best Of Discopop Vol.2 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70173.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Photo Studio PRO v2.7.13.3850 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70174.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:865D3B7896BB83AA304A500FF9E3BB0A4C6A2F21
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70175.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ GeoGebra 6.0.876 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70176.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:7A09371FA5A7B427FC7274FB22F885B5B9964A35
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70177.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ DOS - 80s Forever (DJ Friendly Edition) (2013) [MP3|320 Kbps] <Italodance, Euro-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70178.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:85F914DB9AF7222613DEEF4A5F155B14417E6A63
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70179.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:8024B17577AAED67FAA85B75B8D5442AC74D2807
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70180.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:AB7F3C5C45E2FC8DC3785067589AF0AE9CDFEC44
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70181.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:4CF519AB873276CCB1F78FB64268EEFA84850BF6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70182.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:4A5CEEB1C2D4769BFB132E43EDBDD52E1DD7F42C
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70183.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:B6FF4BC0D8FA0818DF7C27E35A616B62072D9E0C
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70184.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:161CD853BB54FB2B17FFCC427E32D874F92DCB72
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70185.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Sandboxie 5.70.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70186.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:78665F21AE883F27F869B1D0C2B8B332A0AACE2C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70187.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:CB2772EF5989353AE34A7134F4E2885680F4F3E2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70188.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:3C70306987308657BBD918BE3449FF6DCAA7EB46
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70189.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70190.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Les Paul Trio - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70191.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Retromorphosis - Psalmus Mortis (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70192.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:B94CCB3C923D20F0944588D5A2639BBCBCA711FC
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70193.jpg" />
 </div>
 
 

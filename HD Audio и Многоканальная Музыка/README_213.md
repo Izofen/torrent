@@ -1,3 +1,111 @@
+###  Публикация: 1642122   (233340) от 26.06.2023
+
+Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial/Groove/Progressive Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mnemic — датская метал-группа, образованная в Ольборге в 1998 году.2003 - Mechanical Spin Phenomena
+2004 - The Audio Injected Soul
+2007 - Passenger
+2010 - Sons Of The SystemЖанр: Industrial/Groove/Progressive Metal, DjentПродолжительность: 04:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644684   (233757) от 06.07.2023
+
+Валерия - Звёздная Коллекция (2001) Compilation, Unofficial Release [FLAC|24/48|image + .cue|Tape-Rip] <Europop, Euro House, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Не Обманывай
+02. Не Обижай Меня
+03. Рига-Москва(   Читать дальше...   )Жанр: Europop, Euro House, Pop RockПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664625   (233869) от 21.05.2022
+
+Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_233869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (3:46)
+02. Blush Response (5:43)
+03. Wait For Me (5:31)
+04. Rachel's Song (4:34)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3824C5253A25DA16BF5F765E988682004A1948
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644307   (233980) от 05.07.2023
+
+Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Electronic, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233980.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		I'm Your Baby Tonight	5:00
+A2		My Name Is Not Susan	4:38
+A3		All The Man That I Need	4:09
+A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633720   (234242) от 16.05.2023
 
 Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive/Power/Folk Metal>
@@ -6,7 +114,7 @@ Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234242.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234242.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ magnet:?xt=urn:btih:C2790C2EB12578DDB8E8939DB4CD50EF1643E1ED
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234631.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234631.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235260.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235260.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235348.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235348.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235630.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235630.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235659.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235659.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235786.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235786.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235909.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235909.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235963.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235963.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236092.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_236092.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236104.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_236104.jpg" />
 </div>
 
 
@@ -302,7 +410,7 @@ Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236312.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_236312.jpg" />
 </div>
 
 
@@ -329,7 +437,7 @@ Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236395.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236395.jpg" />
 </div>
 
 
@@ -356,7 +464,7 @@ Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236410.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236410.jpg" />
 </div>
 
 
@@ -383,7 +491,7 @@ John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4k
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236491.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236491.jpg" />
 </div>
 
 
@@ -410,7 +518,7 @@ Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236921.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236921.jpg" />
 </div>
 
 
@@ -437,7 +545,7 @@ Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236992.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236992.jpg" />
 </div>
 
 
@@ -464,7 +572,7 @@ magnet:?xt=urn:btih:31C82911D4C441BCDED9C1FAAD2743E07BB5F002
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237126.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237126.jpg" />
 </div>
 
 
@@ -491,7 +599,7 @@ Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237159.jpg" />
 </div>
 
 
@@ -518,7 +626,7 @@ VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237196.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237196.jpg" />
 </div>
 
 
@@ -545,7 +653,7 @@ magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237198.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237198.jpg" />
 </div>
 
 
@@ -572,7 +680,7 @@ Tom Jones/Том Джонс - Лучшие песни из репертуара.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237201.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237201.jpg" />
 </div>
 
 
@@ -586,114 +694,6 @@ I сторона:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD36A13677BAA06E0BDA2F5F8379532C236A6EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208554   (237215) от 05.05.2022
-
-VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massimo Ranieri - Perdere l’amore
-02. Fiordaliso - Per Noi
-03. Toto Cutugno - Emozioni
-04. Marcella - Dopo La Tempesta(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197473   (237227) от 05.05.2022
-
-Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixielend>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Очи чёрные
-02. Вот мчится тройка удалая
-03. Огонёк
-04. Вечерняя песня(   Читать дальше...   )Жанр: Jazz, DixielendПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36EB545F9F47FB3827664FB49B2429A3BE0DE0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208575   (237241) от 05.05.2022
-
-Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карра (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чак-Чак (Ciak) Malgioglio - Castellari
-02. Вернись Ко Мне (Torna Da Me) Belfiore - Boncompagni - Bracardi
-03. Несчастная Любовь (Povero Amore) Boncompagni - Bracardi
-04. На Словах (A Parole) Belfiore - Boncompagni - Bracardi(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208517   (237259) от 05.05.2022
-
-VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dori Ghezzi - Margherita on so la
-02. Stefano Sani - Complimenti
-03. Rosanna Fratello - …Se t’amo t’amo
-04. Adriano Celentano - Atmosfera(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2B6A4FF241262493C72047E6B61C7F9BBF6E93
 ```
 
 

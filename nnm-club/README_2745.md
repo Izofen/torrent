@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73307.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73314.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73327.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73331.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5558D83D6E8391EF2A678DB8B8750D3CE1C0C75A
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73332.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Need for Speed: Carbon Collector's Edition / Need for Speed: Carbon Коллек
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73340.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:AE246416C9E7D415FCA884C73CA5A9B7B1E09493
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73347.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:E81F831FBD2FC68E3809D9DB7C2B9CCA846C709F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73374.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Dance Boy / Дэнс Бой - Танцуй с нами! (1991) [MP3|192 kbps]<Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73414.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:86E974B008A922F35FA7A9F1F5EF47DE2657CDF9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73420.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:354E8AC55424D893F35538D7BDBC0DFD91433281
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73457.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:2D3F4F8CADE7FAD06820B185B16770269A78D58E
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73475.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:AE1ED023324ED931055AAD57DA3F74D8F98E9797
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73480.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:2C11DC54CC68D44004C1FF354EBC3C901D66677D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73490.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:437FDAF4F374D7F0703518A0D85E71A1633D32CD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73492.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73499.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавс�
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73502.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:6F20A05B6C7735F8BB546404B371458F439F373A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73508.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:6F20A05B6C7735F8BB546404B371458F439F373A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73509.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3CA8B925F49E98CDFF70913A300FE6D1463128E8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73510.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:3CA8B925F49E98CDFF70913A300FE6D1463128E8
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73511.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F183C69348D0F415BB096F0ADDDD9F7E7D34D54E
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73513.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:8407749B135662B07479D5D2FF86ACC8FAFE7E09
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73518.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:D580760B6EFC14FD96308CEDA6A73464BE1FFEED
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73519.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:D580760B6EFC14FD96308CEDA6A73464BE1FFEED
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73522.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:5B0B27E72419CC77F78864D0B83FC67F74A4A949
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73524.jpg" />
 </div>
 
 

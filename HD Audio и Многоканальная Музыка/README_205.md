@@ -1,3 +1,111 @@
+###  Публикация: 1659530   (190165) от 11.09.2023
+
+Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management (UK) Limited [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternativ und Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190165.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Hello Sunshine (2023 Remaster) 03:34
+2 Liberty Belle (2023 Remaster) 02:57
+3 Golden Retriever (2023 Remaster) 02:27
+4 Sex, War & Robots (2023 Remaster) 03:49(   Читать дальше...   )Жанр: Alternativ und IndieПродолжительность: 03:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49074308C1ECEA2FD3F4790859E66D2C3837F4BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659476   (190186) от 11.09.2023
+
+Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Springtime (00:04:11)
+02 - The Returner (00:03:50)
+03 - All Without Within (00:03:12)
+04 - Demons (00:04:29)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F4CE31E2A8D735DA04F6B6EAD5405E6C5B2F53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659500   (190207) от 11.09.2023
+
+Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, Stadium Rock and Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impending Fallout [00:01:33]
+02. More Alive [00:03:44]
+03. Stay Awake [00:04:24]
+04. Flat Earth [00:04:47](   Читать дальше...   )Жанр: Metalcore, Stadium Rock and MetalПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251BC59DAA43756111174EDF28FE8AC785338322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658763   (190478) от 10.09.2023
+
+Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190478.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In The Navy
+A2 Get Away Holiday
+A3 Citizens Of The World
+B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658993   (190636) от 10.09.2023
 
 OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
@@ -6,7 +114,7 @@ OSI - Дискография (4 releases) (2003-2012) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190636.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190636.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190968.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190968.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industri
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190972.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190972.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191028.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191028.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191222.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191222.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191294.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191294.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191300.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191300.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Vega - Battlelines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191318.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191318.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191320.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191320.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191324.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191324.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191913.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191913.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191974.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191974.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaugh
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192096.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192096.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лице
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192270.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192302.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192302.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192447.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192610.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192610.jpg" />
 </div>
 
 
@@ -466,7 +574,7 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192745.jpg" />
 </div>
 
 
@@ -493,7 +601,7 @@ Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Lo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192771.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192771.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192877.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192877.jpg" />
 </div>
 
 
@@ -547,7 +655,7 @@ A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193069.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193069.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193101.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193101.jpg" />
 </div>
 
 
@@ -587,114 +695,6 @@ Ring of Fire — американская неоклассическая/про�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313506   (193138) от 29.10.2022
-
-Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Whole Lotta Shakin' Goin' On
-A2 Great Balls Of Fire
-A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657087   (193139) от 02.09.2023
-
-Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193139.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A-me-ri-ca
-A2 If I Had A Hammer
-A3 Bye Bye Blackbird
-A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657185   (193142) от 02.09.2023
-
-Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193142.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Battlefield
-A2 South Cross Union
-A3 Prayers Of Steel
-A4 Halloween(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586584   (193169) от 29.10.2022
-
-Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip)]<Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eldorado Overture (2:13)
- 02. Can’t Get It Out of My Head (4:21)
- 03. Boy Blue (5:19)
- 04. Laredo Tornado (5:29)(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7274A0D8310CC1689F5E60331B3A2A35F21212
 ```
 
 

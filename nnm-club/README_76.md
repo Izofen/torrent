@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2013.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6DC9DF0FCFB9EFD7D805F0BFAA933225FCB72021
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2014.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:16B866C706388A5330ECF7ED82C6BE7AD4EC4DBF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2015.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Mystery Trackers 21: The Shrouded Village / Охотники за тайнами
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2016.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Zaz - Sains et saufs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2017.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:70436E806C5ED017386CAF9CEDF1F759D65706E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2018.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:3AC05816BC0260F2086DB7D1915C9E31E7549E8A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2019.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Directory List & Print Pro 4.35 RePack (& Portable) by elchupacabra [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2020.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:068806D50C886266EE5D25A1D679CECCDD0DF50F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2021.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D32038B7417B238FC7AF511A295FBBCC472D5F4E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2022.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:C57A7125245387BA4BEF2D183496A521744B3E68
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2023.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9E6897C4954E45F395EC3405D8898F52E6E9C26B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2024.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:2DBBCA831A891B4B6D1364A2D8E26FC2166A3C76
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2025.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ DumboFab Blu-ray Ripper 7.3.1 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2026.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:0E86D8EEE469DF2B2F7EEDFADE699DA091A748EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2027.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:46B8CAAB465DD22C9C4D92E059BB86424E0B359A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2028.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ CyberLink AudioDirector 2026 16.0.5703.0 Ultra (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2029.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Best of Vocal Trance 2025 [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2030.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Internet Download Manager 6.42 Build 45 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2031.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Internet Download Manager 6.42 Build 45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2032.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ CoolUtils PDF Combine Pro 4.2.0.151 RePack (& Portable) by elchupacabra [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2033.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:8958C3832EFA7B7B991420FC32E97A340E1B1A39
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2034.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:79C2B1F02E8A2685118D24EE452CD159D909613B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2035.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:02E1DA41DAB8F964A9EFAB125855F42133C38DC1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2036.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:6F247D1ADD7DCF2F2F31E8BFACCAF0CE380E5EE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2037.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Wondershare PDFelement 12.0.6.3738 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2038.jpg" />
 </div>
 
 

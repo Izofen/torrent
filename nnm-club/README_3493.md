@@ -1,3 +1,76 @@
+###  Публикация: 1719762   (110500) от 30.04.2024
+
+Adobe InCopy 2024 19.4.0.63 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
+Adobe InCopy позволяет авторам и редакторам текстов (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54DE0C710B1A892B0395F7B4D52F4D75D088EAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719601   (110501) от 30.04.2024
+
+Firefox Browser 125.0.3 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D607EB902C8B7B8773D61579F9AFA91C201B74C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719806   (110502) от 30.04.2024
+
+Fruits Basket: Prelude | Корзинка фруктов: Прелюдия [2022, Movie] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые полчаса фильма - это пересказ (краткий, но дословный) первых сезонов сериала так, что может создаться впечатление нудного повторения. Но наберитесь терпения! После 30-й минуты и до конца фильма (т.е. на протяжении еще часа экранного времени) перед нами разворачивается довольно интересная история отношений родителей Хонды Тору. Впервые мы видим её отца, больше (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: повседневность, романтикаРежиссер: Ибата ЁсихидэПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C001348607DFD77D026981797346D12D5B7F85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719314   (110503) от 30.04.2024
 
 Sara Landry - Live @ All Night Long, Knockdown Center New York, United States (2024-03-15) [MP3|320 Kbps] <Techno, Hard Dance>
@@ -6,7 +79,7 @@ Sara Landry - Live @ All Night Long, Knockdown Center New York, United States (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110503.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:B086380EDAD5DB7CE51B6440059BD8040081707D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110504.jpg" />
 </div>
 
 
@@ -59,7 +132,7 @@ magnet:?xt=urn:btih:90A33432654287C0CA617C2C3EBFCEA05F4DB150
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110505.jpg" />
 </div>
 
 
@@ -83,7 +156,7 @@ Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110506.jpg" />
 </div>
 
 
@@ -110,7 +183,7 @@ VA - Ethernal Motion Downtempo: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110507.jpg" />
 </div>
 
 
@@ -137,7 +210,7 @@ Grateful Dead - From the Mars Hotel: The Angel's Share (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110508.jpg" />
 </div>
 
 
@@ -164,7 +237,7 @@ magnet:?xt=urn:btih:91B6926EC5790B09824132C49961F8E2CAF6CB28
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110509.jpg" />
 </div>
 
 
@@ -188,7 +261,7 @@ VA - Uplifting Only Top 15: April 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110510.jpg" />
 </div>
 
 
@@ -215,7 +288,7 @@ Alborosie - Dub Pirate (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Reggae. New A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110511.jpg" />
 </div>
 
 
@@ -242,7 +315,7 @@ magnet:?xt=urn:btih:8F5472A55AE3D729B39201382833F2EC61E22710
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110512.jpg" />
 </div>
 
 
@@ -266,7 +339,7 @@ Matney & Stevie Salas - The Red Neck & The Red Man (2024) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110513.jpg" />
 </div>
 
 
@@ -293,7 +366,7 @@ Amerikan Kaos - Armageddon Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110514.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ Writhing Squares - Mythology (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psyched
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110515.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ magnet:?xt=urn:btih:406C9F1B48184558C0433CBDB1D1A59845F09968
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110516.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ Lynyrd Skynyrd - Fyfty (2023) 4xCD, Compilation, Super Deluxe [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110517.jpg" />
 </div>
 
 
@@ -398,7 +471,7 @@ magnet:?xt=urn:btih:A5171772EB7AADBC7874D22BFC970720FECC4910
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110518.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ magnet:?xt=urn:btih:F19AC5847095D12C60904F647F0A8BECD8A14E4B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110519.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ magnet:?xt=urn:btih:070735885BB00321CE64DDEB4D9DAD3585B37629
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110520.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:5912DC27D2C5B68046B99966231155B091DC79B7
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110521.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ magnet:?xt=urn:btih:FD7D900175B65792C2AF898B11AA176FA37BCBAF
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110522.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110523.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ magnet:?xt=urn:btih:C31531544B38207368A7AE0A4E00CD327DB19186
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110524.jpg" />
 </div>
 
 
@@ -572,7 +645,7 @@ magnet:?xt=urn:btih:35D9BBB5BC88C7AE1A46989104B317B558D1D86B
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110525.jpg" />
 </div>
 
 
@@ -583,80 +656,6 @@ magnet:?xt=urn:btih:35D9BBB5BC88C7AE1A46989104B317B558D1D86B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34A8E3E643D9DEFDCC7269D3C419F76878AD1BF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719774   (110526) от 30.04.2024
-
-Журнал | Квантик №2 (февраль 2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110526.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF7EA43B0E751ABD96C836F1094D43F05C4AA35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719776   (110527) от 30.04.2024
-
-Журнал | Квантик №3 (март 2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110527.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0468220E3C85EFC2BB933CEB3E8BD44E235E7796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719649   (110528) от 30.04.2024
-
-О. Ф. Кабардин | Физика. Учебник для 7 класса (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый учебник — один из основных элементов предметной линии УМК «Архимед» по физике. Материал учебника предполагает изучение всех тем курса физики на уровне ознакомления с физическими явлениями, формирования основных физических понятий, определения физических величин, приобретения умения измерять физические величины, применения полученных знаний на практике. (   Читать дальше...   )Жанр: Учебная литература по физикеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA2F0F58A075CBD7AEE2ACC4E21C8B835527809
 ```
 
 

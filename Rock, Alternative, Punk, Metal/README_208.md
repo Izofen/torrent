@@ -6,7 +6,7 @@ Damanek - Making Shore (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131193.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131197.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131201.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lunatii - Deprosorryum (2018) [FLAC|Lossless|image + .cue] <Depressive Black Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131203.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Suol - Suol (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131205.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lunatii - Diskonformism: Anhedonia in Utopia (2020) [FLAC|Lossless|image + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131207.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cirith Ungol - Dark Parade (2023) [FLAC|Lossless|image + .cue] <Heavy, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131209.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Strike Master - Up for the Massacre (2006) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131211.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gary Moore & Projects: Skid Row, Colosseum II, Greg Lake, BBM -54 Albums, 2EP, 1
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131239.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Damn Yankees - Damn Yankees / Don't Tread (1990/1992) [WavPack|Lossless]<Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131425.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Galahad - Beyond The Realms Of Euphoria (2012) [FLAC|Lossless]<Neo Progressive>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131467.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Galahad - Beyond The Realms Of Euphoria (2012) [FLAC|Lossless]<Neo Progressive>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131473.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Porcupine Tree - Closure / Continuation.Live (2023) [MP3|320 Kbps] <Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131485.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131493.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Six Foot Six - Beggar's Hill (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131509.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ S.N.A.K.E. - Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131512.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ MOF - Outsiders (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap-Rock, Math Rock, Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131519.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Daemon Grey - Daemonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131531.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131533.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ We Are Perspectives - Heritage (Album) (2023) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131541.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Validor - Dawn Of The Avenger (2012) [MP3|320 кб/с]<Folk / Heavу/ Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131626.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Deformed Slut - Stench Of Carnage (2011) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131633.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Snail - Terminus (2012) [MP3|320 кб/с]<Psychedelic Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131641.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Marilyn Manson - The Golden Age Of Grotesque (2003) Deluxe Edition, 2006, Univer
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131840.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ magnet:?xt=urn:btih:90B3A0CFED72A7F1DEC985154B761F7328D5098E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131860.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Satanic Warmaster - Strength and Honour (2001) Reissue, 2007, Northern Heritage 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131861.jpg" />
 </div>
 
 

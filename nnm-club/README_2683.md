@@ -6,7 +6,7 @@ El Leyton & los Cerrucos - Aires de Lornillo (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70506.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C57B795EC333959A16BAC28D6BD9F11992C89BC8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70507.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Phil Woods Quintet - Mile High Jazz: Live In Denver (1996) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70508.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Downhome Kin - Soul in the South (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70509.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:C6BBEBA5FBE041EA473F3A4815057554B15BADD9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70510.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Balduin - Electro Swing Instrumentals 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70511.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:FB6B809A13CDE2E62A739F4F0B5E19BF44C0B4BB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70512.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MORTEN - We Rave You presents, Bootshaus Cologne, Germany (2025-01-10) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70513.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Foster Willis and the Slides - Long Hard Night (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70514.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:88C38E64C179C0BD300999AB959D4FFC5CCA2BE1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70515.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Role Model - Kansas Anymore (2024) The Longest Goodbye, 2025, Interscope Records
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70516.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Moonchild Sanelly - Full Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70517.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Derrick Dove & the Peacekeepers - Burn It Down (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70518.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Third Party - Live @ VOID Club, Thailand (2025-01-31) [MP3|320 Kbps] <Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70519.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:B039D94176688623832C42781B2B0697B1D4F4DB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70520.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Porsche Sprint Challenge Southern Europe. Кубок Порше. Эшторил 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70521.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Samson - Head On (1980) Japanese Edition, Reissue, 1992, Jimco Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70522.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ The Wombats - Oh! The Ocean (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70523.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:E34B981C485B97D44E5E81121A26FCBC5CFBA1F5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70524.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0CD3EFCA29CBC9B3E4132875CE974683928C3CEF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70525.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:AF192600F28DE35B1B27C46DD8A479E3CF23E618
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70526.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Joe Pass - Virtuoso #4 (1973) 2CD, 1992, Pablo Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70527.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ The Phil Woods Quintet - Summer Afternoon Jazz (1977) 1999, Hindsight Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70528.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:8F235A4BE3EB29DCEAFF3A8691D3C583AAB497A3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70529.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:43D407ABE8D0EB6FBB515C88F8F3C2E2F8374169
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70530.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:31E83EC16C2C9809849B91CF60DC328A642EE115
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70531.jpg" />
 </div>
 
 

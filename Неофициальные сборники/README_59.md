@@ -6,7 +6,7 @@ VA - Compilation part 89 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107637.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107723.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Music News vol.391 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107729.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Asaf Avidan - Compilation (2024) [MP3|320 Kbps] <Pop-Rock, Folk, Indie Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108137.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Music News vol.384 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108445.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Electronic compilation part 83 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108523.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Trance In Motion Vol.376 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108826.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Music News vol.376 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109510.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109786.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Hippie vibes Make Love... (2024) [MP3|320 Kbps] <Pop, Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109834.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hank Marvin - Compilation (2024) [MP3|320 Kbps] <Instrumental Guitar>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109842.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:5CDBD03D6521BE03C39612F494E916EC73B68E21
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109848.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Music News vol.374 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109850.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blues Saraceno - Compilation (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109927.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Kovacs - Compilation (2024) [MP3|320 Kbps] <Pop, R&B>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110276.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Trance In Motion Vol.375 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110322.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Trance In Motion Vol.374 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110326.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 07 (2022) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110434.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 05 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110437.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 06 (2022) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110442.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110659.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110677.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110683.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Jeff McMillan - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Soul>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110775.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Feel Good Soul & Funk (2024) [MP3|320 Kbps] <Pop, Soul, Funk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111214.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Red Nation (Native American Music) (2024) [MP3|320 Kbps] <Native American, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111222.jpg" />
 </div>
 
 

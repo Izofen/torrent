@@ -6,7 +6,7 @@ VA - Summer 2024: Best of Deep House (2024) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106108.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - IBIZA 2024 (Deluxe Version) [MP3|320 Kbps] <House, Organic House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106157.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Armin van Buuren - A State Of Trance 1183 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106163.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Top Summer Uplifting 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106170.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Balatonica Chillout: Summer Edition 2024 (2024) [MP3|320 Kbps] <Downtempo, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106186.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Sunrise Sessions Vol. 1 - Mixed by Robilardo (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106191.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Redux Selection Vol. 8 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106192.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sonic Tribe - 2 Albums (2000-2002) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tranc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106310.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gorgon City - 6 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <House, Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106342.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Songspire in Ibiza 2024 - Mixed by Robilardo (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106353.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Keep It Trance Vol. 23 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106395.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ray Orion - Sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106413.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - 9 Years, Pt. 1 (2024) [MP3|320 Kbps] <Progressive House, Organic House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106421.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Space 92 - Live @ Musée Aeroscopia Toulouse, France 2024-06-01 (2024-06-01) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106443.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Spahn Ranch - The Coiled One (1995) Deluxe Edition, 2024, Cleopatra Records [FLA
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106480.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Exx Boundless Summer Hits 2024 (2024) [MP3|320 Kbps] <Progressive House, Me
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106485.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Oscar Mulero - Have you ever retired a human by mistake? (2024) [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106562.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Uplifting Only Top 15: July 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106563.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Nothing But... Trancetopia Vol. 16 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106602.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Ibiza 2024 - Armada Music [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106615.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Chris Avantgarde - Live @ Seismic Dance Event Spring Edition (The Concourse Proj
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106623.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Black Hole Trance Music 07-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106629.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Pain - I Am (Remixes) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106674.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Black Hole House Music 07-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106684.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Armin van Buuren - A State Of Trance 1181 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106709.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Chillout Time Spring 2024 (2024) Original Mix [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106713.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1725024   (109096) от 22.05.2024
+
+VA - Fulltime Production Electro 80, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kano - Super Extra Sexy Sign (Extended) (6:30)
+02. International Music System - Run Away (5:40)
+03. Peter Richard - Marlene (4:31)
+04. International Music System - Bonus Single 'Joke' (5:19)(   Читать дальше...   )Жанр: Electro, House, Nu-DiscoПродолжительность: 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81148E9CE6B6087666CADE3872EA5A36D3EC0C97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724948   (109097) от 22.05.2024
+
+Чингиз Абдуллаев | Только свои (2024) [MP3, Анатолий Петухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109097.jpg" />
+</div>
+
+
+###  Подробнее
+
+В уединенном особняке неподалеку от Лондона на встречу Рождества собрались только свои: посол одной из восточных стран с женой, его сын со своей взбалмошной супругой, дочь с элегантным сдержанным мужем, а также друг дипломата – миллионер с красавицей-женой. Приближается ночь, за окном метель, словом, самая подходящая обстановка для идеального английского убийства. (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЛитРес: чтецПродолжительность: 06:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E077B043E2B29BFCE0AA82123DA2A5B14317EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725005   (109098) от 22.05.2024
+
+Soul Browser 1.4.21 Mod by youarefinished [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soul Browser - добротный браузер, что несмотря на своё минималистичное визуальное исполнение весьма функционален. И ко всему прочему прилагает максимум усилий для того, чтобы пользователи не сталкивались с различными трудностями и ненужными им факторами. Автоматическая борьба с рекламой, встроенная качалка, видеоплеер, тонкая настройка управления (есть поддержка (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.05.2024Разработчик: SoulSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F2826A432D1012782B4CCC87FEA41D43B4B5B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725023   (109099) от 22.05.2024
 
 VA - Fulltime Production Electro 80, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu-Disco>
@@ -6,7 +81,7 @@ VA - Fulltime Production Electro 80, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109099.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Reach - Prophecy (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109100.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:5E1ECAA804C30AA942A55D6641E6D874DA20142B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109101.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ Skov-Roar-Rifbjerg Trio - Busy Spectacle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109102.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ magnet:?xt=urn:btih:6E2C4180F4CDA1328933554FDCF3EBCCD51C8C2D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109103.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ Rare Touch - Rare Touch (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109104.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ Smooth Jazz Music Academy, Background Instrumental Music Collective - The Softne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109105.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ Morning Giants - Eccentric Beasts (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109106.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109107.jpg" />
 </div>
 
 
@@ -243,7 +318,7 @@ Alana Yorke - Destroyer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109108.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ Engineered Society Project - Deception (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109109.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109110.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:FA25CDF63FD4C54162E454AED6C223D4BC64924B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109111.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ magnet:?xt=urn:btih:8D984462DB2DFEA8A9B725154D4928AC0669C2C7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109112.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ magnet:?xt=urn:btih:75642A86B45C60A34268FE57E5064635A0C9B160
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109113.jpg" />
 </div>
 
 
@@ -393,7 +468,7 @@ magnet:?xt=urn:btih:9288C4A078F7D12168258CF8C62BD9601FACB0BB
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109114.jpg" />
 </div>
 
 
@@ -418,7 +493,7 @@ magnet:?xt=urn:btih:273D75EB3D211AE4E1DF9F076B4C6890EC43DD4E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109115.jpg" />
 </div>
 
 
@@ -442,7 +517,7 @@ Deep Forest, Olivier Delevingne - Crystal Clear (2024) [FLAC 24/44,1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109116.jpg" />
 </div>
 
 
@@ -469,7 +544,7 @@ magnet:?xt=urn:btih:C3FB7C6BCB0B57499AEF42C350DE1E0F18396C1F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109117.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ magnet:?xt=urn:btih:6EC76C3F9135D95E31E98F29AD1715D77F146BA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109118.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ Erik Nieder - Miracle Maker (2024) Devotional Edition [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109119.jpg" />
 </div>
 
 
@@ -544,7 +619,7 @@ magnet:?xt=urn:btih:D908BB707D4231AEC0288BDFD02CC05D2FE55449
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109120.jpg" />
 </div>
 
 
@@ -569,7 +644,7 @@ Geezer - Interstellar Cosmic Blues & The Riffalicious Stoner Dudes (2024) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109121.jpg" />
 </div>
 
 
@@ -583,79 +658,6 @@ Geezer - Interstellar Cosmic Blues & The Riffalicious Stoner Dudes (2024) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:104D8C0D29536ED1C9FB41E827BC305B013EC920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724904   (109122) от 22.05.2024
-
-Сергей Соловьёв | История России с древнейших времен (Том 29) (2014) [MP3, Валерия Лебедева]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый труд великого русского историка Сергея Михайловича Соловьева (1820-1879) является крупнейшим достижением русской исторической науки XIX в. Соловьев - "первый среди равных" в плеяде блестящих русских историков, в которую входят Н. Карамзин, В. Ключевский, Н. Костомаров, А. Пресняков, Т. Грановский, С. Платонов и многие другие.
-Двадцать девятый (   Читать дальше...   )Жанр: ИсторияИздательство: Нигде не купишьПродолжительность: 19:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D85E8CF9DE0105ABF7D1869AC62D3EA4666B401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724929   (109123) от 22.05.2024
-
-Яир Лапид | Джош Ширман (Книга 3). Случайная жертва (2024) [MP3, Александр Васильев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джош Ширман берется за необычную для частного сыщика работу — охранять молодую жену находящегося в тюрьме босса преступной группировки — и не справляется с ней: девушка погибает от разрыва брошенной наемным убийцей гранаты. Идет охота и за Джошем. Задача, которую он себе поставил — прожить достаточно долго для того, чтобы отправить за решетку того, кто совершил это (   Читать дальше...   )Жанр: детектив, триллерИздательство: СиндбадПродолжительность: 07:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712D5F942E8292CE799B242D9E43E78DD2FCB327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725015   (109124) от 22.05.2024
-
-Наш ответ папам римским (1930) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем коротенький фильм. Лента построена на чередовании мультипликации и кадров из кинохроники. В фильме показано, как на фабриках советские рабочие производят оружие и патроны. С заводов их рассылали в организации Общества содействия обороне, авиационному и химическому строительству — Осоавиахим. Мультипликационный герой призывает членов обществ вступать в стрелковые (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: агитфильм, анимация, немое киноРежиссер: А. СкрипченкоСубтитры: русские (интертитры)Продолжительность: 00:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4C35866B2508C2692B7CB4E6BD82161803DB2A
 ```
 
 

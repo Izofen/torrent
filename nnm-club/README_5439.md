@@ -1,3 +1,206 @@
+###  Публикация: 1597231   (166939) от 14.12.2022
+
+Aneuma - Climax (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fall Apart (03:56)
+02 - Creatures (05:15)
+03 - Castaway of Chance (04:28)
+04 - Ashes of Your Fears (04:48)(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89694957C69139443CAE74570E84364A1B9FF9FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431683   (166940) от 14.12.2020
+
+Алиса Ткачева | Наблюдаем и изучаем. Динозавры (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Динозавры" расскажет о таинственном и далёком мире динозавров. Читатель познакомится с главными этапами эволюции, узнает, как появились и жили древние ящеры, а также, что стало причиной их гибели. Принять участие в жизни динозавров позволят увлекательные задания, игры и головоломки, которые чередуются в книге с невероятными и познавательными фактами. (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E61E0CF5F628E97CB64890906092857633664B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672871   (166941) от 30.10.2023
+
+Интернет-журнал | Домашняя лаборатория №10 (2023) [DJVU]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166941.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: Интернет-изданиеФормат: DJVUКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64845A483417E8372E0E682E14DAAF23A704B6AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515846   (166942) от 10.12.2021
+
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Open to Close Solo Set, Stereo Montreal Part 1, Canada 2021-11-25) (2021-12-02) [MP3|320 Kbps] <Trance, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilija Djokovic - Atom
+02. Julian Jeweil - And We (Markus Schulz Afterdark Reconstruction)
+03. CamelPhat & Will Easton - Witching Hour
+04. The YellowHeads - Experimental Evidence(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50952E7AF2B212750837F6BE3AE5DFCE8EC9CCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345241   (166943) от 14.12.2019
+
+Эмили Нагоски, Амелия Нагоски | Выгорание. Новый подход к избавлению от стресса (2020) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами руководство по саморазвитию и преодолению стресса у женщин от автора международного бестселлера «Как хочет женщина» доктора философии Эмили Нагоски и ее сестры Амелии, доктора медицинских наук.
+Девушки испытывают эмоциональное выгорание совсем не так, как мужчины. Между ожиданиями и навязанными стереотипами современного общества и тем, как женщины ощущают (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C8851E89CE68951F5A2844E4D444EF1FF7AC34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431660   (166944) от 14.12.2020
+
+Art Text 4.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Text - красивое текстовое приложение под Mac OS для тех кому часто нужно рисовать высококачественную графику: тексты заголовков, кнопки, баннеры, логотипы, иконки и тому подобное. ПО позволяет преобразовать любой текст или векторное изображение в яркую графику высочайшего качества.
+Благодаря поддержке слоев, обширной векторной библиотеке и более 700 примитивов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2020Разработчик: BeLight Software Ltd.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A5C338C05AA27E99C168D7E6F60E721324370C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672932   (166945) от 30.10.2023
+
+Формула 1. Сезон 2023. Этап 20. Гран-при Мексики. Гонка (29.10.2023) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166945.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 октября 2023, воскресенье. 23:00 МСК. Этап 20, Мехико. Гран-при Мексики. Гонка (71 круг)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B0FEC92B6166301B5BE26E927EB1048DB6D71B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516219   (166946) от 10.12.2021
+
+Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atom Heart Mother (Live In Rome Palaeur)
+02. Careful With That Axe, Eugene (Live In Rome Palaeur)
+03. Fat Old Sun (Live In Rome Palaeur)
+04. The Embryo (Live In Rome Palaeur)(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F199CD4328096AC3A008A4A7BFA229FEC8BA33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345447   (166947) от 14.12.2019
 
 Waltr 2 v2.6.25 [En]
@@ -6,7 +209,7 @@ Waltr 2 v2.6.25 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166947.jpg" />
 </div>
 
 
@@ -31,7 +234,7 @@ magnet:?xt=urn:btih:E264379399D025174F3E12FD6B32C5FB6D65F153
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166948.jpg" />
 </div>
 
 
@@ -55,7 +258,7 @@ magnet:?xt=urn:btih:74C0AF2B0B42701C61E807BA6CF0EDC23CF64422
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166949.jpg" />
 </div>
 
 
@@ -82,7 +285,7 @@ Watermark Sense - Flexible batch watermarking 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166950.jpg" />
 </div>
 
 
@@ -107,7 +310,7 @@ magnet:?xt=urn:btih:F107D7C1ABB6C574C04D36FFAEC7C1CAF876F12E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166951.jpg" />
 </div>
 
 
@@ -131,7 +334,7 @@ YT Downloader 9.5.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166952.jpg" />
 </div>
 
 
@@ -155,7 +358,7 @@ NXPowerLite Desktop 9 v9.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166953.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166954.jpg" />
 </div>
 
 
@@ -207,7 +410,7 @@ magnet:?xt=urn:btih:58368FF8BF3C7D73A3503155D678C5BDD8F3880A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166955.jpg" />
 </div>
 
 
@@ -232,7 +435,7 @@ magnet:?xt=urn:btih:8623C9BCA82C39D291026173B6DDFABBCDAB0431
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166956.jpg" />
 </div>
 
 
@@ -256,7 +459,7 @@ magnet:?xt=urn:btih:D547C60F20C183D9653F8CE32049C9E3F57A43BE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166957.jpg" />
 </div>
 
 
@@ -282,7 +485,7 @@ Wondershare UniConverter Ultimate 15.0.4.17 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166958.jpg" />
 </div>
 
 
@@ -306,7 +509,7 @@ magnet:?xt=urn:btih:FF77CF6270BC4F4BC992D70EC410ED99B7CD3745
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166959.jpg" />
 </div>
 
 
@@ -330,7 +533,7 @@ BBEdit 13 v13.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166960.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ Gui Boratto - Pentagram (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166961.jpg" />
 </div>
 
 
@@ -373,6 +576,30 @@ magnet:?xt=urn:btih:511386E27D28934D9BBA23799C784A61D6D08349
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344988   (166962) от 14.12.2019
+
+«Ростелеком» хочет обеспечить деревни и сёла покрытием Wi-Fi
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_166962.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ростелеком» хочет получить полосы частот в диапазоне 5 ГГц для запуска Wi-Fi в малых населенных пунктах в рамках проекта по ликвидации цифрового неравенства. В перспективе ресурс в этом диапазоне может оказаться полезен и для развития 5G, причем его уже имеют другие операторы, которые опасаются смены правил игры. Против выделения потенциально могут выступить и силовые (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597416   (166963) от 14.12.2022
 
 Oopart - Echoes of the Shadhavar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
@@ -381,7 +608,7 @@ Oopart - Echoes of the Shadhavar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166963.jpg" />
 </div>
 
 
@@ -408,7 +635,7 @@ EdgeView 2 v2.910 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166964.jpg" />
 </div>
 
 
@@ -419,237 +646,6 @@ EdgeView 2 - это новейший просмотрщик изображени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FCE1DA493CFBDCAC14644F1F795BA3B2821F46F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516227   (166965) от 10.12.2021
-
-Swift Publisher 5 v5.6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swift Publisher - это пакет графических утилит для macOS особенно пригодится тем, кто занимается полиграфией. Swift Publisher предназначен для создания макетов документов, печати листовок, газет, брошюр, буклетов и подобных документов. Swift Publisher работает с шаблонами страниц, благодаря чему пользователь может разместить на них объекты, используемые одновременно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: © 2021 Belight Software, LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBF173FF040568A0F390ACA1965860DC1207BF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298432   (166966) от 14.12.2019
-
-Peter Andersson (raison d'etre, Atomine Elektrine, Necrophorus, Bocksholm, etc..) - Discography 100 Releases (1992-2019) [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Industrial, Experiment ...
-
->>След.
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoga - Part 1 (09:55)
- 02. Yoga - Part 2 (09:05)
- 03. Spiritcatcher (06:31)
- 04. Yoga - Long Version (27:33)Тип издания: CD, WebЖанр: Dark Ambient/ExperimentalПродолжительность: 131:21:48 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990D32C4B3E2EB738E4E3A59D2FA8616D1E0B99D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516241   (166967) от 10.12.2021
-
-Вайолет - Небесный господин (2021) [MP3|320 Kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166967.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Небесный господин
-2. Леди Баттерфляй
-3. Звездочёт
-4. Клятва(   Читать дальше...   )Жанр: MetalПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853B5A88244AB454C8CBB4E2E28264A1EAF3F7A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597305   (166968) от 14.12.2022
-
-Realm - Endless War (1988) Reissued 2006 [FLAC|Lossless|image + .cue] <Thrash Metal. Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless War
-02. Slay The Oppressor
-03. Eminence
-04. Fate's Wind(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F3A58DC877F30FE847791CF786BF07D7D7264F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431734   (166969) от 14.12.2020
-
-FigrCollage 3.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166969.jpg" />
-</div>
-
-
-###  Подробнее
-
-FigrCollage - программа для создания удивительных композиций, коллажей и мозаик, из любых цифровых изображений и текста. Приложение поддерживает обработку изображений в форматах JPG, PNG, TIFF, и дает возможность сохранять готовые файлы в высоком качестве.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2020Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865F960696B4CB927223EEA45C250A8735AF72BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345228   (166970) от 14.12.2019
-
-Шестеро вне закона / 6 Underground (2019) WEBRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть миллиардеров фальсифицируют собственные смерти и создают отряд мстителей, чтобы самостоятельно вершить правосудие.Производство: США / Bay Films, Skydance MediaЖанр: Боевик, триллерРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB60A6D6D9A2FE31BEACD31B2AD1CE472C7BAE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431573   (166971) от 14.12.2020
-
-Resize Sense - Flexible batch image processing 2.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resize Sense приложение, которое поможет вам изменить размер, обрезать, выпрямить, повернуть, зеркально отобразить и переименовать много изображений. Редактирование IPTC и EXIF метаданных даже в нескольких изображений одновременно. Есть ли у вас строгие требования к размеру для веб-дизайна проекта / графики, или просто хотите,  сделать много фотографий меньшего размера (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2020Разработчик: VeprITПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BA6507784BDB0127C88230A954FFF2DB3A4FF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597424   (166972) от 14.12.2022
-
-Exhorder - Mourn The Southern Skies (2019) [FLAC|Lossless|image + .cue] <Thrash, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Time 3:53
-02. Asunder 4:57
-03. Hallowed Sound 5:08
-04. Beware The Wolf 3:55(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448F41BAE78B60E996D9FAF9CF15D23F9EEB1DD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516238   (166973) от 10.12.2021
-
-ДМЦ (Дороги Меняют Цвет) - Электроакустика, Часть 1 (2021) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сирень
-2. Накорми голубей
-3. Целуй ниже
-4. Запой(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4D143D6C6172DF2C5E3AC70D5064AEFED0D7A4
 ```
 
 

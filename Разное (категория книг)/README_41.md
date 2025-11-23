@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62783.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:817D6870E2C0C1D4366BB3B511BB4433AB4CA200
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62804.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1F30385CAE8B981253B5DACC0F0B894FD01D7A38
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62818.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:268D729A92FC2931DC2EF4F76EDDC337B6F1FB41
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62946.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D3EF7588B423589A595DA03704D834B91D580AEF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63709.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:75B33DB7E645E913A95A2DF4A27BE61A692309DA
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63797.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D7135E20C8389691455848CCF69ED69946A476E3
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63990.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:52C1EB415C755AA702C9DD7740BBB3915083B802
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63991.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:0C127E46864C4756DAED8B185EC57C428A6503A9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64043.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:EF6458292C3F02F09646517C621B6FC5377BB0C0
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64244.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:AA6C6F3B091DBDA1248284C39B33EFE556A4250F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64817.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:A87605AD1E1AE5D1E885205D1B9C8E987D0AB494
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65264.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66874.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66900.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66902.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66905.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:4BA328606CA253ACD59C6457CC9C016AEB12DA32
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68162.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:C8006117214D396C5291EF6A97655C08E71538FC
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68395.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:6EEE3236DF938A43C4C429B37BFE64691D38D245
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68582.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:BC404E35065CE7D271E4ABEA5F42916551CA9062
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68667.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:C7FF4C03DD42DEFC849664F17D419CB3D455D069
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69689.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:2625246E6611635385783ACC27A6DFE5E81C7FD3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69829.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:CC20CCEE27864C61B28602DFE53A03A0AC41FA0B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69955.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A9884A62EB72258788A588246774E25B426B4B03
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70306.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:8CE129C61980309EC43F1CE6347729F965D17BC6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70446.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:2EA80FF623EEE67EF615A0F6D561F581260159FE
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70469.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1824132   (128601) от 14.10.2025
+
+Это сладкое слово — свобода! (1972) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из стран Латинской Америки 70-х годов. В основе фильма — всего лишь один эпизод революционного движения. Освободить из тюрьмы вождей революции было почти невозможно. И тогда было принято решение — пробить туннель к камере политзаключенных...Производство: СССР / МосфильмЖанр: драмаРежиссер: Витаутас ЖалакявичюсАктеры: Регимантас Адомайтис, Ирина Мирошниченко, Ион Унгуряну, Бронюс Бабкаускас, Юозас Будрайтис, Лоренц Арушанян, Михаил Волонтир, Родион Нахапетов, Саят Алиева и др.Субтитры: отсутствуютПродолжительность: 02:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7534C2E676937ED763CE700B50D4D47A9061F012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824124   (128602) от 14.10.2025
+
+Гиперболоид инженера Гарина (1965) DVDRip [H.264/2160p] [4K, SDR] [Hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128602.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале мая 192...года на заброшенной даче под Ленинградом происходит убийство. Сотрудник уголовного розыска Василий Шельга обнаруживает зарезанного человека со следами пыток. В просторном подвале дачи проводились какие-то физико-химические опыты. Возникает предположение, что убитый - некий инженер Петр Петрович Гарин. Между тем, настоящий инженер Гарин, тщеславный (   Читать дальше...   )Производство: СССРЖанр: фантастика, детективРежиссер: Александр ГинцбургАктеры: Евгений Евстигнеев, Всеволод Сафонов, Михаил Астангов, Наталья Климова, Владимир Дружников, Михаил Кузнецов, Юрий Саранцев, Николай Бубнов, Виктор Чекмарев, Павел Шпрингфельд, Бруно Оя, Алеша Ушаков, Артем Карапетян, Анатолий Ромашин, Степан Крылов, Владимир Балашов, Константин Карельских, Валентин Брылеев и др.Субтитры: отсутствуютПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCE5B403A76124D82AB90E6B70D5859732DA65A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824116   (128603) от 14.10.2025
+
+Чудаки из Балтимора / The Baltimorons (2025) WEB-DLRip [H.264] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Балтимор, канун Рождества. Прямо на пороге дома родителей своей девушки Клифф, бывший стендапер и алкоголик в завязке, спотыкается и выбивает себе зуб. Он находит единственного работающего в это время стоматолога — уже немолодую разведённую женщину Диди. Получив медпомощь, Клифф выходит на улицу и видит, что его машину увёз эвакуатор, тогда Диди предлагает его подвезти. (   Читать дальше...   )Производство: США / Duplass Brothers ProductionsЖанр: драма, комедия, мелодрамаРежиссер: Джей ДюплассАктеры: Майкл Штрасснер, Оливия Луккарди, Крис Штрасснер, Лиз Ларсен, Льюис Петерсон, Роб Феникс, Джесси Коэн, Майкл Чандлер, Зои Штрасснер, Брайан МендесПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, английскийСубтитры: русские (full - AI), английские (full, SDH), французские, испанскиеПродолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEBC9C336AAA929A6A91FF16281BD5FAADD645B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824130   (128604) от 14.10.2025
 
 Gwyn Ashton - Grease Bucket (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +78,7 @@ Gwyn Ashton - Grease Bucket (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128604.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Earth - The Legendary Lost Tapes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128605.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ CHristina Crofts - Croftstown Unboogie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128606.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ magnet:?xt=urn:btih:5E4926D266A78F5DDF9B9B5203C5AA94C1E43E11
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128607.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128607.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ Spotify 1.2.72.438 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128608.jpg" />
 </div>
 
 
@@ -136,7 +208,7 @@ Freemake Video Converter 5.0.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128609.jpg" />
 </div>
 
 
@@ -160,7 +232,7 @@ DU Meter 9.01 Build 4874 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128610.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ O&O Defrag Professional + Server 30.0 Build 1063 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128611.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:05AFEFEB0CECA4253027DBA041C3A820D6CC39E0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128612.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ magnet:?xt=urn:btih:687438600C47F81F9B7AA7AB7BC93D7365656634
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128613.jpg" />
 </div>
 
 
@@ -258,7 +330,7 @@ magnet:?xt=urn:btih:570998037B0C6C5A436EDD34EE96236674F812F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128614.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ magnet:?xt=urn:btih:AECF405B30BF7A242E545B9B9532E7AB8449AB39
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128615.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ magnet:?xt=urn:btih:0828E86078E81E4685D23AC747C01E63991DE08D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128616.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ magnet:?xt=urn:btih:4FDF8D4F973EF36F0343C61E77816151AB3364C0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128617.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:C637872E18C03E9175169929F1384D806E4B6F80
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128618.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ magnet:?xt=urn:btih:6F6A2EA720CD0ED562A17C6D809D2EA492B001D0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128619.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ magnet:?xt=urn:btih:82D199E9355FB6D160C30BFE3E50B9A13210DAF9
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128620.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:C05752876189766FD9649E2FF35ACB48644215EE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128621.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ magnet:?xt=urn:btih:D0FDFB6FD17D8D1C8F39EB48721A09B70F62374E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128622.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ magnet:?xt=urn:btih:C6230049C7012FE51DF2E370739BF5F31AC978E7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128623.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ magnet:?xt=urn:btih:F194A80B29E1E5DC3CC235ED6AACF172443ED399
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128624.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ magnet:?xt=urn:btih:668195110A9FC7FD940EC3D228C17FA06508BD53
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128625.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ magnet:?xt=urn:btih:4F6D6BD2AEC72559ACAC267DC5CEA6EB80ACE7E1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128626.jpg" />
 </div>
 
 
@@ -560,78 +632,6 @@ magnet:?xt=urn:btih:4F6D6BD2AEC72559ACAC267DC5CEA6EB80ACE7E1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2F470AB3ACAEBEF9A989F6C49DCCCD66CCB6DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823688   (128627) от 14.10.2025
-
-Поцелуй женщины-паука / Kiss of the Spider Woman (2025) HDTS [MVO] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валентин, политический заключённый, делит камеру с Молиной, осуждённым за непристойное поведение. Между ними завязывается неожиданная связь, пока Молина пересказывает сюжет голливудского мюзикла с участием Ингрид Луны.Производство: Мексика, США / Artists Equity, Mohari Media, Josephson EntertainmentЖанр: мюзикл, драмаРежиссер: Билл КондонАктеры: Диего Луна, Тонатиу, Дженнифер Лопес, Бруно Бичир, Хосефина Скальоне, Алин Майягоития, Дритон «Тони» Доволани, Люция Джандольфо, Федерико Репетто, Лукас БаррейроПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: Русские (на песни)Продолжительность: 01:59:43Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD77B67232F8B2EFF9491DBADB2C10FCABF79A4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824019   (128628) от 14.10.2025
-
-CyberYozh, Евгений Ивченков, LastByte | Анонимность и безопасность 2.0 (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько стоят данные на ваших устройствах? Лучше всего, если ценность ваших личных данных знаете только вы, и никто другой. Не всегда стоимость данных определяется деньгами. Мы разработали программу так, чтобы вы смогли на практике проработать все возможные векторы атак на ваши личные данные и построить защиту. Под руководством опытных преподавателей и с новыми идеями, (   Читать дальше...   )Производство: CyberYozh AcademyЖанр: видеокурс, обучающий курс, кибербезопасностьЯзык озвучки: русскийПродолжительность: 42:22:40Реклама: наложение на видео и в презентации (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7B08CF3FAAA5585DDDE375D2A4635E86640A83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823999   (128629) от 14.10.2025
-
-Ловушка для кролика / Rabbit Trap (2025) WEB-DL [H.264/1080p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1976 год. Супруги Дарси и Дафна приезжают в валлийскую деревушку, чтобы заняться своими проектами. Оба работают со звуком: Дафна создаёт мелодии из звуков, которые муж-звукорежиссёр записывает на портативный микрофон. Однажды во время записи Дарси падает в некий магический круг, а на следующий день к ним заявляется якобы сосед — подросток, который постепенно втирается (   Читать дальше...   )Производство: Великобритания, США / Spectre, Vision, Align, Bankside FilmsЖанр: ужасы, триллер, детективРежиссер: Брин ЧейниАктеры: Дев Патель, Рози Макьюэн, Джейд Крут, Николас СэмпсонПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17C3112F6505B240816FB8883A20ACDED633EA9
 ```
 
 

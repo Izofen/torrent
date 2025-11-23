@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69258.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4C1E307F6A29A04B57B26D5986A3314B6DBBCCE1
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69259.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Авторский сборник Шансона otKOSTETa (2025) [FLAC|Los
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69260.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Dirkschneider - Balls to the Wall Reloaded (2025) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69261.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Paul Van Dyk - Live at opening Kazantip Z17 (2009) TVRip [H.264/1080p] [hand mad
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69262.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:60C6EC311429BAC89420A883C2C9F1C97970AF3C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69263.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:DC0EDA60700241C9FF5B3E74BCA7763B09D62B4D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69264.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:68DE2C9FC66031A69B7C65E0BF8C8AF6E2635114
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69265.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Armik - Gitano Amor (2025) [MP3|320 Kbps] <Flamenco, Instrumental, Guitar>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69266.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Grandes Del Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69267.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:14E4355EEC05EF7728AF0DBB5F4EDC922ED72C4E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69268.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:0F95EFF384820512766A1F5A99A5C60C68E9E209
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69269.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Русский шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69270.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Soulspell - Spirits of Ghosts (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69271.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:D25F31A97F141F65C901220FD8D88F0506BB4A5B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69272.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:8AE8AC1B5406205FEFB8B76072716F2A5668D609
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69273.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:94515198297906B74F90075FCED3EAB343BD8371
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69274.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Elton John - Star Collection (2001) Compilation, Unofficial Release [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69275.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:6DCEACC1D0125A4C8AB39D886499204267272E1A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69276.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Tito & Tarantula - !Brincamos! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69277.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:C3B4CCC5462F7FBC0B4174CB7279C5B1735348F9
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69278.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:3A2F00FA6AF286DC020B5514549A8181939A1212
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69279.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Fort Firewall 3.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69280.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:37D2E2580B260233CD8E27A02F374A957F15578A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69281.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C0E6364BCC4E2733E30872079B44D2351767C012
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69282.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Folder Player Pro v5.32 b341 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69283.jpg" />
 </div>
 
 

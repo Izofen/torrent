@@ -1,3 +1,76 @@
+###  Публикация: 1702121   (116090) от 23.02.2024
+
+MEmu 9.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116090.jpg" />
+</div>
+
+
+###  Подробнее
+
+MEmu — эмулятор устройств под управлением операционных систем Android. Разработчики компании Microvirt предлагают пользователям всего мира совершенно бесплатно использовать для эмуляции данный продукт.
+MEmu позволит играть в любимые игры на персональном компьютере управляя мышкой, а также пользоваться огромным большинством приложений для Android на компьютере с операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329184B320DAF26BF35C8D3D0A15F6A9107B716F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702196   (116091) от 23.02.2024
+
+Display Driver Uninstaller 18.0.7.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DD826283318DF82B9A2D0E49256FB5E390330A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694075   (116092) от 23.02.2024
+
+Вечная дочь / The Eternal Daughter (2022) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джули Харт и её мать Розалинда приезжают в отель, чтобы вместе провести выходные. Отель раньше был поместьем Розалинды, где она провела детство и зрелые годы. Это место полно воспоминаний, которые начинают возвращаться. Джули пытается вызвать эти воспоминания у матери, чтобы лучше её понять, так как работает над фильмом о себе и Розалинде. Это заставляет её пережить (   Читать дальше...   )Производство: США, Великобритания / Element Pictures, A24BBC FilmsЖанр: драма, детективРежиссер: Джоанна ХоггАктеры: Тильда Суинтон, Карли-София Дэвис, Зинния Дэвис-Кук, Август Джоши, Луис, Джозеф Майделл, Альфи Санки-ГринПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (Kleinzeit), английскиеПродолжительность: 01:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A67C991A1ED7CD5DDEB567A9ADA5E22726B23EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701878   (116093) от 23.02.2024
 
 Axialis IconWorkshop Professional 6.9.5.0 [Multi/Ru]
@@ -6,7 +79,7 @@ Axialis IconWorkshop Professional 6.9.5.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116093.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:87929BA94A8CB325322D0515592ACE3C9DCF3089
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116094.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116095.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Jean Michel Jarre - Versailles 400 Live (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116096.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:BECAC691F7B838326360C1DE7DA2C717BE59FEEF
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116097.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ magnet:?xt=urn:btih:8B5D6921914CC1189C41E209AB2E2D8CE8D908FF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116098.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ Cryptology School | Cryptology 9.0. Base. Advanced. Pro (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116099.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:77EF2F36FFBDDFBA9D69F51148ED917A977CC01B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116100.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:78D5243F18F0C9FAB53C7ACF110A34E0FDC4F9FE
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116101.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:50DFEE325B4DB2BE749847F70ED8930BF01B4D20
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116102.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ magnet:?xt=urn:btih:17235A9832655152097748724E1851EA46E0D5DD
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116103.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ magnet:?xt=urn:btih:C90971035518E46048AAEBC7FCC58B11C794CA10
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116104.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ magnet:?xt=urn:btih:59FD538E34FB7A6E08F79C64DCBF7DBDDA94465D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116105.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:A0CE2B0C893479DC847CDA5618E9AB4A4C6C53DE
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116106.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116107.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:316BB60C28397C67C5ADD132CF32000DB9BCC18D
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116108.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:95887557120FD56B1031942F6AE118ABD8DD393E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116109.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (15.02.2024) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116110.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ magnet:?xt=urn:btih:65A02207FC739694161E5966D03FEBA9084F60F3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116111.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ magnet:?xt=urn:btih:6399279D09C2202B1253B4D1D3DC4F989946CE1B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116112.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:5B8FEF6881451C125BDC51E3475905DFC6C6BF46
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116113.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ magnet:?xt=urn:btih:4394FA486499889651A9F666CCF53A88E669AC06
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116114.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ magnet:?xt=urn:btih:9B0555B579482E4825CA99A55A5B12F3551098B3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116115.jpg" />
 </div>
 
 
@@ -553,78 +626,6 @@ magnet:?xt=urn:btih:9B0555B579482E4825CA99A55A5B12F3551098B3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B405673F9306E139D11AB79C9F3E209AF766E708
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701958   (116116) от 23.02.2024
-
-Forgiveness (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forgiveness – отправьтесь навстречу типичному приключению с видом от 1-ого лица, сюжет которого разворачивается в 80-е годы. Герой только что развелся со своей женой и решает переехать в старый дом, где раньше жил с матерью. Но как только он туда переезжает, то сразу понимает, что там происходит нечто странное. Попросту говоря, окунитесь с головой в достаточно атмосферный (   Читать дальше...   )Тип издания: RepackРазработчик: GAZЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Польский, Турецкий, СловацкийЯзык интерфейса: Английский, Польский, Турецкий, Словацкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11E9AEEF908A432BEE071C3C882D180A6071238
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700420   (116117) от 23.02.2024
-
-Изгоняющий дьявола: Верующий / The Exorcist: Believer (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две 13-летние подружки после школы пошли в лес, чтобы вызвать дух погибшей мамы одной из них, и пропали. Их семьи ставят на уши полицию и расклеивают объявления, когда вдруг через три дня потеряшки внезапно обнаруживаются в фермерском сарае в 30 км от дома. Родители вне себя от радости, но с девочками что-то не так — обе начинают вести себя очень агрессивно.Производство: США / Universal Pictures, Morgan Creek EntertainmentЖанр: ужасыРежиссер: Дэвид Гордон ГринАктеры: Лесли Одом мл., Лидия Джюэтт, Оливия О’Нилл, Энн Дауд, Норберт Лео Бац, Дженнифер Неттлз, Рафаэль Сбардж, Оквуи Окпоквасили, Дэнни Маккарти, Эллен БёрстинПеревод: Дублированный (Bravo Records Georgia, TVShows), Профессиональный многоголосый (TVShows, LineFilm)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), испанские, французские, иврит, португальские, украинские (Forced, Full)Продолжительность: 01:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883FF17B71E3E826E25819AA440B8AF266C37723
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695346   (116118) от 23.02.2024
-
-Настоящий детектив / True Detective (2024) WEB-DL [H.265/2160p] [4K, HDR10, DV P8, 10-bit] (сезон 4, серии 1-6 из 6) LostFilm, HDRezka, TVShows, Iyuno-SDI Group, NewComers, Ю. Сербин
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сезона происходит в городе Эннис (Аляска). Бесследно исчезают шестеро мужчин, работавших на научно-исследовательской станции, и расследовать это загадочное дело приходится двум женщинам-полицейским.Производство: США / Anonymous Content, HBO Entertainment, PassengerЖанр: детектив, криминал, триллер, драмаРежиссер: Кэри Дзёдзи Фукунага, Исса Лопес, Дэниэл СакхаймАктеры: Джоди Фостер, Кали Реис, Фиона Шоу, Финн Беннетт, Isabella LaBlanc, Джон Хоукс, Дайан Э. Бенсон, Aka Niviâna, Ангуннгуак Ларсен, Торстейнн БахманПеревод: Многоголосый профессиональный (LostFilm, HDRezka Studio, TVShows, Iyuno-SDI Group, NewComers, DniproFilm, Sunnysiders), Авторский (Ю. Сербин)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, 2 x Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF527F8D407D06B5FF3FDF5F1ACABDAE7984270
 ```
 
 

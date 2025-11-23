@@ -1,3 +1,79 @@
+###  Публикация: 1715988   (111436) от 13.04.2024
+
+Сундук удачи / Chest of Fortune (1914) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтически-драматическая история парня, который во время гражданской войны (США) остался сиротой и даже не знал из какой он семьи. А вот папаша его возлюбленной, руку своей дочери готов отдать только молодому человеку из приличной семьи (что это такое?). А тут еще соперник интригует...
+Ну, такой себе фильм, не шедевр. И копия с дефектами.Производство: США, Kalem CompanyЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Джир Остин, Джон Мэкин, Джордж Холлистер мл., Джеймс Б. Росс, Хелен Линдрот, Генри Халлам, Дорис Холлистер, Гай Кумбс, Маргарит Коуртот, Harry F. MillardeПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BC46D6547D5E704676A6566075744A4EC329E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715763   (111437) от 13.04.2024
+
+Лига городов (2024) WEBRip [H.264/720p] (сезон 2, выпуск 10)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111437.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Производство: Россия | «АМИК», «ТНТ»Жанр: Юмор, комедия, играСубтитры: ОтсутствуютПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FE59D87A94BD3CF7697E40723F66409DCE5DD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715830   (111438) от 13.04.2024
+
+Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex O'Rion – Elephant
+02. Alex O'Rion – Dank Farrik
+03. Alex O'Rion – Vale
+04. Alex O'Rion – Cellar Door(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A278B618B84F445E4880F372C9584594D3532AF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715741   (111439) от 13.04.2024
 
 Shadows Of Steel - Twilight II (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +82,7 @@ Shadows Of Steel - Twilight II (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111439.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Armin van Buuren - Feel Again, Pt. 2 (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111440.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:1D1065ADB6E692A5666DB3857FFCD3EA6CB51DC3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111441.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ magnet:?xt=urn:btih:16F0690149249701A0BFE99A5D5A24918DF84265
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111442.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ VA - Country Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111443.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ magnet:?xt=urn:btih:63BAB5CF4161764FAC1074A347272E6C8F461C26
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111444.jpg" />
 </div>
 
 
@@ -158,7 +234,7 @@ VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111445.jpg" />
 </div>
 
 
@@ -185,7 +261,7 @@ PdfX 1.0.8 Mod by Garant68 [En/Es]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111446.jpg" />
 </div>
 
 
@@ -209,7 +285,7 @@ magnet:?xt=urn:btih:5B09C69897F7B7744843CA6288D15ECEDC4ECDB1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111447.jpg" />
 </div>
 
 
@@ -233,7 +309,7 @@ magnet:?xt=urn:btih:906923A8B783E6202143A039006B80BEC32F4CA6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111448.jpg" />
 </div>
 
 
@@ -257,7 +333,7 @@ magnet:?xt=urn:btih:D32D2DD316FBE7655C2325213D75A315ACF9DDE7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111449.jpg" />
 </div>
 
 
@@ -282,7 +358,7 @@ Black Country Communion - Red Sun; Stay Free (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111450.jpg" />
 </div>
 
 
@@ -307,7 +383,7 @@ KineMaster - Video Editor & Maker v7.4.7.32377.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111451.jpg" />
 </div>
 
 
@@ -331,7 +407,7 @@ PhotoRoom v4.9.2 b1356 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111452.jpg" />
 </div>
 
 
@@ -355,7 +431,7 @@ magnet:?xt=urn:btih:92D6B8DF4BCF192624F3B945EFB14A584AFB31B6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111453.jpg" />
 </div>
 
 
@@ -379,7 +455,7 @@ magnet:?xt=urn:btih:3B01D5C560CDEC20C83F5EACD68067FAC9C525A8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111454.jpg" />
 </div>
 
 
@@ -403,7 +479,7 @@ magnet:?xt=urn:btih:D30E1D511721905E682DFB4E3397C1B1EBB8ACFE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111455.jpg" />
 </div>
 
 
@@ -429,7 +505,7 @@ Halie Loren - Dreams Lost and Found (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111456.jpg" />
 </div>
 
 
@@ -456,7 +532,7 @@ VA - 100 Soul Train Hits (2010) Re-Recorded/Remastered versions [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111457.jpg" />
 </div>
 
 
@@ -483,7 +559,7 @@ magnet:?xt=urn:btih:3947FFE03A643C8F6C8CE07C8EA7C338F01FA246
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111458.jpg" />
 </div>
 
 
@@ -510,7 +586,7 @@ magnet:?xt=urn:btih:AE808301888A33822D36CB481C7784CDCC8B671C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111459.jpg" />
 </div>
 
 
@@ -534,7 +610,7 @@ magnet:?xt=urn:btih:090D2BAAC017EEDAB987DFA7113C802DA6CFC977
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111460.jpg" />
 </div>
 
 
@@ -558,7 +634,7 @@ magnet:?xt=urn:btih:7B7950983DA321906C44D9399BA6AC2288113225
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111461.jpg" />
 </div>
 
 
@@ -569,84 +645,6 @@ magnet:?xt=urn:btih:7B7950983DA321906C44D9399BA6AC2288113225
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92AB3313918DC0D8E79BCD78E3DEE206B5C88D4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715795   (111462) от 13.04.2024
-
-Паганини (2023) WEBRip
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный скрипач, дирижёр и педагог совершает непоправимую ошибку, которая делит его жизнь на "до" и "после". Не найдя себе оправдания он оставляет жизнь в достатке и добровольно становится уличным бездомным, называемым обитателями городского дна "Паганини". Исправить уже ничего нельзя, остаётся проживать свою вину снова и снова.Производство: Латвия, GOR FilmsЖанр: Короткометражный, драмаРежиссер: Владимир ГоревАктеры: Мирослав Блакунов, Вадим Богданов, Юрий ГоревЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA340F210FC693C5F45B565B15D33348D6CC396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715663   (111463) от 13.04.2024
-
-Дмитрий Силлов | S.T.A.L.K.E.R. Снайпер (Книга 38). Закон Кремля (2022) [MP3, Макс Радман]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снайпер искал путь к исполнению своего желания — и он нашел его!
-Чтобы оживить погибших друзей, ему нужно вновь пробиться через границу миров и вернуться туда, куда он однажды поклялся никогда не возвращаться.
-В мир, где биороботы питаются трупами убитых солдат.
-Где боевые мутанты и киборги охотятся друг на друга.(   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 05:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F6546EDDFF517EDB3373813C56F04823D2F8BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715747   (111464) от 13.04.2024
-
-Игорь Слуцкий - Я заряжаю на любовь (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111464.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я заряжаю на любовь   3:53
-2. Ах, как красиво   4:02
-3. Ливни   4:04
-4. Пламя   4:01(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483757DA94969360E89E27151E6037CAD90B8D78
 ```
 
 

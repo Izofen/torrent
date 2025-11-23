@@ -6,7 +6,7 @@ Chromium-Gost 122.0.6261.128 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62588.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Spotify 1.2.32.997 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62592.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ MiniOS (все редакции) v3.3.3 [amd64, i386] 10xCD [RU]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62600.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Shazam 14.16.0-240308 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62646.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ AIDA64 2.00 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62647.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ DesktopDigitalClock 5.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62652.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ FanControl V184 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62653.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Adobe Photoshop Express 13.1.372 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62655.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Office Installer & Office Installer+ 1.06 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62663.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ ASUS GPU Tweak III 1.7.5.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62672.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ CorelDRAW Technical Suite 2024 25.0.0.230 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62699.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (17.03.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62704.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ WinRAR 7.00 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62734.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Unlocker 1.0.1 Portable by Eject [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62738.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ OCCT 12.1.17 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62739.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:54349398AE87C911396A345C6092D6A9EC925439
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62740.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ TikTok 33.8.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.29 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62749.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Wondershare Recoverit for Mac 12.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62759.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Lucky Patcher 11.2.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62760.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ungoogled Chromium 122.0.6261.111-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62761.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Image Uploader 1.4.0 Build 5136 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62762.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Win Movie Maker 2024 9.9.9.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62770.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ AOMEI Partition Assistant Standard Edition 10.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62800.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ StartAllBack 3.7.7 build 4898 (DC 15.03.2024) StartIsBack++ 2.9.20 (2.9.1 for 16
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62801.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ubuntu GamePack 20.04 (март 2024) [amd64] DVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62802.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ StartAllBack 3.7.7 build 4898 (DC-15-03-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62803.jpg" />
 </div>
 
 

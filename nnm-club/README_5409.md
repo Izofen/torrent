@@ -1,3 +1,174 @@
+###  Публикация: 1431920   (166145) от 15.12.2020
+
+Дочь короля Рене / King Rene's Daughter (1913) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166145.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дочь короля Рене" - так называлась пьеса датчанина Генрика Герца, на сюжет которой П.И.Чайковский создал свою оперу "Иоланта". Героиня этой драмы ещё во младенчестве обручена с графом де Водемоном. Вскоре после этого произошёл несчастный случай, в результате которого принцесса Иоланта ослепла. Её слепоту скрывают от всех. По совету мавританского (   Читать дальше...   )Производство: США, Thanhouser Film CorporationЖанр: Драма, короткометражный, немое киноРежиссер: Юджин МурАктеры: Мод Фили, Гарри Бинхем, Роберт Бродерик, Дэвид Томпсон, Лоуренс Марстон, Уильям РасселЯзык озвучки: немойСубтитры: английские интертитры, русские отдельным файломПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088774F4819F62D2D71F306D39D55F878BD6AC67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597347   (166146) от 14.12.2022
+
+XYZ School, Александр Балакшин | Gamecode (2020) WEB-DL [RU]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дать тебе понять и почувствовать, чем занимается игровой программист, какие перед ним могут ставить задачи, и как их реализовывать. Ты поймёшь, как устроен производственный цикл, и узнаешь, как реализовывать механики при помощи Unreal Engine. Конечно, всё это ты научишься делать на практике: изучишь референсы, шаг за шагом реализуешь всё, что необходимо, и добавишь (   Читать дальше...   )Производство: XYZ SchoolЖанр: Геймдизайн, Unreal Engine 4Язык озвучки: РусскийПродолжительность: 132:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0F6AD5F0A9C0FBD5E2A8991A5DE2446217D303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673264   (166147) от 31.10.2023
+
+В.А. Белевитин | Технологии напыления и металлизации деталей машин (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит итоги многолетних исследований различных авторов в области создания новых антифрикционных материалов и разработки методов и технологии модификации структуры и свойств конструкционных инструментальных материалов относительно упомянутых лишь наиболее часто встречающихся на практике методов и технологий нанесения покрытий; рассматривает различные (   Читать дальше...   )Жанр: МашиностроениеИздательство: Южно-Уральский ГГПУФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E61E5A40CCD6C36F41E75E5DBF3E6274986359
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516559   (166148) от 11.12.2021
+
+KAUAN - Sorni Nai Live (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmospheric Black Metal, Funeral Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akva (Live) (6:45)
+02. Kit (Live) (7:06)
+03. Khurum (Live) (7:50)
+04. Nila (Live) (7:18)(   Читать дальше...   )Производство: Artoffact RecordsЖанр: Dark Folk, Atmospheric Black Metal, Post Rock, Funeral DoomПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25EF452F1896996941CAAF54B164797384FF313C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431984   (166149) от 15.12.2020
+
+PureSync 6.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166149.jpg" />
+</div>
+
+
+###  Подробнее
+
+PureSync — программа для синхронизации данных и их резервного копирования, а также перемещение файлов, например с цифровых фотокамер. Имеет множество дополнительных возможностей и удобных функций для работы. Интуитивно понятное управление делает использование данного продукта ещё более комфортным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D75CE7E7323C8CFDCAF9DED647C455C845D4EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673208   (166150) от 31.10.2023
+
+Resource Hacker 5.2.4.386 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resource Hacker - программа для просмотра, извлечения, изменения и добавления ресурсов для Win32-приложений, т.е. по своей функциональной направленности схожая с широко известной программой Restorator (внешностью, кстати, тоже), но бесплатна... Resource Hacker может применяться как для простого "выдергивания" иконок, музыки и прочего, находящегося в исполняемых (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FE19920CEE3E2C75479C7CE4B01F3A4726226B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587516   (166151) от 14.12.2022
+
+Белый лотос / The White Lotus (2022) WEB-DL [H.264/1080p] (сезон 2, серии 1-7 из 7) Кравец
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166151.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение недели посетители дорогого местного отеля на гавайском курорте попытаются расслабиться и забыть обо всех невзгодах. Но вряд ли им это светит: вскоре паутина интриг окутает райское место. Кроме того, между гостями и работниками отеля начнут происходить странные вещи.Производство: США / Rip Cord ProductionsЖанр: комедия, детективРежиссер: Майк УайтАктеры: Мюррэй Бартлетт, Конни Бриттон, Дженнифер Кулидж, Александра Даддарио, Фред Хехингер, Джейк Лэси, Бриттани О’Грэйди, Наташа Ротуэлл, Сидни Суини, Стив ЗанПеревод: Многоголосый профессиональный (Кравец-Рекордз)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD7E59D6F5D95F70231CF0FDD3ED65C22E320E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516502   (166152) от 11.12.2021
 
 Beegie Adair - Winter Wonderland (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Piano Jazz>
@@ -6,7 +177,7 @@ Beegie Adair - Winter Wonderland (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166152.jpg" />
 </div>
 
 
@@ -33,7 +204,7 @@ Sprint-Layout 6.0 DC 24.10.2019 RePack by NikZayatS2018 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166153.jpg" />
 </div>
 
 
@@ -57,7 +228,7 @@ Comodo Dragon 117.0.5938.150 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166154.jpg" />
 </div>
 
 
@@ -81,7 +252,7 @@ magnet:?xt=urn:btih:12390E041C9DD71A2FE1F7B2F0CC72A0E4D34D76
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166155.jpg" />
 </div>
 
 
@@ -105,7 +276,7 @@ Adobe After Effects 2023 23.1.0.83 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166156.jpg" />
 </div>
 
 
@@ -129,7 +300,7 @@ magnet:?xt=urn:btih:2290592545817F2B2363EB040393898FD854714B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166157.jpg" />
 </div>
 
 
@@ -155,7 +326,7 @@ Mono Inc. - The Book of Fire (2020) Platinum Edition, 2021, NoCut [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166158.jpg" />
 </div>
 
 
@@ -182,7 +353,7 @@ magnet:?xt=urn:btih:2BF7AE60B97676FAA1F0CAE7C3826997D0FF9B1B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166159.jpg" />
 </div>
 
 
@@ -206,7 +377,7 @@ Adobe Photoshop Lightroom Classic 12.1.0.8  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166160.jpg" />
 </div>
 
 
@@ -230,7 +401,7 @@ Wondershare PDFelement 10.1.4.2521 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166161.jpg" />
 </div>
 
 
@@ -254,7 +425,7 @@ The Darkness - Motorheart (2021) Limited Edition [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166162.jpg" />
 </div>
 
 
@@ -281,7 +452,7 @@ Neal Schon - Universe (2020) [MP3|320 Kbps] <Instrumental Guitar Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166163.jpg" />
 </div>
 
 
@@ -308,7 +479,7 @@ SITD / S.I.T.D. / [:SITD:] / Shadows In The Dark - Discography 16 Releases (2002
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166164.jpg" />
 </div>
 
 
@@ -335,7 +506,7 @@ Opera One 104.0.4944.36 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166165.jpg" />
 </div>
 
 
@@ -359,7 +530,7 @@ magnet:?xt=urn:btih:37FA283D509326E3B685FBE009B60C26CA6E5374
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166166.jpg" />
 </div>
 
 
@@ -385,7 +556,7 @@ Carmine Appice & Fernando Perdomo Project - Energy Overload (2021) [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166167.jpg" />
 </div>
 
 
@@ -412,7 +583,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.963]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166168.jpg" />
 </div>
 
 
@@ -439,7 +610,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Негодник, кот
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166169.jpg" />
 </div>
 
 
@@ -463,7 +634,7 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166170.jpg" />
 </div>
 
 
@@ -474,186 +645,6 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B55C637DE12F3FFFD0B9981ABC3EC30FB9AF6253
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431806   (166171) от 15.12.2020
-
-Which One's Pink? - Pink Floyd Tribute Just the basic facts (2010) [MP3|320 Kbps] <Rock, Electro>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comfortably Numb
-02. Run Like Hell
-03. Embryo
-04. One of These Days(   Читать дальше...   )Жанр: Rock, ElectroПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48660C7863F8782A3C2D5A3C9C09F07A99AF628B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516522   (166172) от 11.12.2021
-
-Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|tracks + .cue] <Southern Metal,  Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set You Free
-02. Destroy & Conquer
-03. You Made Me Want To Live
-04. Forever and A Day(   Читать дальше...   )Жанр: Southern Metal,  Heavy Metal, Hard RockПродолжительность: 01:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9B92BBA8F6338817CFB47C2207D0EBA400EE8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673055   (166173) от 31.10.2023
-
-Андрей Константинов | Свой-чужой (Книга 3). Реализация (2023) [MP3, Алексей Данков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый роман Андрея Константинова!
-
-Сотрудника уголовного розыска Валерия Штукина внедряют в структуру бывшего криминального авторитета, а ныне крупного бизнесмена Юнгерова. Тот, в свою очередь, направляет на работу в милицию Егора Якушева, парня, которого воспитал, как сына. С этого момента судьбы двух молодых людей начинают стягиваться в тугой узел, развязать который (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига (АСТ)Продолжительность: 07:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BF966DD29D033C3BF122C7F56D3B2E73DD7639
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345573   (166174) от 15.12.2019
-
-NG. Потерянный мир Майя / Lost World of the Maya (2019) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166174.jpg" />
-</div>
-
-
-###  Подробнее
-
-В северной Гватемале расположен древний город, в настоящее время весь заросший безжалостными джунглями. Местные жители обнаружили здесь странные холмы, расположенные в виде круга. Археологи предположили, что это был религиозный и культовый центр цивилизации майя. Некоторые из этих руин сегодня уже возрождаются с помощью спутников и технологии лазерного сканирования (   Читать дальше...   )Производство: США, National Geographic, France TelevisionsЖанр: Документальный, познавательный, история, путешествияРежиссер: Джереми ЗипплПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6225AF7FD59F7C14723B1A1153CBD33B839E3EC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673244   (166175) от 31.10.2023
-
-Mirillis Action! 4.38.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
-Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E43F2B03351C7FC63449E163122169F78FF3DAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431588   (166176) от 15.12.2020
-
-Tokyo Motor Fist - Lions (2020) Japanese Еdition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youngblood (3:29)
-02. Monster In Me (4:33)
-03. Around Midnight (2:48)
-04. Mean It (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3D6FCFF317BFA418338E5C2A19E06A12DB1824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516413   (166177) от 11.12.2021
-
-Живая еда с Сергеем Малозёмовым (11.12.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тиляпия: справедливо ли эту рыбу считают сорной и даже опасной для здоровья? Можно ли на вкус отличить ее от других видов белой рыбы? И что показала лабораторная проверка на предмет наличия в ней вредных веществ? Правда ли дорогие хрустящие вафли вкуснее дешевых? Почему цены на такую простую выпечку могут отличаться в десятки раз? Как определить срок годности домашних (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BD108A8260F00C957F6D2CEFA980082028A968
 ```
 
 

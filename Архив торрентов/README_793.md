@@ -1,3 +1,78 @@
+###  Публикация: 1433158   (161962) от 19.12.2020
+
+ProPresenter 7 v7.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161962.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
+Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
+Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Renewed Vision LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский  и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB79CA809C906E2FEC4771E701F88082DD7FE1A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517556   (161981) от 16.12.2021
+
+IObit Driver Booster Pro 9.1.0.136 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A62C9D04E6FBD3E1FEAF12E102176D55BC2853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598648   (161988) от 20.12.2022
+
+Affinity Publisher 2 v.2.0.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реализуйте свое видение с помощью Affinity Publisher, самого современного профессионального программного обеспечения для публикации от разработчиков отмеченных наградами приложений Affinity Designer и Affinity Photo.
+Это невероятно плавное, интуитивно понятное приложение дает вам возможность комбинировать изображения, графику и текст, чтобы сделать красивые макеты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Serif (Europe) LtdПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A0C4A02ADF5C944333A24607D262028362CA78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598785   (161995) от 20.12.2022
 
 AnyMP4 iPhone Unlocker 1.0.28 [Multi]
@@ -6,7 +81,7 @@ AnyMP4 iPhone Unlocker 1.0.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161995.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Reeder 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161998.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ LDPlayer 4.0.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162017.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ YouTube ReVanced Extended 18.40.34 (RVP v2.195.12) Mod by Number one' + Micro G 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162024.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ FabFilter - Total Bundle 2021.12 VST, VST3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162026.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ Mac FoneLab for iOS 10.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162027.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ FoneLab Video Converter Ultimate 9.2.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162049.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ AirFoil+Airfoil Satellite 5.11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162051.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ QLab 5.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162057.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ Topaz Photo AI 2.1.0 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162060.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ magnet:?xt=urn:btih:B804FDB9D9B21376E0ADFC0470C0C0C21881F92D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162065.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ WhyNotWin11 2.4.3.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162084.jpg" />
 </div>
 
 
@@ -294,7 +369,7 @@ Brave Browser 1.18.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162093.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ Artstudio Pro 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162098.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ Soft Organizer Pro 9.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162099.jpg" />
 </div>
 
 
@@ -367,7 +442,7 @@ PhoneRescue for iOS 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162101.jpg" />
 </div>
 
 
@@ -391,7 +466,7 @@ Teorex Inpaint 10.2.2 Portable by Spirit Summer [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162102.jpg" />
 </div>
 
 
@@ -416,7 +491,7 @@ Opera GX 72.0.3815.454 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162109.jpg" />
 </div>
 
 
@@ -442,7 +517,7 @@ iZotope Music Production Suite Pro 2021.12 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162114.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ BusyCal 2022.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162117.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ Amadine 1.4.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162124.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ Days - Countdown for Menu Bar 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162125.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ PDFsam Basic 4.2.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162130.jpg" />
 </div>
 
 
@@ -551,80 +626,6 @@ PdfSAM - бесплатная и простая в использовании у
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C3873A6113B6AF55F9B0D253A24CEC08FB1AC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598663   (162136) от 20.12.2022
-
-Piezo 1.7.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
-Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
-Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E47D2070FEFC8B4EEC4D31A03426F6205C06EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598781   (162140) от 20.12.2022
-
-AnyMP4 Android Data Recovery for Mac 2.1.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162140.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Android Data Recovery – это отличное приложение для восстановления данных на Android телефонах и планшетах, которая может восстанавливать удаленные текстовые сообщения, фотографии, контакты, журналы вызовов, видео, фотографии и многое другое из Ваших Android телефонов/планшетов/ карты SD. Она поддерживает различные популярные Android устройства, такие как, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BD05C9EE91BEBE148F70A98554835F2974BB36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598704   (162144) от 20.12.2022
-
-Kiosc 1.15.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kiosc — это приложение для создания пользовательских интерфейсов с сенсорным экраном для линейки контроллеров освещения Visual Productions. Kiosc не имеет возможности редактирования, что делает его надежным интерфейсом, который можно безопасно представить нетехническим операторам.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2021 Visual Productions BV.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475B62672AB89936E8867A831CF8FB9D3574FF59
 ```
 
 

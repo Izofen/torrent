@@ -1,3 +1,174 @@
+###  Публикация: 1597665   (165613) от 15.12.2022
+
+Microsoft Visual Studio 2022 Enterprise 17.4.3 (Offline Cache) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF54ECA2706F8648CFC4DD211B4F0C7CD4485FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345720   (165614) от 16.12.2019
+
+Утечка раскрыла спецификации нового 5-нм процессора KIRIN 1020 ОТ HUAWEI
+
+>>Компьютеры и комплектующие
+>>Компьютерные новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_165614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно инсайдерской информации, флагманский процессор, известный под кодовым названием Baltimore, будет изготовлен с использованием 5-нанометрового техпроцесса. По информации китайских источников, новинка миновала стадию разработки и сейчас проходит финальное тестирование. Процессор выйдет под названием Kirin 1020 и будет включать в себя новые ядра Cortex-A78, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516092   (165615) от 11.12.2021
+
+Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1387]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
+Windows-Defender (По умолчанию выключен. Добавлен пункт Вкл./Выкл. в контекстном меню пуск)
+Поиск работает (Значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6373D2389DD2CA2CCB98457129BB8A64D271EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673344   (165616) от 01.11.2023
+
+Irvue 2023.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2023Разработчик: © 2023 Leonspok (Igor Savelev)Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA5D48FD410CF42BFA0F0268B18330C6976F7E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345827   (165617) от 16.12.2019
+
+Tenorshare iCareFone 5.9.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tenorshare iCareFone — это волшебное приложение для ускорения и очистки iOS устройств, позволяющее мгновенно и надёжно стирать ненужные файлы, освобождать много места, а также защищать персональные данные, что позволяет поддерживать производительность устройств iPhone/iPad/iPod на максимально возможном уровне.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tenorshare Co.,Ltd.Поддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Русский, английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FE367FAE15072288A8F47D97AFBCA47608A268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597645   (165618) от 15.12.2022
+
+Гнев во спасение / Savage Salvation (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший наркоман, чья девушка погибла из-за передозировки героина, решает отомстить картелю, ответственному за поставку наркотиков.Производство: США / The Avenue Entertainment, BondIt Media Capital, Buffalo 8 ProductionsЖанр: боевик, триллер, криминалРежиссер: Рэндолл ЭмметтАктеры: Джек Хьюстон, Роберт Де Ниро, Джон Малкович, Уилла Фицджералд, Дейл Дикки, Ноэль Гульеми, Медоу Уильямс, Винтер Эйв Золи, Линдсей Палсифер, Каталина ВитериПеревод: Дублированный (The Kitchen Russia)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871EBFED51AD265E1F7CD5FAC01707A7A594EF5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516369   (165619) от 11.12.2021
+
+Terminator: Resistance / Терминатор: Сопротивление (2019) [Ru/Multi] (1.0.7847980/dlc) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terminator: Resistance – шутер от первого лица во времена Войны Будущего, о которой мельком было рассказано в фильмах «Терминатор» и «Терминатор 2: Судный день». События игры разворачиваются в пост-апокалиптическом Лос-Анжелесе, около 30 лет после Судного Дня, а главным героем выступает новый персонаж, Джейкоб Риверс, солдат Сопротивления во главе с Джоном Коннором.Тип издания: LicenseРазработчик: TeyonЖанр: Action, Adventure, Fantasy, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFA32DA11DBFEF83A4A67F6EDFA7CA4E359B380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431781   (165620) от 15.12.2020
 
 Довод / Tenet (2020) BDRip [H.264] [IMAX Edition]
@@ -6,7 +177,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165620.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ magnet:?xt=urn:btih:5C9D3378EFBD72DD3B69C1A03DAD163FBFC22867
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165621.jpg" />
 </div>
 
 
@@ -54,7 +225,7 @@ magnet:?xt=urn:btih:2C71A94E8943977572F949032F523F9F80F6F85F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165622.jpg" />
 </div>
 
 
@@ -78,7 +249,7 @@ Google Chrome 108.0.5359.125 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165624.jpg" />
 </div>
 
 
@@ -102,7 +273,7 @@ magnet:?xt=urn:btih:612BD93E56E38D943CDFBD31DD3B29A9F6FCAF77
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165625.jpg" />
 </div>
 
 
@@ -128,7 +299,7 @@ magnet:?xt=urn:btih:8AE33E736EDE79E04DF4BA8B7EA617E65A410195
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165626.jpg" />
 </div>
 
 
@@ -152,7 +323,7 @@ Final Cut Pro 10.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165627.jpg" />
 </div>
 
 
@@ -177,7 +348,7 @@ Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165628.jpg" />
 </div>
 
 
@@ -201,7 +372,7 @@ magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165629.jpg" />
 </div>
 
 
@@ -225,7 +396,7 @@ ESRI ArcGIS Desktop 10.8 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165630.jpg" />
 </div>
 
 
@@ -249,7 +420,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165631.jpg" />
 </div>
 
 
@@ -273,7 +444,7 @@ magnet:?xt=urn:btih:B1AAF346EDA5C889A26C60B51E8E702310403F5E
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165632.jpg" />
 </div>
 
 
@@ -297,7 +468,7 @@ magnet:?xt=urn:btih:06F00DB939FF4464A019CAFC972F0BA8DF9E0A66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165633.jpg" />
 </div>
 
 
@@ -321,7 +492,7 @@ magnet:?xt=urn:btih:F07855486FA7F56E74FC00E30169B2CA4538F356
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165634.jpg" />
 </div>
 
 
@@ -345,7 +516,7 @@ magnet:?xt=urn:btih:EBCD61E167AD19FDFD6ABD5437E23FA0927BE427
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165635.jpg" />
 </div>
 
 
@@ -369,7 +540,7 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165636.jpg" />
 </div>
 
 
@@ -393,7 +564,7 @@ magnet:?xt=urn:btih:84FF9158855D7F297F551B27F19A67E2A2B3C582
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165637.jpg" />
 </div>
 
 
@@ -418,7 +589,7 @@ magnet:?xt=urn:btih:449F6F3A8288889DEC3AF49686AAB5DA37DDDCC2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165638.jpg" />
 </div>
 
 
@@ -442,7 +613,7 @@ magnet:?xt=urn:btih:EFECA94E30FBCE54638A948685874082590FC82E
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165639.jpg" />
 </div>
 
 
@@ -453,174 +624,6 @@ magnet:?xt=urn:btih:EFECA94E30FBCE54638A948685874082590FC82E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBEA8B4B5106A1B50618A5342835A6BDA87F7444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431852   (165640) от 15.12.2020
-
-Revo Uninstaller Pro 4.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F46F9ADEEE761665AA5F9B7015940D326FC8D30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597662   (165641) от 15.12.2022
-
-kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТА С ОШИБКАМИ И ИСКЛЮЧЕНИЯМИ В JS» (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165641.jpg" />
-</div>
-
-
-###  Подробнее
-
-За 2 часа 15 минут мы разберемся как обрабатывать исключения с помощью встроенных языковых конструкций, а также альтернативные варианты как контейнерные типы, специальные константы и события. Детально разберем минусы и плюсы каждого из подходов.Производство: kobezzza.channelЖанр: ВидеоурокЯзык озвучки: РусскийПродолжительность: 02:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5845C0D241B470907A95DAD7C593A58F5A215AF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597651   (165642) от 15.12.2022
-
-Хайдарали Усманов | Изменяющий (Книга 3). Бег сквозь стены (2022) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие верят во второй шанс. Вот только кто его тебе даст? Кто-то свыше? Или надо самому что-то для этого сделать? Вопрос сложный. Кому-то приходится ради этого всю свою жизнь бороться. А кому-то такой шанс может просто свалиться на голову. И что такой счастливчик будет делать, попав в подобную ситуацию? А если ты ещё при этом попадёшь в другой мир, и другое окружение? (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыПродолжительность: 10:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4890CF620EFD62BE7E6BCEC9ED0320EBA8584A60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673300   (165643) от 31.10.2023
-
-Microsoft Windows 11 IoT Enterprise [10.0.22631.2428], Version 23H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 IoT Enterprise - это следующая эволюция Windows для интернета вещей (IoT), а также самое значительное обновление операционной системы Windows со времен Windows 10. Оно включает в себя множество гибких и сбалансированных инноваций, направленных на повышение качества обслуживания пользователей. Windows 11 IoT Enterprise разработана для поддержки современного (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4D3437A27BAB97F301A22F9F7C5798DECC0202
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431994   (165644) от 15.12.2020
-
-Movavi Video Converter 21.1.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FA900E1E4D0AB5FF119ADE9E8410BAEBC7336A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345875   (165645) от 16.12.2019
-
-Шаблоны - Adobe Stock - Tablet Surrounded by Valentine's Day Elements - 246885760 [PSDT]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планшет в окружении элементов ко дню Святого Валентина.Формат: PSDTРазрешение файлов: 5760x3840
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754E887FEB8D145B57916B3775F887AAE3F06A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431930   (165646) от 15.12.2020
-
-FastStone Capture 9.4 (15.12.2020) Final RePack (& portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165646.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2817F24D8CFF91E9B77E7A2976343BDC337F1B2
 ```
 
 

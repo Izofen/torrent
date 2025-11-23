@@ -1,3 +1,84 @@
+###  Публикация: 1638140   (212056) от 07.06.2023
+
+VA - Pop Blockbusters 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_212056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troye Sivan - Angel Baby
+02. Shawn Mendes - Treat You Better
+03. Maroon 5 - Animals
+04. The Weeknd - Out of Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DBE4A405EFF39C1856AD42BC36505B4AF20E65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 281546   (212277) от 22.07.2022
+
+Riccardo Fogli - I Grandi Successi (2008) 2CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storie Di Tutti I Giorni
+02. Che Ne Sai
+03. Se L'amore Sei Tu
+04. Tu Cosa Fai Stasera(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19961003A615EF5597453B61AC85D549C562DB21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960836   (213562) от 18.08.2023
+
+Скрябiн та Проекти Кузьми (Скрябин) - 18 Albums + 6 Single + 2 Live's + Compilation & Remixes (1995-2019) [APE, FLAC|Lossless|image + .cue, tracks + .cue, tracks] <Alternative Pop, Rock, Syn ...
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213562.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Скрябін» - український музичний гурт, що за час своєї творчої активності пройшов шлях від дарквейву, синті-попу, постпанку і техно до нової романтики та поп-року. Склад гурту також неодноразово змінювався. Єдиним постійним учасником колективу з часу його заснування і до своєї смерті був Андрій «Кузьма» Кузьменко. Як правило, музику гурту поділяють на «старий» (приблизно (   Читать дальше...   )1995 - Птахи
+1997 - Казки
+1997 - Мова Риб
+1999 - Технофайт(   Читать дальше...   )Жанр: Alternative Pop, Rock, Synth Pop |Продолжительность: 33:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0B57345681070F32141AB8BF006898DB911565
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344111   (213621) от 09.12.2019
 
 Vanessa Paradis - Best Of & Variations (2019) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <French Pop, Pop-Rock, Chanson>
@@ -6,7 +87,7 @@ Vanessa Paradis - Best Of & Variations (2019) 2CD, Compilation [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213621.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213621.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ VA - Now That's What I Call Merry Christmas (2018) [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214215.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214215.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Supermax - 20th Anniversary (1997) 2CD, Compilation [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214312.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214312.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Supermax - Living In A World (1996) [FLAC|Lossless|image + .cue] <Pop, reggae, d
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214767.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214767.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:F7DEB6C5ADECC6E1A14D2BBEEBB0EA036F70CFB5
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214975.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214975.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215638.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215638.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ VA - 538 Hitzone: Best Of 2019 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218391.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218391.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ VA - Just The Hits 2016 (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218443.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218443.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Jennifer Paige - Crush: The Best of Jennifer Paige (2013) Compilation [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218544.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218544.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218585.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218585.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ VA - Blow Up Disco Vol 1: Club Series Italodisco Grooves (2019) [FLAC|Lossless|W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218591.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218591.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ VA - Blow Up Disco Vol 4: A Taste Of Blow Up Disco & Italo Instrumentals (2019) 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218610.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218610.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ VA - MNM Big Hits 2016 Vol. 1 (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218634.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218634.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ VA - Blow Up Disco Vol 6 : Nu-Disco & Italodisco Grooves From Blow Up Disco (201
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218685.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218685.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ VA - Blow Up Disco Vol 2: Twisted Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218689.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218689.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ VA - Blow Up Disco Vol 3: Back To Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218696.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218696.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ Vision Mastermixers - Reggae Mega Mix (1999) [FLAC|Lossless|image + .cue] <Regga
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218703.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218703.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ Die Partymixer - Hit Sommer Mix (1998) [FLAC|Lossless|tracks] <Pop, Cover, Medle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218747.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218747.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ Michael Jackson - Dangerous (1991) [FLAC|Lossless|tracks + .cue] <Soul, Ballad, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219932.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219932.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ Taylor Swift - Midnights (2022) 3am Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220022.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220022.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220209.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220209.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220252.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220252.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Di
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220392.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220392.jpg" />
 </div>
 
 
@@ -614,87 +695,6 @@ Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6055395D5DBDFE641A75A22B08D65DAC07BA7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425668   (220446) от 21.11.2020
-
-Sarah Brightman - France (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Show Me How To Love You
-02. Nella Fantasia
-03. There For Me
-04. Dans La Nuit(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66676E4E7242052D865328271580366FEEAC0B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084176   (220802) от 18.12.2016
-
-Annie Lennox - Diva (1992) Reissue, 2007, BMG Japan [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why (4:54)
- 02. Walking On Broken Glass (4:13)
- 03. Precious (5:09)
- 04. Legend In My Living Room (3:46)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6EFD7C568AF9C2FAB5A20C0E684C84FD348C9B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342552   (221678) от 03.12.2019
-
-VA - NRJ Music Awards 2019 (2019) 3CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221678.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Taylor Swift - You Need To Calm Down
-02. Billie Eilish - Bad Guy
-03. Sia - Unstoppable(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 03:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514A2A782528577F937A475D891EB5E99B363A8E
 ```
 
 

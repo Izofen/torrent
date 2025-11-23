@@ -6,7 +6,7 @@ OCCT 13.1.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44009.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Duolingo: изучай языки 5.165.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44013.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ R-Studio Network 9.4 Build 191354 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44018.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft PowerToys 0.84.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44047.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ FanControl V201 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44082.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Sandboxie plus 1.14.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44084.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ TweakPower 2.060 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44096.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ HDCleaner 2.080 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44103.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Reveal Sound - Spire 1.5.17 VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44105.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ RegCool 2.012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44107.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Audacity 3.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44108.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Opera GX 113.0.5230.75 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44114.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Avidemux 2.8.2 Nightly (r240908) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44125.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Premiere Pro 2024 24.6.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44156.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Illustrator 2024 28.7.1.142 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44159.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Adobe After Effects 2024 24.6.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44162.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Adobe Media Encoder 2024 24.6.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44173.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Adobe Audition 2024 24.6.0.69 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44174.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ IK Multimedia - T-RackS 6 MAX 6.0.0 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44177.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ FinePrint 12.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44180.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ MusicBrainz Picard 2.12.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44186.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ FireAlpaca 2.12.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44187.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ FontLab 8.4.1.8932 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44195.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ reaConverter Pro 7.824 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44202.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Extreme Picture Finder 3.66.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44209.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FileZilla Server 1.9.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44210.jpg" />
 </div>
 
 

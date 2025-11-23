@@ -6,7 +6,7 @@ Vivaldi 6.9.3447.44 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43755.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Telegram Desktop 5.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43757.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:9BC4AA039765E87A6168F52BEB22A129257D55DB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43781.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Synapse Audio - DUNE 3.6.2 VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43810.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ IObit Smart Defrag Pro 10.1.0.419 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43814.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ FL Studio Producer Edition 24.1.1.4285 - All Plugins Edition + Addons (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43821.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ ProfiCAD 12.4.6 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43832.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4894]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43844.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Telegram Desktop 5.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43860.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.40 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43864.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ EF Commander 24.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43885.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ WinSCP 6.3.5 Build 14991  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43886.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ USB Device Tree Viewer 4.4.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43887.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Microsoft Visual Studio 2022 Enterprise 17.11.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43888.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ OCCT 13.1.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43901.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Google Chrome 128.0.6613.138 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43924.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ XnView Classic 2.51.7 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43936.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NVIDIA GeForce Desktop Game Ready 561.09 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43942.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ KMS Tools Portable Lite by Ratiborus 07.09.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43946.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ SketchUp Pro 2024 24.0.594 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43947.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Adobe Acrobat Pro 2024.003.20112 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43948.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Rhinoceros 3D 8.11.24254.15001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43964.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Pulsar Modular Complete Effects Bundle 2024.9.8 VST 3, AAX (x64) RePack by TCD [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43971.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Telegram Desktop 5.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43974.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Speedtest от Ookla 5.4.11 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43994.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ IK Multimedia - MODO BASS 2 2.0.3 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44004.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1701022   (116662) от 19.02.2024
+
+Fort Firewall 3.11.7 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0FC12EED24E647718D350C1BD4EDCCA807F907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700895   (116663) от 19.02.2024
+
+Mr.Bison - Echoes From The Universe (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock/Psych/Prog/Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Child Of The Night Sky
+02. Collision
+03. Dead In The Eye
+04. Fragments(   Читать дальше...   )Жанр: Heavy Rock/Psych/Prog/StonerПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E879DEA5EBD34DDEDC6A6DAB9AF4C86FF918FB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701051   (116664) от 19.02.2024
+
+Подшивка газеты | Моя Семья №1-6 (январь-февраль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116664.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моя Семья» задумана как газета о человеческих отношениях. Редакция делает упор на историях из жизни, поэтому многие наши публикации читаются как романы. Главной основой публикаций являются письма читателей, что делает «Мою Семью» уникальной — все наши истории подлинные.Жанр: Семья, дом, бытИздательство: ООО "Издательство "Моя Семья"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ADC347E60D74973C48C0706D9A0E65712E1956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700993   (116665) от 19.02.2024
 
 Revolution Saints - Against The Winds (2024) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
@@ -6,7 +81,7 @@ Revolution Saints - Against The Winds (2024) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116665.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116666.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ FireAlpaca 2.11.15 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116667.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ magnet:?xt=urn:btih:46CA8B999CAD97D6F7F1A1BFCEE3984BD84BE01C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116668.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ magnet:?xt=urn:btih:3A80F55FF2DD1A719BE600855A3BE2E922C9697B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116669.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:55BB255A77D8A96A77A0488B0EB8F98DCF1DE34C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116670.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:11D8D038D2AC3F429632E1E9B363859ABEFF814E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116671.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ Paul Jensen - Journey Back Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116672.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ magnet:?xt=urn:btih:BFD9993C60B63CBD00BF01A87F7B49281A2BF0F8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116673.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ magnet:?xt=urn:btih:62E8B2507545917976311457052B152C9A8AECFA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116674.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ Lucky Wuthrich (Lucky Wüthrich) - My Kind of Music (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116675.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ Cigar Box Band - Don't Belong (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116676.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ NCH Express Invoice Plus 11.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116677.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ Fork 2.40.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116678.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ Dropshare 5 v.5.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116679.jpg" />
 </div>
 
 
@@ -382,7 +457,7 @@ magnet:?xt=urn:btih:024FE48A4F3A68869B5A78C1CBABC087AC2128C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116680.jpg" />
 </div>
 
 
@@ -406,7 +481,7 @@ Telegram Desktop 4.15.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116681.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ magnet:?xt=urn:btih:982151AA7B30B637FA2B008DAD9EA216693611D9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116682.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ Imagine 1.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116683.jpg" />
 </div>
 
 
@@ -480,7 +555,7 @@ RedNotebook 2.32.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116684.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ magnet:?xt=urn:btih:3D0070706F8AC2C6D103D344E561190F29C9E06E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116685.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ TweakPower 2.051 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116686.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ magnet:?xt=urn:btih:76F811BF1839F330387B50FAA94D8689823122FC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116687.jpg" />
 </div>
 
 
@@ -568,78 +643,6 @@ magnet:?xt=urn:btih:76F811BF1839F330387B50FAA94D8689823122FC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56539904B9A478AA1FB6B587126FC3DAE22E359A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701009   (116688) от 19.02.2024
-
-DiskDigger 1.157.227.3821 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116688.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEC94216F8EEEC151FF3D3CEECA81E61B6BD09D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700929   (116689) от 19.02.2024
-
-Вороний квартал / Kvarteret Korpen / Raven's End (1963) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в рабочем квартале в шведском городе Мальмё в 1936 году. Молодой рабочий Андерс заканчивает свой первый роман, в котором описывает жизнь в своем квартале, и мечтает найти издателей в Стокгольме. Его отец, неудачливый коммивояжер, постепенно спивается. Во всех своих проблемах он обвиняет жену, мать Андерса, которая зарабатывает на жизнь (   Читать дальше...   )Производство: Швеция / Europa FilmЖанр: драмаРежиссер: Бу ВидербергАктеры: Томми Бергрен, Кеве Эльм, Эми Сторм, Ингвар Хирдвалль, Кристина Фрамбэк, Агнета Притц, Louise Gustafsson, Fritiof Nilsson Piraten, Hugo Tunnbindare, Нина ВидербергПеревод: Многоголосый профессиональный (студия "Омикрон")Язык озвучки: русский, шведскийСубтитры: английские, русскиеПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5284667C16E7D861082CCBD4D0FF9C57A935950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701079   (116690) от 19.02.2024
-
-Дмитрий Биленкин | Звездный аквариум (2024) [MP3, Червь Книжный]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116690.jpg" />
-</div>
-
-
-###  Подробнее
-
-После аварии космического корабля вблизи астероида, единственный выживший член экипажа - пилот Петров, оказался заперт внутри капсулы на орбите вокруг безжизненного астероида. Ему нужно подать сигнал бедствия, чтобы спасти себя, но он не знает, как это сделать, так как никто не знает о его местонахождении.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBDB7BD767CD310EA639C9E00BB08CF08CB3B7F
 ```
 
 

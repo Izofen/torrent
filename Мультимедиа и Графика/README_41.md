@@ -1,3 +1,77 @@
+###  Публикация: 1593137   (181605) от 25.11.2022
+
+Valhalla DSP - Valhalla Delay 2.5.0 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valhalla Delay — это наш взгляд на классический и современный плагин задержки и эха.
+Ленточное эхо, BBD, цифровое звучание старой школы, смещение высоты тона - все в одном плагине. ValhallaDelay предлагает классику и расширяет ее до новых возможностей с уникальными стилями задержки Ratio и Quad, режимом Ghost (который добавляет сдвиг частоты) и мощной диффузионной (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261B795824D0269ADA2BD791B803F0685111E488
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593140   (181629) от 25.11.2022
+
+iZotope Audiolens 1.1.0 (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с новым настольным приложением Audiolens, которое упрощает поиск и сравнение дорожек за счет анализа звука с любой потоковой платформы или источника звука. Создайте свою личную библиотеку эталонных треков, к которой вы можете получить доступ в любое время, чтобы сравнить их с вашими собственными миксами или мастерами.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DC31AB153AFF0D166776AE2AC3E3DBB125E724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593138   (181708) от 25.11.2022
+
+iZotope - Stutter Edit 2 2.1.0 VST 3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181708.jpg" />
+</div>
+
+
+###  Подробнее
+
+IZotope в сотрудничестве с BT представила Stutter Edit 2 – серьезное обновление своего плагина для обработки микроритмических звуковых эффектов. BT описывает обновление как «абсолютную червоточину силы и вдохновения».
+Stutter Edit 2 позволяет создавать знаменитый эффект редактирования «заикание» с помощью одной кнопки, чтобы нарезать слайсами и кубиками ваши семплы, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FB383645C034D05DC5419530B02BEDABA24289
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592586   (182938) от 23.11.2022
 
 Valhalla DSP - Valhalla Supermassive 2.5.0 VST, VST3, AAX (x64) [En]
@@ -6,7 +80,7 @@ Valhalla DSP - Valhalla Supermassive 2.5.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182938.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182938.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ SNS-HDR Pro 2.7.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182972.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_182972.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Capture One 23 Enterprise 16.0.1.20 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183527.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183527.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Kush Audio - LG Drive 1.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183725.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183725.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ TAL Software - TAL-Reverb-4 4.0.2 VST, VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183793.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183793.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ Tone2 - Synth Collection 11.2022 STANDALONE, VSTi, VSTi3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184234.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184234.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ Pepto Audio - Black Metal Keys 2.9.1 VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185373.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185373.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ Toontrack - EZdrummer 2.1.8 (build 21073) Standalone, VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185768.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_185768.jpg" />
 </div>
 
 
@@ -198,7 +272,7 @@ WonderFox DVD Ripper Pro 24.0 RePack (& Portable) by elchupacabra [En/Jp]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_185805.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ WonderFox DVD Video Converter 31.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_185807.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ CoolUtils Total Audio Converter 6.1.0.286 RePack (& Portable) by elchupacabra [M
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186075.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186075.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ MakeMKV 1.18.2 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186078.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186078.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ ON1 Photo RAW MAX 2026 20.0.5.17637 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186116.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186116.jpg" />
 </div>
 
 
@@ -320,7 +394,7 @@ Fast Video Cutter Joiner 6.9.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186117.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186117.jpg" />
 </div>
 
 
@@ -344,7 +418,7 @@ Freemake Video Converter 5.0.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186119.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186119.jpg" />
 </div>
 
 
@@ -368,7 +442,7 @@ PotPlayer 251017 (1.7.22628) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186120.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186120.jpg" />
 </div>
 
 
@@ -392,7 +466,7 @@ Marvelous Designer 12 Personal 7.2.209.43690 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186154.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186154.jpg" />
 </div>
 
 
@@ -419,7 +493,7 @@ Upscayl 2.8.6 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_186178.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ Winxvideo AI 4.3 (x64) RePack (& Portable) by elchupacabra (DC 13.10.2025) [Mult
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186319.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186319.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ CoolUtils Total Movie Converter 4.1.0.72 RePack (& Portable) by elchupacabra [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186336.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186336.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ Adobe Illustrator 2023 (27.0.1.620) Portable by XpucT [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186636.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186636.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ AIR Music Technology - Studio Strings 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186803.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186803.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ AIR Music Technology - Stage Piano 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) ReP
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186812.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186812.jpg" />
 </div>
 
 
@@ -552,79 +626,6 @@ AIR Music Technology - Stage Piano 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) ReP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E40AC16E7878965D3B785D599C534B1FF27077F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591677   (186873) от 19.11.2022
-
-AIR Music Technology - TubeSynth 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186873.jpg" />
-</div>
-
-
-###  Подробнее
-
-TubeSynth имитирует звучание классических винтажных аналоговых полисинтезов, оснащенных пятью встроенными воздушными эффектами. Инструмент создан AIR и основан на той же передовой технологии аналогового моделирования, что и в их широко известном настольном плагине synth Vacuum Pro
-Вы откроете для себя новые пышные звуковые ландшафты, о которых раньше и не мечтали. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7630FA270D34A2AC1413DDDE3961501DA94858D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591377   (187001) от 18.11.2022
-
-ON1 Effects 2023 17.0.2.13102 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187001.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Effects 2023 включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Программа включает самые популярные HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, Tone Enhancer, текстуры, границы, Film Looks, Split Tone и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95825BCB7C8CDF239B14B9FE5E308D076EF32647
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591352   (187026) от 18.11.2022
-
-ON1 NoNoise AI 2023 17.0.1.12976 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187026.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 NoNoise AI 2023 призван обеспечить лучшие результаты, чем любое другое приложение для шумоподавления на рынке. Он разумно удалять шум изображения, используя машинное обучение ON1 на основе искусственного интеллекта для удаления яркости и цветового шума, сохраняя при этом максимальное количество деталей на фотографиях. ON1 NoNoise AI разумно удаляет все шумы изображения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA7E9FF43F91FF585F9C5E1FBC1EAD6094204CF
 ```
 
 

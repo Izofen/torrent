@@ -6,7 +6,7 @@ Ventoy 1.1.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cent Browser 5.2.1168.76 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6340.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CDA626DE733A09EDB8E09F66E1817808EEEDCCE3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6350.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 20.08.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6357.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F354AB975421F8E54F7900EFC178ABF030CC68DF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6378.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F354AB975421F8E54F7900EFC178ABF030CC68DF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6388.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C358E54C6ADB0B3AEEAF9BDA9FB935B9A704D3B4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6466.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Any Video Downloader Pro 9.5.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6467.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:2BED88F4F64A0E91B95B0D7013E75E454E88B1BF
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6469.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ PDF-XChange PRO 10.7.0.398 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6470.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fort Firewall 3.19.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6473.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PDF-XChange PRO 10.7.0.398 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6482.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7309 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6483.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Calibre 8.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6495.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:A66A16356BE0756CE9882A6C2E7D9C573F9CA5CF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6507.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Adguard 7.21.2 (7.21.5086.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6511.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ PDF-XChange Editor Plus 10.7.0.398 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6512.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Capture One 23 Enterprise 16.6.5.3072 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6515.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D32B28D754CC1F54EAA8ED95952C2F653224220E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6544.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6553.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6556.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6644.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:638BC653B9768B4931F8FBE4819CA539DCBA403C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6655.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ YT Downloader 9.16.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6660.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:6FCFAD3D07CD6BD25D49EA0E56DDF873421BF8BE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6664.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:3941C74021FFC8B08BD9216B704499D2E82B1811
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6675.jpg" />
 </div>
 
 

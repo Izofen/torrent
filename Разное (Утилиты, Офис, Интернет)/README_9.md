@@ -6,7 +6,7 @@ Auto Shutdowner 1.3 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137576.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scrivener 1.9.16.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138316.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C5EAC6A631E47158FF25EEC18BBDCE80EB8C0AA3
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139079.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139158.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ OBS (Open Broadcaster Software) 0.657 Beta Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142242.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:06561BE3243B8629F555996D2B875A81FBD3EA51
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143533.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ WakeupOnStandBy 1.7.20.6 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146700.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ OEMLogo Pack 121 for Re-Loader Activator [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148148.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Wise Game Booster 1.5.3.77 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149370.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Firefox Browser ESR 140.4.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150722.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ TreeSize Professional 9.6.1.2156 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150985.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Help+Manual Server Edition 7.5.3 Build 4740 [En/De]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151889.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ UltraSearch 3.0.1.634 Free + Portable & Pro with patch [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152399.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FontLab 7.0.1 (build 7276) [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153013.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Product Keys 2.6.3 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153641.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:73F4A2B2D21014CA9BC9169E04927038FF63D29D
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153730.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:04AFBED233E8377B88CD200180640577C3A3D402
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154648.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:E352A392F6278F65B0FF73B14D5EBE92ED723FE3
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154714.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:45C0863EC7FF047F75C3F0C0AEFFB5B3FCB8C88E
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154773.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Wise JetSearch 4.1.4.219 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155126.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Screen Calipers 4.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156264.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Spiral Timer 1.1 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156461.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Elcomsoft Phone Breaker Forensic Edition 9.40.35257 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156548.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Iconico Screen measurement pack 4.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156637.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:67276069A3372CD38FF378E664AFC38BBF8FBF8D
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156734.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ WinAutomation 3.1.6.676 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157700.jpg" />
 </div>
 
 

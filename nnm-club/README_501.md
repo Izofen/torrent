@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13295.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aru Majo ga Shinu Made | Once Upon a Witch's Death | Пока ведьма не 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13296.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A7E27ADB1E06D40F2EC2E0ABFA2E2D84AAA7C570
 >>Обсуждение Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13297.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Chessable, Can Kabadayi | The Chess Elevator: Climb to 1200 and Beyond (2024) WE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13298.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0277FC548328881E9C7C8B9EF475B45ACD96DAAC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13299.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E62465475C7C2CF869085B0D5A1C979C5991CE40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13300.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:C9522F7B377A1E712038B1711B9779EA5CFD7710
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13301.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C39E5534EF9CB2730C9F550FFA346F89E1985FB8
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13302.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C415594E715CF3FFD2D944BB8A1FB5B92F5269BE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13303.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Armin van Buuren - Breathe (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13304.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:ED1DA7FC08E2F49486D712F24817A50E10C29232
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13305.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ kiloHearts Subscription 2.4.1 VST/VSTi, VST 3/VSTi 3, AAX (x64) RePack by R2R [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13306.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Aliens vs. Predator (2010) [Ru] (2.27u7/dlc) Rip EXROW [Expanded Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13307.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:7D3CD094867E30FEC75732CC185EAA8C68B4BBCB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13308.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Auslogics Driver Updater 2.0.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13309.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ iTop Easy Desktop 3.0.1.92 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13310.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F2E652D4439BB7C7E41CA4DB28410DFF83297795
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13311.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13312.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13313.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:B0A9B67652340CDAF4277968AC943AA95EED4BEC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13314.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sodom - Studio Albums (17 releases) (1986-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13315.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:F2CCC08F48EB63226F419B6061A47285E48372F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13316.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Revo Uninstaller Free 2.6.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13317.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:23EB5C7BB656F69CE754C0FF2F9490EE6C012E18
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13318.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:A0101802B69A29F38F67F0F4C81EC6CC412A7689
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13319.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:3E1118861FD42E3EDEFB830ACB54C02388B2B53F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13320.jpg" />
 </div>
 
 

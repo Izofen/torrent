@@ -6,7 +6,7 @@ Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6239.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:314B3F987DDAB0A506634A4012C26FF3955C8A03
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6240.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Geoff Mann, Herbie Mann - Underground (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6241.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tómarúm - Ash In Realms Of Stone Icons (2022) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6242.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Felice Lionetti - True (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6243.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Greg Chako - Comfort Food (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6244.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Bob Forte - Quarter Till Midnight (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6245.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Adegoke Steve Colson & Iqua Colson - Glow: Music for Trio... Add Voice (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6246.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Heber Ataza - Viajando (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6247.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Greenberg Group - More Swans! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6248.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Спринт (23.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6249.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6250.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:1D0FCF306B0DD512B87BC7F28E3F68A1E5C761B5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6251.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:999F03BD208357104255892125DC0A6F2963714A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6252.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:3BB217F5E2E9B7CC1CD680456E85D59F88AB2A5D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6253.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:E9FEE7512F822732F0572D188346164BE0E4760E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6254.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Burning Witches - Inquisition (2025) [FLAC|Lossless|WEB-DL|tracks] <HeavyMetal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6255.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6256.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:20E102AB3D88578D0F81A7A42FADF7871B7A4050
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6257.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:927333A2B6812DEB94C95803A499CBA5C525AD3B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6258.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:DCD37517B79984982D6D379B9DF7C7676BABC105
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6259.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:BE3056D93E9ACDD27B187DDE6040F7E69B89DEF1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6260.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:47C86EB92B0771578B41BB849B70AD2FACE43812
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6261.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Helloijan - Senja di Pantai Morib (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6262.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:E21B3848D01517D2251888585D35F662D6F7EB44
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6263.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Fabia Mantwill Orchestra - IN.SIGHT (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6264.jpg" />
 </div>
 
 

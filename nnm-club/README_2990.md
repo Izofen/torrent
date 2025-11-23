@@ -1,3 +1,93 @@
+###  Публикация: 485473   (89575) от 20.04.2012
+
+VA - Клубные новинки Vol.67 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix)
+02. Betsie Larkin and Sied Van Riel - The Offering (Extended Mix)
+03. Biokinetix - sextime (Polypheme remix)
+04. Cassie - King Of Hearts (Sam Young remix)
+05. D-Mad feat. Emma Lock - Counting On Love (Original Mix)
+06. Daddys Groove and Little Nancy - Its Not Right, But Its Okay (Extended Mix)
+07. Desusino Boys - Xerox
+08. Digital Mass - Episode Se7en (Original Blue Mix)
+09. DJ Kiriloff feat. Gloria House - La Isla Blanca (Extended Vocal Mix)
+10. Dj Viduta - Coming Back For More(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2DEDA54781CAC9DCEA34D081CDBE65A6147EF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485694   (89580) от 20.04.2012
+
+Кто получит ананас? (1978) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тигренок шел в гости к слоненку и нес в подарок ананас, но хитрая обезъяна выманила и съела угощение.Жанр: Детский, Рисованная анимацияРежиссер: Елена БариноваПерсонажи: Андрей Игнатенко, Л. ДзюбПродолжительность: 00:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76402FF340461B9DE8310774CEED79ADEF68B3B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485283   (89583) от 20.04.2012
+
+VA - Танцевальный Русский Хит часть 2 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ваня Романов Feat. Jordan - Я Для Тебя Живу
+02. Andi Vax Sound Stuff - 8 Марта
+03. Ксения - Разукрасить Мечты
+04. Gaponoff & Саша Ветер - Melted Stars (Radio Edit)
+05. Наталья Бучинская И Елена Яловик - Лучшая Подруга
+06. Dna Family - Когда Любовь Живет
+07. Горячие Головы - Возвращайся
+08. Reflex - Первый Раз (Версия 2012)
+09. Пропаганда - Нет-Да
+10. Валентина - Между Нами(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291727B35DC8C3E74BD031742AA14409CAF99601
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485483   (89586) от 20.04.2012
 
 [Wallpapers] HD Pictures №24
@@ -6,7 +96,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89586.jpg" />
 </div>
 
 
@@ -34,7 +124,7 @@ Cookie Monsta - Riot (2012) [MP3|320 кб/с]<Dubstep, Drumstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89588.jpg" />
 </div>
 
 
@@ -61,7 +151,7 @@ HyperSnap 7.14.01 + Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89589.jpg" />
 </div>
 
 
@@ -85,7 +175,7 @@ HyperSnap - инструмент для захвата изображения, �
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89592.jpg" />
 </div>
 
 
@@ -110,7 +200,7 @@ Empires Of Eden - Channelling The Infinite (2012) [MP3|192 кб/с]<Melodic Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89593.jpg" />
 </div>
 
 
@@ -143,7 +233,7 @@ VA - Дискотека 777 Русская vol. 2 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89598.jpg" />
 </div>
 
 
@@ -176,7 +266,7 @@ magnet:?xt=urn:btih:EA09ADAA4D6D0D63D54A3257472CAB211D839CAC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89602.jpg" />
 </div>
 
 
@@ -200,7 +290,7 @@ Wrath of Earth [En] (RePack) 1995 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89604.jpg" />
 </div>
 
 
@@ -224,7 +314,7 @@ Wrath of Earth [En] (RePack) 1995 | Pilotus
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89605.jpg" />
 </div>
 
 
@@ -249,7 +339,7 @@ VA - Мы Вас помним, Вы заслужили (2010) [MP3|320 kbps]<В�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89606.jpg" />
 </div>
 
 
@@ -282,7 +372,7 @@ magnet:?xt=urn:btih:2A938ECE888B95B427DE916FE1E9FF4B96C2A43C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89607.jpg" />
 </div>
 
 
@@ -306,7 +396,7 @@ The Days of the Trumpet Call - 5 albums (1999-2010) [FLAC/APE|Lossless] <Neoclas
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89613.jpg" />
 </div>
 
 
@@ -339,7 +429,7 @@ magnet:?xt=urn:btih:ABEB88808A9B304BD3E85BA8FC3B44FA9AF956F8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89615.jpg" />
 </div>
 
 
@@ -367,7 +457,7 @@ VA - Свежий Хит На Русском Радио (2012) [MP3|256 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89616.jpg" />
 </div>
 
 
@@ -400,7 +490,7 @@ magnet:?xt=urn:btih:FED7CEB29C4112ACC9DDBD921E6F8A64C404C987
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89619.jpg" />
 </div>
 
 
@@ -425,7 +515,7 @@ magnet:?xt=urn:btih:F844F3EB181506AE76190E51DB65E40F28F9E708
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89620.jpg" />
 </div>
 
 
@@ -451,7 +541,7 @@ magnet:?xt=urn:btih:F844F3EB181506AE76190E51DB65E40F28F9E708
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89621.jpg" />
 </div>
 
 
@@ -475,7 +565,7 @@ magnet:?xt=urn:btih:F844F3EB181506AE76190E51DB65E40F28F9E708
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89623.jpg" />
 </div>
 
 
@@ -500,7 +590,7 @@ magnet:?xt=urn:btih:5228BEC0F1E78F1B1D235F817397FEFD5D03DDC0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89628.jpg" />
 </div>
 
 
@@ -525,7 +615,7 @@ magnet:?xt=urn:btih:3C70C7F52566E497FF7F6EFF399401991311F12C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89630.jpg" />
 </div>
 
 
@@ -549,7 +639,7 @@ Renaud Garcia-Fons - Solo: The Marcevol Concer (2012) [FLAC|Lossless]<Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89632.jpg" />
 </div>
 
 
@@ -582,7 +672,7 @@ BBC Radio 1 - Essential Mix (1993) [MP3|128-192 кб/с]<House, Electro-House, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89634.jpg" />
 </div>
 
 
@@ -615,7 +705,7 @@ magnet:?xt=urn:btih:4731A0CC6BF9360E39840732CCEA28C4D39F7BCA
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89636.jpg" />
 </div>
 
 
@@ -628,78 +718,6 @@ magnet:?xt=urn:btih:4731A0CC6BF9360E39840732CCEA28C4D39F7BCA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EFAB8B0316E5E38DBC277F7F2C81D844FEE6084
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485455   (89640) от 20.04.2012
-
-VA - Инструментальная музыка (2012) vol. № 13 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9617D9A6EE372B20962C6F2C8952C53CE5CB3C25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485631   (89648) от 20.04.2012
-
-Рестлинг / WWE Friday Night SmackDown! 20.04.2012 (2012) HDTVRip [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый выпуск Friday Night SmackDown!Жанр: СпортПеревод: ОтсутствуетПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7420459208DF1D329B75936752EBA5AC4225F34F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485643   (89657) от 20.04.2012
-
-Подборка | «Военный парад истории» (12 книг) [2004-2006] [DJVU, FB2, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный парад истории - серия иллюстрированных книг о развитии военной техники России и других стран.2004-2006Формат: DJVU (7 книг), FB2 (4 книги), PDF (1 книга)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0194A5157A6B248B60E9A38E449F26EE43028517
 ```
 
 

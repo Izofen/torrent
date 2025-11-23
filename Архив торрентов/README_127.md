@@ -6,7 +6,7 @@ Any Video Downloader Pro 9.1.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31794.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Clipboard Master 5.8.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31802.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FurMark 2.5.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31817.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ RUTUBE - видео, шоу, трансляции 29.11.1.TV-androidtv [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31819.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Room Arranger 10.0.1.714 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31823.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FC5699AB9A21950B5F55D0A11A0463E5D7A4E46C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31829.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Antivirus Removal Tool 2025.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31830.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (0401) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31841.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Topaz Video AI 6.0.2 RC [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31842.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Total Commander 11.50 LitePack & PowerPack + Portable 2025.1 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31865.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:CFE0BBA806AD1DC6498FC889FD33D00A0442B0C5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31983.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Flud v1.11.6.4 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31998.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:650A9D1BE16C3C19D783580F48CB795822D02A72
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31999.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:2E3F615BF88EE54BC0A1DE30170026503C3D0942
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32027.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ocean Match / Рыбки: Три в ряд v3.0.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32029.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NirLauncher Package 1.30.16 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32036.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CCleaner Pro: ПО для очистки 24.25.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32038.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ FolderSync Pro v4.1.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32080.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Photo Sherlock v1.125 Mod by Mixroot  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32104.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:53AC974FAEE590306F375E260D30524882798E58
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32122.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ WinCatalog 2024.9.1.103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32133.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Total Commander 11.50 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32162.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:0529A8BA4E24336EDE047271CD7E3C3B252C40A1
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32191.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:4F8F70F9267AE9B30A93A152364273B4D23B715D
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32194.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Happy Color® – игра раскраска v2.17.5 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32195.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FacePic - AI Face App v2.0.3 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32206.jpg" />
 </div>
 
 

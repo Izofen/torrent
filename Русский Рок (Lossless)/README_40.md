@@ -1,3 +1,84 @@
+###  Публикация: 1619745   (249497) от 18.03.2023
+
+Дельфин - Прощай оружие (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Synth-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты [00:03:47]
+02. Прощение [00:05:35]
+03. ∞ [00:04:41]
+04. Прекрасно [00:05:28](   Читать дальше...   )Жанр: Alternative Rock, Synthpop, Spoken Word, Trip-HopПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF056748BD3DB86EB11831B4652B2A8F60C0A2D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618693   (249777) от 14.03.2023
+
+Колдстрим (София Карева) - Новогодний онлайн концерт, часть 1-2 (2023) Live, 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (Live) [00:00:43]
+02. Как ты там (Live) [00:03:31]
+03. Подводка раз (Live) [00:00:50]
+04. Рыбка (Live) [00:04:51](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 2 CD, 01:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FDE9E4EE0A831BBB3E48526D5AE3C344ABC023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618777   (249798) от 14.03.2023
+
+Brave Rockets - Привет (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_249798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гудбай [00:03:00]
+02. Бой с самим собой [00:03:03]
+03. Бег в мешках [00:05:15]
+04. Быть, а не казаться [00:04:00](   Читать дальше...   )Жанр: Ska Punk-RockПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFA1919AB610AAD69E5055426D6E8AB0862AC7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618772   (249807) от 14.03.2023
 
 Боль Эдема - Одна из тысяч лун (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +87,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249807.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249807.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:13099D979066C223691EA7A7ABCA99829837EE78
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249810.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249810.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:4100F4DD8FA4E93B30EF90FC73048783F657D1E0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249813.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249813.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Glory Hunters - We Play Muzik (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249815.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249815.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:4EA5E2E3961BAD87E8C1C1A1FF84F89F7C3FB3A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250065.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250065.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ magnet:?xt=urn:btih:587931C2B0AA6C6456020BEDF6DDFB619A0B0C75
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250400.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250400.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ magnet:?xt=urn:btih:C86FAF540BDE7B2475B73EAFA04FCE99CFE2BC5D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251246.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251246.jpg" />
 </div>
 
 
@@ -201,7 +282,7 @@ magnet:?xt=urn:btih:C86FAF540BDE7B2475B73EAFA04FCE99CFE2BC5D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251859.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251859.jpg" />
 </div>
 
 
@@ -228,7 +309,7 @@ magnet:?xt=urn:btih:D1D82ED6297BA5534CCF11CD8B985A7371AF4000
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252074.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252074.jpg" />
 </div>
 
 
@@ -255,7 +336,7 @@ Various Artists - Любэ 35. Всё опять начинается. Триб�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252523.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252523.jpg" />
 </div>
 
 
@@ -282,7 +363,7 @@ magnet:?xt=urn:btih:32216BC268F62215ADDFC4AD5B1D42B02C2D3F58
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254919.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254919.jpg" />
 </div>
 
 
@@ -309,7 +390,7 @@ magnet:?xt=urn:btih:09EF858C005EACA73B71C86D615A32E15ABF54E7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255089.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255089.jpg" />
 </div>
 
 
@@ -336,7 +417,7 @@ magnet:?xt=urn:btih:4B449D3F662DB7076F21DC266E1BF4CB98AE20C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255092.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255092.jpg" />
 </div>
 
 
@@ -363,7 +444,7 @@ magnet:?xt=urn:btih:77F2D6EDD80BB69E7AAF0068DBB05B040A1270C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255121.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255121.jpg" />
 </div>
 
 
@@ -390,7 +471,7 @@ magnet:?xt=urn:btih:070424D69B0AED9D358BFE334A9D9A08B6D8F9A8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255543.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255543.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ magnet:?xt=urn:btih:A3C1941083BEDA06CD0A8BDD6B111BA59D636A25
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255547.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255547.jpg" />
 </div>
 
 
@@ -444,7 +525,7 @@ VA - КИНОпробы - tribute Виктор Цой (2000)[APE|lossless]<rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255573.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255573.jpg" />
 </div>
 
 
@@ -471,7 +552,7 @@ magnet:?xt=urn:btih:EE78E5BCE473C86331ED35A9510F05677ECD8327
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255685.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255685.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ magnet:?xt=urn:btih:D7B0D3C17FF46CD822A236F57426711B6B3AC267
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256499.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256499.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ DvärG (DvarG) - Скала (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256865.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256865.jpg" />
 </div>
 
 
@@ -557,7 +638,7 @@ magnet:?xt=urn:btih:CB4DE0BDDF0E68711779D9577DBB4562998D9E16
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256878.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256878.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ magnet:?xt=urn:btih:06778A84240CDE236FE896F085BC5002BD6AC882
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257179.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257179.jpg" />
 </div>
 
 
@@ -604,6 +685,33 @@ magnet:?xt=urn:btih:06778A84240CDE236FE896F085BC5002BD6AC882
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838165   (258048) от 21.11.2025
+
+Сурганова и Оркестр - ЗДРАВСТВУЙ (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Здравствуй
+2. Леди
+3. Не рассказывай мне
+4. Мечтатель(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F7FF65059505A94ACA27F16852E23D257B5015
 ```
 
 

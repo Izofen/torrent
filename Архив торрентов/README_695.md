@@ -1,3 +1,78 @@
+###  Публикация: 969344   (146328) от 27.12.2015
+
+Garmin: Дороги Беларуси 5.40 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поздравляем вас с наступающим 2016 годом!
+Жизни чудесной, улыбок весёлых,
+Верить в удачу свою и мечту,
+Верных друзей, замечательных, добрых,(   Читать дальше...   )Тип издания: карта бесплатнаяРелиз состоялся: декабрь 2015Разработчик: KartaByПоддерживаемая ОС: GarminЯзык интерфейса: РусскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A681CB560B4AF96FB1822D6042C4922DDD214B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435239   (146336) от 27.12.2020
+
+Advanced Installer 17.8 RePack (& Portable) by xetrin [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Installer - приложение, с помощью которого, разработчики и системные администраторы смогут без труда создавать инсталляционные пакеты в формате MSI. Программа функционирует под управлением ОС Windows 7/8/8.1/10, а создаваемые с ее помощью пакеты могут использоваться для развертывания приложений на платформах Microsoft Windows XP/2003/2008/2012 Server/Vista/7/8/8.1/10.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F47E53BE154D82C9CB4BC441F0FFE2DB0E5944F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087341   (146345) от 27.12.2016
+
+SynWrite 6.31.2500 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146345.jpg" />
+</div>
+
+
+###  Подробнее
+
+SynWrite - бесплатный мощный текстовый редактор для программистов, верстальщиков и обычных пользователей, поддерживает возможность разработки программ более чем на 70 языках. В том числе Java, C++, JavaScript, Pascal, Perl, HTML, XML, PHP, SQL и других. SynWrite имеет целый ряд вспомогательных инструментов, облегчающих написание кода. Например, поддерживает плагины, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D737DE897FE7FAFC150C82E3B1FFA245169A225
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589866   (146348) от 16.12.2012
 
 Универсальный солдат 4 / Universal Soldier: Day of Reckoning (2012) BDRip [EN]
@@ -6,7 +81,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146348.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ MediaHuman Youtube Downloader 3.9.9.30 (build 2512) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146353.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Adobe Media Encoder CC 2015 (v9.1.0) Multilingual Update 3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146356.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ CCleaner 5.13.5460 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146363.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:D6411ADC5E9FB2D72B5FA27E3C1CB854CF30435A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146366.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Creative Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146370.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ Macro Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146377.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ WindowSwitcher 1.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146382.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ Audacity 3.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146388.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ AIMP 4.12 Build 1878 DC 26.12.2016 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146401.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ magnet:?xt=urn:btih:434D82FD2AA747C741369B3D8BBF9EF7EB7A803B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146402.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ Rencontre Nocturne - Recap 2019 [MP3|320 Kbps] <Electro House, Progressive House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146405.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ InstaCal 1.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146423.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ iA Writer 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146444.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ Desktop Wallpapers (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146446.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ Display Driver Uninstaller 17.0.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146448.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ Timemator 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146451.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ Ben Salisbury & Geoff Barrow - Black Mirror / Чёрное зеркало: Men A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146457.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ magnet:?xt=urn:btih:D1C1FB10074E2E61A578ABF250CC078BD4A3930B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146460.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ iNotepad Pro 4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146461.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ GrandTotal 6 v6.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146469.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ Wise Disk Cleaner 9.41.655 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146475.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ SamDrivers 21.12 OLD - Сборник драйверов для Windows [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146476.jpg" />
 </div>
 
 
@@ -559,78 +634,6 @@ SamDrivers 21.12 OLD - Сборник драйверов для Windows [Multi/R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3182044015946DD6F271485AEEC305ED9E007CD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348098   (146479) от 26.12.2019
-
-Cisdem Document Reader 4 v4.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem DocumentReader позволяет читать, печатать, сохранять файлы: WPD, WPS, XPS, Visio PDF на Вашем Mac. Приложение позволяет Вам использовать различные стили просмотра с помощью панели инструментов, состоящий из режимов просмотра, панели поиска, навигации по страницам, масштабирования, поворота, а так же функций: сохранить, копировать и т.д. Вы можете персонализировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B571109F3F424BF35352408B371A12D8D8DD64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087488   (146481) от 27.12.2016
-
-MKVToolNix 9.7.0 Final RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146481.jpg" />
-</div>
-
-
-###  Подробнее
-
-MKVToolnix - функциональный набор инструментов для работы с видеофайлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Всё очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в себе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058AC7B7D82939DA39CBBC9783E6DE45C887C118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678214   (146488) от 20.11.2023
-
-Сборник | Книги-компиляции от издательства «Витовт». Часть 1 [500 книг] (2019-2023) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник больших книг от интернет-издательства «Витовт» - настоящая библиотека на вашем жестком диске. Благодаря ей у вас не будет возникать вопрос - а что бы почитать? В сборнике каждый найдет для себя что-то интересное, ведь в нем представлены все жанры, а каждая книга может включать в себя до нескольких десятков произведений. Книги от «Витовт» отличаются высоким (   Читать дальше...   )Жанр: фантастика, приключения, историческая прозаИздательство: ВитовтФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31744223535AD9BB6369DB15B702B04FBC689A3
 ```
 
 

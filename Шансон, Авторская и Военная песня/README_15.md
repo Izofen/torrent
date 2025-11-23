@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105186.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0E32D35E815219A32618E75E1B69F26FA69EA9FD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105385.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:35AFACE673328BDFBA81518342086CE01D28956B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105525.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:68A2F2366828A6EAAC7E699DC5241EC531514C57
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105591.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105603.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:8026D53D87B074BA632F97E311F7576DB8A35F72
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105631.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Про жуликов и воров (2012) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105871.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:109A3CDE7667C57B765B99845E23CFF4BCA3DD57
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105934.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Двойное удовольствие - 2 (2024) [FLAC|Lossless|WEB-DL|tr
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105939.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Гуляй, душа! (Душевные песни) (2024) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105960.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:EB4F5AEBF92275FA6D082D1A89692E739467861A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106352.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C8AFFF1F710A79BE0744DEA74B850210D161471F
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106406.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:9F74B7D75D5AE8E5C189B8F5E5B6A9D8A512976F
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106411.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:DBD5D651B94E2C555134D0C0FBF477CFD2E5B475
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106412.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:13C5936BD4E5305A126A8A3F5F0841FF30F14C7D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106439.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:F566DCACDDF4FA3CB664F09E781EEAF9D7A26C67
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106601.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:F96B992DA4AAEB1395F95119749376B189EFE215
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106631.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:3B2A6916AFBD2B8CA375CADD7135C10614F88144
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106636.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:6EBDCDC8D336BECDA244E12D6152172B8BF35489
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106653.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:3A544BD528397BAC0DE9F5B370A341C1C9073A53
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106661.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:2451860BE24B782CBA03C0F39E51A5779A25035C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106716.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:89A9BE24A35A0C4ABE13F8AF4CB0F8D15F1F001E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106818.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:5B87EB3AC31CB21CDD3331FCF10438E84B777369
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107594.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Новый хит- 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон,
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107763.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Новый Хит Весна (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107765.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Валентинка для тебя (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107819.jpg" />
 </div>
 
 

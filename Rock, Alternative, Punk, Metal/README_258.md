@@ -6,7 +6,7 @@ Unheilig - MTV Unplugged - Unter Dampf - Ohne Strom (2015) Deluxe Edition Box [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161430.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rising Wings - Reach (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161433.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Big Mouthers - Wishes (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161434.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Lust - Black Dahlia Poem (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161436.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Brian Bart - Future Vision (1987) Reissue, Remastered, 2023, MelodicRock Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161442.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stealing Death - Speed Force (2020) [MP3|320 Kbps] <Heavy-Metal, Thrash-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161443.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bacchus Baracus - All Art Is Theft (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161445.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Station - And Time Goes On (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161446.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Voivod - Warriors Of Ice (2011) Japan, Reissue, 2014, Avalon [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161449.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Binary Creed - Restitution (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161454.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Briton Rites - Occulte Fantastique (2020) [MP3|320 Kbps] <Heavy Metal,  Doom Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161455.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Briton Rites - 3 Albums (2010-2020) [MP3|V0/320 Kbps] <Heavy-Metal, Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161468.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Herbert Gronemeyer - Chaos (1993) [FLAC|Lossless|image + .cue] <rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161470.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Chakal - Man Is A Jackal 2 Man (2017) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161479.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Endstille - DetoNation (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161481.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Warseid - A New Land to Find (2017) [FLAC|Lossless|image + .cue] <Symphonic Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161489.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Asmodean - By a Thread (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161496.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Black Anvil - Regenesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161497.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wizard - Odin (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161501.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Arsenic - Seeds of Darkness (2006) Compilation, Metalhit [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161504.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Trivax - Eloah Burns Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161509.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Father Of Serpents - Age Of Damnation (2017) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161512.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Wizard - Goochan (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161515.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Enchant - A Blueprint Of The World (1994) Special Edition, 2CD [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161519.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Wizard - Bound By Metal (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161521.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Wizard - Magic Circle (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161524.jpg" />
 </div>
 
 

@@ -1,3 +1,180 @@
+###  Публикация: 1672938   (166913) от 30.10.2023
+
+MAMP PRO 6 v.6.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любому веб-разработчику в процессе создания того или иного сайта необходимо проверять его работоспособность. Делать это удобнее всего на локальном веб-сервере, поднятом на своем компьютере. Преимущества этого способа в том, что нет ограничений ни на размер сайта, ни на использование процессорного времени или оперативной памяти сервера, а главное – то, что любое сохранение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2023Разработчик: 2004 - 2023 MAMP GmbHПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E432B064A63C151D0FF61406103EA0E78CBCDD97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597183   (166914) от 14.12.2022
+
+Everest Queen - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Bleeding Hollows [00:02:43]
+02. Blood That Binds the Iliad [00:06:35]
+03. Crooked Husk [00:05:54]
+04. Neptune's Gates [00:06:05](   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963D45D433FF05726DC9DD5F3CF56A19774A66B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345218   (166915) от 14.12.2019
+
+MAGIX Vegas Pro 17.0 Build 387 RePack by KpoJIuK [En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166915.jpg" />
+</div>
+
+
+###  Подробнее
+
+MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683CAA5CFD8FC05EB12EFFE64639FE78C785F28C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597310   (166916) от 14.12.2022
+
+Loud Solution - Throwback (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Times [00:04:30]
+02. Face to Face [00:04:46]
+03. Amid My Heart [00:04:37]
+04. Not Provided [00:03:47](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60EF5B02EF6484C33B93863DADE66487552BCED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672966   (166917) от 30.10.2023
+
+Optimizer 16.2 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Optimizer - утилита расширенной настройки, которая поможет вам восстановить конфиденциальность и повысить безопасность.
+Optimizer рекомендуется использовать после свежей, чистой установки Windows для достижения максимальной конфиденциальности и безопасности.
+В зависимости от версии Windows, Optimizer также позволяет выполнять некоторые специфические настройки.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC4384ABD947867C859723DBF6E3C8CB287E17C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345293   (166918) от 14.12.2019
+
+Папик (2019) WEBRip (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилой бывший актёр, находящийся на обочине жизни, волей случая втянут в интриги "заклятых" подружек, охотящихся на богатых женихов.. .Производство: Украина / "Квартал 95"Жанр: комедияРежиссер: Андрей ЯковлевАктеры: Станислав Боклан, Дарья Петрожицкая, Сергей Сипливый, Олеся Жураковская, Екатерина Кистень, Вера Кобзарь, Вячеслав Гиндин, Михаил Кукуюк и др.Язык озвучки: русскийПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839AAE3721D4AD7E6824F6670CC8C1D84552B76D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672852   (166919) от 30.10.2023
+
+Р.Б. Райхмист | Графики функций (1991) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166919.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассматриваются различные классы функций и методы построения их графиков. Особое внимание уделено графикам функций, заданных неэлементарно (например, с помощью пределов); заданных параметрически и т. п. В основном приводятся графики функций, широко используемых в различных областях инженерных знаний.
+Для студентов ВУЗов и специалистов, интересующихся вопросами (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE7819335563CA1B0F1456EDFE5DEB11873ED5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597177   (166920) от 14.12.2022
 
 Fuzzerati - Zwo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psych, Stoner, Space>
@@ -6,7 +183,7 @@ Fuzzerati - Zwo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psych, Stoner, Spac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166920.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ magnet:?xt=urn:btih:4D4CCD10E6DF528F4836E101CFA6B96DFD74BDA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166921.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:1BDDE117A5725CD62FEFBAC02AD94A89B343C889
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166922.jpg" />
 </div>
 
 
@@ -82,7 +259,7 @@ Komunist - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hardcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166923.jpg" />
 </div>
 
 
@@ -109,7 +286,7 @@ magnet:?xt=urn:btih:C20D6E04D994F8EFF0430E7BCAC6CEAE8E0C6FFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166924.jpg" />
 </div>
 
 
@@ -133,7 +310,7 @@ magnet:?xt=urn:btih:7CAAD752CF22B87825E6F8D2DCACFD9C693BA564
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166925.jpg" />
 </div>
 
 
@@ -157,7 +334,7 @@ Andra - Circle Of Fire (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166926.jpg" />
 </div>
 
 
@@ -184,7 +361,7 @@ magnet:?xt=urn:btih:80A053764E7805D96393E4862B02F2EB883F9796
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166927.jpg" />
 </div>
 
 
@@ -210,7 +387,7 @@ magnet:?xt=urn:btih:97938974EF141ECBE8E278202FFE996BA213EDDB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_166928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_166928.jpg" />
 </div>
 
 
@@ -234,7 +411,7 @@ Lordi - Lordiversity: Abracadaver (2021) [MP3|320 Kbps] <Heavy Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166929.jpg" />
 </div>
 
 
@@ -253,6 +430,30 @@ magnet:?xt=urn:btih:2BA1AB92AE1B44CE3DC1CF41478165DDA09A9647
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431671   (166930) от 14.12.2020
+
+Дурная кровь / The Bad Seed (2019) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-5 из 5) ViruseProject [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_166930.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета «Дурная кровь» история двух братьев, которые росли в не благополучной семье. Им всегда было не сладко, а после того, как нашли убитой их соседку и стали все стрелки двигать в их сторону, так вообще жизнь превратилась в ад. Братья замечают, что это дело темное и теперь им приходится самим с этим разобраться, ведь кажется, что в смерти девушки виноваты (   Читать дальше...   )Производство: Новая Зеландия / South Pacific Pictures, Jump Film and TelevisionЖанр: драмаРежиссер: Хелена БруксАктеры: Мэттью Минто, Дин О’Горман, Джоди Хиллок, Zoe Jansson-Bush, Madeleine McCarthy, Челси Престон-Крейфорд, Ксавьер Хоран, Мадлен Сами, Vinnie Bennett, Mayen Mehta и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672961   (166931) от 30.10.2023
 
 Формула 1. Сезон 2023. Этап 20. Гран-при Мехико. Квалификация. Гонка (28-29.10.2023) UHDTV [H.265/2160p] [10-bit] [50fps] Sky Sports F1 UHD
@@ -261,7 +462,7 @@ magnet:?xt=urn:btih:2BA1AB92AE1B44CE3DC1CF41478165DDA09A9647
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166931.jpg" />
 </div>
 
 
@@ -289,7 +490,7 @@ Asgarth - Zeldatik (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166932.jpg" />
 </div>
 
 
@@ -316,7 +517,7 @@ PotPlayer 191211(1.7.21097) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166933.jpg" />
 </div>
 
 
@@ -340,7 +541,7 @@ Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Fun
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166934.jpg" />
 </div>
 
 
@@ -367,7 +568,7 @@ Crimson Tears - The Dark Awakening (2007) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166935.jpg" />
 </div>
 
 
@@ -394,7 +595,7 @@ Soirée - Soiree (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166936.jpg" />
 </div>
 
 
@@ -421,7 +622,7 @@ magnet:?xt=urn:btih:AFD5C60CBE723B57C6F4D3E3BC9F0D7DF3D9C250
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166937.jpg" />
 </div>
 
 
@@ -445,7 +646,7 @@ magnet:?xt=urn:btih:A5572B2361920FB79513ACE0E69D0EA460EE02EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166938.jpg" />
 </div>
 
 
@@ -456,209 +657,6 @@ magnet:?xt=urn:btih:A5572B2361920FB79513ACE0E69D0EA460EE02EE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76930F8DC5C3BD2949689FBEB71D60D54095A2F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597231   (166939) от 14.12.2022
-
-Aneuma - Climax (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fall Apart (03:56)
-02 - Creatures (05:15)
-03 - Castaway of Chance (04:28)
-04 - Ashes of Your Fears (04:48)(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89694957C69139443CAE74570E84364A1B9FF9FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431683   (166940) от 14.12.2020
-
-Алиса Ткачева | Наблюдаем и изучаем. Динозавры (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Динозавры" расскажет о таинственном и далёком мире динозавров. Читатель познакомится с главными этапами эволюции, узнает, как появились и жили древние ящеры, а также, что стало причиной их гибели. Принять участие в жизни динозавров позволят увлекательные задания, игры и головоломки, которые чередуются в книге с невероятными и познавательными фактами. (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E61E0CF5F628E97CB64890906092857633664B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672871   (166941) от 30.10.2023
-
-Интернет-журнал | Домашняя лаборатория №10 (2023) [DJVU]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166941.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: Интернет-изданиеФормат: DJVUКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64845A483417E8372E0E682E14DAAF23A704B6AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515846   (166942) от 10.12.2021
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Open to Close Solo Set, Stereo Montreal Part 1, Canada 2021-11-25) (2021-12-02) [MP3|320 Kbps] <Trance, Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilija Djokovic - Atom
-02. Julian Jeweil - And We (Markus Schulz Afterdark Reconstruction)
-03. CamelPhat & Will Easton - Witching Hour
-04. The YellowHeads - Experimental Evidence(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50952E7AF2B212750837F6BE3AE5DFCE8EC9CCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345241   (166943) от 14.12.2019
-
-Эмили Нагоски, Амелия Нагоски | Выгорание. Новый подход к избавлению от стресса (2020) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами руководство по саморазвитию и преодолению стресса у женщин от автора международного бестселлера «Как хочет женщина» доктора философии Эмили Нагоски и ее сестры Амелии, доктора медицинских наук.
-Девушки испытывают эмоциональное выгорание совсем не так, как мужчины. Между ожиданиями и навязанными стереотипами современного общества и тем, как женщины ощущают (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C8851E89CE68951F5A2844E4D444EF1FF7AC34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431660   (166944) от 14.12.2020
-
-Art Text 4.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Text - красивое текстовое приложение под Mac OS для тех кому часто нужно рисовать высококачественную графику: тексты заголовков, кнопки, баннеры, логотипы, иконки и тому подобное. ПО позволяет преобразовать любой текст или векторное изображение в яркую графику высочайшего качества.
-Благодаря поддержке слоев, обширной векторной библиотеке и более 700 примитивов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2020Разработчик: BeLight Software Ltd.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A5C338C05AA27E99C168D7E6F60E721324370C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672932   (166945) от 30.10.2023
-
-Формула 1. Сезон 2023. Этап 20. Гран-при Мексики. Гонка (29.10.2023) WEBRip [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166945.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 октября 2023, воскресенье. 23:00 МСК. Этап 20, Мехико. Гран-при Мексики. Гонка (71 круг)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B0FEC92B6166301B5BE26E927EB1048DB6D71B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516219   (166946) от 10.12.2021
-
-Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atom Heart Mother (Live In Rome Palaeur)
-02. Careful With That Axe, Eugene (Live In Rome Palaeur)
-03. Fat Old Sun (Live In Rome Palaeur)
-04. The Embryo (Live In Rome Palaeur)(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F199CD4328096AC3A008A4A7BFA229FEC8BA33
 ```
 
 

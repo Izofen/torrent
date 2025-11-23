@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57357.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57358.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AF26896585042D69B73FE59623A91443D6333A1C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57359.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8DBCCB9F94E57B2DAE83DD260760DD3B40B3382E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57360.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MAGIX Video Pro X16 22.0.1.216 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57361.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.3 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57362.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ uTorrent Pro 3.6.0 Build 47082 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57363.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:89D271D1D786F763A990A7D0B66F7F09C581872A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57364.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:CD2EB2F0535075E8639E9ED11505F914BBD90290
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57365.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Outline Client VPN 1.13.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57366.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:7534845C22116C171685E98825B97BFCB9E09239
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57367.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kaspersky 21.17.7.539 Standard | Plus | Premium [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57368.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:278FBC717D6AA44821CAFFFD1A4C3E67EAE153D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57369.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:3547E81AD7F49BD6B10396976C20D2C1CECF137B
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57370.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:CA456AC960D57A5631B36ACCC45FF92D5FBFCEBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57371.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:F9EE327C8E168F5E9B9B9F84C0B718838587B01E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57372.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Air: Большой прыжок / Air (2023) BDRip [H.265/720p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57373.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:45C0D8A7FD3F4F6EB85E8059AD890B157EB0C21F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57374.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:05159881FF216F5A87A088E2040B8D7D0B135258
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57375.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:A9040A0F01A7225EC0C4F54856D1469223F4EF70
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57376.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:E0C004175FA86BDEA047272B53BB66E8EBD4F651
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57377.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:5C9F56E559A1DA32EB512D390EA7B9E2F232750E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57378.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:5C9F56E559A1DA32EB512D390EA7B9E2F232750E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57379.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:6DE62DB010398BE2925865D3A535079D1EE59769
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57380.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Melon VPN - Secure Proxy VPN 8.0.032 Mod By Derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57381.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:50C8E2F30F9CF88A7497FEA4C44D30DD5AE60A4E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57382.jpg" />
 </div>
 
 

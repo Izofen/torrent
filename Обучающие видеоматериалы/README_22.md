@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46952.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sefki Ibrahim | Hyperreal 3D Character Creation Course [Tutorial] [EN/EN Sub] (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47801.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ George Vondriska | Настройка и использование фуганк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47845.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ George Vondriska | Основы работы с фрезерным столом 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47949.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ George Vondriska | Техники работы с ручным фрезером 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47995.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ YanSculpts | Master Sculpting Heads - 3D Blender Course (V1.3) (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48014.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:A0BF2036BF1604F9CF70228921ED2B931006A9B2
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48549.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Doug Stowe | Основы изготовления шкатулок (2007) DVDRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48581.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:DB62840A97020010D6D23A05806457C06F071025
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48649.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:37CE7A825DA5A8245D1F55732113268CE589D027
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48691.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:B4925793BC2A7375E428474C9F01E33299FC6F81
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48816.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ColorSchool, Наталья Маркевич | Свет в саду (2024) WEB-D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48870.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ George Vondriska | Основы работы с циркулярной пило�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48893.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:47E22040B3BBD1DEFCFFDF207D7271E9D5508803
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49000.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:F3F7DF1162AEEDD53A4C58C1AA0026A74025C62F
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49018.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:43991077AAC4C2B7F23F998266E909290ECD88D8
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49041.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:CC9DC7A9A6406DDC1391D114615194D9371B06EE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49080.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ George Vondriska | Основы работы с ленточной пилой (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49177.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:5A8FEBAB40D41665587965D7DA5CFBCE766722E7
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49214.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Stepik, Codemoon | Создаем корпоративного Telegram бота
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49371.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ George Vondriska | Деревообработка: Все о дереве (2018)
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49861.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Alan Turner | Отделка выполненная вручную (2020) WEBRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50013.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:ECF4691296B12E9A2470195A0376B53464149213
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50066.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:016139FBC47DF3003480CCFAECD76BAE09935F59
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50071.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:75769AE170DE168E9C9571DF9EB28C53CFE4AC52
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50103.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Udemy, Вадим Прокопчук | Верстка сайта c исполь�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50109.jpg" />
 </div>
 
 

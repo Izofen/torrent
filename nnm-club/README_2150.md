@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56265.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Foxit PDF Editor Pro 2024.2.1.25153 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56266.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.1 Stable RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56267.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Whispered Secrets 15: Cruise of Misfortune (2024) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56268.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Denoise it - ИИ фоторедактор v1.1.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56269.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Billie Eilish - HIT ME HARD AND SOFT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56270.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:56C8295977595D1D321BBDEE78138C65A59DA258
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56271.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56272.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Windows Manager 2.0.0 (x64) Portable by FCPortables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56273.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:1EC8DEB6526C4AE873C51E95C5C5C7E73B5B5419
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56274.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:55B93451BE43D4D1640DB49F2A06247B644E3C20
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56275.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:38CACAFE25D05F5C39DED974C573E9A8CFAD780D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56276.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:3BF6ADE85550E49663B662703385F5FC13485C23
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56277.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Supermium 122.0.6261.152 (R5) - Security patch [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56278.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56279.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Echoes of the Plum Grove (2024) [Multi] (1.0.1.0s) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56280.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56281.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:67C2E6FFC9F140FBCE4714F4EE16A51294ABB2DC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56282.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:B0378654ECDC036337A0A4C30759542630DCF27A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56283.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:3868FD2F7D31E3F3F96D45CF84B04D42D364DA43
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56284.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Total Commander 11.03 (15.05.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56285.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wondershare PDFelement 10.4.1.2755 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56286.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:9DDB184FC6A502A56C2C7BF584D59A10516EEE1B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56287.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ AlmaLinux 9.4 [x86_64] 8xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56288.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ WSCC (Windows System Control Center) 7.0.9.02 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56289.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:9C3C04DAA239499D75460F5DB626309CB2FFB427
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56290.jpg" />
 </div>
 
 

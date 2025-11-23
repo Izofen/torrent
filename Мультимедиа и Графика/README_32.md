@@ -1,3 +1,27 @@
+###  Публикация: 1703094   (115267) от 28.02.2024
+
+Photo Mechanic Plus v6.0 build 7102 [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Mechanic - фотобраузер и фоторедактор оперативно обрабатывающий тысячи снимков в одиночном и пакетном режимах, отбирает из них самые удачные, обрезает, добавляет информацию к фото, рейтинг, корреспондируется с цифровыми камерами, интегрируется со многими редакторами в т.ч. Adobe Photoshop, позволяет легко экспортировать данные. Программа предназначена для профессиональных (   Читать дальше...   )Язык интерфейса: Aнглийский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406A23AF0F2542657B08583DBF2AD92E66A6631F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703072   (115406) от 27.02.2024
 
 FFmpeg Batch AV Converter 3.0.4 + Portable [Multi]
@@ -6,7 +30,7 @@ FFmpeg Batch AV Converter 3.0.4 + Portable [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115406.jpg" />
 </div>
 
 
@@ -31,7 +55,7 @@ Axialis IconWorkshop Professional 6.9.5.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116093.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ Structure Studios - VIP3D Suite v3 2023.1.4 by Zmco [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116413.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ Cherry Audio - Trident 1.0.10 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117539.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ UJAM - BEATMAKER 3 3.0.2 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117540.jpg" />
 </div>
 
 
@@ -128,7 +152,7 @@ ON1 Photo RAW MAX 2026 20.0.4.17586 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117595.jpg" />
 </div>
 
 
@@ -152,7 +176,7 @@ Icecream Image Resizer Pro 2.14 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118611.jpg" />
 </div>
 
 
@@ -176,7 +200,7 @@ Newfangled Audio - Recirculate 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118811.jpg" />
 </div>
 
 
@@ -203,7 +227,7 @@ Native Instruments - Guitar Rig 7 v7.0.2 Standalone, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118896.jpg" />
 </div>
 
 
@@ -228,7 +252,7 @@ Eventide - Blackhole Immersive 1.1.3 VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119351.jpg" />
 </div>
 
 
@@ -252,7 +276,7 @@ Sound Particles - 6FX Bundle 02.2024 VST3, AAX (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119381.jpg" />
 </div>
 
 
@@ -277,7 +301,7 @@ JMG Sound Plugins Bundle 2024.01 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119824.jpg" />
 </div>
 
 
@@ -301,7 +325,7 @@ Strawberry 1.0.23 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119840.jpg" />
 </div>
 
 
@@ -327,7 +351,7 @@ PSPaudioware - PSP Plugins Bundle 01.2024 VST, VST3, AAX (x64) RePack by R2R [En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119849.jpg" />
 </div>
 
 
@@ -351,7 +375,7 @@ Format Factory 5.17.0.0 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119871.jpg" />
 </div>
 
 
@@ -375,7 +399,7 @@ Sonic Academy Plugins Bundle 2023.12 VST/VSTi, VST 3/VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119982.jpg" />
 </div>
 
 
@@ -399,7 +423,7 @@ Fakin The Funk 5.4.0.158 (х64) Portable by Spirit Summer [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120520.jpg" />
 </div>
 
 
@@ -423,7 +447,7 @@ Spectrasonics Omnisphere Software 2.8.6c, Patch 2.8.2c, Soundsource 2.6.2c Libra
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120549.jpg" />
 </div>
 
 
@@ -447,7 +471,7 @@ iZotope - RX 10 Audio Editor Advanced 10.5.0 STANDALONE, VST3, AAX (x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120727.jpg" />
 </div>
 
 
@@ -472,7 +496,7 @@ Mandelbulber 2.31.0 + Standalone [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121149.jpg" />
 </div>
 
 
@@ -496,7 +520,7 @@ StemRoller 2.0.3 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122220.jpg" />
 </div>
 
 
@@ -521,7 +545,7 @@ Nuro Audio - Xvox Pro 1.0.3 VST 3 (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122564.jpg" />
 </div>
 
 
@@ -546,7 +570,7 @@ Nuro Audio - Xrider 1.0.1 VST 3 (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122579.jpg" />
 </div>
 
 
@@ -573,7 +597,7 @@ Boilsoft Video Joiner 9.1.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123725.jpg" />
 </div>
 
 
@@ -597,7 +621,7 @@ Boilsoft Video Splitter 8.3.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123741.jpg" />
 </div>
 
 
@@ -608,30 +632,6 @@ Boilsoft Video Splitter - это мощный инструмент для обр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB235878A84D94A9B0CA89B2FEDD841CE751845B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690793   (123747) от 09.01.2024
-
-HitPaw Video Converter 3.1.2.4 x64 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123747.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Video Converter — это премиальный инструмент для преобразования, способный преобразовывать видео и аудио файлы до более 800 типов форматов, которые он поддерживает. Эта мощная программа также служит менеджером загрузок, с помощью которого вы можете получать различные носители из более чем тысячи партнерских веб-сайтов одним щелчком мыши.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA08995CB2F9CBED881544EB1ED6E68197E8D4E2
 ```
 
 

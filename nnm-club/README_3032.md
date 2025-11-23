@@ -1,3 +1,76 @@
+###  Публикация: 1822055   (94649) от 05.10.2025
+
+Золушка / Cinderella (2015) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец молодой девушки по имени Элла, овдовев, женится во второй раз, и вскоре Элла оказывается один на один с жадными и завистливыми новыми родственницами — мачехой Леди Тремэйн и ее дочерьми — Анастасией и Дризеллой. Из хозяйки дома она превращается в служанку, вечно испачканную золой, за что и получает от своих сварливых сводных сестриц прозвище — Золушка.
+Несмотря (   Читать дальше...   )Производство: США, Великобритания / Allison Shearmur Productions, Beagle Pug FilmsЖанр: Фэнтези, Драма, Мелодрама, СемейныйРежиссер: Кеннет БранаАктеры: Лили Джеймс, Кейт Бланшетт, Ричард Мэдден, Хелена Бонем Картер, Нонсо Анози, Стеллан Скарсгард, Софи МакШера, Холлидей Грейнджер, Дерек Джекоби, Бен ЧаплинПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A328D1F4397331988402CF445DDABB99F20C79C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822048   (94651) от 05.10.2025
+
+Евгений Сухов | Воля цвета крови (2024) [MP3, Кирилл Петров]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1947 год. В Казанском НИИ ограблены и убиты бухгалтер и кассир, доставившие зарплату сотрудникам. Свидетелям запомнился щеголеватый вид налетчика: яркая одежда, приметный желтый берет… Начальник отдела по борьбе с бандитизмом майор Виталий Щелкунов с помощью осведомителей устанавливает кличку преступника – Пижон. Когда-то этот тип начинал с подделки документов, а (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 05:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10508F50230299E270EEC589C8D37F8B35C5A14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822053   (94653) от 05.10.2025
+
+Adobe Photoshop 2025 26.11.0.18 Light Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2025 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E63307E2016E5CE9FC139E8632176830DCA3A0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516075   (94655) от 04.10.2025
 
 Виталий Ивлев | Построение формы предметов (2021) WEB-DLRip
@@ -6,7 +79,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94655.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:6EE66D3FB9A083A83C536F046A72107FCB75E254
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94656.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94656.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:6EE66D3FB9A083A83C536F046A72107FCB75E254
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94657.jpg" />
 </div>
 
 
@@ -83,7 +156,7 @@ magnet:?xt=urn:btih:6EE66D3FB9A083A83C536F046A72107FCB75E254
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94659.jpg" />
 </div>
 
 
@@ -107,7 +180,7 @@ magnet:?xt=urn:btih:FBE183DE7963CF5433DCC8F8681E24A20D2C58AD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94663.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:28C99FBC8758BF8A6B9E77582082446E64A24129
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94664.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ magnet:?xt=urn:btih:CAB78DB8805D8763DE3B957104BA431456C04374
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94665.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ magnet:?xt=urn:btih:81C72C3A1C4E1E41D251F740A4E009801DBCE7B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94666.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ magnet:?xt=urn:btih:619649FF1874880E72E29F7DB7FD63CBF2E3E5BA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94668.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ magnet:?xt=urn:btih:8ED946B8FB4924165997720EA78BD76128150D3C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94670.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ magnet:?xt=urn:btih:68D1522AB90F56A95FF8CD950CD97A56243C002C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94672.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ magnet:?xt=urn:btih:3C82E3D7EB147F351EFD602089FE9AFFC0B97B3F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94674.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ magnet:?xt=urn:btih:C231215A9C976453B7C3AA3619ACB9D841B9154E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94675.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ magnet:?xt=urn:btih:9C85ECD8998E74751788B347E5F624029C968C5E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94676.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ magnet:?xt=urn:btih:A29BA1DDF33668703AFB9CD585FC679331A99D0E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94678.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ magnet:?xt=urn:btih:6FFDFBC875823594C7121E62378BB20154F5598A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94680.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ magnet:?xt=urn:btih:BF8CF0639A5E0421DBD4C04027F7F307E76D3001
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94682.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ VA - ZYX Italo Disco New Generation Vol. 27 (2025) 2CD, Compilation [FLAC|Lossle
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94684.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ magnet:?xt=urn:btih:911D7322F2F4A711817AFE09C04C39C13D32B2FD
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94689.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:281A02FBC40EE48302F6E735F7448265423AE13D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94692.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94694.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94695.jpg" />
 </div>
 
 
@@ -557,7 +630,7 @@ magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94696.jpg" />
 </div>
 
 
@@ -568,82 +641,6 @@ magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFFF20637A0D6A8DBE718DCA5DA49EA6C34C1A7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506820   (94698) от 04.10.2025
-
-Зола / Zola (2020) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официантка из Детройта по имени Зола поддается на уговоры новой знакомой и отправляется на короткую гастроль во Флориду подработать стриптизершей. Уик-энд обещал быть интересным, но девушка не ожидала, что настолько.Производство: США /  Killer Films, Gigi Films, Ramona FilmsЖанр: Драма, комедия, криминалРежиссер: Яница БравоАктеры: Тейлор Пейдж, Райли Кио, Колман Доминго, Николас Браун, Ari'el Stachel, Джейсон Митчелл, Ts Madison, Nelcie Souffrant, Насир Рахим, Amelia Rose MonteagudoПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665EB17D37EFCD890DB22153780548174C9771E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821989   (94699) от 04.10.2025
-
-Не пью! v1.19 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не знаете как бросить пить? Значит, это приложение то, что вам нужно!
-Приложение позволяет контролировать время, прошедшее с момента последнего употребления алкоголя.Тип издания: ModРелиз состоялся: 01.10.2025Разработчик: PE Valerii PechenkinПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC77CE7A1EB8C3E0CC90E2C5A38B17FC23BB9C99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821995   (94701) от 04.10.2025
-
-VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
-03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
-04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
 ```
 
 

@@ -6,7 +6,7 @@ Herb Ellis Trio - Sweet And Lovely (1984) Atlas [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113460.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hans van Lier Band - It Could Have Been Less (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113463.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gene Krupa - Drum Crazy (1936 - 1950) 2001, ASV [FLAC|Lossless|image + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113469.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113517.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Andy Lindquist - Unravel the Gravel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113527.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gene Harris Quartet - Another Night In London (1996) 2010, Resonance Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113531.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sonny Stitt - No Greater Love (1981) 2001, TKO Magnum Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113532.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Red Holloway / Clark Terry Sextet - Locksmith Blues (1989) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113534.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sonny Stitt - Plays Jimmy Giuffre Arrangements (1959) 2010, American Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113535.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ben Hemming - Darkness Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113540.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cosmic Promise - Navigator (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113541.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Skeewiff - Something Like That (2024) [FLAC|Lossless|WEB-DL|tracks] <Big Beat, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113543.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Nine Below Zero - Denmark (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113544.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ty Clayton - An Animist Hymnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113545.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Arms Grace - Summit (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113549.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Samuel Bowen - Closer to the Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113551.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Al Rodriguez - Nowhere station (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113554.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Stephane Grappelli - Stephane Grappelli with Strings (1961,1970) 2CD. 2020, Labe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113556.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jack Fossett - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113575.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Bad Dad Orchestra - Makin' Me Wild (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113594.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sarah Jane Morris - Sisterhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113595.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sonny Stitt - Tune-Up! (1972) 1993, Muse Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113613.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Oscar Peterson - Con Alma: Live in Lugano (1964) 2023, Mack Avenue [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113619.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kenny Barron - The Source (2023) Artwork Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113622.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Terumasa Hino - Bluestruck (1990) [FLAC|Lossless|tracks + .cue] <Fusion, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113631.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113633.jpg" />
 </div>
 
 

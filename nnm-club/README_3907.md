@@ -1,3 +1,81 @@
+###  Публикация: 1694004   (121264) от 23.01.2024
+
+SponsorBlock for YouTube 5.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121264.jpg" />
+</div>
+
+
+###  Подробнее
+
+SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29ED34975E0D59F4438ADE60BFA1AC48D250B1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694040   (121265) от 23.01.2024
+
+The Rods - Rattle The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Now And Forever (00:03:34)
+02 - Wolves At The Door (00:05:30)
+03 - Cry Out Loud (00:07:29)
+04 - Rattle The Cage (00:04:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49991E16E6783C4484F942824EE3C47ABE81F82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693987   (121266) от 23.01.2024
+
+Beegie Adair & Friends - Jazz Romance: 15 Sentimental Love Songs (2016) Green Hill [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Last [3:58]
+02. Moonglow (feat. Jeff Steinberg Orchestra) [3:48]
+03. Strangers in the Night (feat. Denis Solee) [3:27]
+04. As Time Goes By [4:34](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEE0A852B8E6334B79DF60B7BF3C05856588573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694107   (121267) от 23.01.2024
 
 Генрих Бёлль | Женщины у берега Рейна (2012) [MP3, Вячеслав Герасимов]
@@ -6,7 +84,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121267.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ magnet:?xt=urn:btih:2D9AFB1BD22D5B109CC81E1D93F1EC5A2F918C00
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121268.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ Slidepad 1.4.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121269.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:C5671D80676D0D82B98417B3F95926997679AE5C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121270.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ Dark Oath - Ages of Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121271.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ Rock Shed Rangers - Different Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121272.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ Beegie Adair & Monica Ramey - Some Enchanted Evening (2016) Green Hill [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121273.jpg" />
 </div>
 
 
@@ -187,7 +265,7 @@ Abysmal Grief - Reveal Nothing (2016) Compilation [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121274.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Mp3tag 1.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121275.jpg" />
 </div>
 
 
@@ -238,7 +316,7 @@ Dave Brubeck Quartet - Debut in the Netherlands 1958 (1958) 2022, The Lost Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121276.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ Therion - Leviathan III (2023) [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121277.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Instrumental Wedding Music Zone, Relaxing Piano Music - Sexual Sounds (2019) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121278.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Cafe Piano Music Collection, Relaxation Jazz Music Ensemble - Tea Café: Relaxin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121279.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ VA - Gym Beast Mode Workout 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121280.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Dragonforce - Astro Warrior Anthem (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121281.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ VA - Video Game Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121282.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Skype 8.111.0.607 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121283.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Lounge Cafe, Classical Jazz Guitar Club - Hotel Café Guitar Jazz BGM (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121284.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ magnet:?xt=urn:btih:70A939B178CF18E2A7FBC3514D580D4CB2B647DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121285.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Dash 7.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121286.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ magnet:?xt=urn:btih:BA7DD58285044801CA8608A74036648E28479362
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121287.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ VA - Relaxing Carefree Romantic Smooth Jazz Ride (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121288.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121289.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8E1009A58993739F60529D7AC73F41443DB89FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693460   (121290) от 23.01.2024
-
-Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Harmony Jazz Background Grooves for the Hotel Restaurant (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cozy Inn (4:40)
-02. Morning Brunch (2:59)
-03. Jazz for Boutique Hotels (2:57)
-04. Cocktail Cafe (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CEBD112FFA7530459A95B60986BFF2063AE6A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693961   (121291) от 23.01.2024
-
-Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhino Bucket — американская хард-рок-группа из Ван-Найс, Лос-Анджелес, образованная в 1988 году. Звучание группы часто сравнивают со звучанием AC/DC.1990 - Rhino Bucket
-1992 - Get Used To It
-1994 - Pain
-2006 - And Then It Got UglyЖанр: Hard RockПродолжительность: 05:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693978   (121292) от 23.01.2024
-
-Чингиз Абдуллаев | Дронго (Книга 64). Время нашего страха (2024) [MP3, Наталья Дымочко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задушен сторож санатория. Выброшен из окна фармацевт. Застрелен ученый. Перед этим все они получили от таинственного убийцы конверты с номерами 1, 2, 3… Конверт с номером 4 получил крупный бизнесмен. Похоже, он следующая жертва. А есть еще и другие конверты. Связывает этих людей только одно – все они друзья детства. Значит, мотивы убийства надо искать в их прошлом? (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 08:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654A1073D1D52A36E603333A40F30F24EE2D1069
 ```
 
 

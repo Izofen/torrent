@@ -1,3 +1,84 @@
+###  Публикация: 1714507   (111722) от 09.04.2024
+
+Celtian - Secretos de Amor y Muerte (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Lira Encantada [00:01:40]
+02. La Profecía [00:05:17]
+03. Adalina [00:04:47]
+04. Serena [00:04:01](   Читать дальше...   )Жанр: Symphonic Folk MetalПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931A66C75A53AA7026820B20DCF8CDC2894C8639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714389   (111723) от 09.04.2024
+
+Little Albert - The Road Not Taken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Alive [00:03:58]
+02. Demon Woman [00:05:10]
+03. See My Love Coming Home [00:04:43]
+04. Hiding All My Love Away [00:04:46](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60852FA5FB7A012DC84EAC120DF14FB984CB0063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714384   (111724) от 09.04.2024
+
+The Meteors - 40 Days a Rotting (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blood Red Sea [00:04:00]
+02. Road Burn [00:04:00]
+03. Psychocybernation [00:03:44]
+04. Blood Moon [00:03:45](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B05CFD516AA75E11345649447E1F2AC3D96154
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714513   (111725) от 09.04.2024
 
 The Drums - Jonny (2023) Deluxe, 2024, Anti - Epitaph [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
@@ -6,7 +87,7 @@ The Drums - Jonny (2023) Deluxe, 2024, Anti - Epitaph [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111725.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:9391EFD84344954720079A0F7F95DED4C4EED2D7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111726.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Modest Mouse - Good News For People Who Love Bad News: (2004) 20th Anniversary E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111727.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111728.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Quinta Essentia - Evolution of Ethereal Wisdom (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111729.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111730.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111731.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ magnet:?xt=urn:btih:16E3B35B40E1222A4BD78C3CACB5CA9113E68981
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111732.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ magnet:?xt=urn:btih:E1B07314425DFC9DB7C32E8245D2AF4530A6EC05
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111733.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ Wavesequencer - Hyperion 1.51 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111734.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ magnet:?xt=urn:btih:A3A0937384899ECED7D18D3FB5574915F5CEA364
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111735.jpg" />
 </div>
 
 
@@ -290,7 +371,7 @@ VA - Morning Coffee Retreat: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111736.jpg" />
 </div>
 
 
@@ -317,7 +398,7 @@ magnet:?xt=urn:btih:BB80C3D0F6D848FFAB65F181D709942B1A79405A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111737.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ magnet:?xt=urn:btih:DFC4481482031E77CD3C1A4BAAC57183AFF965AF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111738.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ magnet:?xt=urn:btih:ECBFB8937CC5FBA14093A16EF060DFDE37761A97
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111739.jpg" />
 </div>
 
 
@@ -389,7 +470,7 @@ Photo Studio PRO 2.7.3.2445 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111740.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ Wavesequencer - Theia 1.08 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111741.jpg" />
 </div>
 
 
@@ -439,7 +520,7 @@ magnet:?xt=urn:btih:8DF5C85796B4DB7652A0D8982DEB23975216058D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111742.jpg" />
 </div>
 
 
@@ -464,7 +545,7 @@ magnet:?xt=urn:btih:902C8F120F72BBD51FAFEA9050F099320F673263
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111743.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ The Black Keys - Ohio Players (2024) [FLAC|Lossless|image + .cue] <Garage Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111744.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ VA - Садко 3000 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Folk Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111745.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ MaWhoo - The Sound Of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111746.jpg" />
 </div>
 
 
@@ -569,7 +650,7 @@ magnet:?xt=urn:btih:8230CB9F51C45D9D838443F0F67BC30E1146E0A9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111747.jpg" />
 </div>
 
 
@@ -580,87 +661,6 @@ magnet:?xt=urn:btih:8230CB9F51C45D9D838443F0F67BC30E1146E0A9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B2DC53DD692A0A562D439E16F3DDFE738A1D41F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714274   (111748) от 08.04.2024
-
-Caravan - All Over You And You Too (2012) 2 x CD, Compilation, Reissue, Remastered, 	Talking Elephant Records [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111748.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - All Over You:
-01. If I Could Do It All Over Again, I’d Do It All Over You
-02.Place of My Own
-03. The Love in Your Eye / To Catch Me a Brother(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38886CC25DCA413A096C73836AE502283350342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714219   (111749) от 08.04.2024
-
-Rush - A Farewell To Kings (1977) 40th Anniversary Deluxe Edition, 2017, Island Def Jam [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xanadu [00:11:12]
-02. Closer To The Heart [00:03:24]
-03. Cinderella Man [00:04:27]
-04. Madrigal [00:03:25](   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 3 CD, 02:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E976261C4074A9722D328A179193A3020ED92A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713998   (111750) от 08.04.2024
-
-Lost In Grey - Odyssey into the Grey (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Entourage [00:07:00]
-02. The Bottomless Pit [00:07:52]
-03. Time [00:08:51]
-04. Two Wolves [00:05:25](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ECF53FD2A3A153094D4B7CD91A9A0365DFEE0E
 ```
 
 

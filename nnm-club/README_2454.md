@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64552.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hemelbestormer - The Radiant Veil (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64553.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B59A4FF1A503F4AC639A117E146F1557A74B237A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64554.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DF87E3CCF2FBFDC06B70933B80B50A36B0875623
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64555.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Paul McCartney - Flaming Pie (1997) Japanese Edition, SHM-CD, Reissue, 2025, Cap
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64556.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Bono: История примирения / Bono: Stories of Surrender (2025) WE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64557.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64558.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:3DAD1280B449CB7112C8D4149B70ADEB61CE8501
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64559.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7C6CABEF38714DBF654B14C9A794EBECE9752515
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64560.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Sinead O'Connor - Nothing Compares 2 U (CDM) (1990) 1st German Press [APE|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64561.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:0ABFB28C59771B1F1A1FB5E2942067AAE78719ED
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64562.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:53D2C72E60689E05A15D09AC508376E0273F560E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64563.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:091E76875215A42C06DBFD5DD0EC2F933D6A494B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64564.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Shakespears Sister - Stay (CDM) (1991) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64565.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:5910F3D235BF829A145EE0746D2AB75AF9E9D435
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64566.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Chris Isaak - Wicked Game (CDM) (1991) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64567.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:F029E04CBF907D1D1AFF75C58D84F7154E6BA0B2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64568.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Findroid | Избранник Башни (Книги 1-10) (2022-2025) [MP3, А�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64569.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:FAC2321B6166C12597A710CD9CB89FCFFD10E054
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64570.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:030B2CB3B22DEBAA4E410DBA5D95232A6086BC12
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64571.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64572.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:5EEC18141BC0A300566BB15737B6743D4D0FB0D1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64573.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:E3AE31D39DAD5F675F791E85CAA5B09D50387446
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64574.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:141D56443AE65E621D41B4928E6E533BF0F6E0E6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64575.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Magic Eraser / Магический ластик v2.23.11 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64576.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:144772056EB2CDE0507C4F476D4DE1907180B477
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64577.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sexual Music Collection, Jazz Music Lovers Club - Provocative Jazz (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34413.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34414.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Latter Reign - Order to Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34415.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:960B8C42948A21088D3F07E210717BFC7F4C5DE7
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34416.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:F74157DE9C3AF4F28D7EC83D77EA35F4BBD65885
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34417.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Stevie DeAcutis - Torn from the Pages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34418.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Travis Tritt - Greatest Hits: From the Beginning (1995) CD, Compilation [FLAC|Lo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34419.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:6B097F17851C75F5C40FE0644976E9F8F2FD2C7E
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34420.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:E3F95DFD74E794ACC261D3FF33922E183B5E95A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34421.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FabFilter - Pro-Q 3 3.26, VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34422.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:447159D9AC30BDDE3B4F325B69083723A7E33E66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34423.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:BA2FF10A20D5A9A02C30A3409460828CC156B591
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34424.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:BEAC581D1133047DD4D4C0DF35CFB27FE9BCC473
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34425.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:2E93CE46109CAFCE180D8A28F68754E366172696
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34426.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:564D1EDAC69BA42D58D5513A9CF28761305F5412
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34427.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:6DB6E516094F29597CC530F187046A7A8AAD28C6
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34428.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:E5B4FA56D05F086652887CEF295EE822F1AFDC08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34429.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:58E71908F1CB76C6F9AB29093433360691077D91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34430.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Sea of Stars (2023) [Ru/Multi] (1.1.53846) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34431.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Roxette - ROX RMX (2024) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34432.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ FabFilter - Total Bundle 2024.12.11 VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34433.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:946939972CD96AE189A93FD3138AEE5C2F383916
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34434.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:00CAB37DEE81AB1DFE99F97AF6711F98263EC092
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34435.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:4362C499877D8788E3CA89E66AF753CFB60305D1
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34436.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:5E3840A0E2D1972C3E224B3D803D2C6915BDD968
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34437.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34438.jpg" />
 </div>
 
 

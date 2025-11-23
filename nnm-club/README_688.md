@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18212.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A2CB739BB08A11B7E7A81B90BA9F26AE1937A6B7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18213.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18214.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ KissXSis | Поцелуй сестёр (2005) [25 томов, 156 глав + Э�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18215.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Stive Morgan - Part 2 Compilation (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18216.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Btooom! | Взрыв! (2009) [26 томов, 125 глав + Экстра] [Ма�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18217.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:51B7767E8602E60AC5591F9D6B82A2D0A35E3D18
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18218.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:036A3BC831090B695562E49D59F85EAC0027CDA2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18219.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18220.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18221.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1EECC7A0FC58CA41C08D0A165802DE7EBBA823A9
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18222.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:1CE4B53A30D9ED5584108D63C186382CCF211A14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18223.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 из 24] BDRip 1080p H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18224.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:59DBB3E1936007FE230D6978962C740B1F5B5C10
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18225.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E700F3AF1F659BE1F35764B7102BF6648242E21B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18226.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18227.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:0B73C7D27B72AE9CE1AA266DBEDDCBF7C443158C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18228.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18229.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:034E26A7371BF026EAB813251FAFF701526FFD74
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18230.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F65B344907FC282E89582763393EFBE8D63DBF51
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18231.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:8D3124F03AA0014E900A29372B5568D9D1312AB4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18232.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:48433D22F83D2D98B42C221EF5103A809318E00C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18233.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:3B9C173991F0FDF131450742B9D7277872C62CF9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18234.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:3BE32694F3F78F568724882EB479C460D2FCEBDB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18235.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Linkin Park - From Zero (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18236.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:748D0BF2DD36F63403D26342BCB4531561D1702C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18237.jpg" />
 </div>
 
 

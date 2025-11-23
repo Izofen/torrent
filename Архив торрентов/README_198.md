@@ -6,7 +6,7 @@ OneCommander Pro 3.88.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47217.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47223.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ FastFlix 5.8.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47230.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Photo Lab PRO v3.13.25 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47235.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Internet Download Manager 6.42 Build 19 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47237.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Rainmeter 4.5.19 Build 3753 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47249.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mullvad Browser 13.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47253.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Bandicam 7.1.3.2456 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47259.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ nthLink 6.4.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47271.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Rainmeter 4.5.28 Build 3779 (RC) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47272.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Tor Browser Bundle 13.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47309.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ v2rayN 6.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47313.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Surge XT 1.3.3 Standalone, CLAP, VSTi 3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47320.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ StartAllBack 3.8.2 build 5125 (DC-07-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47325.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FinePrint 12.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47338.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ PdfFactory Std & Pro 9.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47355.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Internet Download Manager 6.42 Build 19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47363.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ StartAllBack 3.8.2 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47365.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ OCCT 13.1.5.b1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47369.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ NVIDIA GeForce Desktop Game Ready 560.81 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47382.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ AOMEI Backupper Technician Plus 7.4.0 WinPE by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47387.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ AOMEI Backupper Technician Plus 7.4.0 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47396.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Planet VPN 2.8.37.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47402.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Wondershare Filmora 13.6.4.8450 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47411.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Vivaldi 6.8.3381.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47418.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2998 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47425.jpg" />
 </div>
 
 

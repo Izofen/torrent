@@ -1,3 +1,81 @@
+###  Публикация: 1743339   (105456) от 15.08.2024
+
+Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shivers and Voids (3:48)
+02. Unforgivable (3:44)
+03. Neuronal Fire (4:32)
+04. Not Nothing (4:53)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D125D476B53723D5E8184422EE17ECB9E1C843BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743272   (105457) от 15.08.2024
+
+Всегда / Ojik geudaeman (O-jik geu-dae-man) / Always (2011) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший боксёр Чхоль-мин теперь работает охранником на парковке и развозит воду в бутылях. Однажды, во время вечернего дежурства, к нему приходит слепая девушка, которая с прежним охранником «смотрела» сериалы по вечерам. Между молодыми людьми завязывается дружба, а затем и любовь. Чхоль-мин чувствует, что должен защищать свою любимую и сделать всё возможное, чтобы (   Читать дальше...   )Производство: Южная Кореяb / HB Entertainment, Showbox/MediaplexЖанр: драма, мелодрама, боевикРежиссер: Иль Гон СонВ ролях: Чжи Соп Со, Хё Чжу Хан, Чжон Хва Юн, Син Иль Кан, Чхоль Мин Пак, Сун Ха Чо, Чжин Гу, Кван Рок О, Чон Хак Ким, Ми Гён Ким (I), Сын Пэ Ви, Чжэ Чжин Чон, Кён Джин Мин, Хе Ран Ём, Се Хо АнПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Samjogo Subbing Squad), английскиеПродолжительность: 01:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68689C496E15344E2E9A0A5AD0E8D56ABC4C732B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742479   (105458) от 15.08.2024
+
+MEDUZA - Radio 1's Essential Mix (2024-07-13) [MP3|~245 Kbps (V0)] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daft Punk ft. Giorgio Moroder - Giorgio by Moroder
+02. The Weeknd - In Your Eyes (MEDUZA Remix)
+03. Bea Miller & Arcane - Playground (From The Series Arcane League Of Legends) (MEDUZA Remix)
+04. Depeche Mode - Enjoy The Silence (Mavee Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B149510079E7210773E90DFD03C381B2ACF4AC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743331   (105459) от 15.08.2024
 
 Robse - Harlekin und Krieger (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Viking Folk Metal>
@@ -6,7 +84,7 @@ Robse - Harlekin und Krieger (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105459.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:E04F0D06219F36D972CB55DE69C09DCCA3E24704
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105460.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Miazma - 5 Albums (2011-2018) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105461.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Femme Fatale - Live + Demos (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105462.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ magnet:?xt=urn:btih:B7E99F4453B9E0F9075EE2B928B65AC5E450C760
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105463.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ VA - Compilation part 113 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105464.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105465.jpg" />
 </div>
 
 
@@ -186,7 +264,7 @@ magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105466.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105467.jpg" />
 </div>
 
 
@@ -235,7 +313,7 @@ magnet:?xt=urn:btih:85280C9773FFE19E6E5B3C39E30E49648CCB9B25
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105468.jpg" />
 </div>
 
 
@@ -259,7 +337,7 @@ magnet:?xt=urn:btih:85280C9773FFE19E6E5B3C39E30E49648CCB9B25
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105469.jpg" />
 </div>
 
 
@@ -283,7 +361,7 @@ Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105470.jpg" />
 </div>
 
 
@@ -307,7 +385,7 @@ VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105471.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ magnet:?xt=urn:btih:EC98B3E8950675D694EC46E2FA54C513D443EEA0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105472.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ magnet:?xt=urn:btih:AF81834515EE961B2554CB048B0A545A7D832A46
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105473.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ magnet:?xt=urn:btih:251589C9096648CFACDF525D3C65182CCCC6D43E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105474.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ AirBrush: ИИ Фоторедактор v7.1.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105475.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ magnet:?xt=urn:btih:F97F3AEB2F3968E13CDE7C332561304ED1973A03
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105476.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ magnet:?xt=urn:btih:0474FCCDA3F197A421C7F67B7A58FD5406AB1BF1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105477.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ Eddie & The Wolves - Tasty Sin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105478.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Altar Of Oblivion - In The Cesspit Of Divine Decay (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105479.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ Orgone - Pleroma (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105480.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ Mauro Montobbio - Scattered Memories (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105481.jpg" />
 </div>
 
 
@@ -577,85 +655,6 @@ Mauro Montobbio - Scattered Memories (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9DE00359027D922ADD87B8A328ACFF015955A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742715   (105482) от 14.08.2024
-
-Metroland - Forum (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal Electro, Synthpop, Technopop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cooperation In A Fragmented World [00:04:55]
-02. The Great Reset [00:07:33]
-03. Activity As A Timetrigger [00:03:58]
-04. Happy Nothing [00:05:43](   Читать дальше...   )Жанр: Minimal Electro, Synthpop, TechnopopПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12796BFB556B9A0B9FE98F7C13E9B48F40A61949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743112   (105483) от 14.08.2024
-
-Органчик (1933) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсатира.
-По мотивам произведений М.Е.Салтыкова-Щедрина.Производство: СССР / Московский кинокомбинатЖанр: корткометражный, анимация, экранизацияРежиссер: Николай ХодатаевСубтитры: русские (интертитры)Продолжительность: 00:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2D8E0E86EA4CB3A2AAD640DDD10CCCC89CB0FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742822   (105484) от 14.08.2024
-
-VA - SkyFall Summer 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al.ER - New Vibrations (Extended Mix) [7:02]
-02. Tony Godzen - Gdevolk (Extended Mix) [6:09]
-03. St.Ego - Let Me Know (Extended Mix) [7:09]
-04. Devaloka - Valley (Extended Mix) [7:29](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 01:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD095DAEF1FE4C57AC6268CC329A46B4CAC5648
 ```
 
 

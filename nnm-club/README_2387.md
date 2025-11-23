@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.0.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62427.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Photo AI 2.4.1 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62428.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JetBrains Rider for Mac 2023.3.4 Intel/Mac [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62429.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Things 3 v.3.20.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62430.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ WonderFox HD Video Converter Factory Pro 27.0 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62431.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.7.2 RePack (& portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62432.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Antivirus Removal Tool 2024.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62433.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:72EFBCADC562D8ECAA00F5CB37CBC48C1CC0077F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62434.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:DBE565E1412C6C261B763BA7C9B99370EC12D80B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62435.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E349B1E2E31AFDDACBE3EE84E714892D5F4B1ED6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62436.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Electric Light Orchestra (ELO) - Time (1981) [FLAC 24/192|Lossless|tracks] <Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62437.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Microsoft Windows 11 [10.0.22621.3296], Version 22H2 (Updated March 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62438.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:3E5649887DB63559DA9812AF15ABEE21E1258CC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62439.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:CC09BA876C5F139D2515AE4A721D41A03022A701
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62440.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B6B4D1AF8B12673C6D70454BE2DA6144218DE6D3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62441.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:9FCDFDF0C4CB77F03E1C856CF2F53DE6A9CFBD40
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62442.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:5F5C11002312A4998E705EAD15240E346DCF7FD6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62443.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wise Disk Cleaner 11.0.9.823 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62444.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Alfred PowerPack 5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62445.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:954DB585AAD56D03B3772B4D441004FCF63940BC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62446.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:5C6BBD83FDD4280F20F62382997A51C82D4C40FF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62447.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ IsMyLcdOK 5.57 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62448.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Rocky Linux 9.3 [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62449.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Microsoft Windows 11 [10.0.22621.3296], Version 22H2 (Updated March 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62450.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:88DD0686303437EBE3D420FC12C22DD5D9193CC2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62451.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ SparkyLinux 7.3 / 2024.02 Rolling Edition [x86_64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62452.jpg" />
 </div>
 
 

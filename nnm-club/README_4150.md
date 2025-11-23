@@ -1,3 +1,80 @@
+###  Публикация: 1684636   (127587) от 16.12.2023
+
+Главная дорога (16.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Циклон «Ваня» принес в столицу аномальные снегопады, многие автомобилисты попали в снежные ловушки.
+ Продавец — банкрот, машина — под арестом, проблемы — у законного владельца: неужели в такой ситуации придется платить чужие штрафы?
+ Чем больше льешь, тем хуже видно! Многие водители грешат на качество «незамерзайки» и слишком грязные дороги. Андрей Федорцов и Денис (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DFD96E026163F4189EFD258B334BE5C91B97A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684641   (127588) от 16.12.2023
+
+Поедем, поедим! Югра: в гостях у оленеводов, сибирский замес и рагу из лося (16.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди в Югре покормил оленей, попил кровушки, поплавал с акулами, попробовал красные пельмени и приготовил фантастическое рагу из лосятины. А еще путешественник попал в сибирский замес и насладился кулинарным богатством Севера.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B92A59618FAB07E0D5981B2D6DD9136F8438CD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684338   (127589) от 16.12.2023
+
+VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dsnt Matter - Overused (Extended Mix) [5:05]
+02. Dirkie Coetzee & Deeper Calling - Starship Orion (Extended Mix) [5:56]
+03. HALIENE - Forgive You Anyway (NIO Remix) [3:30]
+04. Ginchy - Leading You (Extended Mix) [5:47](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35804A03BFC4AF86CDFB52506052F3585182A25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684600   (127590) от 16.12.2023
 
 PhotoRoom v4.7.8 Mod by Mixroot [Ru/Multi]
@@ -6,7 +83,7 @@ PhotoRoom v4.7.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127590.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Bernie Marsden - Working Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127591.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:78CC915DA577C17EE177E181D85B991D0BBE8B34
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127592.jpg" />
 </div>
 
 
@@ -82,7 +159,7 @@ David Bowie - Live USA (1990) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127593.jpg" />
 </div>
 
 
@@ -109,7 +186,7 @@ Moon Safari - Himlabacken Vol. 1-2 (2012-2023) [FLAC|Lossless|WEB-DL|tracks] <Ar
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127594.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127595.jpg" />
 </div>
 
 
@@ -162,7 +239,7 @@ Diviner - Avaton (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127596.jpg" />
 </div>
 
 
@@ -189,7 +266,7 @@ WPS Office + PDF 18.5.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127597.jpg" />
 </div>
 
 
@@ -213,7 +290,7 @@ magnet:?xt=urn:btih:A46C7816F3089B545B6015B9D8F274BD477339E1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127598.jpg" />
 </div>
 
 
@@ -237,7 +314,7 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127599.jpg" />
 </div>
 
 
@@ -264,7 +341,7 @@ Axis of Empires - Heretics and Orthodoxy (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127600.jpg" />
 </div>
 
 
@@ -291,7 +368,7 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127601.jpg" />
 </div>
 
 
@@ -318,7 +395,7 @@ magnet:?xt=urn:btih:754129F44F869F4BF97ADF95542CACB69DFFD15D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127602.jpg" />
 </div>
 
 
@@ -342,7 +419,7 @@ magnet:?xt=urn:btih:759DDD1D58F4416049FFE09B49DA5A1CF7B95C32
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127603.jpg" />
 </div>
 
 
@@ -366,7 +443,7 @@ magnet:?xt=urn:btih:97BEA55DC327D78C02DBA56923B2D613835D3D43
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127604.jpg" />
 </div>
 
 
@@ -392,7 +469,7 @@ magnet:?xt=urn:btih:A0CD1EFAE92AB711287BB0F07B75B5206444CF7A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127605.jpg" />
 </div>
 
 
@@ -418,7 +495,7 @@ magnet:?xt=urn:btih:EFB96F7FBAD887925577B21DF84BB44FD83A19E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127606.jpg" />
 </div>
 
 
@@ -442,7 +519,7 @@ The Rolling Stones - Hackney Diamonds (2023) Live Edition, Explicit, 2023, Polyd
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127607.jpg" />
 </div>
 
 
@@ -469,7 +546,7 @@ magnet:?xt=urn:btih:4488B173C4392F679A437BCD1C0593C092645B21
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127608.jpg" />
 </div>
 
 
@@ -493,7 +570,7 @@ Sense Flip Clock & Weather v6.41.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127609.jpg" />
 </div>
 
 
@@ -517,7 +594,7 @@ magnet:?xt=urn:btih:677EF37B11D1860605DFB0A9A540D8FC03B6D3F9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127610.jpg" />
 </div>
 
 
@@ -541,7 +618,7 @@ magnet:?xt=urn:btih:AC16EE7DCA30792937307882C30B4F8E2F977131
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127611.jpg" />
 </div>
 
 
@@ -567,7 +644,7 @@ Erotic Jazz Music Ensemble, Erotic Stimulation Academy - Jazz for Erotic Night (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127612.jpg" />
 </div>
 
 
@@ -581,83 +658,6 @@ Erotic Jazz Music Ensemble, Erotic Stimulation Academy - Jazz for Erotic Night (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:634265CD58B5E4C8D81BF78A67DA1B02244ED6F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405800   (127613) от 16.12.2023
-
-Мария Бершадская | Как приручить город (2014) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женя – большая маленькая девочка. С одной стороны, она младше всех, даже своей любимой таксы Ветки, а с другой – чтобы заплести ей косички, маме каждое утро приходится вставать на табуретку.
-
-Вообще Женя точно такая же, как все другие семилетние девочки. Она терпеть не может, когда её разглядывают или считают какой-то особенной. Она умеет чистить картошку так, чтобы (   Читать дальше...   )Жанр: Детская проза, Детские приключенияИздательство: КомпасГидФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EC62107F929FB61112BEB1A5544C82C27F8B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684482   (127614) от 16.12.2023
-
-VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Progressive House, Dance, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Schilder - Shatterproof (Original Mix) [2:29]
-02. Tensnake & DRAMA - Rooftop (Extended Mix) [4:58]
-03. Andrea Oliva & Black Circle - Resonance (Extended Mix) [6:41]
-04. AMÉMÉ feat. Notre Dame - Runaway (Club Mix) [5:49](   Читать дальше...   )Жанр: House, Progressive House, Dance, ElectronicПродолжительность: 06:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575E121A6D13C4935B0A7AEEC9BB4DBA8225E055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684577   (127615) от 16.12.2023
-
-Кирилл Неумытов | КРОНД (Книга 2). Джокер преступного мира (2023) [MP3, Сергей Фатеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127615.jpg" />
-</div>
-
-
-###  Подробнее
-
-В преступном мире Токио появляется новая серьёзная сила. За короткое время Джокер стал врагом для всех трёх банд якудза, и каждый из боссов назначил солидную награду за голову тёмного мага или же информацию о нём. В то же время крайне накаляется обстановка в клановом регионе. Храм Накадзима укрепил свои позиции, но их положение всё ещё остаётся шатким. Враги в любой (   Читать дальше...   )Жанр: Боевая фантастика, Городское фэнтези, ПопаданцыИздательство: ЛитРес: чтец, АвторПродолжительность: 07:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048B376D74CD40F1D326C9F912335298A82C4369
 ```
 
 

@@ -6,7 +6,7 @@ KAUAN - ATM Revised (2023) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124517.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Martyr - Murder X: The End of the Game (2000) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124518.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Visions of Morpheus - Lost Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124519.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gwydrion - Gwydrion (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124520.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Exodia - Into The Mouth Of Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124521.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Veil Of Maya - [m]other (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124528.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Black Rainbows - 4 Albums (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124541.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Voices Factory - The Voices Factory Sings The Beatles (2023) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124552.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Django Novo & Tov Ramstad - The Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124560.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1D08F4313C13A9F87B4FB517031489F2D95E489A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124645.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Chris Thompson (ex-Mannfred Mann's Earth Band) - The Final Round - Live (2023) [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124646.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Fallen Land Records - Dehamanized (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124647.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hooligans - Fekete Fekete szivarvany (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124648.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ T.A.S.S. - Maniafesto (1994) [APE|Lossless|image + .cue] <Industrial>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124649.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Todd Grubbs - Inside Your Brain (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124652.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Retaliate - IV (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124653.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Harbinger of Storms - All of the Stars are Dead (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124656.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Marco Cusato - Untamed Souls (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124657.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mark Knopfler And Emmylou Harris - Balcony Of Love (2020) Unofficial Release [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124659.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E9BF777D782BDCE3CC074A0D7EAEA2147D32354E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124668.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stray - About Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124676.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sakis Tolis (Χ Ξ Σ) - The Seven Seals Of The Apocalypse ​-​ (​Revelatio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124677.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Bruce Springsteen - Japanese Singles Collection - Greatest Hits (2023) 2xCD, Jap
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124696.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sam Higham - Jam Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progres
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124759.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:091ABD2C3F6585C7D9E604ABBAECDEA3ECE0F06F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124760.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Lilly Beth - Бездарность (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124761.jpg" />
 </div>
 
 

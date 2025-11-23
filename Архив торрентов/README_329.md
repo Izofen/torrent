@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81539.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Raise Data Recovery for NTFS 5.2 NTFS RePack + Portable by Boomer [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81561.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Raise Data Recovery for NTFS - программа предназначеная �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81565.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Raise Data Recovery for NTFS - программа предназначеная �
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81568.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:750F3E163A5EEEECCD5E18C2EC8BAB27138F697D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81569.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:750F3E163A5EEEECCD5E18C2EC8BAB27138F697D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81573.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:750F3E163A5EEEECCD5E18C2EC8BAB27138F697D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81574.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:61F9FB5617B7CCBEEAD2055732140005089BE5D3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81578.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:C2F1E7EBF06CF600F4B075E0465379EA243255F5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81583.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D94C4BD17635832FD4822C461B3729247178223B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81588.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Install Monitor 1.1.89.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81594.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Install Monitor – это простая в освоении утилита д�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81601.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Install Monitor – это простая в освоении утилита д�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81604.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Install Monitor – это простая в освоении утилита д�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81605.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Install Monitor – это простая в освоении утилита д�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81607.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Install Monitor – это простая в освоении утилита д�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81610.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Dubstep Metal 2 (2011) [MP3|320 кб/с]<Dubstep\Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81613.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:CF3EC982A1F959FB07FD5572EBA5E298614CBE8E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81625.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:CF3EC982A1F959FB07FD5572EBA5E298614CBE8E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81628.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Wondershare DVD Slideshow Builder Deluxe 6.1.9.60 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81630.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Wondershare DVD Slideshow Builder Deluxe - простой, лаконичный 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81631.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Wondershare DVD Slideshow Builder Deluxe - простой, лаконичный 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81633.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:3B177F109E50ECA9868218336864E140CBD515A1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81638.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C7389E4A115527C94512E71379F7DA9EFDD35912
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81640.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:BE0F143DCB0EF592DE26D2520C1B8C93B4DEA3E6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81643.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:506EE90A861360A7A7BC81BC04DA0D3BE5C7D2B3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81648.jpg" />
 </div>
 
 

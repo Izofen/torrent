@@ -1,3 +1,81 @@
+###  Публикация: 1683213   (128549) от 10.12.2023
+
+Care Of Night - Reconnected (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Runner (4:06)
+02. Tonight (3:23)
+03. Caught Feelings (4:34)
+04. No One Saves The World Alone (5:16)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD5C8E0DC606376C6BAD3912C34DAC5661B2062
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683210   (128550) от 10.12.2023
+
+Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birks Works [6:27]
+02. I've Never Been in Love Before [5:35]
+03. Japanese Folk Song [6:23]
+04. Misterioso [7:12](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBF64D4866689EAB0D02D63D55148A1A5A9ECD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683387   (128551) от 10.12.2023
+
+Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Иверская» (2022) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафист Пресвятой Богородице в честь иконы Ее «Иверская».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA2CBF48AFA9C9B7EF31AD32DD023145BE6DC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683207   (128552) от 10.12.2023
 
 Revlin Project - Beyond The Dreams (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -6,7 +84,7 @@ Revlin Project - Beyond The Dreams (2023) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128552.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128553.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128554.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128555.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128556.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128557.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128558.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Google запустил режим ИИ для поиска в России и �
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128559.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128559.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Google запустил режим ИИ для поиска в России и �
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128560.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ magnet:?xt=urn:btih:1B246B259AD06635738905F038051A6750E2708C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128561.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128562.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ magnet:?xt=urn:btih:C8F492BA1851B493E569E1CDEF570F34159D81EE
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128563.jpg" />
 </div>
 
 
@@ -314,7 +392,7 @@ Revo Uninstaller Pro 5.4.3 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128564.jpg" />
 </div>
 
 
@@ -338,7 +416,7 @@ magnet:?xt=urn:btih:9A6A9A418C837E3B06BBCCABB5B82A12083654F1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128565.jpg" />
 </div>
 
 
@@ -362,7 +440,7 @@ HWiNFO 8.32 Build 5840 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128566.jpg" />
 </div>
 
 
@@ -386,7 +464,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128567.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ magnet:?xt=urn:btih:7809B7FF7CFB352F7318BF8DD04B2F251DBF6BBE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128568.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ magnet:?xt=urn:btih:F0EA8619424E58E7E62CDBD40D3287125B99AEAF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128569.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ magnet:?xt=urn:btih:7605B5E7BC4E52E8C75128F1519BE69EB428EBFE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128570.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ magnet:?xt=urn:btih:4A430A27B22EFB150E3E4F7AE217B8E3D7D47291
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128571.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ magnet:?xt=urn:btih:32DCE54E41CF0605261B43F45DDF9467DD33871F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128572.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ magnet:?xt=urn:btih:AEF5090D3770B13C462D07DE3930BB5AA57E544E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128573.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ magnet:?xt=urn:btih:51CA6B22BB8596C566615F67AC1F81735DA0DB0C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128574.jpg" />
 </div>
 
 
@@ -565,79 +643,6 @@ magnet:?xt=urn:btih:51CA6B22BB8596C566615F67AC1F81735DA0DB0C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A52F83285B85554D45E783F162DF2796B66520A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824162   (128575) от 14.10.2025
-
-Братушка / Войникът от обоза (1975) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из эпизодов освобождения Болгарии советскими солдатами в сентябре 1944 года. У следующей в тыловом обозе конной повозки Алеся Казанка ломается колесо и ему приходится завернуть в ближайшую деревню. Жители деревни давно уже ждут освободителей и устраивают Алесю торжественную встречу. Местные мастера ставят на его телегу новое колесо – красивое, расписное. Казанка (   Читать дальше...   )Производство: СССР, Болгария / Беларусьфильм, Boyana Film, Sofia Film StudiosЖанр: драма, военныйРежиссер: Игорь ДобролюбовАктеры: Анатолий Кузнецов, Светлана Тома, Стефан Данаилов, Владимир Басов, Иван Гайдарджиев, Иван Григоров, Владимир Давчев, Никола Тодев, Милка Туйкова, Николай КлисуровПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AABF6AA6523A4B543C700F0EA98FC310D21FBE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824165   (128576) от 14.10.2025
-
-Мастер / A Working Man (2025) BDRip [AV1/1080p-LQ] [10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший британский спецназовец Левон Кейд оставил войну в прошлом и теперь работает бригадиром на стройке. Он всегда поможет в трудную минуту и не допустит несправедливости, за что его уважают коллеги. Однажды у близких ему людей бандиты похищают 19-летнюю дочь. Полиция бездействует, и Левон по просьбе родителей решает самостоятельно найти девушку и вернуть её домой.Производство: Великобритания, США / Amazon MGM Studios, Balboa ProductionsЖанр: боевик, криминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Максимилиан Осински, Мераб Нинидзе, Чиди Аджуфо, Кокей Фалкоу, Эммет Джей Скэнлэн, Ив Мауро, Джейсон Флеминг, Дэвид Харбор, Арианна Ривас, Майкл ПеньяПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: Русские (forсed, full)Продолжительность: 01:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38EE409929644F3CFD3676ED0C285BE09FB34EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824152   (128577) от 14.10.2025
-
-Flyoobe 1.31 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flyoobe (Ранее назывался Flyby11) — это простой патчер, который снимает надоедливые ограничения, мешающие установить Windows 11 (24H2/25H2) на неподдерживаемое оборудование. У вас старый компьютер? Нет TPM, Secure Boot или ваш процессор не поддерживается? Flyoobe в любом случае позволяет установить Windows 11 (24H2/25H2).
-После того как Flyby11 помог тысячам пользователей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67232C11024BF5A5709D5BEAF96F5047B0515570
 ```
 
 

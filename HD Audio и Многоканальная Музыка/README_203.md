@@ -1,3 +1,108 @@
+###  Публикация: 1664242   (186044) от 25.09.2023
+
+Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un sueño en la floresta (8:02)
+02. Aire de zamba (2:31)
+03. Mazurka appassionata (5:39)
+04. 24 Preludes, Op. 28: No. 20 in C Minor (Arr. Barrios Mangoré for Guitar) (1:38)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3CE5C16CDDD03C015BE60921DE9D99696DA24B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664205   (186055) от 25.09.2023
+
+Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturn's Portal [00:04:18]
+02. Beyond the Pale [00:04:13]
+03. Hatred's Mate [00:02:55]
+04. Monster [00:02:53](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA925421A09C8837D8DBF876CFE022E677AA0E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827377   (186102) от 21.10.2025
+
+Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfheart - метал-группа из Лахти, Финляндия, основанная в 2013 году Туомасом Саукконеном.2013 - Winterborn
+2015 - Shadow World
+2017 - Tyhjyys
+2018 - Constellation Of The Black LightЖанр: Melodic Death MetalПродолжительность: 05:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664049   (186223) от 24.09.2023
+
+Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster Edition, A Steven Wilson stereo remix, 2023, Chrysalis [FLAC 24/96|Lossless|tracks] <hard rock, art rock, folk ro ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Game (demo, instrumental)Жанр: Progressive rock, hard rock, art rock, folk rock, electronic rockПродолжительность: 00:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664092   (186238) от 24.09.2023
 
 Taylor Acorn - Certified Depressant (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Rock, Female Vocal>
@@ -6,7 +111,7 @@ Taylor Acorn - Certified Depressant (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_186238.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186425.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186425.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186428.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ yeule - softscars (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, cyber go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186437.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186437.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186440.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186451.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186457.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186457.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Spe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186485.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186485.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ CHI - I've Seen The Lizard People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_186584.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ SDH (Semiotics Department of Heteronyms) - Fake Is Real (2023) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186588.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186588.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ Turn Me On Dead Man - Cassiopeia (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186591.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186591.jpg" />
 </div>
 
 
@@ -301,7 +406,7 @@ Dayshell - Pegasus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186597.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186597.jpg" />
 </div>
 
 
@@ -328,7 +433,7 @@ Queen - The Miracle (Collectors Edition) (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186714.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186714.jpg" />
 </div>
 
 
@@ -355,7 +460,7 @@ Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186748.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186748.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186828.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186828.jpg" />
 </div>
 
 
@@ -409,7 +514,7 @@ The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186830.jpg" />
 </div>
 
 
@@ -436,7 +541,7 @@ Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186836.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186836.jpg" />
 </div>
 
 
@@ -463,7 +568,7 @@ Myrath - Дискография (8 albums) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187065.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187065.jpg" />
 </div>
 
 
@@ -490,7 +595,7 @@ Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187108.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187108.jpg" />
 </div>
 
 
@@ -517,7 +622,7 @@ Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187128.jpg" />
 </div>
 
 
@@ -544,7 +649,7 @@ Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187149.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187149.jpg" />
 </div>
 
 
@@ -571,7 +676,7 @@ Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187160.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187160.jpg" />
 </div>
 
 
@@ -585,114 +690,6 @@ Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F771E3964429299E07D1FE556CD14E511F4FF02D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662977   (187193) от 20.09.2023
-
-Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heavenly — пауэр-метал-группа из Франции, основанная в 1994 году вокалистом Бенжамином Сотто и барабанщиком Максом Пило.2000 - Coming From The Sky
-2001 - Sign Of The Winner
-2004 - Dust To Dust
-2006 - VirusЖанр: Power MetalПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663006   (187195) от 20.09.2023
-
-Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dark Place [00:01:43]
-02. Hail Your Satan [00:03:42]
-03. Forever with the Devil [00:04:20]
-04. Ass Honey [00:04:37](   Читать дальше...   )Жанр: Dark Heavy MetalПродолжительность: 00:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6A78AB05637A4991F4A00A5C6BEA72A5E2672D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663183   (187201) от 20.09.2023
-
-Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Brass & Military, Marches>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187201.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Inspection
-A1 Blaydon Races
-A2 Shirley Bassey Showcase
-A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663172   (187205) от 20.09.2023
-
-The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphabet City (3:44)
-02. Deep End (Paul’s in Pieces) (4:29)
-03. Weird Goodbyes (feat. Bon Iver) (5:03)
-04. Turn off the House (4:35)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BCA0E5193A9AD9D3B7F99C4FA4769BD18598A9
 ```
 
 

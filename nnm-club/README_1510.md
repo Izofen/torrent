@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39613.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A8455266289F24659FB9B67E674A4C60B912E855
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39614.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1BAA7FC51A3ECD69C6E1D43241F79E637B750A32
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39615.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:158BCF0C6D6F7757E87E878A6F78CF48707C7C83
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39616.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:225AB0558EDA5AD53850C20B2355FEF2088D7B97
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39617.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B6A249A3DDEA4944BC88B82DCC277ED3352861E0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39618.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6EE571F1161153A29C52660E6F64EA285F26959F
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39619.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B8BEEB9EC00B01136D0E8BF01FEC10F1DEAB92DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39620.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E3E1057B5204157BC1655C3E8F2669E13E67C66E
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39621.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:5F11D57970D4480C9D1B3A4912A0079731C70C32
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39622.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Rufus 4.6 (Build 2208) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39623.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:940E6EE06796FB4EE632A8C943DC7F7ED4004351
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39624.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A020211407D0A1BDB1602661DF1F715C2593C618
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39625.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (1.2.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39626.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:854ACB775F328A15D1AD4AB333CF5CCEB31A324D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39627.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:80533A9A16A801928D74600961906AB712717EED
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39628.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.40.7100 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39629.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:93A98720C67FBEF66FE158829B4CE16CEE562B17
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39630.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ PotPlayer 241015 (1.7.22347) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39631.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:8C471DDE05340F40180FCA30BD36B9863E93D316
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39632.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:CC22501C4A33518B8490BD6E7682512B91A8B509
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39633.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:973F2CB38546BAEE641DE5161FB0CE951A2135E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39634.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ AIMP 5.30.2563 RePack (& Portable) by elchupacabra (Extended + Standard) (22.10.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39635.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:97B0793CEBD6F35C2C13B97C9E7A73E994F2F7F1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39636.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:97B0793CEBD6F35C2C13B97C9E7A73E994F2F7F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39637.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.40.7100 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39638.jpg" />
 </div>
 
 

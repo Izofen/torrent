@@ -6,7 +6,7 @@ ORDER 13 (2025) [Ru/Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7368.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack FitGirl [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7369.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.42553.0/dlc) Repack Wanterlud
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7376.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7377.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7379.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7381.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Boxville 2 (2025) [Ru/Multi] (2.17.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7388.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Intravenous + Intravenous 2 (2021-2024) [Ru/Multi] (1.5.1/1.4.3/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7394.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7395.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5F1D7D9A526DF707662E28DC36C85042B4E9DAB6
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7400.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Stellar Monarch 2 (2022) [En] (1.24/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7403.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7524.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7552.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7554.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7558.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Black Forest (2016) [Multi] (2.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7564.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7565.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7566.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2 Update 1 Build 2708229) Repac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7567.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (2.3) License GOG [Director’s 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7569.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Odd Realm (2019) [En] (1.0.37.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7574.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Strategic Command WWII: War in the Pacific (2024) [Multi] (1.03.05/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7576.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Everafter Falls (2024) [Multi] (2.1.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7579.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.43.11/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7582.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ False Skies (2022) [En] (1.12aa) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7583.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Guards II (2): Chaos in Hell (2025) [Ru/Multi] (1.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7585.jpg" />
 </div>
 
 

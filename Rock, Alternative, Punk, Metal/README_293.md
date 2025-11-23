@@ -6,7 +6,7 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173368.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Rec
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173369.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6096FEF227728888FFD543DF719EA9ADAB1F4A0C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173371.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fuzzy Grass - The Revenge of the Blue Nut (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173383.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173385.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:BAA936FA88C6BF2F24A22C49FE615E428A947343
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173387.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Nakia - Signal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative & I
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173413.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Mr. M.D - Dog Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173414.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kristofer Lee Bentley - It's So Good (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173417.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Kevin Bailey - Ride Into The Storm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173419.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173430.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173453.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173455.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Mournful Congregation - 2 Studio Albums (2022-2023) 2xCD, EP [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173459.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173465.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173466.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Fortress Under Siege - Envy (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173472.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ The Dead Amigos - Denim Egos (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173474.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Nergard - Memorial for a Wish (2018 Version) (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173480.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ The Vintage Caravan - The Monuments Tour (2023) Live [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173484.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Nergard - A Bit Closer to Heaven (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173500.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ NovaReign - Legends (2018) [FLAC|Lossless|image + .cue] <Progressive, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173505.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Arch Enemy - Collection (1996-2025) 40CD [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173544.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:B0A1F75BED39148EE4D9A00D678F855283D895C5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173617.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Tarja Turunen - Best of: Living the Dream (2022) Remastered [MP3|320 Kbps] <Symp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173685.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173685.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Shocking Blue - 18 albums, 1 Box-set, 43CD (1967-2017) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173734.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173734.jpg" />
 </div>
 
 

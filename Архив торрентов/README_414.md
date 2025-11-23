@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96986.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96986.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96987.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ John O'Callaghan - Unfold (The Remixes Extended Versions) (16.03.2012) [MP3|320 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96989.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Woodstock One and Two (1970-1971) [FLAC|Lossless]<Rock, Blues-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96991.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96991.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ VA - Woodstock One and Two (1970-1971) [FLAC|Lossless]<Rock, Blues-Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96995.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:400B1B0D555C054C5F9BFB23DD8D81BFBA9C42E7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96998.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:B45EAF3C7D4A643E46BFE8923F527734637BB82A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96999.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:BCFB9959A1EB68A7F66BE399813AA599073BA5B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97001.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:88C5F457918B26A5E4C847C0A89E45D577F52957
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97004.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97004.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:88C5F457918B26A5E4C847C0A89E45D577F52957
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97013.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:30728F8DA2C3A08203E0ECA53A63AEFCC28DCD60
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97019.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97019.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:30728F8DA2C3A08203E0ECA53A63AEFCC28DCD60
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97020.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:CD0122DD310C9FF11E1172F7784C77F3749FF7DF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97025.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97025.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:CD0122DD310C9FF11E1172F7784C77F3749FF7DF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97031.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:1B44332276E868FCE0527A210744FFBE8467E005
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97034.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97034.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:1B44332276E868FCE0527A210744FFBE8467E005
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97037.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Audio Damage - ADverb 1.1.0 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97038.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97038.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Audio Damage - ADverb 1.1.0 by ASSiGN [английский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97039.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:2425AE7D52AFF3F6AE2D0472BBC2FA676F25935A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97044.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:3F88136103B86290E166CBCB2532244F937434AE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97045.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Sacramentum - Thy Black Destiny (1999) [MP3|320 кб/с]<Melodic Black/Death Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97046.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:C21812EA550ACED20FAC3243745CB01607AE21B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97047.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:D8AB7A4CE85E4898A6CE49A6EB1D2995BF61C35A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97048.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:DED8747CD825E3C7E948EECCB2EA4B1148CAD89D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97049.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:23A7A0FBBC819342E415AB93F5D96E2CAEA7D3A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97050.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:21E8BEC468C664B09515A7AE868803CFD38DC883
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97051.jpg" />
 </div>
 
 

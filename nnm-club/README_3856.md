@@ -1,3 +1,81 @@
+###  Публикация: 1695712   (119938) от 31.01.2024
+
+Andy Lindquist - Balderdash Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Suited Man (4:14)
+02. Unfollow (2:55)
+03. Second Best (3:52)
+04. Can't Go Back (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B680F9A59252A847D126AD510BC4405839C5F6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695923   (119939) от 31.01.2024
+
+Michel Petrucciani - Estate (1982) 2005, TDM [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pasolini [5:31]
+02. Very Early [4:58]
+03. Estate [5:48]
+04. Maybe Yes [3:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F056921F6CB3C904292D481CEBA0E34E3AF87E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696017   (119940) от 31.01.2024
+
+SponsorBlock for YouTube 5.5.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119940.jpg" />
+</div>
+
+
+###  Подробнее
+
+SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE07D50C3837BEEE2A7DAA2ACC5CF6C309C1454
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695883   (119941) от 31.01.2024
 
 Dropshare 5 v.5.46 [En]
@@ -6,7 +84,7 @@ Dropshare 5 v.5.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119941.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ Paul Mauriat - Amapola (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119942.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ magnet:?xt=urn:btih:97631FF043B6B40235AE75181529028C6B6F95E6
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119943.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ magnet:?xt=urn:btih:9C3EED0DE8FC151011F6620F2B9BDE1DDBB3D6FE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119944.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ VA - Home Workout - Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119945.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ magnet:?xt=urn:btih:057485D8074DAADBD15A5ACFB1B6767F4DD4E917
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119946.jpg" />
 </div>
 
 
@@ -161,7 +239,7 @@ Emurasoft EmEditor Professional 23.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119947.jpg" />
 </div>
 
 
@@ -186,7 +264,7 @@ Fort Firewall 3.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119948.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ VA - Sixties Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119949.jpg" />
 </div>
 
 
@@ -237,7 +315,7 @@ magnet:?xt=urn:btih:C4B1AA91E52B23C316BB885751D64C9D7D4D8679
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119950.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ VA - Mellow Heavy Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119951.jpg" />
 </div>
 
 
@@ -288,7 +366,7 @@ magnet:?xt=urn:btih:60F492B4CCFEC9F958CFBF8656F79813B6BB241B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119952.jpg" />
 </div>
 
 
@@ -313,7 +391,7 @@ Imagenomic Noiseware for PS (Mac) 6.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119953.jpg" />
 </div>
 
 
@@ -337,7 +415,7 @@ magnet:?xt=urn:btih:7C2DE116EA82BD4617B4CC31256A037C10A809B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119954.jpg" />
 </div>
 
 
@@ -361,7 +439,7 @@ magnet:?xt=urn:btih:2E1577175FF6B5FFB38614A6F05567021107D319
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_119955.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_119955.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ magnet:?xt=urn:btih:2E1577175FF6B5FFB38614A6F05567021107D319
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119956.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ magnet:?xt=urn:btih:15FD4F95799EAC314A0C53775E9F70E0023874B3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119957.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ magnet:?xt=urn:btih:3992C04E1B3ED08F49F57879FD871078B02BBBF6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119958.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ magnet:?xt=urn:btih:37D2B271CE43055D4BAA5E75A0936327F8D2BDC2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119959.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ VA - Best of Burlesque (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119960.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ Cycling'74 Max 8.6.0 + RNBO U2B [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119961.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ magnet:?xt=urn:btih:7215018AC6E06732330324C4E9C2FD5AAB28E1D0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119962.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ magnet:?xt=urn:btih:0FCAB1E41B8BDD94F623003BFE65A2F7900F8149
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119963.jpg" />
 </div>
 
 
@@ -571,81 +649,6 @@ Maximum PC - это журнал, который каждый компьютер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B09539D4DE52127BD1A9A7DEC77A74522D6A6904
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696047   (119964) от 31.01.2024
-
-Nazareth - Rare & Unreleased (2018) 3 x CD [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
-01. Storm Warning (Circa 1972/73)
-02. Paper Sun (Circa 1972/73)
-03. Goin' Down (BBC Pop Spectacular, 1973 / Live)(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 03:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E99F5975497DDE0CBD369F9F8DA51C69DB68048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695898   (119965) от 31.01.2024
-
-Крис Бэйли | Гиперфокус (2019) [MP3, Илья Волков]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы заходите в комнату и вдруг понимаете, что напрочь забыли, зачем сюда направлялись? Принимая душ, ловите себя на мысли, что проблема, мучившая несколько дней, решается довольно просто? Смартфон стал черной дырой, поглощающей ваше время? Автор бестселлера «Мой продуктивный год» Крис Бэйли в своей новой книге рассказывает, как управлять самым важным ресурсом XXI (   Читать дальше...   )Жанр: ПсихологияИздательство: Альпина ДиджиталПродолжительность: 06:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96751C77943C289A53E3501C37AC66EB7B47B1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695939   (119966) от 31.01.2024
-
-Дом из песка и тумана / House Of Sand And Fog (2003) HDTVRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноимённому роману Андре Дюбуса III и повествует о битве между молодой женщиной и семьей иммигрантов из Ирана за право собственности на дом в Северной Калифорнии, которая, в конечном итоге, приводит к гибели трёх человек...Производство: США / Bisgrove Entertainment, Cobalt Media Group, DreamWorks SKGЖанр: драма, криминалРежиссер: Вадим ПерельманАктеры: Дженнифер Коннелли, Бен Кингсли, Рон Элдард, Шоре Агдашлу, Джонатан Адут, Фрэнсис Фишер, Ким Диккенс, Нави Рават, Карлос Гомес, Киа Джем, Джалех Моджаллал, Самира Дамаванди, Мэттью Саймониан, Намрата Купер, Аль ФарисПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английские, немецкие хардсабы на неанглийскую речьПродолжительность: 02:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3505F696D4664E655636972B7229598B0979186
 ```
 
 

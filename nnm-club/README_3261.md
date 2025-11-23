@@ -1,3 +1,75 @@
+###  Публикация: 1822913   (104467) от 09.10.2025
+
+Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack seleZen
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blood of Mehran переносит легендарного воина Мехрана в Древнюю Месопотамию, где его стремление к мирной жизни рушится из-за чужих амбиций. В основе сюжета, вдохновленного сказаниями Тысячи и одной ночи, лежат темы любви, потерь и верности. Игровой мир включает в себя раскинувшиеся дворцы, оживленные базары и бескрайние песчаные дюны, открытые для исследования. Геймеры (   Читать дальше...   )Тип издания: RepackРазработчик: Permanent Way Game Co.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2AB516B5043D354F708A9B7CB4D3EED994508F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822912   (104468) от 09.10.2025
+
+Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blood of Mehran переносит легендарного воина Мехрана в Древнюю Месопотамию, где его стремление к мирной жизни рушится из-за чужих амбиций. В основе сюжета, вдохновленного сказаниями Тысячи и одной ночи, лежат темы любви, потерь и верности. Игровой мир включает в себя раскинувшиеся дворцы, оживленные базары и бескрайние песчаные дюны, открытые для исследования. Геймеры (   Читать дальше...   )Тип издания: RepackРазработчик: Permanent Way Game Co.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6B7AB53DC828CF6F699563A6696CB84651342E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822903   (104469) от 09.10.2025
+
+Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Decepticon
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blood of Mehran переносит легендарного воина Мехрана в Древнюю Месопотамию, где его стремление к мирной жизни рушится из-за чужих амбиций. В основе сюжета, вдохновленного сказаниями Тысячи и одной ночи, лежат темы любви, потерь и верности. Игровой мир включает в себя раскинувшиеся дворцы, оживленные базары и бескрайние песчаные дюны, открытые для исследования. Геймеры (   Читать дальше...   )Тип издания: RepackРазработчик: Permanent Way Game Co.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFA3EC97690E3F463D5BAD87E4350634A3B682A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508490   (104470) от 09.10.2025
 
 Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
@@ -6,7 +78,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104470.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.78.11833a) License GOG [Soundtrack Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104471.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Chromium 141.0.7390.66 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104472.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:DA26C2328AECC7639892AF72CE60B979CCF32D55
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104473.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Ui Kits - UI8 - Eclipse - Vintage Store Web Ecommerce [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104474.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:DD93219872D63B89BCAD36CEBCDED71324E12A74
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104475.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:EE57A024AA0EF7BF4EE71DE8AAD577A4899D7FAB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104477.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:5361F66963439A06C2EC2C223388C11C55183902
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104478.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Flyoobe 1.30 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104479.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:A9345AB43BF140808A56BF319A59F2C34CA2E213
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_104480.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_104480.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:A9345AB43BF140808A56BF319A59F2C34CA2E213
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104481.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ Internet Download Manager 6.42 Build 50 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104482.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:5463004CB0BE2AA788083A8CA6CD32CA17C89DBE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104483.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:581BD33D432B1A912E704284ABCEC07034340F04
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104484.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ SoftPerfect RAM Disk 25.10 RePack by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104485.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ Download Master 7.2.2.1739 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104486.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:FD6315A67D23C0338965AE322DA762DB60C36561
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104487.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:3AA05F5A0578BB59C5A1C400ECA740CF86488DC1
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104488.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:0C48187F3CB7D359AB4709DEFE2A1F415A18789C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104489.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:29A88872F165A66B8C09A90F1CD428EA296000FF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104490.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:73BF4C1BD3ECD23F81B24C0940D875787856FEDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104491.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:949E22735BE6B5B1D03818DAE68D88223957A9F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104492.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:F782F384C869786CD275AEBC1A6707F723AD08DC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104493.jpg" />
 </div>
 
 
@@ -548,78 +620,6 @@ magnet:?xt=urn:btih:F782F384C869786CD275AEBC1A6707F723AD08DC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8C9CCB4A3D106084132BA3605C8EE29B7A96DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822882   (104494) от 08.10.2025
-
-Уловки разума (2025) WEBRip [H.264] (сезон 2, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104494.jpg" />
-</div>
-
-
-###  Подробнее
-
-В доме владельцев градообразующего предприятия братьев Панкратовых убита горничная. Выясняется, что девушка была невестой Панкратова-старшего. Семья была против такого мезальянса – и вот теперь свадьбы точно не будет: невеста мертва, а жених сядет в тюрьму, поскольку девушка была убита из его пистолета в запертой комнате, где никого, кроме них двоих, не было. Казалось (   Читать дальше...   )Производство: Россия | «Magic Factory»Жанр: ДетективРежиссер: Мурад АлиевАктеры: Елена Лотова, Всеволод Болдин, Анна Ещенко, Владимир Роганов, Кирилл Мелехов, Александр Дзюба, Татьяна Тимакова, Варвара Фролова, Екатерина Петрилина, Серафим Долбунов и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C1D6D7D29F82FE92ABB8FC0091592389829EDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822877   (104495) от 08.10.2025
-
-Кузнецовы ТВ (2025) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 16) (обновляемая)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семье Кузнецовых предлагают поучаствовать в реалити-шоу, в финале которого их ждёт квартира мечты от спонсора. Ради жилплощади с многочисленными удобствами терпеть телекамеры двадцать четыре часа в сутки готовы: маникюрщица Вера, её четверо детей от трёх браков, муж Витя, он же водитель городской знаменитости, бабушка Люда, в прошлом лидер танцевального коллектива, (   Читать дальше...   )Производство: Россия | Студия «ВАМ»Жанр: КомедияРежиссер: Кирилл ВасильевАктеры: Юрий Стоянов, Михаил Трухин, Ольга Медынич, Юлианна Михневич, Александра Бабаскина, Никита Конкин, Фёдор Скальский, Арина Постникова, Таисия Захарова, Анна ГуляренкоСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE4EB6189CBE3FAE4DCBF037E09A4B8C6F45B61C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822879   (104496) от 08.10.2025
-
-Кузнецовы ТВ (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 16) (обновляемая)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семье Кузнецовых предлагают поучаствовать в реалити-шоу, в финале которого их ждёт квартира мечты от спонсора. Ради жилплощади с многочисленными удобствами терпеть телекамеры двадцать четыре часа в сутки готовы: маникюрщица Вера, её четверо детей от трёх браков, муж Витя, он же водитель городской знаменитости, бабушка Люда, в прошлом лидер танцевального коллектива, (   Читать дальше...   )Производство: Россия | Студия «ВАМ»Жанр: КомедияРежиссер: Кирилл ВасильевАктеры: Юрий Стоянов, Михаил Трухин, Ольга Медынич, Юлианна Михневич, Александра Бабаскина, Никита Конкин, Фёдор Скальский, Арина Постникова, Таисия Захарова, Анна ГуляренкоСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82AC2B5616FAFCDE0B34B8051C7213057C5A65B6
 ```
 
 

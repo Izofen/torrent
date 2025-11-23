@@ -1,3 +1,93 @@
+###  Публикация: 592327   (135901) от 21.12.2012
+
+Various Artists - Paint It Blue - Songs of the Rolling Stones (1997) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Always Get What You Want - Luther Allison
+02. Tumblin' Dice - Johnny Copeland
+03. (I Can't Get No) Satisfaction - Junior Wells
+04. Wild Horses - Otis Clay
+05. Honky Tonk Women - Taj Mahal
+06. Sway - Alvin 'Youngblood' Hart
+07. Ventilator Blues - Clarence 'Gatemouth' Brown
+08. Beast Of Burden - The Holmes Brothers
+09. Under My Thumb - Lucky Peterson
+10. It's All Over Now - Bobby Womack(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591098   (135905) от 21.12.2012
+
+VA - Poker Lounge (4CD) (2008) [MP3|320 кб/с]<Lounge, Jazzy>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для  NoNaMe Club PokerTourПродолжительность: 01:02:52
+
+1. Seven Smiles - City Light (3:19)
+ 2. DJ Coltsilvers - After The Party (3:50)
+ 3. Zaia - Bugle Sound (3:59)
+ 4. Brenda Wilson - What A Differenc E A Day Makes (4:59)
+ 5. Michel Leca - Los Colores De La Rosa (4:02)
+ 6. John T'man Taylor - Don't Wanna Sleep (5:27)
+ 7. Liza Everson Feat. Alvin S - Le Freak (4:46)
+ 8. Nicco - One Day In July (3:21)(   Читать дальше...   )Жанр: Lounge, JazzyПродолжительность: 03:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58CC7DB12E9B0C27B9FE1C61EB3BBDC425EDF38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592345   (135906) от 21.12.2012
+
+Граница (2005) SATRip
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озинки — посёлок городского типа, административный центр, крупнейший населённый пункт Озинского района Саратовской области и одноимённая железнодорожная станция Приволжской железной дороги на стык с КТЖ. Будни одной погранзаставы на границе между Россией и Казахстаном, самой длинной сухопутной границе в мире. Некогда затерянный в заволжской степи районный поселок Озинки стал форпостом России на границе с Казахстаном. Но насколько легко провести разделительную линию на карте, настолько сложно разорвать сложившиеся традиции, человеческие связи. Однако у тех, кто по долгу службы обязан охранять российское государство, нет права на сантименты – они обязаны исполнять закон.Жанр: ДокументальныйРежиссер: М. СеливановаПродолжительность: 00:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF52D970E3E627974823442081C443C09998DDF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592516   (135907) от 21.12.2012
 
 Cat Wallpapers (21.12.12) [Wallpapers]
@@ -6,7 +96,7 @@ Cat Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135907.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@ magnet:?xt=urn:btih:259403BED0ECFF27E40658783261E5D96D775D27
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135908.jpg" />
 </div>
 
 
@@ -57,7 +147,7 @@ magnet:?xt=urn:btih:A94D452C1E8F46AE1D68B845BC665F66A4D998A1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135909.jpg" />
 </div>
 
 
@@ -81,7 +171,7 @@ magnet:?xt=urn:btih:8BBE1BC44CCFE4267EAEFBDDD9A7910B08E73739
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135911.jpg" />
 </div>
 
 
@@ -105,7 +195,7 @@ USB Disk Security 6.2.0.30 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135917.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135917.jpg" />
 </div>
 
 
@@ -131,7 +221,7 @@ Fantastic Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135919.jpg" />
 </div>
 
 
@@ -155,7 +245,7 @@ magnet:?xt=urn:btih:D640E81A1D8938DDF15C0FC1D1114486D4D17F7B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135920.jpg" />
 </div>
 
 
@@ -179,7 +269,7 @@ magnet:?xt=urn:btih:3743E49682CA2901F430B3B093D0A8E8382177D5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135925.jpg" />
 </div>
 
 
@@ -204,7 +294,7 @@ Monster Trucks Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135928.jpg" />
 </div>
 
 
@@ -228,7 +318,7 @@ New year wallpapers 2013 (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135930.jpg" />
 </div>
 
 
@@ -252,7 +342,7 @@ RonyaSoft Poster Designer 2.01.42 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135933.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135933.jpg" />
 </div>
 
 
@@ -276,7 +366,7 @@ VA - Drum & Bass Remixers Vol. 2 (2012) [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135939.jpg" />
 </div>
 
 
@@ -303,7 +393,7 @@ Various Artists - The Alligator Records Christmas Collection (1992) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135941.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135941.jpg" />
 </div>
 
 
@@ -336,7 +426,7 @@ My Daily Wallpaper 6.00 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135942.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135942.jpg" />
 </div>
 
 
@@ -360,7 +450,7 @@ My Daily Wallpaper 6.00 Portable [Английский]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135943.jpg" />
 </div>
 
 
@@ -384,7 +474,7 @@ New year wallpapers 2013 (20.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135950.jpg" />
 </div>
 
 
@@ -408,7 +498,7 @@ Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135951.jpg" />
 </div>
 
 
@@ -441,7 +531,7 @@ Desktop Wallpapers (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135953.jpg" />
 </div>
 
 
@@ -465,7 +555,7 @@ HQ Wallpapers for a desktop (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135954.jpg" />
 </div>
 
 
@@ -489,7 +579,7 @@ magnet:?xt=urn:btih:0071452D3427653ECF5585CC0CAE98194E186DC8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135955.jpg" />
 </div>
 
 
@@ -513,7 +603,7 @@ Dragon Wallpapers (20.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135956.jpg" />
 </div>
 
 
@@ -537,7 +627,7 @@ magnet:?xt=urn:btih:47C8AECED05B09F51CEC5DFFBEC091CA152B6AFF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135957.jpg" />
 </div>
 
 
@@ -561,7 +651,7 @@ Best HD Wallpapers Pack (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135958.jpg" />
 </div>
 
 
@@ -572,78 +662,6 @@ Best HD Wallpapers Pack (21.12.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76E98F8FC21B0E062BC0B4C8D39DE96E4F340BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592439   (135963) от 21.12.2012
-
-Журнал | PC Format №274 (UK) [январь 2013] [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячно в журнале представлены обзоры новинок компьютерных комплектующих, устройств и игр. Приводятся результаты групповых тестов железа, мониторов, периферии.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0BB14B88817F19DBF0A14595192432EA2DC760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592510   (135964) от 21.12.2012
-
-Winter Wallpapers (21.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAD183AED52C60059D771F24A1F5CD1A5C25AC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592207   (135965) от 21.12.2012
-
-New year wallpapers 2013 (19.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FAB6741C06C14CF454EEB7B00E0DC3AD1B6B7B
 ```
 
 

@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130081.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Jonathan Elliott | Blue Team Boot Camp: Defending Against Hackers (2020) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130504.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Cutcode, Данил Щуцкий | Интернет-магазин на Laravel 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130599.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ AmigosCode, Nelson Djalo | Mastering Kubernetes (2023) WEB-DL [AD] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130975.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131229.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ OTUS, Евгений Аристов, Виталий Попов, Владимир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131232.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Udemy, Raj Chhabria | ChatGPT for Data Science and Machine Learning (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131275.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ AmigosCode, Nelson Djalo | Functional Programming & Java Streams (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131353.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:D596B1B53E8B7FCD2B1BEE1B275988D3A197BAC2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131912.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:30CD1737AEDB2CCC71AD6A4CD3F174C45E3F2852
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131915.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Skillbox, Арсений Батыров и др. | Профессия Инжен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132157.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:0274BA2596131DD1557406CFB48A60657B8AF9F3
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133225.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133240.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:CCC099EAB713041C7AF60FB7C716B70168575FD0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133357.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Udemy, The Table Of Bosses, Cornell Literacy | ChatGPT Python Alchemy: Elevate Y
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135054.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:D79A88725B0632122504C6812D90D418F815EFE0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136026.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Skillbox, Валентин Пановский и др. | Профессия Data
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136560.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Udemy, Irek Mirgaleev | Test-Driven Development Masterclass with Angular (2019) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137077.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Udemy, Daniel Gakwaya | The C++20 Masterclass : From Fundamentals to Advanced (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137106.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137202.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137207.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B27F285FEBDACFE70CC7EE99A5897A5F19D58567
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137210.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Podlodka | Podlodka Techlead Crew #1-5 (2021-2023) WEB-DL [RU] [Обновляе
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137247.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Udemy, Bhrugen Patel | Full Stack React Bootcamp with .NET API [2023] [10 Projec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137317.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137470.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137581.jpg" />
 </div>
 
 

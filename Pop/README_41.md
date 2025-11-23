@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 110 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107451.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ Hits Vol. 105 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107464.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - DJ Hits Vol. 100 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107483.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - DJ Hits '98 Volume 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107521.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - DJ Hits Vol. 91 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107552.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cream & Sugar - Cream & Sugar (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107735.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - DJ Hits Vol. 82 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107742.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - DJ Hits Vol. 80 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107743.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - DJ Hits Vol. 81 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107747.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - DJ Hits Vol. 78 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107748.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - DJ Hits Vol. 87 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107771.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Techn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107775.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - DJ Hits Vol. 77 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107778.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107780.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - DJ Hits Vol. 62 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107790.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - DJ Hits Vol. 60 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107793.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - DJ Hits Vol. 61 (1996) [OGG Vobis|480 Kbps] <Electronic, Euro House, Euro D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107794.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - DJ Hits Vol. 59 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107795.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Redemm - Be My Lover (2024) [FLAC|Lossless|tracks] <Euro House, Deep House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107810.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Chillymouse - Only You (Bootmasters & Visioneight remix) (2021) [FLAC|Lossless|t
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107815.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Dutch Rhythm Combo Ft. Isa GT - Alerta (remixes) (2010) [FLAC|Lossless|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107817.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107821.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - DJ Hits Vol. 65 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107822.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - DJ Hits Vol. 57 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107824.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Nothing But... Pure Dance, Vol. 23 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107826.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Raveena - Where the Butterflies Go in the Rain (2024) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107843.jpg" />
 </div>
 
 

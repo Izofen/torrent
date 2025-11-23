@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44451.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:73ED4F9F720462DF663BB50F9D3C312E87F8957C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44452.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:76C5735928E75A2059F4A5051459EE20842DF60B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44453.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:43CCAAEBB936BCD40233B00FED2560CDF8DC64FD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44454.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1648/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44455.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:729D8D783F673A69497FC33B23300C09E6187787
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44456.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Huawei Kirin 7-нм догнал по производительности 5-н�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44457.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Huawei Kirin 7-нм догнал по производительности 5-н�
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44458.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:DA0D9856907DB8C08EAA36A249241BB80C0839FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44459.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:7B264F56AF4D53B6FE4E05911E9AD09C2BC471A5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44460.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:724075A96FC2823674F1599AF65A2D2C3F1DB623
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44461.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:EB739A53A5936333128F23ACAA84ADA6695C9F31
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44462.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44463.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:60446AEF1DA4D641788CF00AFCFA0EE7C343A548
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44464.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:E8388F27EE6E81EA31D53197F03665BC1B1D7DB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44465.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Internet Download Manager 6.42 Build 21 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44466.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:6FFD2FD5AFE2168C0488C3A9329BD4B1413CDF45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44467.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Viber 23.5.1.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44468.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:4A4912A21B396662B213738A04100D1AE087E873
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44469.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:AFD44AA249261F44DD029841BBEAE63384845B37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44470.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Resident Evil 3 (2020) [Ru/Multi] (1.07/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44471.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:9754CBDF17315A4ADA594E305C0EE412338A7941
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44472.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ RetroArch (2022) [Ru] (1.19.1) Repack Scorpius Inc.
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44473.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:2DABBB295BC92B3B15010A5883C2DFBCEF3948A5
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44474.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:20023017E4C3EEA106DCA41C7C9B8E33639EAB6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44475.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:B5B510610AB2607AE705C50AA21473E15C26F2A1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44476.jpg" />
 </div>
 
 

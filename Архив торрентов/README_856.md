@@ -1,3 +1,102 @@
+###  Публикация: 1430573   (170476) от 10.12.2020
+
+ФотоМАСТЕР 9.15 RePack (& Portable) by elchupacabra [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170476.jpg" />
+</div>
+
+
+###  Подробнее
+
+ФотоМАСТЕР - мощная программа, позволяющая быстро и качественно улучшать фотографии. Благодаря инновационной архитектуре, "ФотоМАСТЕР" даёт возможность изменять любые параметры фотоснимков и отменять эти изменения в любом порядке без потери качества.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F0219822D1C8F9AA36C7CFFFC4BE44146CF403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344343   (170477) от 10.12.2019
+
+360 Extreme Explorer 12.0.1010.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170477.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Extreme Explorer- браузер, который можно смело назвать многофункциональным и безопасным, он направлен на борьбу с окружающими вас угрозами при Интернет серфинге. Если рассматривать внешний вид: удобно в работе, достаточно информативно, плюс часто посещаемые сайты будут отображаться в виде миниатюр на новой вкладке. Если вы являетесь экспертом, то можете смело (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76464FC04383B7DD126A4AF4A95EF82DA3B59816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672128   (170478) от 27.10.2023
+
+SILKYPIX Developer Studio Pro 11 v.11.0.12.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170478.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601C7BC54800F09BF07706D1A45D5211171C992B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344313   (170480) от 10.12.2019
+
+VA - Psygressive Vol. 7 (2019) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcus - Mdma (Original Mix)
+02. Stayos - Wake Up (Original Mix)
+03. Yahel - Voyage (Cosmic Flow Remix)
+04. Hinap & Reverse - Chaotic Nature (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDAF36B25695F5A13870454981522BBFDE4BE06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515286   (170484) от 06.12.2021
 
 OmniPlayer Pro - Media Player 1.4.11 [Multi]
@@ -6,7 +105,7 @@ OmniPlayer Pro - Media Player 1.4.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170484.jpg" />
 </div>
 
 
@@ -30,7 +129,7 @@ Vinegar 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170485.jpg" />
 </div>
 
 
@@ -55,7 +154,7 @@ Pale Moon 28.8.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170486.jpg" />
 </div>
 
 
@@ -79,7 +178,7 @@ Swift Publisher 5 v.5.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170494.jpg" />
 </div>
 
 
@@ -103,7 +202,7 @@ Nitro Pro 13.32.0.623 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170495.jpg" />
 </div>
 
 
@@ -128,7 +227,7 @@ Dashcam Viewer 3.3.2 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170497.jpg" />
 </div>
 
 
@@ -153,7 +252,7 @@ VideoDuke 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170505.jpg" />
 </div>
 
 
@@ -178,7 +277,7 @@ GrabIt 4.931 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170510.jpg" />
 </div>
 
 
@@ -203,7 +302,7 @@ Opera 65.0.3467.69 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170511.jpg" />
 </div>
 
 
@@ -227,7 +326,7 @@ SlimBrowser 11.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170518.jpg" />
 </div>
 
 
@@ -251,7 +350,7 @@ Soulver 3 v.3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170519.jpg" />
 </div>
 
 
@@ -276,7 +375,7 @@ Script Debugger 8 v8.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170520.jpg" />
 </div>
 
 
@@ -301,7 +400,7 @@ Adguard 2.4.0.693 nightly (CL - 1.5.141) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170524.jpg" />
 </div>
 
 
@@ -325,7 +424,7 @@ Yate 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170526.jpg" />
 </div>
 
 
@@ -351,7 +450,7 @@ Skylum Luminar AI 1.0.0.7326 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170531.jpg" />
 </div>
 
 
@@ -375,7 +474,7 @@ Display Driver Uninstaller 18.0.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170535.jpg" />
 </div>
 
 
@@ -399,7 +498,7 @@ Text Workflow 1.7.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170536.jpg" />
 </div>
 
 
@@ -424,7 +523,7 @@ System Toolkit 5.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170538.jpg" />
 </div>
 
 
@@ -448,7 +547,7 @@ GoodSync Enterprise 10.10.14.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170542.jpg" />
 </div>
 
 
@@ -472,7 +571,7 @@ Untouch 1.2.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170544.jpg" />
 </div>
 
 
@@ -497,7 +596,7 @@ xScope 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170547.jpg" />
 </div>
 
 
@@ -521,7 +620,7 @@ PaintCode 3 v3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170548.jpg" />
 </div>
 
 
@@ -532,103 +631,6 @@ PaintCode 3 v3.5.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EB1723EDD46D439DE1454C9FB651C8F8EFE2C4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515330   (170560) от 06.12.2021
-
-MarsEdit 4 v4.5.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE8F70FCA7C3EBE49E499D24E95887B2414CA30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515256   (170564) от 06.12.2021
-
-Image Resizer – Resize Photos 2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Resizer – Resize Photos  полезный и эффективный инструмент для изменения размера одного или нескольких изображений без ущерба для разрешения и качества изображения. Используя этот инструмент, вы можете выбрать фотографии из библиотеки фотографий или из любой папки на вашем компьютере.
-Получите это приложение, Image Resizer и будьте уверены, что у вас есть лучший (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276D8BDFBA08949A1ACE091BBD4B1DABCFD6DC48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344488   (170565) от 10.12.2019
-
-Awaken 6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Awaken — программа-будильник, которая позволит засыпать и просыпаться под любимую музыку. С ее помощью можно установить несколько будильников (разовых или повторяющихся), которые в назначенный час будут воспроизводить выбранную мелодию или открывать приложение/файл. Помимо будильников можно устанавливать таймеры обратного отсчета, которые по истечении времени могут (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Embraceware Software IncПоддерживаемая ОС: macOS 10.15 или более поздняя версияЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DC875FE1DC9932AA06FDDABF02F66E7288B3CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430649   (170566) от 10.12.2020
-
-Cent Browser 4.3.9.227 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794A8872459501975AD8C166AC76D492206880A6
 ```
 
 

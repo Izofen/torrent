@@ -6,7 +6,7 @@ Charles Williams - Trees And Grass And Things (1971) 2017, Solid Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114288.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wynton Marsalis - Wynton Marsalis (1982) CBS [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114290.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114300.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Fusion Funky Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114308.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114324.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114332.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114333.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blues Joke - Better Old Than Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114334.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114354.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Branford Marsalis - Trio Jeepy (1989) CBS [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114456.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ellis Marsalis - An Open Letter To Thelonious (2008) ELM Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114460.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wynton Marsalis - My Funny Valentine: Live At Bubba's (1980) 1998, Pulse [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114465.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Stephanie Haynes With The Cedar Walton Trio - Here's That Rainy Day (1988) Trend
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114477.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Clare Fischer & Salsa Picante - Crazy Bird (1985) Discovery Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114480.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ben Webster & Buck Clayton - Ben And Buck (1967) 1995, Storyville Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114481.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Piotr Figiel - Piotr (1971) [MP3|320 Kbps] <Hammond, Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114492.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Donald Byrd - A City Called Heaven (1991) Landmark Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114614.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Avi Yifrah, Asher Fedi - The Avi Yifrah / Asher Fedi Project (2024) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114620.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lars Gullin - Portrait of the Legendary Baritone Saxophonist: Complete 1951-1955
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114622.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Houston Person - Truth! (1968, 1970) 1999, Prestige [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114624.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ George Rabbai & Brian Betz Trio - Muted Bebop (2006) Dreambox Media [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114626.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pearl Django - Modern Times (2007) Modern Hot Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114644.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mojo Mafia - Rescue Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114656.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114661.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sahib Shihab - Sentiments (1965, 1971) 2005, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114787.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Rhonda Burchmore - Cry Me a River: The World Of Julie London (2013) ABC Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114802.jpg" />
 </div>
 
 

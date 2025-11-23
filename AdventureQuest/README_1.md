@@ -6,7 +6,7 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5029.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5033.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5264.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5451.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5518.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5554.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5598.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Herdling (2025) [Ru/Multi] (1.2.3.p) Repack Let'sРlay [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5611.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5624.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5632.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5685.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5738.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5772.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6009.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6018.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6042.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1674/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6052.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6145.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6184.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Blackwell Legacy (2006) [En] (4.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6212.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6218.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Primordia (2012) [Multi] (5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6229.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6486.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6506.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6541.jpg" />
 </div>
 
 

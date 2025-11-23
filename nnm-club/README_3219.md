@@ -1,3 +1,79 @@
+###  Публикация: 1758650   (103375) от 03.11.2024
+
+PdfFactory Std & Pro 9.08 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103375.jpg" />
+</div>
+
+
+###  Подробнее
+
+pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA61C34808EA7F76F53AF41D82F4435FF3C79C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758565   (103376) от 03.11.2024
+
+Олег Сапфир, Дмитрий Ангор | Кракен (Книга 5). Орден Кракена 5 (2024) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я был знаменитым капитаном летающего корабля в своем прежнем мире. У меня была шикарная длинная борода, которой я гордился. Люди, и не только люди, знали, что если появляется Джон Кракен из Ордена Кракена со своей командой, бежать бесполезно, мы никогда не упускаем свою добычу.
+Но во время последней схватки с Роем проклятая временная червоточина засосала меня. Я (   Читать дальше...   )Жанр: Бояръ-аниме, Попаданцы, Юмористическое фэнтезиИздательство: Author TodayПродолжительность: 08:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD88CB47297AC77DF657DAAFE9DD91C30F8F8A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758575   (103377) от 03.11.2024
+
+Квартирник у Маргулиса. Бранимир (26.10.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103377.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гостях у Евгения Маргулиса — музыкант, автор и исполнитель песен Бранимир. Новый альбом Бранимира «Ждут домой» пропитан духом и магией плацкартных путешествий. Герои этих песен — люди неудивительных, но и непростых судеб. Сам Бранимир регулярно гастролирует по стране на поездах и в дороге общается с огромным количеством разных людей. Помимо Бранимира на огонек (   Читать дальше...   )00:00:05  Вахтовик звонит домой
+00:05:17  Великая жизнь
+00:12:00  Провожал я друга на войну
+00:18:23  Торпедорубин(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Бард-рок, дарк-фолкСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7127E2A5B56E89586DC55F7780BCE316C9EB95B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758696   (103378) от 03.11.2024
 
 VA - Best of 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -6,7 +82,7 @@ VA - Best of 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Tech
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103378.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:1B194F909C39F8AEFE0E75F984521109D763B176
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103379.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:902F64DC9D244D82C137688A1792F5CC12B50023
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103380.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ magnet:?xt=urn:btih:68A3D53B4490F79602393118432921376BDC9B0E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103381.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:D01DDBE0357B7257678D5FCAAFA28C032B8792C9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103382.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ magnet:?xt=urn:btih:0E954B932DF18F67AD6FFDED7A5463A27B9BC489
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103383.jpg" />
 </div>
 
 
@@ -158,7 +234,7 @@ Togu Audio Line - TAL-U-NO-LX-V2 4.9.4 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103384.jpg" />
 </div>
 
 
@@ -183,7 +259,7 @@ magnet:?xt=urn:btih:5547097B20BAA8A8DC793FE8D4095FC39EDF7F47
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103385.jpg" />
 </div>
 
 
@@ -207,7 +283,7 @@ magnet:?xt=urn:btih:6D9E689FF3A93D463D62B33F595A17BB705B6909
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103386.jpg" />
 </div>
 
 
@@ -231,7 +307,7 @@ magnet:?xt=urn:btih:CDFB5158F6EA63627FE15F4F0A062EE98276653D
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103387.jpg" />
 </div>
 
 
@@ -258,7 +334,7 @@ Jason Jackson - Looking Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103388.jpg" />
 </div>
 
 
@@ -285,7 +361,7 @@ Gregory Kunde - Then and Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103389.jpg" />
 </div>
 
 
@@ -312,7 +388,7 @@ Kevin A Knowles - Vagabond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103390.jpg" />
 </div>
 
 
@@ -339,7 +415,7 @@ Francesco Venerucci - INDIAN SUMMER (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103391.jpg" />
 </div>
 
 
@@ -366,7 +442,7 @@ Grant Richards - Menagerie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103392.jpg" />
 </div>
 
 
@@ -393,7 +469,7 @@ magnet:?xt=urn:btih:BAEA42223AA6693F8460E71AEB3C2EE69A38BCFA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103393.jpg" />
 </div>
 
 
@@ -417,7 +493,7 @@ magnet:?xt=urn:btih:9AA2CA2296B960E701CF6E7AAD7165AE6AAB38F0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103394.jpg" />
 </div>
 
 
@@ -444,7 +520,7 @@ Steam Slicer - Beyond The Rivers (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103395.jpg" />
 </div>
 
 
@@ -471,7 +547,7 @@ magnet:?xt=urn:btih:45CCAF5F0693C32E297D8CEC3BFACD6E2F26A25C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103396.jpg" />
 </div>
 
 
@@ -496,7 +572,7 @@ magnet:?xt=urn:btih:A6EB1FA98955FD1BD1D05232F3173A2431201B49
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103397.jpg" />
 </div>
 
 
@@ -520,7 +596,7 @@ Scarlet Bandit - Lose Your Blues (Late Night City Feeling Edition) (2024) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103398.jpg" />
 </div>
 
 
@@ -547,7 +623,7 @@ Brothers of Metal - Fimbulvinter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103399.jpg" />
 </div>
 
 
@@ -574,7 +650,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Спринт (02.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103400.jpg" />
 </div>
 
 
@@ -585,84 +661,6 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Спринт (02.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BD430061CEFECFDBFE9E347B44789BC814E0C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758385   (103401) от 02.11.2024
-
-Kristin Korb - Sweet Dreams (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dreams (3:16)
-02. There Must Be An Angel (4:06)
-03. Here Comes The Rain Again (5:36)
-04. We Two Are One (4:01)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A211D51003F1DC2993777EBF255C804E10529C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758427   (103402) от 02.11.2024
-
-Поедем, поедим! Екатеринбург: Уральский Марс, поедание чебуреков на скорость, пикник на тракторе (02.11.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешественник Федерико Арнальди отправился в Екатеринбург, а оказался на Уральском Марсе! Ведущий запустил тарелки в небо, побывал на детской железной дороге и поработал на картофельных полях. А еще Федерико протестировал аппарат по повышению самооценки, поучаствовал в поедании чебуреков на скорость и устроил необыкновенный пикник на тракторе.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F437E32FE070BBF40958EABC13CC9E03D8FE5A63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758433   (103403) от 02.11.2024
-
-Frank Sinatra - Close To You And More (2002) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close To You [3:37]
-02. P.S. I Love You [4:21]
-03. Love Locked Out [2:42]
-04. Everything Happens To Me [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFA183D54FDFC250EF0C4228D3A304F1B5B9B7D
 ```
 
 

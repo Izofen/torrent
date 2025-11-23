@@ -1,3 +1,77 @@
+###  Публикация: 477828   (86168) от 03.04.2012
+
+Г.В. Ярочкина | Радиоэлектронная аппаратура и приборы: Монтаж и регулировка [2002] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены особенности монтажа современной радиоэлектронной аппаратуры, основные направления микроминиатюризации радиоаппаратуры, техническая документация, технология сборочных работ, основные виды испытаний радиоэлектронных устройств. Приведены электрические и конструктивные характеристики электрорадиокомпонентов, их маркировка. Изложены основные требования по охране труда, электробезопасности и пожарной безопасности на предприятиях электронной промышленности. Даны основные понятия качества и надежности радиоэлектронной аппаратуры и приборов.
+Для учашихся учреждений начального профессионального образования, осваивающих профессии «Монтажник радиоэлектронной аппаратуры и приборов» и «Регулировщик радиоэлектронной аппаратуры и приборов». Может использоваться для профессиональной подготовки рабочих на производстве.2002Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F086EE6656982F350274E033BEDD2CC52AF81E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477042   (86170) от 03.04.2012
+
+Грозовой перевал / Wuthering Heights (2011) [1080p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86170.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме рассказывается история двух поколений семейных кланов Эрншо и Линтон, — история о сложном переплетении их жизней и судеб и о роковом проклятии двух возлюбленных — Хитклиффа и Кэти…Жанр: Драма, мелодрамаРежиссер: Андреа АрнольдАктеры: Кая Скоделарио, Никола Берли, Джеймс Хаусон, Оливер Милберн, Эми Рен, Стив Эветс, Пол Хилтон, Джеймс Норткот, Шеннон Бир, Соломон ГлэйвПеревод: Многоголосый закадровыйПродолжительность: 02:08:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477490   (86172) от 03.04.2012
+
+И.А. Зайцева | Мангал, казан, барбекю. Вкуснейшие блюда мужскими руками [2007] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огонь, костер, очаг – эти слова всегда вызывают приятные воспоминания и согревают душу. Долгой холодной зимой люди ждут, когда проснется природа и можно будет с друзьями и семьей отправиться в лес или в загородный дом – туда, где можно будет развести костер, установить мангал, замариновать мясо для шашлыка или барбекю, приготовить плов или рагу в казане.
+Приготовление пищи на костре и углях является настоящим искусством. Сколько тонкостей необходимо учитывать, чтобы зажарить мясо или рыбу, приготовить острый соус или маринад. Данная книга поможет всем поклонникам пикников усовершенствовать искусство приготовления пищи на природе.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477590   (86173) от 03.04.2012
 
 Подсолнух / Sunflower / Haebaragi (2006) DVDRip
@@ -6,7 +80,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86173.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86175.jpg" />
 </div>
 
 
@@ -63,7 +137,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86177.jpg" />
 </div>
 
 
@@ -87,7 +161,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86178.jpg" />
 </div>
 
 
@@ -114,7 +188,7 @@ My7CustoBox 1.3.0 [Французский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86180.jpg" />
 </div>
 
 
@@ -138,7 +212,7 @@ My7CustoBox 1.3.0 [Французский]
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86181.jpg" />
 </div>
 
 
@@ -164,7 +238,7 @@ My7CustoBox 1.3.0 [Французский]
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86182.jpg" />
 </div>
 
 
@@ -188,7 +262,7 @@ magnet:?xt=urn:btih:D6DD41CFCE864E0930DC777BD7F6800534FCDEE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86183.jpg" />
 </div>
 
 
@@ -212,7 +286,7 @@ Chuu Bra!! / Chu-Bra!! / Чу-Бра!! [2010, TV, 12] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86186.jpg" />
 </div>
 
 
@@ -236,7 +310,7 @@ magnet:?xt=urn:btih:58532ABBCA17903CD984BAD6EC575355E491AD50
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86187.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ magnet:?xt=urn:btih:B423A609230E286D52C396F31F2F745101FB3382
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86188.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ magnet:?xt=urn:btih:B423A609230E286D52C396F31F2F745101FB3382
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86189.jpg" />
 </div>
 
 
@@ -308,7 +382,7 @@ magnet:?xt=urn:btih:A12DEFBC2C3EB881C7B45217BDE9A1DA52B4F82E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86190.jpg" />
 </div>
 
 
@@ -332,7 +406,7 @@ magnet:?xt=urn:btih:B4EBB94F33EF61BB5FDD91978EE96D4C684DA871
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86191.jpg" />
 </div>
 
 
@@ -358,7 +432,7 @@ Kaspersky World 1.3.3.95 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86192.jpg" />
 </div>
 
 
@@ -391,7 +465,7 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86196.jpg" />
 </div>
 
 
@@ -424,7 +498,7 @@ VA - Любимые песни для детей 3 (2012) [MP3|160-192 кб/с]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86197.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ magnet:?xt=urn:btih:6406EA0AB0EC52623ADB10D22C0A557AB38B1771
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86198.jpg" />
 </div>
 
 
@@ -476,7 +550,7 @@ magnet:?xt=urn:btih:D07C904A5F02BBD87840DD8DD352706F01069AF2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86199.jpg" />
 </div>
 
 
@@ -503,7 +577,7 @@ magnet:?xt=urn:btih:3E0C0A82E0A6951C554279FBC6C65A0C35D11B63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86200.jpg" />
 </div>
 
 
@@ -527,7 +601,7 @@ CyberLink MediaShow Ultra 6 0 3914 [Multi без русского]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86203.jpg" />
 </div>
 
 
@@ -551,7 +625,7 @@ CyberLink MediaShow Ultra - мощное профессиональное реш
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86204.jpg" />
 </div>
 
 
@@ -575,7 +649,7 @@ CyberLink MediaShow Ultra - мощное профессиональное реш
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86205.jpg" />
 </div>
 
 
@@ -586,81 +660,6 @@ CyberLink MediaShow Ultra - мощное профессиональное реш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84552FBF76B2B2E6F333885B876730558FB270EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477414   (86206) от 03.04.2012
-
-Nvidia-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любителелям бренда Nvidia представляю сборку Roketdock в стиле Nvidia инсталируется в два клика.
-
-После установки, путь к папкам указываем самостоятельно, по желанию пользователя!Название программы: Nvidia-Roketdock v1.3.5 by kubinesЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477586   (86207) от 03.04.2012
-
-Uniblue PowerSuite 2012 3.0.6.6 Final [Мульти, есть русский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uniblue PowerSuite - комплект программ для ускорения работы системы, очистки и оптимизации реестра, моментального обновления драйверов, для более эффективной работы вашего компьютера. Каждая из них программ приспособлена для оптимизации определенного участка операционной системы, а вместе они составляют полный комплекс инструментов от всех системных проблем Вашего компьютера.Название программы: Uniblue PowerSuite 2012Язык интерфейса: Мульти, есть русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477517   (86208) от 03.04.2012
-
-Последний подарок / The Ultimate Gift (2006) BDRip [H.264/1080p] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейсон, избалованный плейбой, купается в деньгах своего супербогатого дедушки Говарда Стивенса. что не мешает ему ненавидеть своего благодетеля. Молодой кутила не сомневается, что со смертью Говарда все состояние моментально перейдет в его карман, но, покинув этот мир, старик оставляет Джейсону неожиданный подарок.
-Юноша получит наследство, только если справится (   Читать дальше...   )Производство: США,  The Ultimate Gift LLC, Dean River Productions, LIFE(n)Жанр: драма, мелодрама, семейныйРежиссер: Майкл О. СаджбелАктеры: Дрю Фуллер, Джеймс Гарнер, Билл Коббс, Ли Меривезер, Эбигейл Бреслин, Брайан Деннехи, Джордж Ли, Бретт Райс, Д. Дэвид Морин, Али ХиллисПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 01:57:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 

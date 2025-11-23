@@ -6,7 +6,7 @@ CoolUtils Total Image Converter 8.2.0.282 RePack (& Portable) by elchupacabra [M
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9338.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:446677636798E2E9DF13B744EE8B7297CE34836D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9339.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D7F7AD3C94CBE57DCCA5766E267F021EA4C6C049
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9340.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:095A687E2C03947D60F9C628CA6BCEA051F921AC
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9341.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Keysight Advanced Design System 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9342.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:8C9E8255AFBD3A5FDD290C1CD690DB674706C680
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9343.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E85615D4FDE751DB15364CBAEFC9C8A1B5DAF833
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9344.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:6CADA0E593125914B25E975CC1EC351F4D30B754
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9345.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:49DE4945DB211847099EF99ABC3BC1BA88BDEFC7
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9346.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9347.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Adobe Illustrator 2025 v29.7.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9348.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:04E3ED7B6ACD1547D096FEFB8CC8A553E5CE4978
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9349.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:EB55D54D540FB943605FF7FF7EE9086E4CE46577
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9350.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9351.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:15CA5C1CBD5B5DA8E2FA619E4F9C9E1E9E0976D8
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9352.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D372BDED25722F39BB28E4A3F79A0CBE693B5FD1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9353.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9354.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Process Lasso Pro 16.0.1.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9355.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:584289DF6CB453055C82BFBA5C101D53ACAD1920
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9356.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D667C79499EB9B78C5677FEAE896070D997E973C
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9357.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v26 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9358.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:E091006D0EF13DABF6D3791A4399B80BE1080DDE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9359.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ PreSonus Studio One Pro 7 7.2.2 (x64) + Content [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9360.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:97FEFB13184000EA8079E7024D8D0309546AB7A6
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9361.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:E159E8C3058F16E5CD6AF65FA244F7EACBC5DDA8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9362.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:10157990075540D4CEC4E8CE993064E2008AEF37
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9363.jpg" />
 </div>
 
 

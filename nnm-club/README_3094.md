@@ -1,3 +1,102 @@
+###  Публикация: 477672   (98482) от 03.04.2012
+
+New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthem Of Hate (3:44)
+02. Flames For Hades (4:18)
+03. Brainless (5:27)
+04. The Not Self (4:36)
+05. Unsolved Aggressions (4:11)
+06. Life Not Death (4:53)
+07. Searching The Loss (4:20)
+08. Crawling Erect (3:15)
+09. Infecting The Lie (3:32)
+10. Watcher (4:34)(   Читать дальше...   )2012Жанр: Progressive Power MetalПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7BB0A88F2706F522FEC9126FFA7E866F725A15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477392   (98483) от 03.04.2012
+
+VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Molla & Marquis - Self Control (Radio Edit)
+02. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri Feat. Mat Twice - Tell Me Waf
+03. Example - Changed The Way You Kiss Me (Mike Candys Remix)
+04. Armin Van Buuren Pres. Gaia - Stellar (Original Mix Edit)
+05. Scooter Feat. Vicky Leandros - C'est Bleu
+06. Lady Gaga - Marry The Night (David Jost Twin Remix)
+07. Basto! - Again And Again (Bassanova And Moradzo Remix)
+08. Dj Smash & Chinkong - Lifemission (Radio Edit)
+09. Dj Rynno And Sylvia - Feel In Love (Radio Edit)
+10. Alexandra Stan - Crazy (Nir Ozer Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB65284B810A5697469B4B5282DD1C29CEBBFC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476579   (98484) от 03.04.2012
+
+Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Grindcore / Goregrind / Death'Roll>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Nota Maron
+ 02. Fecal Deluxe Party
+ 03. El Modelo Shitman
+ 04. Lord Of The Gas
+ 05. Las Tías Buenas No Cagan
+ 06. Cagando En Arguelles
+ 07. Coprovoyeur
+ 08. Vejado Por Gordas Deprvadas
+ 09. Salcedo's Adventure
+ 10. Coprosicion Incedente(   Читать дальше...   )2011Жанр: Grindcore / Goregrind / Death'RollПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477167   (98485) от 03.04.2012
 
 [Wallpapers] Computer Desktop Wallpapers Collection (02.04.12)
@@ -6,7 +105,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98485.jpg" />
 </div>
 
 
@@ -30,7 +129,7 @@ magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98486.jpg" />
 </div>
 
 
@@ -54,7 +153,7 @@ Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98491.jpg" />
 </div>
 
 
@@ -81,7 +180,7 @@ magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98492.jpg" />
 </div>
 
 
@@ -105,7 +204,7 @@ magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98495.jpg" />
 </div>
 
 
@@ -133,7 +232,7 @@ magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98496.jpg" />
 </div>
 
 
@@ -157,7 +256,7 @@ magnet:?xt=urn:btih:3913C6405DE1910A55FD84BFC56FFEB260B5B765
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98497.jpg" />
 </div>
 
 
@@ -181,7 +280,7 @@ VA - Весенняя танцевальная вечеринка (2012) [MP3|16
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98499.jpg" />
 </div>
 
 
@@ -214,7 +313,7 @@ VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Tech
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98501.jpg" />
 </div>
 
 
@@ -247,7 +346,7 @@ VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98503.jpg" />
 </div>
 
 
@@ -280,7 +379,7 @@ magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98504.jpg" />
 </div>
 
 
@@ -304,7 +403,7 @@ Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic De
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98508.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98508.jpg" />
 </div>
 
 
@@ -337,7 +436,7 @@ VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98509.jpg" />
 </div>
 
 
@@ -370,7 +469,7 @@ magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98510.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98510.jpg" />
 </div>
 
 
@@ -394,7 +493,7 @@ magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98512.jpg" />
 </div>
 
 
@@ -418,7 +517,7 @@ magnet:?xt=urn:btih:4F1357D91C9570B9B8E433BB5D0473D6EAF8BA03
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98513.jpg" />
 </div>
 
 
@@ -442,7 +541,7 @@ magnet:?xt=urn:btih:99A954216A088D1CB6C57C724898A914AB68C351
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98514.jpg" />
 </div>
 
 
@@ -470,7 +569,7 @@ magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98515.jpg" />
 </div>
 
 
@@ -498,7 +597,7 @@ magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98516.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98516.jpg" />
 </div>
 
 
@@ -524,7 +623,7 @@ magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98519.jpg" />
 </div>
 
 
@@ -548,7 +647,7 @@ magnet:?xt=urn:btih:3AA83C410AFAF8C5387878F601D2B844B6DB02B1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98520.jpg" />
 </div>
 
 
@@ -576,7 +675,7 @@ magnet:?xt=urn:btih:DC55A726118716AA2C3E73A152EA068B8303990F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98522.jpg" />
 </div>
 
 
@@ -604,7 +703,7 @@ magnet:?xt=urn:btih:910CD88D6CF66204D97D83B01D6C73CBC5A4770F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98523.jpg" />
 </div>
 
 
@@ -615,96 +714,6 @@ magnet:?xt=urn:btih:910CD88D6CF66204D97D83B01D6C73CBC5A4770F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010A5BDA74FD8C01867F7D58C4CD5D2908D82E5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477231   (98524) от 03.04.2012
-
-Najee - My Point of View (2005) [FLAC|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98524.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sidewayz (5:34)
-2.3 A.M. (5:12)
-3.Fallin' in Love with You (5:09)
-4.Back in the Day (4:37)
-5.Charm (3:30)
-6.My Point of View (4:40)
-7.2nd 2 None (3:50)
-8.Emotional (4:03)
-9.How Lovely You Are (5:16)
-10.Miyuki (3:55)2005Жанр: Jazz, Smooth JazzПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477492   (98525) от 03.04.2012
-
-Sumatra PDF 2.0 Final + Portable [Мульти, есть русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — это программа для просмотра файлов в формате PDF с минималистическим интерфейсом и только самыми необходимыми функциями. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Название программы: Sumatra PDFЯзык интерфейса: Мульти, есть русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477232   (98526) от 03.04.2012
-
-VA - Club Mix (2012) [MP3|256 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youlee - Ohne Dich (Ole van Dansk Remix)
-02. Ole van Dansk - Mary's Prayer
-03. Aboutblank & KLC feat. DJ Bo - Gansehaut (Im 7. Himmel)
-04. EDX feat. Sarah McLeod - Falling Out Of Love (Justin Michael Mix)
-05. Brooklyn Bounce - Canda
-06. Cosmic Gate & Arney - Sometimes They Come Back For More
-07. Michael Mind Project - Rio de Janeiro
-08. Mike Candys & Evelyn - Around The World
-09. ATB with Amurai feat. Melissa Loretta - Heartbeat
-10. Kamil Esten - Sunrise (Reminder Remix )(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1EC29A0C47A5B6A1280D5F3E5B045D46627C7FC
 ```
 
 

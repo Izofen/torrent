@@ -1,3 +1,75 @@
+###  Публикация: 1695837   (120146) от 30.01.2024
+
+Maxthon Browser 7.1.8.6001 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxthon Browser — многофункциональный браузер со множеством встроенных полезных возможностей. , качественное отображение HTML5, безопасность серфинга, многоплатформенность. Кроме того, вы можете воспользоваться функцией облачной синхронизации и войти в систему под одной и той же учетной записью на нескольких устройствах, чтобы без проблем обмениваться данными между (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05024F0118B5230A75ADB67083D06A29A229DAD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695763   (120147) от 30.01.2024
+
+Когда его совсем не ждёшь (2014) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120147.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Сони есть всё, кроме главного женского счастья - ребёнка. Уже много лет героиня с мужем Алексеем пытаются изменить это, но все их попытки тщетны. Наконец, пара решается прибегнуть к дорогостоящей процедуре искусственного оплодотворения. Но неожиданно в жизнь Сони приходят страшные перемены. Выясняется, что у её мужа есть внебрачная дочь, о которой он не знал. (   Читать дальше...   )Производство: Россия, кинокомпания "Русское"Жанр: мелодрамаРежиссер: Екатерина Гранитова-ЛавровскаяАктеры: Ирина Горячева, Александр Ефимов, Анна Уколова, Алина Доценко, Анна Арланова, Алексей Фатеев, Петр Баранчеев, Натали Старынкевич, Андрей Заводюк, Михаил Кузнецов и др.Субтитры: отсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3D356942B83EA317AFEE42A840544E76FBAF17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695811   (120148) от 30.01.2024
+
+Синяя бездна 2 / 47 Meters Down: Uncaged (2019) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассница Саша с нетерпением ждала выходных, чтобы оторваться с подругами, но родители наказали ехать вместе со сводной сестрой Мией на водную экскурсию. Решив, что перспектива провести несколько часов на корабле с вредными одноклассницами, которые постоянно задирают Мию, их не прельщает, сёстры с подругами Саши отправляются исследовать подводную пещеру. Но (   Читать дальше...   )Производство: США, Великобритания / Entertainment Studios Motion Pictures, thefyzzЖанр: ужасыРежиссер: Йоханнес РобертсАктеры: Софи Нелисс, Корина Фокс, Бриэнн Тджу, Систин Роуз Сталлоне, Брэк Бэссинджер, Ниа Лонг, Джон Корбетт, Дави Сантос, Кайлин Рамбо, Аксель МансиллаПеревод: Дублированный (iTunes)Язык озвучки: русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CD2832164FD4814A299639CE29FAF82E5B0939
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695787   (120149) от 30.01.2024
 
 BioWare | Артбук по игре Dragon Age: Inquisition / The Art of Dragon Age: Inquisition (2014) [CBZ] [EN]
@@ -6,7 +78,7 @@ BioWare | Артбук по игре Dragon Age: Inquisition / The Art of Dragon
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120149.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ simplewall 3.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120150.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ BioWare | Артбук по серии игр Dragon Age / Dragon Age: The World
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120151.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:BAAA7EEE234CAF68CD62537A72A3ACC3011B6A48
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120152.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:6C6D8227CF8C83EBB2C82AB423C6ABC9A27CAD1B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120153.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:EC37113320474E1A0F42F2D632563ACE090F8456
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120154.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:18E60A974093F087ED4D25F8654EE23ECAE20A6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120155.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:2D0BDC9F038AFE5C5F35060FB8337895D21239E9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120156.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ Viwizard Spotify Music Converter for Mac 2.13.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120157.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ DRmare Music Converter for Spotify 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120158.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ Moog Music - Mariana 1.1.0 Standalone, VSTi 3, AAX (x64) RePack by TCD (Rev.1) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120159.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:0EC66C12B8268B776B1EA82FCADA344AA9998301
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120160.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120160.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ GoldWave 6.80 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120161.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Windows 11 Debloater 2.0.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120162.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ AOMEI Partition Assistant Standard Edition 10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120163.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ RUTUBE: видео, шоу, трансляции 28.18.2-android Mod by N3k1t4_1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120164.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Total Commander 11.02 (26.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120165.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:F573559C53E4E782F38DACB3C020FE653478378D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120166.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:61B1F1D8C9AE977AC0A5AFCE33AAB5FDDC4E45DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120167.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ WinTools.net Premium 24.1.1 (29.01.2024) RePack (& portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120168.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:16308B878080D86389D7E7CC75B6471E86242ECD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120169.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ magnet:?xt=urn:btih:1D17DA19694C9C221B990DE7ACA22A0C8ABCBCCB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120170.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120171.jpg" />
 </div>
 
 
@@ -557,79 +629,6 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:929AAA8277D89AFA8D873AFFB2E535381146535E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695750   (120172) от 30.01.2024
-
-Хэнкок / Hancock (2008) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть герои, есть супергерои, и есть Хэнкок. Обладание сверхспособностями предполагает ответственность, все знают это — кроме него. За любую задачу он берётся с душой и лучшими намерениями, спасает жизни людей — ценой нечеловеческих разрушений и неисчислимого ущерба. В конце концов, терпение общественности подходит к концу: люди благодарны своему местному герою, но (   Читать дальше...   )Производство: США / Columbia Pictures, Relativity Media, Blue LightЖанр: фантастика, боевик, драма, комедияРежиссер: Питер БергАктеры: Уилл Смит, Шарлиз Терон, Джейсон Бейтман, Джей Хед, Эдди Марсан, Дэвид Мэтти, Метрикс Фиттен, Томас Леннон, Джонни Галэки, Хейли НорманПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, Full)Продолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638D4F7E2983F065AD5FA6C57823C60C73051C4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695559   (120173) от 30.01.2024
-
-Смерть среди айсбергов / Orca / The Killer Whale (1977) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Нолан никогда не задумывался о том, какой непоправимый вред он наносит живой природе. Он просто делал то, что у него получалось лучше всего, — убивал. Выходил в море и убивал китов. Однажды он вытащил из воды самку кита. Она погибла, а вместе с ней погиб и её не успевший родиться детёныш.
-Трагедия произошла на глазах кита-самца. А косатки — однолюбы по своей (   Читать дальше...   )Производство: США, Нидерланды, Италия, Канада / Famous Films (II), Dino De Laurentiis CompanyЖанр: ужасы, триллер, драма, приключенияРежиссер: Майкл АндерсонАктеры: Ричард Харрис, Шарлотта Рэмплинг, Уилл Сэмпсон, Бо Дерек, Кинэн Уинн, Роберт Кэрредин, Скотт Уолкер, Питер Хутен, Уэйн Хэффли, Винсент Джентиле и др.Перевод: Дублированный (Ленфильм)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389DDF6695358DFEA9DD2AF8A2CAC753CF9FAAFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695814   (120174) от 30.01.2024
-
-Умнее, чем я (2023) WEBRip [H.264] (сезон 1, серии 1-5 из 5)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прожигатель жизни и мажор, сын олигарха Василий уверен, что в любой сложной ситуации его спасут папины деньги и голосовой помощник в дорогом смартфоне. Но однажды папе надоедает содержать бестолкового повесу, а глупый несчастный случай приводит к невероятному: сознание Васи переселяется в телефон, а голосовой помощник — в его тело. И именно сегодня Васе надо срочно (   Читать дальше...   )Производство: Россия / Okko Studios, МКПЖанр: фантастика, комедияРежиссер: Константин КолесовАктеры: Кирилл Ковбас, Ангелина Пахомова, Анатолий Кот, Юлия Яблонская, Мария Смольникова, Александр Стефанцов, Павел Рассомахин, Полина Райкина, София Козинцева, Антон СавватимовСубтитры: отсутствуютПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617CA66962B3FB3BB043A9EB5EBC747D614AC8C3
 ```
 
 

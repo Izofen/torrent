@@ -6,7 +6,7 @@ Shayne Malone - Turning Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107370.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Orquesta del Desierto - Orquesta del Desierto (2002) Remastered, 2023, Heavy Psy
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107371.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Olav Ajer - Slow Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107372.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Larissa Baumann - Showtime (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107373.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vi Champ - Country Boyz (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107374.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hot Lips Page - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107376.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rex Stewart - 1949 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107378.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Eve Gallagher - Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107380.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Masha Ray - Masha Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107382.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Roaring Halloween (Electro Swing 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107384.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:293FE2D19C3C4AE128602B4367DCD7F89701BBF7
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107385.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Fabulous Thunderbirds - Struck Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107387.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Death Bed Confessions Collective - DBC, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107394.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dolly Baker - All Waves (1993) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107395.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sammy Kershaw - Cross Road Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107396.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Orquesta del Desierto - Dos (2003) Remastered, 2023, Heavy Psych Sounds [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107398.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Quique Gomez and Little Charlie Baty featuring Kid Andersen and Alex Pettersen -
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107405.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Betty Booom - Booombastic (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107411.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rex Stewart - 1948 - 1949 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107416.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Louis Prima - 1937 - 1939 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107432.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Red Norvo And His Orchestra - 1936 - 1937 (2000) Classics [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107436.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107446.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lester Young With Count Basie - Classic Columbia, Okeh And Vocalion (1936 - 1940
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107455.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Helen Humes - 1948 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107460.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ James Brown & The Soul G's - Chastain Park Atlanta 1985 Live (2024) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107472.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Timi Yuro - You Are My Special Angel (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107478.jpg" />
 </div>
 
 

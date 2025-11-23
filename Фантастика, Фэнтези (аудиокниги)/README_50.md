@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16516.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AE780AED4C12E6509BA33142234BF6A5BF4CD223
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16517.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16517.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BC26F4360E7ED3E7AF447DA9E6E996747C67EC01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16518.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16518.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:813494B8CD9ED902A4BDD966158FD2647F1D53FE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16558.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:85E33965654D1A4647C0827B71647ECF86BB1BD3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16563.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16563.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:EAC32ABBDEA5C92FF8E67CF069C8C056D245F381
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16564.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ INDIGO | Фортуна дама переменчивая (Книга 11). На 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16565.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16565.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ INDIGO | Фортуна дама переменчивая (Книга 10). На 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16566.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16566.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ INDIGO | Фортуна дама переменчивая (Книга 9). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16567.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16567.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ INDIGO | Фортуна дама переменчивая (Книга 8). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16568.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16568.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ INDIGO | Фортуна дама переменчивая (Книга 7). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16569.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16569.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ INDIGO | Фортуна дама переменчивая (Книга 6). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16570.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16570.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ INDIGO | Фортуна дама переменчивая (Книга 5). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16571.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16571.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ INDIGO | Фортуна дама переменчивая (Книга 4). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16572.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16572.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ INDIGO | Фортуна дама переменчивая (Книга 3). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16593.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16593.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ INDIGO | Фортуна дама переменчивая (Книга 2). На �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16594.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16594.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:494BD3D40BFFE89AB2CA5A08695AD5236CDC3E84
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16619.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16619.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:89E3D400434F1C4E14AD66F110D1C38B7AC85223
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16659.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:24D08F0A8EBEC20745FF0BB24255F8753B420333
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16707.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:A88E5DC9CE5E60312A5536ACBBC2527FD12EF665
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16722.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16722.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7CB54ACEBD8CA73C7CC255A13ADA6F3DB08B97DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16724.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:5C831E5AB71C1242816CA871BC2B4AE9825A0BE5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16741.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:22047F3951A75B89794C8B721261147957260AF0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16745.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16745.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:DE749D480B9618C9E02672B83D9253096B2CD851
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16746.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16746.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:E06CC6E794744F551C268CDFCFEFFB14122C4A8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16747.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16747.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:4AA7AF61C38406AD048EBD3229D68FAA45C9121B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16807.jpg" />
 </div>
 
 

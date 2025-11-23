@@ -1,3 +1,54 @@
+###  Публикация: 1435184   (140109) от 29.12.2020
+
+Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.264/1080p] [MVO] [IMAX Edition]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DC Comics, DC Entertainment, The Stone Quarry, Warner Bros.Жанр: Фэнтези, боевик, приключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль, Робин Райт, Конни Нильсен, Лилли Аспелл, Амр Вакед, Кристоффер Полаха, Наташа РотуэллПеревод: Многоголосый любительский (DuoWave)Субтитры: Русские, английскиеПродолжительность: 02:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740DC97192474B46804D87AFDF583D1A63ED91C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349071   (140115) от 30.12.2019
+
+Yate 5 v5.0.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686E5C3CF65D13B657ED17DEEA566E471A310FD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195782   (140123) от 30.12.2017
 
 Wise Care 365 Pro 4.7.7.460 Final RePack by D!akov [Multi/Ru]
@@ -6,7 +57,7 @@ Wise Care 365 Pro 4.7.7.460 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140123.jpg" />
 </div>
 
 
@@ -30,7 +81,7 @@ Adguard 1.4.0 (372) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140124.jpg" />
 </div>
 
 
@@ -55,7 +106,7 @@ Telegram Desktop 1.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140133.jpg" />
 </div>
 
 
@@ -79,7 +130,7 @@ Mojosoft BusinessCards MX v.4.75 Update [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140136.jpg" />
 </div>
 
 
@@ -105,7 +156,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.0 Build 6767 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140147.jpg" />
 </div>
 
 
@@ -131,7 +182,7 @@ Adobe SpeedGrade CC 2015 (v9.1.0) RUS/ENG Update 2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140165.jpg" />
 </div>
 
 
@@ -155,7 +206,7 @@ Anvir Task Manager 9.1.7 Final RePack (& Portable) by KpoJIuK  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140181.jpg" />
 </div>
 
 
@@ -179,7 +230,7 @@ Liar - Strange Love (2012) [MP3|320 кб/с]<Electronic, Future Garage, UK Garag
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140185.jpg" />
 </div>
 
 
@@ -211,7 +262,7 @@ magnet:?xt=urn:btih:A2F4A1692BEC258D89E037F9EA553E9105F05DAF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140191.jpg" />
 </div>
 
 
@@ -235,7 +286,7 @@ New year wallpapers 2013 (16.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140192.jpg" />
 </div>
 
 
@@ -259,7 +310,7 @@ magnet:?xt=urn:btih:28ECB51CE7BFC6588A94D00516387FF446DA8797
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140198.jpg" />
 </div>
 
 
@@ -283,7 +334,7 @@ magnet:?xt=urn:btih:F7BF71E2B3FDC2BFC8E6BF11AB515BAAF6A5051A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140199.jpg" />
 </div>
 
 
@@ -308,7 +359,7 @@ IsMyLcdOK 4.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140207.jpg" />
 </div>
 
 
@@ -332,7 +383,7 @@ magnet:?xt=urn:btih:4448A8A9F9A0259F3A05B267AE15ABD803D47D39
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140213.jpg" />
 </div>
 
 
@@ -356,7 +407,7 @@ magnet:?xt=urn:btih:38FED13847D3239B72B939279482E2DE7772B54B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140218.jpg" />
 </div>
 
 
@@ -380,7 +431,7 @@ magnet:?xt=urn:btih:EDF39627A89E396323794A3C427AB40957712A8C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140220.jpg" />
 </div>
 
 
@@ -413,7 +464,7 @@ Athentech Perfectly Clear + WorkBench 3.5.6.1141 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140228.jpg" />
 </div>
 
 
@@ -437,7 +488,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.12.28 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140229.jpg" />
 </div>
 
 
@@ -461,7 +512,7 @@ Aiseesoft Video Converter Ultimate 9.2.30 RePack (& Portable) by TryRooM  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140235.jpg" />
 </div>
 
 
@@ -485,7 +536,7 @@ CleanMyMac 3.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140242.jpg" />
 </div>
 
 
@@ -512,7 +563,7 @@ magnet:?xt=urn:btih:58DD8699354301A27D22586157213D88C9622803
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140243.jpg" />
 </div>
 
 
@@ -536,7 +587,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140258.jpg" />
 </div>
 
 
@@ -560,7 +611,7 @@ MKVToolNix 64.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140264.jpg" />
 </div>
 
 
@@ -584,7 +635,7 @@ USDownloader 1.3.5.9 Portable (29.12.2017)  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140267.jpg" />
 </div>
 
 
@@ -595,54 +646,6 @@ Universal Share Downloader - это программа для скачивани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BDF503269BEB006CEF9E3A4413DA988B00B453F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679176   (140290) от 24.11.2023
-
-4K YouTube to MP3 Pro for Mac 5.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140290.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 23.11.2023Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3B0F4A4E7B17803C49F8C539964C9A3783CAAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970545   (140291) от 30.12.2015
-
-Alcohol 120% 2.0.3 Build 8426 Repack D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcohol 120% - эмулятор CD/DVD-дисков. Программа создает на жестком диске ПК пользователя образ диска с данными, аудио или видео информацией, а затем предоставляет доступ к этим данным другим программам так, словно искомый диск находится в приводе. Alcohol 120% поддерживает работу со многими форматами CD/DVD, имеет возможность работы с 31 образом одновременно, обеспечивает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA70CEBF555F6F1F37456458B26D45F15E255BD
 ```
 
 

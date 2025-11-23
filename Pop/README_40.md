@@ -6,7 +6,7 @@ Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106942.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106968.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fem Snabba - Pupiller (серия "Другие восьмидесятые") (19
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106973.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Rah Band - Orkestronique (2024) [FLAC|Lossless|WEB-DL|tracks] <synthpop, spa
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106984.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Maya Vik - Hustlebot (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Soul & Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106986.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Hot Girl Summer 2024 (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107067.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Friends - Trans Am Dancing (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107095.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107097.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107104.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:BCB93021FC070AB738D0B871385C2E26B01BD2CF
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107110.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A5BD222BB2C69996158037C26E6AF44D4E9A3EDE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107137.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Climie Fisher - 3 Albums (1988-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Sy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107139.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - NOW That's What I Call A Summer Party (2024)  4CD [MP3|320 Kbps] <Pop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107152.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - DJ Hits Vol. 133 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107157.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Billie Piper - Something Deep Inside (2020) Remaster, 2024, Virgin Records[FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107158.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - DJ Hits Vol. 131 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107207.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - DJ Hits Vol. 124 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107209.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Lovejoy - Wake Up & It's Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107216.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lovejoy - ...And It's Love! (2024) [MP3|320 Kbps] <Power Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107217.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - 100 Hits - The 70s (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107251.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Paris France Transit - 2 Albums (1982, 1983) 3LP [MP3|320 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107254.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:A20104A7F718669B8CB7D8FCEAC422EFBB581BCB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107263.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:9AE4CF40AD25E0F3CD5C5F9E7821F1507E6C92F9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107351.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:443696F70BCD197C51C314BA3D6B811B5B39C314
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107362.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - DJ Hits Vol. 112 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107391.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - DJ Hits Vol. 111 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107410.jpg" />
 </div>
 
 

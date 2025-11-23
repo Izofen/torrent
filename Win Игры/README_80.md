@@ -6,7 +6,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23169.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23169.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.7.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23189.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23189.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Enchanted Stories: Mystic Woods / Зачарованные Истории: Та�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23199.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23199.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Harmony Chronicles 3: Cat Out of the Bag / Хроники Гармонии 3: К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23201.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23201.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ai Limit (2025) [Ru/Multi] (build 17884331/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23223.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23223.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) Repack Let'sРlay [Defin
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23228.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23228.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.0.120/dlc) Repack FitGirl [Resistance
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23239.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23239.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23253.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23253.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ I Am Future: Cozy Apocalypse Survival (2024) [Ru/Multi] (1.2.0.009r) Repack Let'
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23257.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Nordhold (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23266.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23270.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ MOOD (2024) [Ru/En] (Build 17818395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23272.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23272.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23275.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.40.14/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23279.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Spirit City: Lofi Sessions (2024) [Multi] (1.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23288.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack Other s [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23340.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23343.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23346.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23355.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23355.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23356.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23356.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Empires of the Undergrowth (2017) [Multi] (1.101071/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23362.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23367.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23367.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (2.12/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23372.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (build 17836335) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23381.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.1.1.22380) Repack Let'sР
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23398.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23398.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Icebound Secrets: The Frostwood Bane (2025) [Multi] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23402.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23402.jpg" />
 </div>
 
 

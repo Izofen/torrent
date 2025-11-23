@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52885.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:03D8D8AC8A78F57607A1602CFEBF4CCDB6249A85
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52886.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:EDEF1F20D75D10ECD9037E15438C767FD116D394
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52887.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Languag
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52888.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Мужские песни-6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52889.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ DDMF - PluginDoctor 2.3.2 Standalone, VST, VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52890.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:43A5B964BE213CA3E468CF6A9BC03E190B818DCD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52891.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:43A5B964BE213CA3E468CF6A9BC03E190B818DCD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52892.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:082D82B775441691914475FE32C7F4DBB1753701
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52893.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:58A69062B8D6E0DD49FD0D80B4931BA524BA3D4E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52894.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Будущий хит - 6 (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Ша
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52895.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Chillymouse - You're My Love, You're My Life (Jason Parker X Bootmasters remix) 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52896.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Music News vol.390 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52897.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Smart Launcher 6.4 build 031 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52898.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Microsoft Windows 11 [10.0.22621.3737], Version 22H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52899.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Myth Or Reality 3: Snowbound Secrets / Мифы или реальность 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52900.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:77C824CB3330CB20905670BEBB5EE2C507E5C95D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52901.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Easy Lounge & Chill Music (2024) [MP3|320 Kbps] <Downtempo, Chillout, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52902.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:DAA51B2CEECB65A86620C1B6B47CFE8EE5FBC3E3
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52903.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:C9D010A3D74B5B901E856D281D560C2BC716D55A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52904.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:30AEB5FB05B3BD8E10DFE754B002739C821251A0
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52905.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:925E563BFC16D878B8D44761ED8056AB461C2A5F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52906.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:D2DFB3CFD62984B0625B61F3D9920F6605C95D34
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52907.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:D2DFB3CFD62984B0625B61F3D9920F6605C95D34
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52908.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:7A79622B35933183D76F834405DBA44DC0B21668
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52909.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.0 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52910.jpg" />
 </div>
 
 

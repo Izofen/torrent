@@ -6,7 +6,7 @@ Betty Harris - Soul Perfection (1969) Remastered, 2024, Sansu Records [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50465.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Alan Parsons Project - Vulture Culture (1984) Remaster, 2024, Ariola [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50966.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Deep Purple - Lazy Sod (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51022.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cher - Living Proof (2001) Deluxe Edition, 2024, Warner Music UK Limited [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51079.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51396.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51584.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Anastacia - Our Songs (2023) Gold Deluxe Edition, 2024, Stars by Edel [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51585.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hiatus Kaiyote - Love Heart Cheat Code (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51592.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51598.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51599.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Orbweavers - New Moon / Silver Moon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51601.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Guided By Voices - Strut Of Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51603.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cold Wives - Self-Titled (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <noise-rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51604.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51618.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51693.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51921.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52083.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52084.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Babbba - Cabaret Conversation (Vol 2) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52221.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Michael Schenker Group - Don't Sell Your Soul (2025) earMUSIC [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52240.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dying Wish - Flesh Stays Together (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52288.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Anthrax - Studio Albums (12 releases) (1983-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52614.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Rolling Stones - 12 X 5 (1964) Remastered, 2005, Abkco Music [FLAC 24/176.4|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52684.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52732.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Foreigner & Styx - Renegades & Juke Box Heroes - Live (2024) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52768.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52806.jpg" />
 </div>
 
 

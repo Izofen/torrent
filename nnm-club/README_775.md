@@ -6,7 +6,7 @@ Kazrog - Retro STA-LEVEL 1.0.0 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20475.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B37C209C26F1FC470C401E6DF3623BF719577F40
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20476.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20476.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alfa eBooks Manager 9.2.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20477.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20478.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20478.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A9D5CC1A6FB12DF99E7409D17F48EFE5D6B4E70E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20479.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20479.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:54BC74A40982F942EF782900AE20DBA465AC2BE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20480.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Danekoo1 - Compilation Part 2 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20481.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20481.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:55BCD0C0A5D326BC723307A0DE47593AFCAC3DBF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20482.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20482.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E8F88C531A920094D63663B6531A1BE1A1615E42
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20483.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20483.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ BlepFX - Filtrr 1.0.0 VST 3, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20484.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20484.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:A97BC4A61D4E147C156E5155C2CDFF49B2DD5635
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20485.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20485.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:E17D7E60D4F638B484964C24FFC09463F8F91377
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20486.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20486.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:75E821A65C4E291163FF2EE20D1497107FB29B2C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20487.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20487.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Sign of the Wolf - Sign of the Wolf (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20488.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20488.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:ED0215719A683500AF75FCC000053D073076C897
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20489.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20489.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.61
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20490.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20490.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E2666DAF4976D348F304547075C7CBC4727179B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20491.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20491.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:67B1A9D9CDEE3CEB69A2B10F118AF8D8C4975E65
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20492.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20493.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20493.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:88A335F7F3C8124441DB851690640B6FB0FF81D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20494.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20494.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Brassheart (2025) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20495.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20495.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:62873C2BF6CEA5B5526D4423A8369432AC27ED7F
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20496.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20496.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20497.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Vanced Tube v5.3.81.165 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20498.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:4A51162E24B35452A27030428B7356EE31288572
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20499.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20499.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:79C74A116EA7B196861CF2513A8256E19DD21CD1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20500.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20500.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FanControl V177 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123985.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PowerDirector – Video Editor v13.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124038.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Privacy Eraser Free 6.2.2 Build 4820 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124058.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Text Editor Pro 28.3.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124065.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Notepad++ 8.6.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124080.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Nucleer Coffee - My Music Collection 2.3.13.148 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124081.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Wireshark 4.2.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124087.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ AirBrush: ИИ Фоторедактор v6.0.1 Mod by ImanAlien [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124088.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Optimizer 16.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124107.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ XtraTools Professional 24.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124108.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2955 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124191.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ OneCommander Pro 3.64.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124203.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Calibre 7.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124204.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Brave Browser 1.61.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124209.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FastCopy Pro 5.4.3 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124229.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Hex Editor Neo Ultimate 7.41.00.8634 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124251.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Android Studio Hedgehog | 2023.1.1 Patch 1 #AI-231.9392.1.2311.11255304 + Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124253.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Defender Remover Portable 12.6.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124268.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ DefenderKiller 11.0.9 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124269.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Megacubo 17.3.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124282.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Microsoft Activation Scripts (MAS) 2.5 (01.01.2024) Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124307.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124320.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Opera GX 105.0.4970.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124331.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Sandboxie 5.67.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124336.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Wireshark 4.2.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124352.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Google Chrome 120.0.6099.200 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124356.jpg" />
 </div>
 
 

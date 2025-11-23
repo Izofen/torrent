@@ -1,3 +1,79 @@
+###  Публикация: 1699659   (117676) от 14.02.2024
+
+Н. А. Парфентьева | Сборник задач по физике. 10-11 класс (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник задач составлен к классическому курсу физики авто-ров Г. Я. Мякишева и др. под редакцией Н. А. Парфентьевой. Пособие предназначено для учащихся 10—11 классов.
+
+В первой части сборника представлены задачи практически по всем темам, включённым в названный курс физики, в соответствии с последовательностью изучения материала в учебниках. Вторая часть содержит (   Читать дальше...   )Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373C4256BB5129228270D1861671C4FC00DB221F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699792   (117677) от 14.02.2024
+
+Vivaldi 6.5.3206.63 include standalone [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BB2BDAAD17148ADC3E82890A79C4284A6CA85E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699781   (117678) от 14.02.2024
+
+Василий Панфилов | Россия, которую мы… (Книга 2). Детство 2 (2023) [MP3, Никита Кирдин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь продолжается, яркая и удивительная, полная новых впечатлений и приключений, от которых иногда подрагивают коленки и снятся кошмары. Но ГГ не вчерашний мальчишка-сирота, а закалённый уличный боец, встречающий опасные сюрпризы холодным прищуром синих глаз, уклоном… и левой боковой в челюсть!
+
+Осознание прошлого и тяжёлый опыт, неизбежный после жизни в трущобах, (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРесПродолжительность: 11:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A52B646B12DED87A5C29998AD7B2C616EFDADFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699780   (117679) от 14.02.2024
 
 Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji-young: Born 1982 (2019) WEBRip [H.264/1080p] [MVO]
@@ -6,7 +82,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117679.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Black Sabbath - Vienna 1989 (2020) 2 x CD, Japanese Edition, Remastered [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117680.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:63FA2323658087F641CDF986795E0E015EBA5E3E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117681.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ Polarr v6.8.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117682.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ magnet:?xt=urn:btih:FC794A00CD9DEC1446AFF0C417C33CAA01E4A9C9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117683.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ VA - The No.1 Electro Album (2012) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Elect
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117684.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ Riff Kitten - Compilation (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing H
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117685.jpg" />
 </div>
 
 
@@ -183,7 +259,7 @@ Julie London - Original Paper Sleeve Collection (1955-1969) (2010) 30CD[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117686.jpg" />
 </div>
 
 
@@ -210,7 +286,7 @@ magnet:?xt=urn:btih:BE0F213F66CC878B82DF4A4090D067195B52BA62
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117687.jpg" />
 </div>
 
 
@@ -234,7 +310,7 @@ DiskDigger 1.139.223.3793 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117688.jpg" />
 </div>
 
 
@@ -258,7 +334,7 @@ magnet:?xt=urn:btih:5AE3E770FEA72EE902F51D7AB5DE76C778CCE052
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117689.jpg" />
 </div>
 
 
@@ -285,7 +361,7 @@ magnet:?xt=urn:btih:F0CD8AE30A50C5003B504D2ED2A2A3A846F08B12
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117690.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ Winaero Tweaker 1.62.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117691.jpg" />
 </div>
 
 
@@ -333,7 +409,7 @@ magnet:?xt=urn:btih:9A58FA382CAB3B4CAD20B356E7997B69167ED3BD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117692.jpg" />
 </div>
 
 
@@ -357,7 +433,7 @@ magnet:?xt=urn:btih:5A5CCE85218E8D6D1309A41E4311E5B97C0D4FB7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117693.jpg" />
 </div>
 
 
@@ -381,7 +457,7 @@ magnet:?xt=urn:btih:650ACF470EE5613D5A5AD739B82BD34C0BFA21CA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117694.jpg" />
 </div>
 
 
@@ -405,7 +481,7 @@ magnet:?xt=urn:btih:E8F5E08AED98E28F626911FA6A3F6477117611A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117695.jpg" />
 </div>
 
 
@@ -429,7 +505,7 @@ magnet:?xt=urn:btih:CCA573F64B9D7D449DAC5B09C6AEAF1C669F7E54
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117696.jpg" />
 </div>
 
 
@@ -453,7 +529,7 @@ Tablacus Explorer 24.2.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117697.jpg" />
 </div>
 
 
@@ -477,7 +553,7 @@ magnet:?xt=urn:btih:466CDA4F8835B3923634B9D407B5AF7A0EB5650A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117698.jpg" />
 </div>
 
 
@@ -502,7 +578,7 @@ magnet:?xt=urn:btih:3C3ADB8A5FA5F0084E8C1BE24139966483B939E9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117699.jpg" />
 </div>
 
 
@@ -527,7 +603,7 @@ FurMark 1.38.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117700.jpg" />
 </div>
 
 
@@ -551,7 +627,7 @@ VA - Music News vol.341 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117701.jpg" />
 </div>
 
 
@@ -565,81 +641,6 @@ VA - Music News vol.341 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7111B916729502FF172172B6DFBBC9925B0183AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699652   (117702) от 14.02.2024
-
-Валентин Борцов | История спорта. От Древней Греции до наших дней (2023) [FB2]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортивные состязания пришли к нам из далёкой древности. Уже много тысяч лет назад, во времена каменного века, наши предки соревновались между собой в меткости, скорости, силе и выносливости. Многие наскальные рисунки, которым уже около 30000 лет, рассказывают, как это происходило тогда. Конечно, пока это были не те виды спорта, к которым мы привыкли сегодня, но (   Читать дальше...   )Жанр: Спорт , ИсторияИздательство: ЦентрполиграфФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5AABF5FF70C2FF38FCCA9730D39EB783BE1C04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699279   (117703) от 14.02.2024
-
-VA - Nu Jazz & Electro Swing compilation part 55 (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Swing House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan Palace - Mighty
-02. Riff Kitten - Fire Dance
-03. Caravan Palace - Lone Digger
-04. Kate Earl - Tongue Tied(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing HouseПродолжительность: 01:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A668213403F7B96A0F6E3BA2F17B2DD85BFD75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699653   (117704) от 14.02.2024
-
-Журнал | Render Magazine №2 (февраль 2024) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117704.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Render Magazine» - Журнал посвящен компьютерной графике, секретам, обучению и новинкам индустрии. В нем нас ждут подборки лучших по мнению редакции 2D и 3D работ, отобранных Администраторами галерей, так же нас ожидают самые яркие новости и подборка лучших работ форумного раздела. Присутствуют и эксклюзивные переводы, а так же интервью с крупными отечественными (   Читать дальше...   )Жанр: Графика и моделированиеИздательство: Render MagazineФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B90FBE243458E48685F117D16737838FB34261D
 ```
 
 

@@ -6,7 +6,7 @@ Break the Curse - Trial and Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119924.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Edge - Latency, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119932.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aron Scharfegger - Metal Face (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119935.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Home Workout - Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119945.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Sixties Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119949.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Mellow Heavy Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119951.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nazareth - Rare & Unreleased (2018) 3 x CD [FLAC|Lossless|image + .cue] <Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119964.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Invasion - Invasion (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119978.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nazareth - Singles, EPs, B-Sides & Bonus Tracks (2018) 3 x CD [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120001.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ D.A.F Band - Socialovism (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120062.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gama Bomb - Bats (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120069.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Suspect Down - Living Life Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120073.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Imagress - Sentient (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120075.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Project Arcadia - Of Sins And Other Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120098.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Inertia - The Human Element (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120101.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lynch Mob - Babylon (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120123.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wolves Reign - Human Nature (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120132.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Jan Magne Garte - Fight For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120242.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Twilight Aura - For A Better World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120244.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Indignatio - Principium (2023) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120251.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Indignatio - Principium (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120259.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Magnum - Here Comes The Rain (2024) [FLAC|Lossless|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120265.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:A66E8C675532E7D130F0928A059E512A8359620E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120302.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Eve's Bite - Blessed in Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120402.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Fionn Legacy - Rise of the Windlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120406.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Greengoat - A.I. (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Stoner Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120411.jpg" />
 </div>
 
 

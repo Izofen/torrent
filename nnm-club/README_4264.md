@@ -1,3 +1,84 @@
+###  Публикация: 596976   (131096) от 31.12.2012
+
+Sexy Girls Pack Wallpapers (30.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09C09A874A5BC18F19113DDE978AE5B6690850D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596261   (131098) от 31.12.2012
+
+VA - Подарок! (2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Изя Листин - Новогодняя
+02. Jean Roch - Music Saved My Life
+03. Alex Avenue - Sugar Baby Love (Alex Avenue & Min3 Mix)
+04. Sia - Clap Your Hands
+05. Rajaton - Voulez_Vous
+06. !DelaDap - Gipsy Kicks
+07. Иван Дорн - Стыцамэн (DJ Karabaev & DJ Agamirov Remix)
+08. Asaf Avidan & The Mojos - One Day (DJ Matuya, DJ Stuff & DJ Lupin Remix)
+09. Jolly - Hey (Tune Brothers Mix)
+10. Артур Пирожков - Я не умею танцевать(   Читать дальше...   )Жанр: DanceПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E7898FEF530E76A5887D81C29027E6E93C38DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596978   (131099) от 31.12.2012
+
+HQ Wallpapers Perfect Women (30.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12612A6BDE748A9B36BAB49D24838C4C9FF51343
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596954   (131100) от 31.12.2012
 
 Duke Robillard - Exalted Lover (2003) [APE|Lossless]<Blues>
@@ -6,7 +87,7 @@ Duke Robillard - Exalted Lover (2003) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131100.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ Duke Robillard - Exalted Lover (2003) [APE|Lossless]<Blues>
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131102.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ Speedtest от Ookla 5.2.4 Mod by LEEAPK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131104.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:440B5B6CF9173973995F70EB127EC5CF19F932EA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131105.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ magnet:?xt=urn:btih:26024AEBD1E8B1316B86CE99CD4E57C33C32E85A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131106.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Donnie B & The Hot Damn Band - Live & On Fire (2010) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131107.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ Donnie B & The Hot Damn Band - Live & On Fire (2010) [FLAC|Lossless]<Blues-Rock>
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131108.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ VA - Melodic Rock Throwback (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131109.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ Atreyu - The Beautiful Dark of Life (2023) [MP3|320 Kbps] <Alternative-Rock, Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131110.jpg" />
 </div>
 
 
@@ -251,7 +332,7 @@ Dance With the Dead - Out of Body (2013) Remastered Edition, 2023 [FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131111.jpg" />
 </div>
 
 
@@ -278,7 +359,7 @@ magnet:?xt=urn:btih:9CCB57CAB8602DA30D5B2C495CE054D52B6E693B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131112.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ magnet:?xt=urn:btih:E0059E7F0614D8EC5902AD89F9CA37EB6B2B680A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131113.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ magnet:?xt=urn:btih:F9176264B4BB3726DFA7575C6FF026BFFD4A2BCF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131115.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ magnet:?xt=urn:btih:25B17A11DAD1E8907FC96851B1FD1E745C8ABD23
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131117.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ Everdawn - Venera (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131118.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ magnet:?xt=urn:btih:FA3DB30AD23973D223FFE448006C5FB47099FCB2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131120.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ Dawn of Relic - Night on Earth (2005) [WavPack|Lossless]<Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131121.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ Don Ray Band - Lonesome Rider (2010) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131122.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ Don Ray Band - Lonesome Rider (2010) [APE|Lossless]<Blues-Rock>
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131123.jpg" />
 </div>
 
 
@@ -521,7 +602,7 @@ magnet:?xt=urn:btih:54AB239E05D20966BF9B8C946F4F91CBA0CD99D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131124.jpg" />
 </div>
 
 
@@ -545,7 +626,7 @@ magnet:?xt=urn:btih:084FDDF461004E2A400C810C148D111AE39A979A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131125.jpg" />
 </div>
 
 
@@ -569,7 +650,7 @@ magnet:?xt=urn:btih:4D71BEF183AE0CE5304E89E3622181357213AF0B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131127.jpg" />
 </div>
 
 
@@ -596,7 +677,7 @@ magnet:?xt=urn:btih:BAF06B808A73B4BF16B1C0BC7CCA04D5B1557B38
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131128.jpg" />
 </div>
 
 
@@ -610,84 +691,6 @@ magnet:?xt=urn:btih:BAF06B808A73B4BF16B1C0BC7CCA04D5B1557B38
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B8AE5FD506021B45989440E058984FB69CA55B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596977   (131129) от 31.12.2012
-
-Sexy Girls Wallpapers (30.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C374384E3C7E4054C9B19C6EC06C386E837BC14B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682600   (131130) от 08.12.2023
-
-Spirits of Fire - Embrace the Unknown (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Second Chance
-02. Resurrection
-03. Wildest Dreams
-04. Into The Mirror(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB25C629CD809EE3D251CA04284B55EE588851F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682820   (131132) от 08.12.2023
-
-Paul Reed Smith - Eightlock - Lions Roaring in Quicksand (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah (4:43)
-02. Never Give Up On Livin' (5:24)
-03. I'm Ready (3:26)
-04. Love And Happiness (5:06)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A331A76E593A751FD3ACA8B3F3C76987067BF07C
 ```
 
 

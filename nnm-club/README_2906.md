@@ -1,3 +1,86 @@
+###  Публикация: 476462   (85525) от 31.03.2012
+
+VA - Популярная поп музыка (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время и Стекло - Гармошка
+02. Анна Седокова - Такси
+03. Анастасия Приходько - Романс
+04. Simon From Deep Divas feat. Goody - Disco dancer
+05. Вика Гранд - Я Не Боюсь (Emotive Tunes Original Mix)
+06. Pitbull feat. Eila - Slow
+07. Валерий Меладзе - Потерян И Не Найден
+08. Лера Туманова (Электра) - Здравствуй
+09. Катя Чехова - Сердце Тебе В Ответ
+10. Анита Цой - Молитва2012Жанр: PopПродолжительность: 05:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A03725F3A259191860DFADEB30B49B117C7DED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476019   (85526) от 31.03.2012
+
+Вечерний Киев / Киев вечерний / Студия Квартал 95. Выпуск №2 (2012.03.30) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85526.jpg" />
+</div>
+
+
+###  Подробнее
+
+" Вечерний Киев " - это только настоящие эмоции, неподдельный смех и множество неожиданных сюрпризов.
+Ведущие проекта Владимир Зеленский и Валерий Жидков приглашают в гости известных людей самых разнообразных профессий: артистов, спортсменов, бизнесменов, политиков, архитекторов, шахматистов... Никто из гостей заранее не знает, чем для него обернется столь, казалось бы, гостеприимный визит. Предугадать сценарий развития событий в студии не может никто. И как же без звездных розыгрышей? Герои программы "вовлекаются" в самые неожиданные ситуации. Небезызвестные люди становятся "жертвами" форс-мажорных и одновременно очень забавных обстоятельств. Не обойдется в "Киеве Вечернем" без давно знакомых и полюбившихся зрителю видеоработ – пародий на известные рекламные ролики, видеоклипы, телепрограммы.Жанр: Развлекательное шоуПродолжительность: ~ 01:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA987E41F9FA5482DA3AA9C6ECA5637F0E0519DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476431   (85527) от 31.03.2012
+
+Напролом / Direct Action (2004) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние дни службы полицейского Фрэнка Гэннона стали для него настоящим испытанием. Отправляясь на заслуженный отдых, он не мог предположить, что его бывшие друзья и соратники, с которыми он прослужил много лет, являются членами коррумпированной полицейской группировки, которая занимается отмыванием грязных денег, торговлей наркотиками и убийством неугодных им людей. Их лидер капитан Стоун, узнав, что Фрэнк заподозрил неладное, пытается его подкупить.
+Однако Фрэнк твердо намерен сообщить обо всем властям и выдать известных ему участников преступной организации. Его пытаются обвинить в убийстве полицейского, после чего он вынужден скрываться от представителей правопорядка и параллельно вести собственное расследование…Жанр: БоевикРежиссер: Сидни Дж. ФьюриАктеры: Дольф Лундгрен, Полли Шэннон, Дональд Бурда, Ротафорд Грэй, Конрад Данн, Уолтер АльсаПеревод: Профессиональный многоголосыйПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C49378D7F2597AD317E8BBE272D405F58EEFD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475752   (85528) от 31.03.2012
 
 VA - Эх, Разгуляй! Весна (2012) [MP3|128 kbps]<Шансон>
@@ -6,7 +89,7 @@ VA - Эх, Разгуляй! Весна (2012) [MP3|128 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85528.jpg" />
 </div>
 
 
@@ -39,7 +122,7 @@ magnet:?xt=urn:btih:4D810A41A3A1E266780479D1E267E3DD9648824F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85529.jpg" />
 </div>
 
 
@@ -63,7 +146,7 @@ magnet:?xt=urn:btih:4E8441C646E1FC2978773E0FC5CC87AE3D0A90C2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85530.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ magnet:?xt=urn:btih:D7248FA719F4CA841053EF0DF2F802F998C1BF3A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85532.jpg" />
 </div>
 
 
@@ -111,7 +194,7 @@ magnet:?xt=urn:btih:0ABEDA4896664E5538E3FF8D546F7CEF0FD3D0DC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85533.jpg" />
 </div>
 
 
@@ -137,7 +220,7 @@ magnet:?xt=urn:btih:70EB5154B9DEBFEC2A47C611969222EEFF59B0BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85534.jpg" />
 </div>
 
 
@@ -161,7 +244,7 @@ magnet:?xt=urn:btih:6D45C07E158E168F8E02BF537AB03D2B2C33C306
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85535.jpg" />
 </div>
 
 
@@ -185,7 +268,7 @@ magnet:?xt=urn:btih:65630DD60487043E96808468543E0245AE01A7BD
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85537.jpg" />
 </div>
 
 
@@ -210,7 +293,7 @@ magnet:?xt=urn:btih:869E7A4AE0269D156A34EA01200C5B3EF37A66CC
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85538.jpg" />
 </div>
 
 
@@ -234,7 +317,7 @@ Sandra - My Favourites [2CD] (1999) [FLAC|Lossless]<Synth-Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85539.jpg" />
 </div>
 
 
@@ -267,7 +350,7 @@ CD 1: ''Remixes'' (00:47:56)
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85542.jpg" />
 </div>
 
 
@@ -291,7 +374,7 @@ magnet:?xt=urn:btih:6699E23C78B0DAF47A8E8CBAE517BC924E044FCC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85543.jpg" />
 </div>
 
 
@@ -315,7 +398,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 30.03.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85544.jpg" />
 </div>
 
 
@@ -339,7 +422,7 @@ VA - Gold Arabian Hits (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85546.jpg" />
 </div>
 
 
@@ -372,7 +455,7 @@ magnet:?xt=urn:btih:CC35722807360FD97648BD11161A4AB7B1902BAD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85550.jpg" />
 </div>
 
 
@@ -396,7 +479,7 @@ magnet:?xt=urn:btih:CC35722807360FD97648BD11161A4AB7B1902BAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85552.jpg" />
 </div>
 
 
@@ -420,7 +503,7 @@ magnet:?xt=urn:btih:AF619028E35A736694CA22B49596BF6054883180
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85554.jpg" />
 </div>
 
 
@@ -446,7 +529,7 @@ magnet:?xt=urn:btih:40E4510D869777EC7E215E31F48632478794E0A4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85555.jpg" />
 </div>
 
 
@@ -470,7 +553,7 @@ magnet:?xt=urn:btih:7139303D63F6C06D99794BD8A38368F79774E76A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85556.jpg" />
 </div>
 
 
@@ -503,7 +586,7 @@ magnet:?xt=urn:btih:CA2868C7D51B72FDE63DCCF7DFDFCA61796E8FED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85557.jpg" />
 </div>
 
 
@@ -527,7 +610,7 @@ magnet:?xt=urn:btih:B4C63E352BD693F897A2995F4CA453E5227B6D74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85558.jpg" />
 </div>
 
 
@@ -551,7 +634,7 @@ Ace Hood - Starvation (2012) [MP3|320 кб/с]<Southern Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85559.jpg" />
 </div>
 
 
@@ -579,7 +662,7 @@ magnet:?xt=urn:btih:D917089D59474C1C4C00EE4E7EADF2FBF16CFB6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85560.jpg" />
 </div>
 
 
@@ -590,92 +673,6 @@ magnet:?xt=urn:btih:D917089D59474C1C4C00EE4E7EADF2FBF16CFB6D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C20DF5DB3895CC17416A33BB92EC4A154A852CF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465127   (85561) от 31.03.2012
-
-VA - L.O.V.E. (LOVE) volume 1 - 5 [Chillout Music Collection] (2012) [MP3|320 кб/с]<Chillout, Lounge>
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85561.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ATB - Believe In Me (Airplay Mix)
-2. DJ Shah featuring Aruna - Now Or Never (acoustic Version)
-3 . Faib - Out Of Space
-4 . Idenline - Hearts Lullaby
-5 . Poets of the Fall - Where Do We Draw the Line
-6 . Roberto Sol - One Future (Chill Mix)
-7 . Blue In Green - Rainy Streets (Original Mix)
-8 . Simon Le Grec - We Will Be Free
-9 . Fenena Mijas (feat. Sandrina Middleton) - All I've Got (Hotel Balearic Mix)
-10 . 702 - You Don't Know (ENiGMA Dubz Mix)(   Читать дальше...   )2012Жанр: Chillout, LoungeПродолжительность: 04:45:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476025   (85562) от 31.03.2012
-
-Дэн Миллман | Живи осмысленно. Прямые ответы на трудные жизненные вопросы [2011] [MP3]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85562.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге “Живи осмысленно” автор отвечает на вопросы, которые интересуют почти каждого человека: взаимоотношения между людьми, финансы и работа, родительские обязанности и приоритеты, диета и здоровье, ценности и необходимость принятия решений, нравственность и духовность, сексуальность и страх, психология жизни и смерти.
-Свои ответы Дэн Миллман объединил в двадцать пять ключевых принципов этого мира, придерживаясь которых, вы раз и навсегда возьмете управление жизнью в свои руки.
-Ведя осмысленную жизнь, улучшая ее качество, укрепляя моральные и этические ценности, беря на себя ответственность за свои решения, мы вдохновляем других своим примером.
-Дэн Миллман – профессиональный атлет, чемпион мира, инструктор боевых искусств, профессор колледжа и писатель. Его книги изданы более чем на двадцати языках мира.2011Жанр: психология
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982AFCCA02BEECE2727778CA8923DDED3F6585D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476190   (85563) от 31.03.2012
-
-Садист / Bully (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бобби и Марти дружат с самого детства. Только странная у них дружба: патологический садист Бобби зверски измывается над наивным увальнем Марти. И вот однажды «тюфяк» Марти решает раз и навсегда прекратить дикие издевательства и… убить Бобби!
-
-Третий фильм легендарного фотографа и смакователя тинейджерской физиологии Ларри Кларка, чей кинодебют "Детки", спродюсированный знаменитым геем Гасом Ван Сэнтом, стал одной из самых скандальных сенсаций независимого кино 90-х годов прошлого века. Его новый фильм - яростная реконструкция убийства подростка, совершенного восемь лет назад его же друзьями; убийства, в котором никто из них не раскаялся. Жестокость, порождает, как известно, только себя саму — жертва был подонком и садистом. Кларк воссоздает историю четырех подростков буквально "на месте преступления" и с патологической аутентичностью, которой он прославился ещё в своей ипостаси фотохудожника.Жанр: Триллер, Драма, КриминалРежиссер: Ларри Кларк /Larry ClarkАктеры: Брэд Ренфро, Бижу Филлипс, Рэйчел Майнер, Ник Сталь, Майкл Питт, Лео Фицпатрик, Келли Гарнер, Дэниэл Франзиз, Натали ПолдингПеревод: Многоголосый закадровыйПродолжительность: 01:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70053F3ECD601982EA2ED945F3DB936AA756633
 ```
 
 

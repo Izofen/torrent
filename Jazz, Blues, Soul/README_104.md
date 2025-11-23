@@ -6,7 +6,7 @@ Mark Dillon - T.A. Vern's (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118911.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Emanuel Casablanca - Strung Out On Thrills (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118913.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Threestyle - No Matter What (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118914.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sean Riley & The Water - Stone Cold Hands (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118917.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The CrossRoadBand - Reload (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118918.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bubba Henry - It Is What It Is (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118924.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bourbon Street Revival - Bourbon Street Revival (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118925.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118928.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118934.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Funky Bluester - Expensive & Dirty (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118937.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Acid Jazz Funk Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118940.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Donald Byrd & Gigi Gryce - Jazz Lab (1957) 2014, Sony Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119069.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rugburn - Moon Dive (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119290.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Art Blakey & The Jazz Messengers - Straight Ahead (1981) 1990, Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119296.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Brian Tarquin & Heavy Friends - Beyond The Warrior's Eyes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119309.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ New York Jazz Ensemble - Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119310.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Joe Pass - Virtuoso In New York (1975) Victor Entertainment [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119311.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Joe Pass - Meditation: Solo Guitar (1992) 2002, Pablo Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119315.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119316.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lucio Sanchez (Sánchez) - De Buena Madera (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119318.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Randy Stark - At the Tower (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119320.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2A5A99FF3D009F9836EC07148622186328D71B57
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119330.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Love Music Zone - Sexy Valentine’s Day 2024 [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119347.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Art Blakey & The Jazz Messengers - Cu-Bop (1957) 1989, Fresh Sound Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119430.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Abdullah Ibrahim & The NDR Big Band - Ekapa Lodumo (2001) Tiptoe [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119434.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Anita O'Day - Live At Ronnie Scott's (1986) Wadham [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119437.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38521.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:20AABE129A9533C58EA2FE5F1EDA3CF03852AD4F
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38522.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38523.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EC2193E3DF8DC0FE377E82E7DB91922E105FA501
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38524.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:04A504E45424C5CA5DA195D5254F21F2958DAC7C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38525.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4F93B1BE70DECD5DAFBF52EC3E92B92E709ADF84
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38526.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:12794DE187701A18C90E96E63E08A326DB22CD92
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38527.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:26C1684061C69A39DDD4DAB53D5B7817A422B909
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38528.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:BF1053FF905720D64F2E79D8E6C1CC621ACD3383
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38529.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38530.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:BA87C76B26BF8B6980442EB09A44B168AD5AA1F2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38531.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:BB8A43B47FFAD46B1DD34F4EFBA0E9D03AA8110B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38532.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F69B093F363F684968047F1E5EF742CE97590D49
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38533.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38534.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:D3C5D07F290A0D0F62D4A65556CE94CE9E3D0A79
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38535.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38536.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38537.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Topaz Gigapixel AI 8.0.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38538.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:77534E167802E55F6FD10EF15CBF091805BD8C2D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38539.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ GFI Kerio Control 9.4.4 build 8434 [x86_64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38540.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:FBB6F87A88C2488D8113259578E02AD1A0EC0E9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38541.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38542.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Disco Inferno 70s 80s (2024) [MP3|320 Kbps] <Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38543.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38544.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38545.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:6D8158E9FB9CDFAC936C33E85EB176800F453E09
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38546.jpg" />
 </div>
 
 

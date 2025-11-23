@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69908.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Djabe & Steve Hackett - Freya Arctic Jam (2025) [FLAC 16/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69909.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:D438471EF66A88874BE73DD6C862166B62C0C56F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69910.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:559E394230A06527001599C30FDE0DC328918DFC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69911.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:92C7824F50DD1B63C198FF2C2D478E144847E376
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69912.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:1187DD9CB299791A05AE9608D3270F46B949EFCE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69913.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3D2E60F6C84846F0D985EA3E7A4AFFC7E5639A72
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69914.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:3BB68955D67D8F3FC0B90551D58BF54DD3634988
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69915.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ MC5 - Back In The USA (1970) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69916.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:3A347DB9739B51E84BD9D722FD8F584859A4EE14
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69917.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Odin - Las Puertas Del Destino (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69918.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:62BF6ED243F0A94CA613E5E507FC507DCF7FD147
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69919.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Gleb Kolyadin (Глеб Колядин) - Mobula (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69920.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Silent Stream of Godless Elegy (SSoGE) - Studio Albums (9 releases) (1996-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69921.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:949EE514903372029284757FEB44927B32FD143B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69922.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Janus - Gravedigger Hybrid (2006) Version, 2025, M.i.G [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69923.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - One Shot '80 Volume 3 (1999) [OGG Vorbis|480 Kbps] <Synth-pop, Disco, Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69924.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:9451AA592947AECCD84C75EA93DFCA1B9C0B4E5A
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69925.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ringo Starr - Look Up (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69926.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:70B055AF06C83B2E0755D8F96A44BB959E0AFFF5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69927.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:A2C0EE75A82963072BC53B169482E7A075B2A836
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69928.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gillan - The Japanese Album (1978) Deluxe Edition. 2025, Edsel [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69929.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Imagine 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69930.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ iSenin - Исповедь (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69931.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Marko Hietala - Roses From The Deep (2025) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69932.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:FEA4176CA2D87235FF06733339A330AF285946C9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69933.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Радио новинки 2024, Часть 3 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108945.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Русская 30 хитов (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108958.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Радио новинки 2024, Часть 4 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108972.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Русская 30-ка хитов 2 (Новые русские песни) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109011.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Русская 30-ка хитов 4 (Новые русские песни) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109033.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Шансон премьера 2023 октябрь (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109056.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Шансон премьера 2023 декабрь (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109269.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Шансон премьера 2023 ноябрь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109297.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Шансон премьера 2023 сентябрь (Новые песни.
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109585.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Шансон премьера 2023 май (Новые песни. Новы�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109887.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Шансон премьера 2023 июль (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109895.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Шансон премьера 2023 июнь (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110105.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B2FF96872536D9821E864AAC7E524018012621A8
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110221.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Шансон премьера 2024 апрель (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110282.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:2497BF204E395818DB00842AB3DCD8BE2C54822B
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110320.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:C002AA9C1C30D9BFB2617D0D9475BADD762C4414
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110579.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:CB47834FEF0A199BBF241A765C2BC93D627FC68B
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110580.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F68502659929E88C86D29677C73D45FDDCF87367
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110870.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:AC839CC01D35FA2627019B69EA04661AF73ABB78
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111191.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E0838EF356ED3EA3C04D0FC314673A927A2743B2
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111395.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:151BD6D1C24DB9D8AA20F022CB3928924C7D5899
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111464.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:483757DA94969360E89E27151E6037CAD90B8D78
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111465.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:A4231CE5A14F523ABEA324E862271894A5E5C63C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112533.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:C85A1568B2676AEB7A371FBB0DB1D1FD3C37D00E
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113039.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:70C54891CA0528849B978567A67506064E58A5F3
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113040.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:8BD5D7DFF58B8A1CBA7E0E3F1C7705CE35BF4E2D
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113320.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Photo Lab PRO v3.13.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111099.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RegCool 2.004 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111101.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Glary Tracks Eraser 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111103.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Speedtest от Ookla 5.3.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111120.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PowerDirector – Video Editor v13.4.1 b2404191 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111152.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PhotoRoom v4.9.4 b1364 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111176.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fort Firewall 3.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111196.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Icecream Screen Recorder Pro 7.40 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111204.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Perfectly Clear WorkBench 4.6.0.2655 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111207.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Nitro Pro 14.23.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111209.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ByClick Downloader Premium 2.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111211.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ ToonMe v0.7.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111213.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WinTools.net Premium 24.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111215.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ DiskDigger 2.0.1.3907 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111219.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.35 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111234.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111235.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ CudaText 1.213.0.1 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111246.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Mozilla Thunderbird 115.10.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111254.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Calibre 7.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111255.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Malwarebytes Windows Firewall Control 6.9.9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111257.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ YT Downloader 9.7.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111259.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Brave Browser 1.65.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111267.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Q-Dir 11.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111282.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Waterfox Current G6.0.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111284.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Firefox Browser 125.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111296.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Firefox Browser 125.0.1 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111297.jpg" />
 </div>
 
 

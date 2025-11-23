@@ -1,3 +1,75 @@
+###  Публикация: 430775   (84002) от 23.03.2012
+
+Ходячие мертвецы / The Walking Dead (Сезон 2 полный (13)) (2011) WEB-DLRip (LostFilm)
+
+>>След.
+>>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84002.jpg" />
+</div>
+
+
+###  Подробнее
+
+После страшной болезни, превратившей жителей Земли в зомби, небольшая группа пока еще живых людей изо дня в день борется за выживание в новом, враждебном мире. Под предводительством бывшего полицейского Рика они ищут безопасное для жизни место, но зомби — это не самое страшное, что их ждет, основная опасность — это жестокое внутреннее соперничество среди выживших.Производство: США, AMCЖанр: Ужасы, триллер, драмаРежиссер: Фрэнк Дарабонт, Эрнест Р. Дикерсон, Гай ФерлендПеревод: Профессиональный многоголосый закадровый - LostFilmПродолжительность: пилот 01:02:54, остальные ~ 45:00 мин серия
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472292   (84005) от 23.03.2012
+
+Призрачный гонщик 2 / Ghost Rider: Spirit of Vengeance (2011) HDTVRip [звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается на задворках Восточной Европы, где главный герой Джонни Блэйз безуспешно пытается справиться со своим проклятием. Его принимает на работу некая секта, которая пытается заполучить дьявола в тот момент, когда он пытается вселиться в тело его смертного сына на дне рождения мальчика.Жанр: Фэнтези, Боевик, ТриллерРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Николас Кейдж, Кирен Хайдз, Виоланте Плачидо, Джонни Витуорт, Кристофер Ламберт, Идрис Эльба, Фергус Риордан, Спенсер Уидлинг, Сорин Тофан, Яцек КоманПеревод: Дублированный (звук с TS)Язык субтитров: корейскийПродолжительность: 01:35:32
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472118   (84006) от 23.03.2012
+
+Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сохраняя все лучшие традиции серии, Battlefield: Bad Company 2 предлагает вниманию поклонников игры массу новых интересных возможностей.Сражаться предстоит в самых разных условиях: в заснеженных лесах и непроходимых джунглях, в жарких пустынях и неприступных горах, что предполагает использование соответствующей тактики. Также игроки смогут реализовывать уникальные тактические приемы, применяя в бою новые виды техники, включая вездеход (ATV) и транспортный вертолет UH-60. Кроме того, в проекте представлены широкие возможности для модификации техники и различных устройств, что существенно расширит число доступных комплектов снаряжения, оружия и боевых машин.Благодаря усовершенствованиям, внесенным разработчиками в уникальный графический движок Frostbite, в игре использованы современные визуальные эффекты, реалистичная система повреждений.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F10505F13EA6E253CD4D7B15607C0B3CC5CB2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472334   (84007) от 23.03.2012
 
 Казак (2011) SATRip
@@ -6,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84007.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Angry Birds Space {1.0.0} (L) [En] 2012 | THETA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84008.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:07029AF4C52EC457D31F281A408A75A9FE8FF77F
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84009.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Battlefield Vietnam [En/Ru] (P) 2004
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84010.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (Lossless RePack) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84011.jpg" />
 </div>
 
 
@@ -136,7 +208,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 SP1 WPI Boot by OVGorskiy® 20.03.2012 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84012.jpg" />
 </div>
 
 
@@ -169,7 +241,7 @@ Q: Загадка женщины / Q (2011) DVDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84013.jpg" />
 </div>
 
 
@@ -193,7 +265,7 @@ CodeVisionAVR V2.05.3 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84014.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ CodeVisionAVR включает в себя следующие компонент
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84016.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ CodeVisionAVR включает в себя следующие компонент
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84017.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ CodeVisionAVR включает в себя следующие компонент
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84018.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ CodeVisionAVR включает в себя следующие компонент
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84019.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ magnet:?xt=urn:btih:CF8D27ED2ADD7419DB7B3CA4F6EB324B64787197
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84020.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:10024C2FA43979DC154AC351B895A090321897C1
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84022.jpg" />
 </div>
 
 
@@ -382,7 +454,7 @@ magnet:?xt=urn:btih:1889F3AD2BEF3D771A558AAC07E0AEAF3C76B006
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84025.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ magnet:?xt=urn:btih:BB3839FF1668313302CACC92C7AE6302090EB2D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84028.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84029.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ VA - Electro Life 16 (by ZiP) (2012) [MP3|256-320 kbps] <Electro House, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84031.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ VA - Seventy Dubstep - Electronic Essentials (2012) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84034.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ VA - Trance Top 100 Vol 12 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84040.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:82DB8FA2B8F8E2B01474F20871C420B2DFEC1C83
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84041.jpg" />
 </div>
 
 
@@ -585,7 +657,7 @@ VA - Progressive House. The Best World Club Music (2012) [MP3|192 кб/с]<Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84043.jpg" />
 </div>
 
 
@@ -618,7 +690,7 @@ magnet:?xt=urn:btih:839094FDF92C20875AF9B58A046865EE07857CCF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84044.jpg" />
 </div>
 
 
@@ -630,78 +702,6 @@ magnet:?xt=urn:btih:839094FDF92C20875AF9B58A046865EE07857CCF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2D32CFA50A60F7D3A297A20DDFB7EA650B8855
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472469   (84046) от 24.03.2012
-
-Джеймс Грейди | Шесть дней Кондора [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BD89A6A0419CF692E34B2F0DE6D8914ABFB4ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472455   (84048) от 24.03.2012
-
-Дуэт / Стихи Ахматовой и Цветаевой читает Михаил Козаков (1999) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Козаков читает стихи Анны Ахматовой и Марины Цветаевой.Жанр: поэзияРежиссер: Людмила ХмельницкаяПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472937   (84049) от 24.03.2012
-
-Прожекторперисхилтон. Сезон 4. Выпуск 23(123) (23.03.2012) DVBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84049.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED5D0B9DFDD1D9A87934A30F121F51091145E69
 ```
 
 

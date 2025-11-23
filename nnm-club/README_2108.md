@@ -6,7 +6,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55173.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:546F971135D137A2B42AE246A127D5B1A99F8832
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55174.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Galacticare (2024) [Ru/Multi] (1.0.3b/dlc) License GOG [Placebo Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55175.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7C0E81D2464DD3F60A1CC2D68ED8DEAE9C6B8FE0
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55176.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ TasteMaker: Restaurant Simulator (2021) [Multi] (1.0.3) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55177.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:CE6C1DD1E4E4500329F51437FB32BEAC564C9A2E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55178.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C5AECE6EACF97EACB7C0CDF00AC99466D05E4DFC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55179.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Wondershare UniConverter 15.5.9.86 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55180.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:042E48C5DCC185D0C366AE8371C03DF3DDD3F92B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55181.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:49D755D3FD66D80F5BE3757A3704F5AEB09057B8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55182.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:04430F2A55293D8B010912FECA60418864097556
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55183.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:0893269B12426C345E13835EEC543DCB03BA0AB4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55184.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:A6BC5BAF3B92E7574153A049E1E44E16427C3E23
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55185.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:507E4193BFED751605027AFAC9B13398D90EA7D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55186.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:507E4193BFED751605027AFAC9B13398D90EA7D0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55187.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Music News vol.381 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55188.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:1549BD0B5F65903ADC6BFCA2F4A581A80C83CE03
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55189.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:1AD8267F490C273591903ED8EA189436ACC87344
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55190.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:4753844A4C35B5FE282E4BCA21430E94B70A7405
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55191.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ EzPing 2.1 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55192.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:9BC1BDEE8802975F6B1343860ED394CC183C8040
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55193.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C97983F4DB9D5AD675D52337803E324482C37BAC
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55194.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A7A38BD8F0DAF73CE581FA6D1D86FB92CB85F89D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55195.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Balabolka 2.15.0.870 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55196.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:45E8D729C0557ED397F254AD4B25DAB7B0513CAB
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55197.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ HomeBank 5.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55198.jpg" />
 </div>
 
 

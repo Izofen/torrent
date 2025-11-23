@@ -1,3 +1,79 @@
+###  Публикация: 1703541   (115050) от 29.02.2024
+
+Suldusk - Anthesis (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Dark, Folk Metal, Neo Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astraeus (1:53)
+02. Verdalet (4:23)
+03. Crowns Of Esper (6:15)
+04. Crystalline (5:48)(   Читать дальше...   )Жанр: Atmospheric Dark, Folk Metal, Neo FolkПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0785053C5CB26AA4149D81B9ECED39F0C20E959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699910   (115051) от 29.02.2024
+
+Взрыв тишины / Blast of Silence (1961) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это низкобюджетный фильм, в котором вы увидите мастерски проработанный портрет наемного убийцы, выполняющего задание в Манхэттене во время Рождественских праздников.Производство: США / Magla ProductionsЖанр: триллер, драма, криминалРежиссер: Аллен БаронАктеры: Аллен Барон, Молли МакКарти, Ларри Таккер, Питер Эйч. Клуне, Дэнни Миэн, Ховард Манн, Чарльз Крисап, Билл ДеПрато, Мильда Меменас, Джо БуссикоПеревод: Одноголосый любительский (Александр Воронов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C0FB81208CAA81D8469071D1C437F7B4FB2669
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703572   (115052) от 29.02.2024
+
+XnConvert 1.100.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115052.jpg" />
+</div>
+
+
+###  Подробнее
+
+XnConvert - бесплатная кроссплатформенная утилита для конвертации и обработки цифровых изображений и снимков.
+Программа позволяет пользователю работать более с чем 500 графических форматов, включая JPEG, TIFF, PNG, GIF, RAW-форматы, WebP, OpenEXR, а также осуществлять регулировку яркости, контрастности и гаммы изображений, изменять размер, применять фильтры и разнообразные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF1EDCB2F95AD21DEE3807FC966DCFAB8EAE608
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703532   (115053) от 29.02.2024
 
 Adobe Bridge 2024 14.0.2.191 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +82,7 @@ Adobe Bridge 2024 14.0.2.191 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115053.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115054.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:617398F17888B421C1480507AC37E1C59C1C3B40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115055.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ magnet:?xt=urn:btih:617398F17888B421C1480507AC37E1C59C1C3B40
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115056.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115057.jpg" />
 </div>
 
 
@@ -130,7 +206,7 @@ Serif Affinity Photo 2.4.0.2301 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115058.jpg" />
 </div>
 
 
@@ -154,7 +230,7 @@ LibreOffice 24.2.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115059.jpg" />
 </div>
 
 
@@ -178,7 +254,7 @@ magnet:?xt=urn:btih:8F06645B29C225392E79CFEDF67B2EAAAE7109DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115060.jpg" />
 </div>
 
 
@@ -202,7 +278,7 @@ Tails 6.0 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115061.jpg" />
 </div>
 
 
@@ -226,7 +302,7 @@ magnet:?xt=urn:btih:4A55DBAC3E1443FC24496A42C1C3DD2895890AF9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115062.jpg" />
 </div>
 
 
@@ -250,7 +326,7 @@ Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115063.jpg" />
 </div>
 
 
@@ -274,7 +350,7 @@ Visual Studio Code 1.87.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115064.jpg" />
 </div>
 
 
@@ -298,7 +374,7 @@ magnet:?xt=urn:btih:F6D566C3E0A994C126F7CD0449391C30C6C86F1D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115065.jpg" />
 </div>
 
 
@@ -322,7 +398,7 @@ magnet:?xt=urn:btih:33CFFE3890F9B1123FB5D8C893DE047E909C71F9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115066.jpg" />
 </div>
 
 
@@ -349,7 +425,7 @@ magnet:?xt=urn:btih:BEBC3B58AD6E6DB9FE834D19748206D60A2985E8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115067.jpg" />
 </div>
 
 
@@ -373,7 +449,7 @@ Windows 11 Manager 1.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115068.jpg" />
 </div>
 
 
@@ -397,7 +473,7 @@ magnet:?xt=urn:btih:ED859CA3B4337915C316340EA5C078071273AAB2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115069.jpg" />
 </div>
 
 
@@ -423,7 +499,7 @@ magnet:?xt=urn:btih:E234A03CF2A25A075CBDFD148F175BA79DCA141F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115070.jpg" />
 </div>
 
 
@@ -447,7 +523,7 @@ WinRAR 7.00 Final Portable by FC Portables [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115071.jpg" />
 </div>
 
 
@@ -471,7 +547,7 @@ magnet:?xt=urn:btih:F73D34A72C0F23F15D0E38E31B70DFB608169C0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115072.jpg" />
 </div>
 
 
@@ -495,7 +571,7 @@ magnet:?xt=urn:btih:F73D34A72C0F23F15D0E38E31B70DFB608169C0D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115073.jpg" />
 </div>
 
 
@@ -519,7 +595,7 @@ R-Drive Image System Recovery Media Creator 7.2 Build 7200 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115074.jpg" />
 </div>
 
 
@@ -543,7 +619,7 @@ magnet:?xt=urn:btih:152DDC636B1B69725BD77E4D5888A0FB9675F4B4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115075.jpg" />
 </div>
 
 
@@ -554,78 +630,6 @@ magnet:?xt=urn:btih:152DDC636B1B69725BD77E4D5888A0FB9675F4B4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:360C3C14E59EBFFDCB185F93E10C58A9B078A8AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703466   (115076) от 29.02.2024
-
-AIDA64 Extreme Edition 7.00.6751 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115076.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F21A684DCB91CB403202A8E1DE6815A3D5B5E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703603   (115077) от 29.02.2024
-
-Reg Organizer 9.40 (24.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B200A1A2FAB95F5F4D48E68D52C9BDF3DDF8ACA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703457   (115078) от 29.02.2024
-
-Криминальное прошлое / Criminal Record (2024) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-8 из 8) HDRezka, TVShows, RuDub
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект «Криминальное прошлое» из восьми серий описывается как триллер в поисках правды. Местом действия сериала стал современный Лондон, где двое детективов после анонимного телефонного звонка в участок берутся за расследование давнего убийства. История весьма интересна, ведь она затрагивает жизни двух полицейских из абсолютно разных слоев общества. С одной стороны, (   Читать дальше...   )Производство: Великобритания, США / STV Productions, Tod ProductionsЖанр: триллер, драма, криминалРежиссер: Джим ЛоучАктеры: Питер Капальди, Каш Джамбо, Айша Кала, Dionne Brown, Шон Дули, Tom Moutchi, Чарли Крид-Майлз, Стивен Кэмпбелл Мур, Джордан А. Нэш, Кэти ТайсонПеревод: Многоголосый профессиональный (HDRezka, TVShows, RuDub)Язык озвучки: Русский, английскийСубтитры: Русские (full, SDH), английские (full, SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33DD5F0F1F392A4FD2B10EEFAF111CF5765526A
 ```
 
 

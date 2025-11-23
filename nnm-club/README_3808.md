@@ -1,3 +1,75 @@
+###  Публикация: 1676112   (118690) от 08.02.2024
+
+Пила 10 / Saw X (2023) WEB-DL [H.265/2160p] [HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Крамер отправляется в Мексику на экспериментальную операцию, надеясь излечиться рака, но в результате выясняет, что это всего лишь мошенничество и обман отчаявшихся больных. Тогда мужчина решает покарать мошенников в своём фирменном стиле — при помощи хитроумных жестоких ловушек.Производство: США, Мексика, Канада / Lionsgate Productions, Aldea M EstudiosЖанр: ужасы, триллерРежиссер: Кевин ГротертАктеры: Тобин Белл, Шоуни Смит, Сюннёве Макоди Лунд, Стивен Брэнд, Рената Вака, Джошуа Окамото, Октавио Инохоса, Паулетта Эрнандес, Хорхе Брисеньо, Костас МэндилорПеревод: Дублированный (укр. неофициальный - HDRezka Studio), профессиональный многоголосый (укр. 15К3 / Megogo)Язык озвучки: украинский, английскийСубтитры: украинские (forced), английские (forced, full, SDH)Продолжительность: 01:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC45562AEAF570671479260A863807E12F8BE3AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654476   (118691) от 08.02.2024
+
+Сборник | «Фантастический боевик. Новая эра» [93 книги] (2021-2024) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник посвящен военной фантастике, в него входят книги из одноимённой книжной серии, а так же другие книги похожей тематики. В сборник вошли произведения как новичков в этом жанре, так и уже признанных мэтров. На страницах книг вас ждут красивые описания батальных сцен, виражи альтернативной истории, попаданцы в прошлое.Жанр: Боевая фантастика, попаданцы, альтернативная историяИздательство: АСТ, СамИздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1225C1E2E820CFF8264B4F21F270235DA283AA2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698222   (118692) от 08.02.2024
+
+CleanMyMac X 4.15.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118692.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyMac X — это пакет «все в одном», который сделает ваш Mac как из кробки. Он очищает мегатонны мусора и заставляет ваш компьютер работать быстрее. Так же, как это было в первый день знакомства с Macintosh.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2024Разработчик: © 2024 MacPaw Inc.Поддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6095CDF955488533375A43811648A466E1B6A9BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698320   (118693) от 08.02.2024
 
 Крайне опасен / Wanted Man (2024) WEB-DLRip [H.264]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118693.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:12CD68E1B83A237B929F47C271DF90AAF9038D8A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118694.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:9CA47BCEB4CB4965649EF21569421E2F2ED59462
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118695.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:8F6F17CA7537F3B3F7EB01549CDE2E266ABCFD21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118696.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:8F6F17CA7537F3B3F7EB01549CDE2E266ABCFD21
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118697.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:C03DF2708A22F4058CF5512125C5F2ADAA344154
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118698.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:C23E4A111DBFC48A4FEFD7F056F391D2FADE299E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118699.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:02D55A323011AB71CD69A2E51A54145F3C92DDF2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118700.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:F51D8C31AF012A3FA89C0DE5FD04BC6586E0AB6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118701.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Microsoft по ошибке подняла системные требовани
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118702.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Microsoft по ошибке подняла системные требовани
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118703.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:4B27B3348C5935083ACE82146BB2B8A4250FB3BE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118704.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:92295E1A109757B7A9F31FDCF5CC9F1DBA22F5CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118705.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118706.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:CB6A016381036F0644F8859AE3366752A43E78C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118707.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ Avast Premium Security 24.1.6099 RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118708.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ magnet:?xt=urn:btih:75DADA6B944F5DC3A45C88AC3DC501AB889ADDE1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118709.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ The Universim v.1.0.00 42810 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118710.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ magnet:?xt=urn:btih:842E622DFFD029DD1792F81A6D023ACAEBDB7AC0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118711.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.5 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118712.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ magnet:?xt=urn:btih:5C012718F44C84977E8ECEC9E3F5F80FAC812C0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118713.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ magnet:?xt=urn:btih:2FFE0438A5B63E3C092D573CC48EB20E8507D842
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118714.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ magnet:?xt=urn:btih:0298B784663D600CA2CE8E978A18078E24B1D1CE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118715.jpg" />
 </div>
 
 
@@ -547,79 +619,6 @@ magnet:?xt=urn:btih:0298B784663D600CA2CE8E978A18078E24B1D1CE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1716DC8911B52619B5A8FF76E59EBAB3D3CD60BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697589   (118716) от 08.02.2024
-
-Hiren’s BootCD PE x64 v1.0.3 (26 January 2024) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярного загрузочного диска Hiren’s BootCD на базе Windows PE, содержащий большой набор программ для восстановления работоспособности компьютера и операционной системы. Включает антивирусные сканеры ESET и Malwarebytes Anti-Malware. Основа Hiren’s BootCD PE теперь обновлена до Windows 11 Pro версии 22H2 10.0.22621.2428, что обеспечивает более современную (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C87A9773A52C74179DB9E4901A8223EE344614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667516   (118717) от 08.02.2024
-
-Buta no Liver wa Kanetsu Shiro | Свинину надо было жарить | Разогревай свиную печень [2023, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съев сырую свиную печень, главный герой потерял сознание, а когда пришёл в себя, оказалось, что он переродился в другом мире в теле свиньи! Джесс — невинная девушкой, которая может читать мысли. Они со Свином становятся друзьями, несмотря на его похабные мысли и свои изначальные планы съесть его. Когда тьма сгущается и Джесс угрожает гибель, сможет ли Свин спасти (   Читать дальше...   )Производство: Япония, студия Project No.9Жанр: комедия, фэнтези, исекайРежиссер: Такахаси МасаюкиЯзык озвучки: Русский закадровый (Dream Cast), (КОМНАТА ДИДИ), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7E3D5D655E53AEDD8B0AC26CD9228EF34507C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697875   (118718) от 08.02.2024
-
-Форрест Гамп / Forrest Gump (1994) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сидя на автобусной остановке, Форрест Гамп — не очень умный, но добрый и открытый парень — рассказывает случайным встречным, историю своей необыкновенной жизни.
-С самого малолетства, парень страдал от заболевания ног, соседские мальчишки дразнили его, но в один прекрасный день, Форрест открыл в себе невероятные способности к бегу. Подруга детства Дженни, всегда его (   Читать дальше...   )Производство: США, Великобритания, Канада /Alcon Entertainment, Columbia PicturesЖанр: драма, комедия, мелодрамаРежиссер: Роберт ЗемекисАктеры: Том Хэнкс, Робин Райт, Гэри Синиз, Майкелти Уильямсон, Салли Филд, Ребекка Уильямс, Майкл Коннер Хэмпфри, Хейли Джоэл ОсментПеревод: Дублированный (VOIZE по заказу IVI), многоголосый (Карусель)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018BEA9437331A8845074F63B830C38D934A5602
 ```
 
 

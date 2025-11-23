@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55069.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55070.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sucker for Love: Date to Die For (2024) [En] (1.30) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55071.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55072.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:54BA8099D41DD1C67F4279A3B88AD280B69F6AE6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55073.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:54BA8099D41DD1C67F4279A3B88AD280B69F6AE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55074.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:FF8F685C48487DBF45DB744B112D57064EC98802
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55075.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3033D51FDDA5D8A341E7CE901E122B86C2DA4835
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55076.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C49EA5E6A7B0FAEEB28696806B7E2C6BFBCF3E78
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55077.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:08776ED75AE3C95028817CC45984FB0F99D00BFC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55078.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:72B9CA0A618983140F2C1AFC0E40D927272C47A3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55079.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Master PDF Editor 5.9.84 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55080.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Firefox Browser 126.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55081.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:9462E8F63075A924A6D4A2913AF44691EEFDF260
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55082.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1EB32D93B19E08BB05524BB1E689CC906AA4211D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55083.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0F406130436FDD2EDEB45BE3B6FBBDE8DD0F2DCE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55084.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:00613A5BBE16E1149A90EC8F8835AA541371E780
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55085.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:00613A5BBE16E1149A90EC8F8835AA541371E780
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55086.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:6E4D8A07BDB5D57399C33D9785C5CF683CD54C75
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55087.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:75765E4FA74204496192F4F0D269934356D8BD4A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55088.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:23F328BB2D38E92443E6D2E009BBF1D1E9E9FCC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55089.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:0013E55FDA6445B117FDD8F6A8C02F93B77A33E7
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55090.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:C1A511E7D46ED07ABA517EB8FCD9EFE32A210DC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55091.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Magic City Detective 5: The Carnival Begins (2024) [Multi] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55092.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:93E83EAC426367C434A0FFBBC13E5232F653ED6B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55093.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:717E7B1CC553D2BA37775F17F4CD7A04CCF11909
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55094.jpg" />
 </div>
 
 

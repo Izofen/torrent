@@ -1,3 +1,76 @@
+###  Публикация: 1596944   (168290) от 12.12.2022
+
+AnyGo 5.9.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168290.jpg" />
+</div>
+
+
+###  Подробнее
+
+С приложением AnyGo легко имитируйте местоположение координат GPS на вашем iPhone / iPadТип издания: macOS SoftwareРелиз состоялся: 08.09.2022Разработчик: © 2022 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CECAD38434DAE71150D7386F1FC11DBD9B08F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672623   (168295) от 29.10.2023
+
+TG Pro (Temperature Gauge Pro) 2.85 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168295.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28..2023Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF9CD09E1F6454390A687D9799BEB2E2061DE4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515873   (168297) от 08.12.2021
+
+MediBang Paint Pro 27.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168297.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сути, MediBang Paint является графическим редактором, в котором авторами реализованы классические инструменты для создания рисунков: кисть, карандаш, различные художественные элементы, приемы и фильтры. Возможности приложения позволяют превратить, в умелых руках, монитор вашего устройства в настоящий цифровой холст. Тот набор инструментов, что предлагает этот (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE86957A720D21572D892A0E63DA2E65CE54730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515229   (168298) от 08.12.2021
 
 Красотка на взводе / Jolt (2021) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
@@ -6,7 +79,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168298.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ VA - Uplifting Only Top 15: December 2019 (2019) [MP3|320 Kbps] <Uplifting Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168304.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Exposure Software Blow Up 3 v3.1.4.276 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168306.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ Rocket Typist Pro 3.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168308.jpg" />
 </div>
 
 
@@ -109,7 +182,7 @@ Cookie 7.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168320.jpg" />
 </div>
 
 
@@ -134,7 +207,7 @@ SILKYPIX Developer Studio Pro 11E v.11.0.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168321.jpg" />
 </div>
 
 
@@ -158,7 +231,7 @@ Kiwi for Gmail 2.0.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168333.jpg" />
 </div>
 
 
@@ -184,7 +257,7 @@ SILKYPIX JPEG Photography 11E v.11.2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168339.jpg" />
 </div>
 
 
@@ -208,7 +281,7 @@ BELOFF [dp] 2021.12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168341.jpg" />
 </div>
 
 
@@ -234,7 +307,7 @@ Wattagio 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168342.jpg" />
 </div>
 
 
@@ -258,7 +331,7 @@ Keep It 1.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168347.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ Cookie 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168354.jpg" />
 </div>
 
 
@@ -307,7 +380,7 @@ RAR Extractor Max-Unzip Winrar 8.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168357.jpg" />
 </div>
 
 
@@ -332,7 +405,7 @@ Blocs 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168358.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ Storyist 4 v.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168374.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ Firefox Browser 91.4.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168391.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ Coming soon 3 v.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168395.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ Firefox Browser 95.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168402.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ DxO ViewPoint 3 v3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168404.jpg" />
 </div>
 
 
@@ -478,7 +551,7 @@ FurMark 1.24.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168414.jpg" />
 </div>
 
 
@@ -502,7 +575,7 @@ Psiphon 3 build 159 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168435.jpg" />
 </div>
 
 
@@ -528,7 +601,7 @@ Auslogics Windows Slimmer 3.0.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168443.jpg" />
 </div>
 
 
@@ -552,7 +625,7 @@ Cardhop 2.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168471.jpg" />
 </div>
 
 
@@ -564,79 +637,6 @@ Cardhop 2.2.3 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94F72945491DEF09588B3E0CD2718915BEA7A6C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596935   (168473) от 12.12.2022
-
-Scrutiny 12 v.12.6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A101EDDA3728B5C5F207F678D6CD1D9C5DC14F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431174   (168475) от 12.12.2020
-
-Visual Studio Code 1.52.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9433B66467516612D10FFDF17ABF08C9645A5291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670751   (168511) от 28.10.2023
-
-Microsoft Activation Scripts (MAS) 2.4 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Активатор Windows и Office с использованием методов активации HWID/Ohook/KMS38/Online KMS с упором на открытый исходный код и меньшее количество обнаружений антивируса.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAC4140046ECAA2039B2F3F8AC592C3709ABEFF
 ```
 
 

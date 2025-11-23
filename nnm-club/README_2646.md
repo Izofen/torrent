@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69544.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:CBCC901118ACE4A15FDC260F1F689CD9D22DA62A
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69545.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:72BFE510A7FBF731B2E19B08859EEC18E11A8E26
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69546.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:45DC1C28D234B89CC449FC515DDB972778DE3717
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69547.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:731210FA95C35F952C43D836B41784EA1FC9CEDB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69548.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:401BEE760DD64A38B3876D28835DD88BD0F84943
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69549.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:9AF33F65569346CB208C93F495E66678D083AAED
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69550.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:60D439DBFA459CBF88FC96790D1B2854F9BFD834
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69551.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:7E263EF479F6E29A657C0D7125D9680B12366609
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69552.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Chick Corea - Now He Sings, Now He Sobs (1968) 2024, Universal [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69553.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:D11421191A2CC41A1B9939279E0FE49790A1B496
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69554.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Saor - Origins (2022) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69555.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69556.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Art Pepper - Straight Life: The Savoy Sessions (1986) Savoy Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69557.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:97BFAD4E79B25910A94759F237B18AD19D9D084F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69558.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:AD2495BAB4AA3B281975649B2438CBA22BCA93ED
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69559.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Jinjer - Duel (2025) [FLAC|Lossless|tracks + .cue] <Metalcore, Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69560.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:76A5B6A9B2ECC015D2F3FC00F280AE4F1F58745A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69561.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Saraya - Gypsy Child (1989) Remastered, 2025, OLD BOY [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69562.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:07725DB408358F614270B755182E78CE58A31924
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69563.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Chris Bell & 100% Blues - Blues 2001 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69564.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Leaves' Eyes - Myths of Fate (2024) Orchestral Version, 2025, AFM Records [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69565.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Tokimonsta - Eternal Reverie (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69566.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:F305D19C54C4643813EDF37C02261A0839F566C6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69567.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ The Wildhearts - Satanic Rites of The Wildhearts (2025) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69568.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Daddy Mack Blues Band - Doctor's Orders (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69569.jpg" />
 </div>
 
 

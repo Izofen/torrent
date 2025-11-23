@@ -1,3 +1,76 @@
+###  Публикация: 1675861   (159906) от 10.11.2023
+
+TG Pro (Temperature Gauge Pro) 2.86 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159906.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A3BBFA3ADA29366A2CC86B130C93FFC9D58358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675849   (159909) от 10.11.2023
+
+Fork 2.36 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и удобный клиент git. Fork с каждым днем ​​становится все лучше и лучше, и мы рады поделиться с вами нашими результатами. Список коммитов - Изменения рабочего каталога - Бок о бок Diff - Сводка и статистика менеджера репозиторияТип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 Danil PristupovПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A5196EC4E2CA5B8CBAE40997EF3F17D7C460D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675636   (159919) от 10.11.2023
+
+Aiseesoft Mac Video Converter Ultimate for Mac 10.5.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2023Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74B8EB0AF2DD0679F8B3F4815068CE8F1688F5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675855   (159931) от 10.11.2023
 
 Video Converter X2 for Mac 1.2.7 [Multi]
@@ -6,7 +79,7 @@ Video Converter X2 for Mac 1.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159931.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.2 Build 6 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159933.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Valentina Studio Pro 13.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159940.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ QLab 5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159945.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Dropshare 5 v.5.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159957.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Yate 6.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159960.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ AIDA64 Extreme Edition  6.85.6305 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159969.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ AOMEI Backupper Technician Plus 7.1.2 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159974.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Abelssoft SSD Fresh Plus 2022 11.12.43614 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159981.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.2 Build 6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159998.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:70186CFF57CB7E0D2E0CDC3B2B3CE4AF0792C54A
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160001.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:EB08F0C4353D8A4E3FB05121026347E6A56618A7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160004.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ Bandicam 6.0.5.2033 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160007.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ GPU-Z 2.52.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160025.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ Shotcut 22.12.21+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160028.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ PotPlayer 221215 (1.7.21861) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160029.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ Sublime Text Dev Build 4147 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160036.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 4.5 RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160038.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ IObit Smart Defrag Pro 9.2.0.323 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160042.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ PotPlayer 221215 (1.7.21861) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160043.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ magnet:?xt=urn:btih:BC72EDC75A8E0D3202670A2C1BEB83F1EA934BFC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160047.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ DriverMax Pro 16.11.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160051.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ Macrorit Disk Scanner 6.1.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160060.jpg" />
 </div>
 
 
@@ -553,79 +626,6 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59079DC0F10237591249D0BF11F86084231FA80A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599256   (160063) от 22.12.2022
-
-Aiseesoft HEIC Converter 1.0.26 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертировать HEIC в JPG / JPEG / PNG на Mac.
-Apple использует HEIC в качестве формата изображения на устройстве с iOS 11. Это может быть заменой формата изображения JPEG, поскольку это не снижает качество изображения, но экономит память на устройствах. Неудобно, что он несовместим с устаревшей iOS или другими платформами. JPG и PNG гораздо более совместимы, так (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2022Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12506D7849058D37BE52E89BD28650E79E066147
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599170   (160065) от 22.12.2022
-
-Advanced Installer 20.2 RePack (& Portable) by xetrin [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Installer - приложение, с помощью которого, разработчики и системные администраторы смогут без труда создавать инсталляционные пакеты в формате MSI. Программа функционирует под управлением ОС Windows 7/8/8.1/10/11, а создаваемые с ее помощью пакеты могут использоваться для развертывания приложений на платформах Microsoft Windows XP/2003/2008/2012 Server/Vista/7/8/8.1/10/11.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9064C96E2BFBFA092077697B01618B5DCE5109F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675354   (160069) от 09.11.2023
-
-Start11 Version 2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stardock Start11 – новая версия приложения для настройки меню «Пуск», на этот раз с функциями, специально предназначенными для Windows 11. Как вы, наверное, уже знаете, Windows 11 поставляется с новым дизайном меню «Пуск», вдохновленным Windows 10X, с основными изменениями, включая новое расположение на экране и отсутствие живых плиток.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C24ADF63C71039E53DF7260C5BE6F6295E58C46
 ```
 
 

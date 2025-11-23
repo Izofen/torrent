@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9877.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vanced Tube v5.4.80.193 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9878.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AED6CD7F63DDB65F28D2F0775BD20192FFB20FA8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9879.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:38761CB94697B5957EC98C7C0C7C2737D25903DF
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9880.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Moon+ Reader Pro v10.1 (b1001001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9881.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Adobe Photoshop 2025 26.9.0.15 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9882.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.38/dlc) Repack FitGirl [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9883.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3057A54703279021837C6FF4B1DB130CFC9953A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9884.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Through the Nightmares (2025) [Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9885.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9886.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Flud v1.11.6.10 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9887.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9888.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:CE15192B254B445CC16B70AC3504C2DBFB1ABF40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9889.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:B753BE077D48A584775BCB93354845CA9A01C3EA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9890.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ My TTS: Text-to-Speech v1.5.3 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9891.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:F848990BB179E5DC98DC72DFB4BE3898785F7310
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9892.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2DD605583E1711DCBC29B9E4C0BEE8766ADAD0CA
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9893.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:264CBA221B7C83120CA5DEAE1514631816FC391A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9894.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2.s.de/dlc) Repack Let'sРlay [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9895.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ WinRAR 7.13 Final [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9896.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:370A6BCD3DF65E8EE3B01CD1DBCE19C61C4CD114
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9897.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:FD81210CA64915F3AF0F815A12223315423FF38A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9898.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9899.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:BF708DA9B63C0B317C92AAC5A220AF7C63A0FDB5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9900.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:482ECE93FE920CBE069685506A3BE03C2F91AB08
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9901.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9903.jpg" />
 </div>
 
 

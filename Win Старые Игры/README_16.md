@@ -1,3 +1,75 @@
+###  Публикация: 1513201   (224502) от 28.11.2021
+
+Delta Force: Land Warrior / Отряд Дельта: Операция "Спецназ" (2000) [Ru/En] (1.00.42) License
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_224502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты служил в спецназе - гордись. Если не служил - радуйся. C помощью этой игры у тебя появилась возможность ощутить все прелести жизни бойца спецподразделения без всякого вреда для здоровья и даже наоборот! Ведь смех продлевает жизнь, а его в игре предостаточно. Вооружись как следует, учитывая, что в руках настоящего спецназовца даже табуретка является оружием (   Читать дальше...   )Тип издания: LicenseРазработчик: NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5240F170BFE33C592C95182893E7D10082D3E158
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649963   (227231) от 30.07.2023
+
+Traffic Giant (2001) [En] (1.0.0.0) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Traffic Giant - это удивительная игра-симулятор, которая выводит общественный транспорт на правильный путь. Вы управляете целым парком автобусов, трамваев, поездов метро и многим другим. Вы почувствуете реалистично функционирующее городское движение с тысячами транспортных средств и пешеходов. Вы можете спросить каждого жителя, что он или она думает и чувствует.Тип издания: LicenseРазработчик: QLOCЖанр: Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C7A51FD62C367211EBC7D16B9321B29F52F600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512883   (228082) от 26.11.2021
+
+Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры стартует, словно гоночный автомобиль. Вот мы в роли молодого ученика местной магической школы по имени Sareth ищем в какой-то пещере, забитой врагами, некий могущественный артефакт. Вот прибываем в город и буквально сразу же вступаем в схватку с гигантским циклопом, крушащим дома и пожирающим людей. Дальше - больше. Эти вот выходцы из средневекового наркодиспансера (   Читать дальше...   )Тип издания: LicenseРазработчик: Arkane Studios, Floodgate Entertainment, Kuju EntertainmentЖанр: Экшены, Ролевые игрыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556063   (230422) от 09.06.2022
 
 Ishar Trilogy (1990-1994) [En] (1.0) License GOG
@@ -6,7 +78,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230422.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230422.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231452.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231452.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231513.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231513.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231934.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231934.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233127.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233127.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233314.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233314.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233451.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233750.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233750.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234043.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234043.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236275.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236275.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236415.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236415.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236481.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236481.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237632.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237632.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241091.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241091.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242378.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242378.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246070.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246070.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ MechCommander Gold (1998) [Ru/En] (2.1.0.3/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246072.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246072.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246169.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246169.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_246580.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_246580.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ Comanche 4 / Команч 4 (2001) [Ru] (1.14) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246952.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246952.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247002.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247002.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247405.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247405.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247737.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247737.jpg" />
 </div>
 
 
@@ -545,78 +617,6 @@ Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B623F901792936E77F503324DC172A2C0A4C32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492841   (248256) от 06.05.2012
-
-Moonbase (RePack) [En] 1990 | Pilotus
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра очень детализирована - помимо добычи ресурсов, торговли и поддержки со стороны земных властей, придётся строить много зданий, следить за уровнем содержания кислорода, количеством воды и температурой на территории колонии, а также за много чем ещё... А конечная цель, как я её понял, - добиться полной независимости вашего маленького государства.Тип издания: RePackЖанр: СтратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492937   (248303) от 06.05.2012
-
-Extreme Assault [Ru] (RePack) 1997 | Pilotus
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248303.jpg" />
-</div>
-
-
-###  Подробнее
-
-В борьбе с инопланетянами, которые, как всегда, стремятся завоевать Землю, все средства хороши. В особенности если речь идет о сверхсовременной модели вертолета и танка, которыми вы и будете управлять в этой трехмерной аркаде.Тип издания: RePackЖанр: Аркада (вертолетный симулятор)Язык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493225   (248603) от 07.05.2012
-
-Shanghai Dragon [En] (RePack) 2003 | Pilotus
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рельсовый шутер, где вы попадаете в 1937 год, в Шанхай, куда только что вторглись японские аоиска. Ваша задача - противостоять японским захватчикам.Тип издания: RePackЖанр: Рельсовый трехмерный шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97340.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Counter-World Experience - Metronomicon (2009) [MP3|320 кб/с]<Progressive/Jaz
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97341.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ magnet:?xt=urn:btih:463C7E9FB6293F7D04B011457367C2544F3497D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97342.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ magnet:?xt=urn:btih:1FEB093D9E472A5A7D20A95B1FD343C888D98B3E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97345.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:E471D6F0CC8FF3D7CF27BCB93DAB63949D8D3A70
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97346.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Русский Хит - Релиз (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97349.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Super Trance (2012) [MP3|320 kbps]<Trance | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97350.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:3FBA73BCAA1429BFB79FB7949E1F99D714492336
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97357.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:0CD0FAB0E115C5E385B2F56A2F7261BDD14D22F5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97360.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Luigi Lusini - Beyond Horizons (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97363.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ministry - Relapse (2012) Scene [FLAC|Lossless]<Industrial Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97364.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97364.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA -  Зарубежный Super Хит (2012) [MP3|128 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97366.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:5CE73824F608098B0992D1FA4CAC2F8CB395AF38
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97367.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A7D0283F50C54FFB5BCEA527027EED95D84B8725
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97376.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97376.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Trance Angels  Vol 1-4 (2010-2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97379.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:6E379C15092F8837334B774FE518FC87BAA3444C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97385.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97385.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:6E379C15092F8837334B774FE518FC87BAA3444C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97391.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1E7A913238F7C5F9E0B1B9A58A15236C274E65E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97397.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:CE9DD649981DE6AA906389DF43FF6212BF2D0A0D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97399.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - XXXL Турбомодный 50/50 Весна (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97402.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:FBE11AD18E2A2E70707FFDFA6E01234033DD5045
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97406.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:AEFE6B1F2878B8AD59BB9203F8F8474C8A3FFA79
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97417.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97417.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - 100% Relax - Wildlife (2012) [MP3|192 kbps]<New Age | Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97418.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:8950B22CBC103029B26040E61CBB1A7A0945B17B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97420.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:6FF5E2F5797905ED97CCC1B44FD38EE976D35B1E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97422.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ VA - The Voice Kids - The Songs (2012) [MP3|320 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97428.jpg" />
 </div>
 
 

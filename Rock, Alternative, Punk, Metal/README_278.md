@@ -6,7 +6,7 @@ Viogression - Expound and Exhort (1991) Reissued, 2020, Hammerheart Records [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168350.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sanctuary - Sanctuary (1971) Reissue, 2022, Sundazed Music / Modern Harmonic [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168365.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Amoriello - Phantom Sounds (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168384.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Sphinx - Пески Времени (2022) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168416.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sonus Mortis - Collapse the Mountain (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168418.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Me and the Rest - Bulletproof (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168427.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Stratovarius - I Walk To My Own Song (2003) Single [OGG Vorbis|480 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168433.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mayflower - Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168437.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Domain - Last Days of Utopia (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168439.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Killakoi - Beta (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168444.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Rainwill - Zeroed By Progress (2013) [FLAC|Lossless]<Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168445.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Amoriello - Dear Dark (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168450.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Rob Arnold - Magnitude (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168462.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Shadow Warrior - Cyberblade (2020) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168465.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Amoriello - Amoriello (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168483.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Oponente - Decreciendo (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168491.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ A.R.G. - One World Without the End (1991) Remaster 2012 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168496.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ A.R.G. - Entrance (1989) Remaster 2012 [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168514.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ This Winter Machine - Kites (2021) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168609.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Cats In Space - Diamonds - The Best Of Cats In Space (2021) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168616.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Bodkin - Bodkin (1972) 3CD [FLAC|Lossless|image + .cue | tracks+.cue] <Progressi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168629.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Voice - The Storm (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168644.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Wolftooth - Blood & Iron (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168672.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Visigoth - Conqueror's Oath (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168676.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:48C58BC9A5BDEBD453C2D51EA4C87E1A9B57E9A5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168687.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Deep Purple - Extras: The Infinite B-Sides and Bonus Songs (Live) (2022) [FLAC 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168814.jpg" />
 </div>
 
 

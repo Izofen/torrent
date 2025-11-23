@@ -1,3 +1,76 @@
+###  Публикация: 1673743   (164260) от 02.11.2023
+
+Google Chrome 119.0.6045.106 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296D1D6C198BDC2D7CA5F1D9EDE0723001528F99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673577   (164263) от 02.11.2023
+
+ON1 Photo RAW 2024 v.18.0.3.14689  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164263.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Photo RAW включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2023 ON1, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7038FC4BC52B1A64620FE105887F5685A05112C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673654   (164265) от 02.11.2023
+
+Wondershare UniConverter for Mac 15.0.4 Intel/ARM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
+Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2023Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 (Intel) macOS 11.0 (Apple Silicon)Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BEB507C764CD0E09142E268F2A95B695C4B545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673771   (164271) от 02.11.2023
 
 Ocenaudio 3.13.2 + Portable [Multi/Ru]
@@ -6,7 +79,7 @@ Ocenaudio 3.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164271.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Skype 8.107.0.215 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164277.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Topaz Video AI 4.0.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164290.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Task Office 8.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164305.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ EZ CD Audio Converter 9.0.5.1 (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164306.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Mac FoneLab Android Data Recovery 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164308.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Pano2VR Pro 6.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164309.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ SwitchResX 4.11.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164310.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ Artlantis 2021.2 v9.5.2.29009 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164324.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ ApowerREC 1.5.3.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164330.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ iStatistica Pro 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164333.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ DCommander 3 Premium v3.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164335.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ Apeaksoft Android Toolkit 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164338.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ Things 3 v3.13.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164340.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Q-Dir 7.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164346.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ Easy Data Transform 1.44.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164349.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ iStatistica 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164353.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ SuperDuper! 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164357.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ HWiNFO 7.65 Build 5255 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164360.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.1.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164363.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ Bootstrap Studio 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164367.jpg" />
 </div>
 
 
@@ -519,7 +592,7 @@ Tone2 - Electra 2.8.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164372.jpg" />
 </div>
 
 
@@ -543,7 +616,7 @@ Sync Folders Pro 4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164376.jpg" />
 </div>
 
 
@@ -555,80 +628,6 @@ Sync Folders Pro - это простое в использовании прил�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E9DA88AA57A8F9B2A57EC678993BF54C7B3109
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432563   (164381) от 17.12.2020
-
-Battery Health 3 v1.0.25 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
-Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA2D11E73A7C8E73E48AD5AD040FC3ACC71C7A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517068   (164385) от 13.12.2021
-
-Tone2 - Saurus 3.0.0 STANDALONE, VSTi (x64) RePack by R2R [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saurus 3 - синтезатор, основанный на технологии True Analog Modelling Technology, которая переносит классический аналоговый звук в цифровой мир с многочисленными инновационными усовершенствованиями. Были изучены и проанализированы схемы нескольких признанных синтезаторов для захвата уникальных характеристик и кривых отклика оригинального оборудования. Добавьте к (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D3F61F67CD725FE7555B155AA31DB44D5F3A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517067   (164395) от 13.12.2021
-
-Native Instruments Maschine 2 v2.14.6 STANDALONE, VSTi, AUi [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maschine – это рабочая станция для создания битов со встроенным барабанным секвенсором, функциями семплирования и нарезки лупов, являющаяся самым актуальным на данный момент результатом инициативы Native Instruments по созданию гибридных аппаратно-программных инструментов.
-Программный компонент запускается как самостоятельное приложение или в качестве AU/VST/RTAS (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Native Instruments GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5018B479C61BECDE122037725F1BD82F8B4A6E57
 ```
 
 

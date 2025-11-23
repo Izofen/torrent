@@ -6,7 +6,7 @@ Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172673.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172682.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172683.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172684.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172878.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Машина Времени / Самоцветы - Песни Из Кино
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172981.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Bullet - Studio Albums (6 releases) (2006-2018) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173020.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173165.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173223.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Eucharist - Studio Albums (3 releases) (1993-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173246.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Seal - Studio Albums (10 releases) (1991-2017) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173410.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173783.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173783.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173817.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173820.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173820.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Ленинградский Рок-клуб (1988) Записи 1986 - 1987 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174233.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174233.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174595.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Behind the Scenery - Studio Albums (3 releases) (1997-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175410.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175788.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175788.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175880.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175880.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176042.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176042.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176126.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176139.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176509.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177613.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177613.jpg" />
 </div>
 
 
@@ -639,6 +639,33 @@ magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319188   (177798) от 06.10.2023
+
+Игорь Тальков - Навсегда (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнце уходит на Запад
+02. Война
+03. Стоп! Думаю себе
+04. Россия(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA055BF15DF1DD31930B4F60AD90124BCF337410
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594487   (177838) от 01.12.2022
 
 Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
@@ -647,7 +674,7 @@ Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177838.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177838.jpg" />
 </div>
 
 
@@ -663,31 +690,6 @@ Pretty Maids — датская рок-группа, основанная в 198
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663991   (177947) от 06.10.2023
-
-Владимир Кузьмин - Три Альбома (1987-1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Борисович Кузьмин (род. 31 мая 1955, Москва, СССР) — советский и российский музыкант, гитарист, мультиинструменталист, автор песен, звукорежиссёр, вокалист. Один из основателей и лидеров группы «Карнавал», лидер группы «Динамик», народный артист РФ (2011).
-Владимир Кузьмин — талантливый рок-музыкант, композитор и исполнитель, который сумел покорить сердца (   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1254A68D021771EDD4B767628C7B63A639EA2EBC
 ```
 
 

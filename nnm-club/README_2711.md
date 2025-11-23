@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71234.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lane 8 & Sultan + Shepard - Live @ Field Stage, Proper NYD (2025-01-01) [MP3|320
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71235.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mogwai - The Bad Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <post-rock, A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71236.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Defecto - Tribu II (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71237.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71238.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:ADD46B395B3E14C64DE8F8D6BD6EF906CAC4FD93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71239.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71240.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71241.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Best Of EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71242.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:ED9E5F9D05FBD4ABAC18AF17F3F95D132AD63849
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71243.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Dio - The Very Beast Of Dio, Vol. 2 (2012) 2025, BMG Rights Management (US) LLC 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71244.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Winter Dance Covers 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71245.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) Live [FLAC 24/96|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71246.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:93B5415A84F26490F116FC7612734DEE942414F5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71247.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:108604A10775C13A4FADEF8A1EA9E5655C8AEED4
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71248.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1E106F76E1F6E989D3F7AC46329B85794580FD7A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71249.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:1E106F76E1F6E989D3F7AC46329B85794580FD7A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71250.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:C78BAFD96458E93BE79467804FCEF6159D057F8F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71251.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:1BC5037D8F130EB410953753FB1D00ACF6290A4A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71252.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Decius - Decius Vol. II (Splendour & Obedience) (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71253.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Simple Minds - Once Upon A Time (1985) Remastered, 2002, Reissue, 2025, UMC [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71254.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:F8EAFF80E315C8D86DF8EBECF4BC80463BFC5B03
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71255.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71256.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ The Parallels - Эдем (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71257.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Protester - Непокорённым (2025) [FLAC|Lossless|WEB-DL|tracks] <punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71258.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:E4977E3B08144032F8082CB491442F23E75DE7DB
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71259.jpg" />
 </div>
 
 

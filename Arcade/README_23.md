@@ -1,3 +1,51 @@
+###  Публикация: 1663120   (187051) от 20.09.2023
+
+Suicide Guy (2017) [Ru/Multi] (1.70) Scene Plaza
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Suicide Guy - игра от первого лица в жанре "action-puzzle", действия которой разворачиваются в мире снов. Вы исполните роль большого "милого" парня, который никак не может проснуться. Ваша задача - помочь ему. Игроки должны будут использовать различные предметы в различных ситуациях для решения оригинальных головоломок. Несмотря на название, данная (   Читать дальше...   )Тип издания: SceneРазработчик: Fabio FerraraЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3931654EC40755E713E4735A985BA3E0B8E66A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662700   (187606) от 18.09.2023
+
+Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187606.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Boti: Byteland Overclocked вы отправитесь в захватывающее приключение с Боти, очаровательным информационным ботом, и его очаровательными спутниками, Нулем и Единицей. Вместе вы исследуете динамичный кибермир Byteland, наполненный ошибками, вирусами и сбоями, которые необходимо устранить. Приготовьтесь испытать уникальное сочетание классического 3D-платформера (   Читать дальше...   )Тип издания: SceneРазработчик: Purple Ray StudioЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Польский и другиеЯзык интерфейса: Английский, Немецкий, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDE50662A860AA6FE39CE6F716958F13B0B8281
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827608   (187902) от 22.10.2025
 
 Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) Repack Necros
@@ -6,7 +54,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187902.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187902.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Boomerang X (2021) [Ru/Multi] (1.11) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188333.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_188333.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Skye Tales (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188472.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188472.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188697.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188697.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189139.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189139.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Little Witch Nobeta (2022) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189958.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189958.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Diary of Lucie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190434.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190434.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191165.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191165.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ SIGNALIS (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191173.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191173.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192440.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192440.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192507.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192507.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Hell Pie (2022) [Ru/Multi] (1.1.5) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193045.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193045.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193307.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193307.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193366.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193366.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193400.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193400.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193979.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193979.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194087.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194087.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Mail Time (2023) [Multi] (1.00.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194309.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_194309.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Pinball FX3 (2017) [Multi] (1.0.26.0/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194396.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194396.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ TailQuest Defense (2023) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194524.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194524.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ ANVIL (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194526.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194526.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Ape Out (2019) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195133.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195133.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ The Cave (2013) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195390.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195390.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195798.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195798.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:935156280F2A072D214D3BDA311736CE2D64A33C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645794   (195826) от 11.07.2023
-
-Battle Axe (2021) [Multi] (1.0.4) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195826.jpg" />
-</div>
-
-
-###  Подробнее
-
-С незапамятных времен земли Мерсии находятся в деспотичных лапах волшебницы Этельдреды из промозглых пустошей на севере. Каждые семь лет она посылает свою армию на юг, чтобы увести некоторых горожан в рабство. По всей Мерсии звучит призыв к славным воинам с просьбой положить конец тирании Этельдреды. На зов откликаются эльф, волшебник и грабитель. Присоединяйтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Bitmap BureauЖанр: Action, Adventure, ArcadeЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFBD227FF293D734E48AA7665FC40FD0E083C095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645128   (196038) от 08.07.2023
-
-Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ощутите всю радость сражения с глубокими игровыми механиками и потрясающими анимациями в файтинге Guilty Gear -Strive- - новой части серии Guilty Gear! Яркая эффектная графика выглядит как анимация ручной работы! Благодаря современным технологиям игра выглядит настолько естественно, что её запросто можно спутать с нарисованным вручную мультипликационным фильмом. (   Читать дальше...   )Тип издания: SceneРазработчик: Arc System WorksЖанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский, Французский и другиеЯзык интерфейса: Английский, Японский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C81D7F401B1EC03D3478FF21FDB3A8B06982FD
 ```
 
 

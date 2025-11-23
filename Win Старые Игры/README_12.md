@@ -1,3 +1,75 @@
+###  Публикация: 1591747   (184749) от 20.11.2022
+
+Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Instinct рассказывает альтернативную историю событий, произошедших в горах Янгандо, которая имела место в реальности 13 сентября 2004 года. У разработчиков появилась своя версия, которую они положили в основу игры. В северокрейской провинции под названием Янгандо происходит странный взрыв. В секретных лабораториях, расположенных вблизи огромной горы, проводились (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Spray Studios, Newtonic Studio, VNeroGAMEsЖанр: Action (Shooter), 3D, 1st Person, HorrorЯзык озвучки: Русский, ЧешскийЯзык субтитров: Русский, Английский, ЧешскийЯзык интерфейса: Русский, Английский, Чешский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827345   (185655) от 21.10.2025
+
+FlatOut (2004) [Ru/En] (1.1) Repack Necros
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185655.jpg" />
+</div>
+
+
+###  Подробнее
+
+FlatOut — динамичная гоночная аркада с видом от третьего лица, отличительной особенностью которой является почти полная разрушаемость объектов (или взаимодействие с ними), которые расставлены на трассе. Машина ведет себя на разных трассах по-разному, при этом чувствуется масса автомобиля, что сильно сказывается на на поворотах.Тип издания: RepackРазработчик: Bugbear EntertainmentЖанр: Аркада, Автосимулятор, Гонки на выживаниеЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E284D50E6641452EA277A9E981A239A7E054E4DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827438   (186077) от 21.10.2025
+
+Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геймплей состоит в том, что главному герою нужно выжить, выполняя задания от режиссёра и убивая встречающихся ему головорезов. В игре всего 20 эпизодов. Сама Manhunt представляет собой стелс-хоррор с элементами экшена от третьего лица. Игроку нужно управлять Кэшем и перемещаться по различным локациям, выполняя поставленные задачи, которые обычно сводятся к тому, (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшен, Стелс, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED421416E1BABB4DD9195D5BA851836F877C14D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827387   (186086) от 21.10.2025
 
 Diablo II (2000) [En] (1.14d/dlc) Repack Necros
@@ -6,7 +78,7 @@ Diablo II (2000) [En] (1.14d/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186086.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186086.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187902.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187902.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187991.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187991.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу вр
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188172.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188172.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188357.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188357.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189547.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189547.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Diablo: Hellfire - The Hell 2 (2019) [En] (1.2504) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191189.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191189.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193466.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193466.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194136.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194136.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194927.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194927.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194929.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194929.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194991.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194991.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195091.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195204.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195204.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195241.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195241.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195511.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195511.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195565.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195565.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195688.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195688.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ European Air War (1998) [En] (1.20) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195703.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195703.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195737.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195737.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195891.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196018.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196018.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196051.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196051.jpg" />
 </div>
 
 
@@ -545,78 +617,6 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37FEEC4E82F47C19068CCF6D1891128E53B2AC76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644002   (196123) от 04.07.2023
-
-Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dirty Swamp - это мод, рассказывающий небольшую историю, сюжетно независимую от оригинала Gothic 2. В нём вы выступаете в роли помощника, который хочет вместе со своим хозяином Санчесом, ограбить храм. Но внезапно всё меняется... вы оказываетесь на другой части мира совершенно в одиночку.Тип издания: ModРазработчик: Piranha BytesЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: НемецкийЯзык субтитров: Русский, НемецкийЯзык интерфейса: Русский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A205D615069956B7A7BC200D4A48A8CE2116C09F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643986   (196131) от 04.07.2023
-
-Velaya - Geschichte einer Kriegerin / Велая - сказание о воительнице (2008) [Ru/De] (1.1) Mod
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196131.jpg" />
-</div>
-
-
-###  Подробнее
-
-После падения Барьера Велая пошла на ферму Онара. Жизнь оставляла ей желать лучшего и одного дня, когда ее терпению подошел конец, девушка решает стать искательницей приключений. Ей предстоит свершить поистину великие подвиги, о которых еще долго будут петь менестрели. А в пути ей будет помогать друзья, острый клинок и не менее острый язык.Тип издания: ModРазработчик: Piranha BytesЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: НемецкийЯзык субтитров: Русский, НемецкийЯзык интерфейса: Русский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4949AE30C865F584978BB6D55B78F0BAE9A4C54A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642178   (196461) от 26.06.2023
-
-Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhammer 40,000: Dawn of War – Soulstorm – третий по счету аддон для стратегии из вселенной мрачного будущего. В механике игры практически ничего не поменялось, по сравнению со вторым дополнением. Глобальная карта осталась на месте, всем противоборствующим сторонам добавили по одному летающему юниту. Главное нововведение – две новые расы с уникальными отрядами и (   Читать дальше...   )Тип издания: LicenseРазработчик: Relic EntertainmentЖанр: СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BD46115E34F7903C94228810A220A117BD4270
 ```
 
 

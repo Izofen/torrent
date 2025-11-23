@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52746.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:A60EC89BE3E71A8A678235794CFBD1E90DAD9B67
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52766.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52801.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Collins | Thai Visual Dictionary (2021) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52803.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52805.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52873.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52875.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Languag
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52888.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52894.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5B6A4E757E397C6751537EC27A2F4A3A02CC5F47
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52905.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth editi
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53100.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53105.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53115.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53194.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53196.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53231.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53300.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53340.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53344.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um cu
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53425.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53429.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53447.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53449.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53508.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:1AAB86FB98DF538E4733EE76021253A9C9E84A71
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53509.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:F771994B92F7ACFA4B037CAE4DE5B48B8BB0695B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53515.jpg" />
 </div>
 
 

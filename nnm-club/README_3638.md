@@ -1,3 +1,75 @@
+###  Публикация: 1704690   (114270) от 05.03.2024
+
+Бедные-несчастные / Poor Things (2023) BDRip [H.264] [MVO]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викторианский Лондон. Сумасшедший хирург Годвин вылавливает из Темзы тело молодой беременной женщины, прыгнувшей с моста, пересаживает ей мозг её собственного нерожденного младенца и реанимирует. Белла поначалу передвигается как сломанная кукла и имеет весьма ограниченный словарный запас, но быстро учится. Чтобы наблюдать за ней, Годвин призывает на помощь студента-медика (   Читать дальше...   )Производство: Ирландия, Великобритания, США, Венгрия / Element Pictures, Fox Searchlight PicturesЖанр: драма, комедия, фантастикаРежиссер: Йоргос ЛантимосАктеры: Эмма Стоун, Уиллем Дефо, Рами Юссеф, Марк Руффало, Кэтрин Хантер, Ханна Шигулла, Маргарет Куолли, Вики Пеппердин, Джек Бартон, Чарли ХискокПеревод: Многоголосый профессиональный (Jaskier), Авторский (Ю. Сербин  18+)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 02:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCB54590919D408FD8262141B20A7A8FBB3332D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704556   (114271) от 05.03.2024
+
+The Mobius Machine (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114271.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Mobius Machine бросает игроков в огромный инопланетный мир, кишащий опасностями. Игроки прокладывают свой путь через разнообразные ландшафты, от обломков разбившегося космического корабля до пышных плавучих лесов, сражаясь по пути с враждебными существами и неисправными машинами. Исследование - ключевой момент в The Mobius Machine. Взаимосвязанный мир позволяет (   Читать дальше...   )Тип издания: RepackРазработчик: Madruga WorksЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE79CD013EEB9FF18208576F263993C5A335AD14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704598   (114272) от 05.03.2024
+
+Аргайл: Супершпион / Argylle (2024) WEB [H.264] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писательница Элли Конвей заканчивает уже пятый роман о приключениях шпиона Обри Аргайла, который борется со зловещей тайной организацией. Когда женщина отправляется на поезде к маме, к ней подсаживается развязный длинноволосый мужчина и сообщает, что он — настоящий шпион, а Элли в своих книгах угадала многое из происходящего в действительности, и им немедленно нужно (   Читать дальше...   )Производство: Великобритания, США / Apple Original Films, Marv Films, Cloudy ProductionsЖанр: боевик, комедияРежиссер: Мэттью ВонАктеры: Брайс Даллас Ховард, Сэм Рокуэлл, Брайан Крэнстон, Генри Кавилл, Кэтрин О'Хара, София Бутелла, Дуа Липа, Ариана Дебоуз, Джон Сина, Сэмюэл Л. ДжексонПеревод: Дублированный (Bravo Records Georgia / Movie Dubbing, звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 02:19:00Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527297   (114273) от 05.03.2024
 
 Адмирал Ушаков, Корабли шурмуют бастионы (1953) 2xDVD9 [ Дилогия]
@@ -6,7 +78,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114273.jpg" />
 </div>
 
 
@@ -35,7 +107,7 @@ magnet:?xt=urn:btih:EF11EEC9E3E6835B535DC1C103B03393929F0FEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114274.jpg" />
 </div>
 
 
@@ -59,7 +131,7 @@ Adobe Photoshop for Mac 2024 v.25.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114275.jpg" />
 </div>
 
 
@@ -83,7 +155,7 @@ Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114276.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:5CF77367F0E6AC10018F09E7B004AE75534A7945
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114277.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:03964E1C755A17359F2B7987DBE9C9D395E49075
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114278.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:F6B6D22B3F1B830ABD3B5DA624C5F0E048E7EC33
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114279.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:7CEAEE78DEFB2D6ACAD66D33467533F03545D172
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114280.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Classified: France '44 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114281.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:C795B8E38AA4297CFBB1EA3902D83A5215E24DB0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114282.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Max Magro and the Wolfgang - Commit a Crime (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114283.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ GroupsPro 5.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114284.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ OmniReader Pro for Mac 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114285.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ Cedar Walton - Composer (1996) Astor Place [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114286.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ Believer - Gabriel (2009) [FLAC|Lossless|image + .cue] <Progressive, Technical T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114287.jpg" />
 </div>
 
 
@@ -381,7 +453,7 @@ Charles Williams - Trees And Grass And Things (1971) 2017, Solid Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114288.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ Codepoint for Mac 1.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114289.jpg" />
 </div>
 
 
@@ -433,7 +505,7 @@ Wynton Marsalis - Wynton Marsalis (1982) CBS [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114290.jpg" />
 </div>
 
 
@@ -460,7 +532,7 @@ Believer - Transhuman (2011) [FLAC|Lossless|image + .cue] <Progressive, Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114291.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ EdgeView 4 v.4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114292.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ Hunter Francis - Daggermouth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114293.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ Feeder 4 v.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114294.jpg" />
 </div>
 
 
@@ -563,7 +635,7 @@ Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114295.jpg" />
 </div>
 
 
@@ -577,84 +649,6 @@ Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E5D1A82E8F3555CAD98E54477CD7F95461A6B1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704137   (114296) от 04.03.2024
-
-Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session with Piano, Violin and Harp (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Peace (4:10)
-02. Inner Happiness (3:52)
-03. True Emotions (4:10)
-04. Heavenly Piano (3:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570001576E29DE793FB5DC5625C02540BFD9CF54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704427   (114297) от 04.03.2024
-
-Бонни Дзякс (Япония) - Квартет "Бонни Дзякс" (1982) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A
-01 - Море В Чашке Кофе
-02 - Ресторан Для Птиц
-03 - Продаются Золотые Рыбки(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBA5551A2B8AC030160016A0D5A8C5D91AD9066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704288   (114298) от 04.03.2024
-
-Своя игра (03.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114298.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD84666CC8541E7F9D2E997FC04001EC3E813AAB
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1740797   (105794) от 03.08.2024
+
+VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antony Well - Lua Solidaria (6:27)
+02. Diogo Salvador & Walker G. - London City (4:35)
+03. Dr.H - Love (5:21)
+04. Dave Qri - Mama (4:40)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C032146D2690FFA242CA4CC8D5847E89C29287
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740796   (105795) от 03.08.2024
+
+VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faksikas & D'layna - Take Me There (The Squeeze Soul Shift Instrumental) (6:40)
+02. Or'l - Love Etc. (8:47)
+03. Heather Walker - Freedom (Peacey P Moody Dub Mix) (8:35)
+04. DJ Wings - Give It to Me (Wings & Accidental Notes Island Mix) (4:24)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97035700E0BF9A9EE5FAA2E141A28EA245F3EB80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740799   (105796) от 03.08.2024
+
+VA - Electronica Confessions, Vol. 14 (2014) [MP3|320 Kbps] <Electro, House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Empower - Flowing Outwards (9:16)
+02. ANTONI POLIKIZO - It's Time to Go Back (5:17)
+03. Dr.Rex - Less Is More (5:59)
+04. Dave Qri - Los Suros (6:57)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3F5757EC52B5313631D9DF6F40AA2840781C76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740632   (105797) от 03.08.2024
 
 Black Smoke Trigger - Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +87,7 @@ Black Smoke Trigger - Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105797.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:5C09449FE10D910C4F3E563C247FDDD06DE45281
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105798.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ VA - Electronica Confessions, Vol. 13 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105799.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:C2D35633A5FBF5BBA8AE20A8FF8553D15E952291
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105800.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ CareUEyes 2.4.0.0 Pro Portable by FC Portables [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105801.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ magnet:?xt=urn:btih:5FFB578F6B10F47175B4923432981B13492BE571
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105802.jpg" />
 </div>
 
 
@@ -156,7 +237,7 @@ magnet:?xt=urn:btih:930A8BDA115B055EE25ADAD1C8FBD095421499FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105803.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ magnet:?xt=urn:btih:930A8BDA115B055EE25ADAD1C8FBD095421499FA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105804.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ magnet:?xt=urn:btih:A8519DF83D3EEBD6E0F0B389AD7AB81CDCEC93B4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105805.jpg" />
 </div>
 
 
@@ -230,7 +311,7 @@ Enchantment 2: Sun's Tear (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105806.jpg" />
 </div>
 
 
@@ -254,7 +335,7 @@ magnet:?xt=urn:btih:FBA4979AB5B0C5D85FD1A5D0D78951D0B10419D9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105807.jpg" />
 </div>
 
 
@@ -278,7 +359,7 @@ magnet:?xt=urn:btih:AC5FEE25670B1FD718C840F62820B7516CD3059D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105808.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ magnet:?xt=urn:btih:F5C47A4F8AD4BF245B65303F3666D018EA127402
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105809.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ VA - IBIZA SUMMER 2024 - Best Electronic Music [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105810.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ magnet:?xt=urn:btih:6C584C9277B9BE88C250614399ACA1F6B24DEB76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105811.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ magnet:?xt=urn:btih:8F9B4A8F92FC45A0D65F7CA80C9D32B0D7713AA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105812.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ PhotoRoom v5.2.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105813.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ magnet:?xt=urn:btih:971009F0B3AB44A0E3B47A1A7FD5FED79D1ED5D9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105814.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ Blind Guardian - Somewhere Far Beyond (Revisited) (1992) 2024 Nuclear Blast [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105815.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ Frank Sinatra - Ol' Blue Eyes (1990) Starlite [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105816.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ magnet:?xt=urn:btih:EC6CF439D819CBCA782DA1FF87A80806AF45524F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105817.jpg" />
 </div>
 
 
@@ -527,7 +608,7 @@ magnet:?xt=urn:btih:9BF60A56829C6803DDF12594B888CD3720649EDA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105818.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ VA - Burning Mountain - Secret Garden Session (2024) [MP3|320 Kbps] <Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105819.jpg" />
 </div>
 
 
@@ -565,83 +646,6 @@ VA - Burning Mountain - Secret Garden Session (2024) [MP3|320 Kbps] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D73FD01801E4AFF78BBB1AF2F0C7E4AD87B9161
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740589   (105820) от 02.08.2024
-
-Рамазан (1933) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105820.jpg" />
-</div>
-
-
-###  Подробнее
-
-О росте сознания бедняка узбека в условиях борьбы с религиозными предрассудками и классовыми врагами. Узбекистан начала 1930-х годов. Бай, мулла и замаскировавшийся враг пытаются использовать мусульманский праздник рамазан, чтобы сорвать работу на хлопковых полях...
-
-Фильм из  коллекции Госфильмофонда России и опубликован в интернете в рамках совместного проекта «Культура.РФ» (   Читать дальше...   )Производство: СССР / УзбекгоскиноЖанр: драма, немое киноРежиссер: Наби ГаниевАктеры: Эргаш Хамраев, Р. АхмедовСубтитры: русские (интертитры)Продолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450FC129973E71FA1D50DE30648086F98D0B0FB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740378   (105821) от 02.08.2024
-
-Неспокойной ночи / Nightman (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алекс вместе с мужем переезжает в дом его детства в небольшой городок. Вскоре она замечает, что в городе происходят странные вещи, а муж начинает ходить во сне — девушке кажется, что она сходит с ума. Тогда Алекс решает разобраться, что происходит на самом деле.Производство: Бельгия, Beside Productions, Black Swan Tales, Entre Chien et LoupЖанр: ужасыРежиссер: Мелани ДеллойАктеры: Зара Девлин, Оуэн Даффи, Марк Хуберман, Джейс Бэйли Кеннеди, Миб Леонард, Миб Магуайр, Элизабет Мойнихан, Айн Ни ЛаогэрПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:18Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740596   (105822) от 02.08.2024
-
-The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Edin [6:47]
-02 - Pentagrams [6:26]
-03 - Sighommi [2:55]
-04 - Pentecost [3:19](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CA35FF08763E2837D90F894BFB6C2C38F5BBB6
 ```
 
 

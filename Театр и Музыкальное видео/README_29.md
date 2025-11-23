@@ -6,7 +6,7 @@ Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88840.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89015.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89269.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Scorpions - Humanity - Hour I (Limited Edition) (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89410.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Scorpions - Humanity - Hour I (Limited Edition) (2007) DVD5
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89414.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:9B8DDE1A5814D57935ED5553B519909D8F3B25B5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89683.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:9B8DDE1A5814D57935ED5553B519909D8F3B25B5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89736.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Chloe Agnew (Celtic Woman) Walking In The Air (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90425.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Tor Even Mathisen - Aurora Borealis (Релакс) (2012) HDRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90607.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:883EF7624EC2A09DAC657C7E475E2E646AA51DBE
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90867.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94209.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:D20CE3B64AA6867C5059AA4451C7C09859BB0FFE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94506.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:2CC801CC8F5E9A376456B00AA5D8C4DF26D4DA32
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94645.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94904.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:A759CF3F616375E95A6AD01EADB165B32F688731
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95522.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:04DDDBD7B248B8F4AEBF1D27684A83C87B31CB39
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96840.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:8B1F2F8220CD74837F2807051ACD97FAEC87CD96
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98113.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ INNA - WOW (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98957.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:5831ED6424E6FC8EBDF5DC3FEF21C5E30447B77D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98968.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C99C2926B8B611E33FE757B8ABBBE81391EAC03D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99257.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101549.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101553.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ B.o.B feat. Hayley Williams of Paramore - Airplanes (2010) WEB-DLRip [H.265/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101555.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:1C31B9C4BF69BCE0C12F9DFD2A9009A7D3256C83
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101962.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:1DF739B90F9FC7E4E7B1B9EBCED742C3E8E26A4E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102051.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Joe Satriani: Satchurated - Live in Montreal (2010/2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102082.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102082.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97486.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F4EA46EFBA73774396301ADA253AAF413A6B739B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97487.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E84069836F16B43C288CB1D5ECC0657C608F423A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97488.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0AADC260185796E0E93E11FA777B67CD0BEDA3CA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97489.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:718B15E6A13E31FCFCDDB9151ED783DF717519F4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97490.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - XXXL Блатной Весна (2012) [MP3|256 кб/с]<Шансон>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97491.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:A5D10E37FE112433B263FC5B3CD3B8B931D11CA4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97492.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Claudio Merlini - Enchantment WEB (2012) [FLAC|Lossless]<Electronic, New Age, Ch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97494.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:04B3DBA0ABE2D3CDCA976E7638574089887C0BD7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97495.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Музыкайф. Зарубежный Суперсборник (2012) [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97496.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Modern House Music vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97497.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:B3CD0F94E5F3B452D52FDDD6448036DB7C1C189F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97498.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:7B4170B36E9F916842840624FB891F3296E8476F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97499.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Power Of Love vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97500.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:90A81D0A4910B270596C9BAA8BEF85C501DB8E9D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97502.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:0471A9C249998177023A2320D257058D48D2C0B6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97506.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:A42D15CDBDDECD01696671A9D6667E7B9FE95E9A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97507.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2BAF8E489E2B4589C29070B9013FE1750E4A8D2E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97509.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:178E3282A4EB4D065D4253379240AE12FD66490B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97510.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:32781070FA4CF81CE4A7E327E5CD1672C0E0ED45
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97513.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:E635F0AEF57C54D5CB7650B55FD2FD7FF701F2EB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97515.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:675794286CC68A20F88D81D4B2B6F7FF67E853E3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97518.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:CB96F2EDA4F2FAAD7F86068F76AC564790485174
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97520.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Overkill - The Electric Age (2012) scene [FLAC|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97522.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97522.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Держи Ритм На Хит FM 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97523.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:D2049D2B2C03310001ABCE1A54347CD2A7DD7A81
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97527.jpg" />
 </div>
 
 

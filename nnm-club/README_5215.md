@@ -1,3 +1,174 @@
+###  Публикация: 1433361   (161024) от 20.12.2020
+
+Allavsoft Video Downloader Converter 3.23.1.7653 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0147C951013CBCD056CE9B61CC3D5B368A8F8BBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518104   (161025) от 18.12.2021
+
+VA - The Bearded Man - Beards In The Snow 2021 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161025.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Clément Leroux - Baby (Tell Me)
+2. Nicolas Haelg/Marie Beeckman - Gravity (2021 Edit)
+3. Harold van Lennep - Liberation (Re-Edit)
+4. GOLDHOUSE - Sex On Me (Re-Edit)(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9192DC3D80850F07406DBB91172AAC3C5FBC731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674310   (161026) от 05.11.2023
+
+Ивашка из дворца пионеров (1981) WEB-DLRip [H.265/2160p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161026.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Бабы Яги именины, приглашены гости, которых она хочет угостить чем-то вкусным. Как водится, посылает она гусей-лебедей за упитанным мальчиком, которым оказывается Уфимцев Ваня из Дворца пионеров.Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, детский, сказка, комедияРежиссер: Геннадий СокольскийАктеры: Светлана Харлап, Гарри Бардин, Ефим КацировСубтитры: отсутствуютПродолжительность: 00:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF55BA720ADA8E6E8E798AF786EF6FD0A05278C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598945   (161027) от 21.12.2022
+
+Windows 11 Pro VL x64 22Н2 (build 22621.963) by ivandubskoj 21.12.2022 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка Windows 11 Pro (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1027490D0B0260F939828DA1B0B777E606141C2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433198   (161028) от 20.12.2020
+
+Фотографии - PHOTOBASH - FIGHTER PILOT [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот набор содержит подробные снимки и ракурсы двух униформ летчиков-истребителей, подчеркивающие замысловатые детали конструкции шлема, ткани и аксессуаров экипировки.Формат: JPGРазрешение файлов: 1231x3000-7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC515E5CCE433CFFDEAA7944ACA2616D70DBEE50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599057   (161029) от 21.12.2022
+
+PDF Reader X - Edit Adobe PDF Pro 3.4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрое приложение с удобным интерфейсом для чтения и редактирования PDF с вкладками, которое делает чтение и редактирование приятным и эффективным.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2022Разработчик: © GoodPDF LimitedПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFE6BAB1867869BC892A10BC4792FF8C84E9681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674547   (161030) от 05.11.2023
+
+Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Решение проблем - очень важный навык для любого художника. Рабочий процесс связан с большим количеством неожиданностей, сложностей и неординарных подходов. В этом уроке, Марко проведет вас за руку через весь процесс создания цифрового изображения. Так же он постарается помочь вам настроить свое мышление, направить его в нужное русло.Производство: SkillshareЖанр: РисованиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DECB57C1898581E2031F79A13DC8D5135427A1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598546   (161031) от 21.12.2022
 
 Кто убил Санту? Тайна убийства в Мердервилле / Who Killed Santa? A Murderville Murder Mystery (2022) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +177,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161031.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ magnet:?xt=urn:btih:7497177144194B4090C4E2251414112F0036C58B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161032.jpg" />
 </div>
 
 
@@ -55,7 +226,7 @@ Complete Internet Repair 11.1.3.6508 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161033.jpg" />
 </div>
 
 
@@ -79,7 +250,7 @@ magnet:?xt=urn:btih:6394E63523578460FCB7623DBF3A612B9B10ED9D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161034.jpg" />
 </div>
 
 
@@ -103,7 +274,7 @@ magnet:?xt=urn:btih:CEDA98B102B482A8D6F37A34E17A51B67D209DE9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161035.jpg" />
 </div>
 
 
@@ -127,7 +298,7 @@ magnet:?xt=urn:btih:FF26523AF41C91ADBA77BC5543BF3AD97E860BAB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161036.jpg" />
 </div>
 
 
@@ -151,7 +322,7 @@ magnet:?xt=urn:btih:FEC4BFE1633683143574F6DBF12174808F056041
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161037.jpg" />
 </div>
 
 
@@ -175,7 +346,7 @@ magnet:?xt=urn:btih:B95C88AAB9D3D05BC2C96A9941DE5034100B5E36
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161038.jpg" />
 </div>
 
 
@@ -199,7 +370,7 @@ magnet:?xt=urn:btih:932519FA56C17606311F400A6A282B8CCE8788D9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161039.jpg" />
 </div>
 
 
@@ -223,7 +394,7 @@ VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161040.jpg" />
 </div>
 
 
@@ -250,7 +421,7 @@ magnet:?xt=urn:btih:BDC27AC697BC3D4D09FB24D1BE25B206AE11D91B
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161041.jpg" />
 </div>
 
 
@@ -274,7 +445,7 @@ magnet:?xt=urn:btih:2D7D1A86E83D00DA459AC7B677F9A5530DB52BD5
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161042.jpg" />
 </div>
 
 
@@ -298,7 +469,7 @@ Peter Wolf - Come As You Are (1987) [FLAC|Lossless|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161043.jpg" />
 </div>
 
 
@@ -325,7 +496,7 @@ Skillshare, Dave Bergin | Character Creation in Cinema 4D and Daz Studio (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161044.jpg" />
 </div>
 
 
@@ -351,7 +522,7 @@ magnet:?xt=urn:btih:6770B41E7FD04329F9A89C1E454791FB9CB4801C
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161045.jpg" />
 </div>
 
 
@@ -375,7 +546,7 @@ magnet:?xt=urn:btih:E930ED8B2AFBED85C54BC922D7497F326FBA667C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161046.jpg" />
 </div>
 
 
@@ -399,7 +570,7 @@ Electronic ( Nen Order, The Smiths ) - Raise The Pressure (1996) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161047.jpg" />
 </div>
 
 
@@ -426,7 +597,7 @@ Google Play промаркирует VPN, прошедшие проверку б
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161048.jpg" />
 </div>
 
 
@@ -450,7 +621,7 @@ Air Master | Воздушный мастер [2003, TV, 27] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161049.jpg" />
 </div>
 
 
@@ -463,181 +634,6 @@ Air Master | Воздушный мастер [2003, TV, 27] DVDRip 480p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6242D97E1EA7585BC2E1FA6737E96AE8C329557F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518239   (161050) от 18.12.2021
-
-Smultron 12 v12.5.3 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smultron - простой и удобный редактор. Smultron - простой и элегантный текстовый редактор, с которым можно легко создавать и редактировать любые неформатированные тексты.
-По словам разработчика, при создании редактора ставилась задача снабдить программу богатой функциональностью и обеспечить удобство ее использования как для опытных пользователей, так и для новичков. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 Peter Borg Apps ABПоддерживаемая ОС: macOS 10.14.4 +Язык интерфейса: Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCE304A289F837B309B8A59B350C8FD469D1667
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674572   (161051) от 05.11.2023
-
-JUG Ru Group | Heisenbug 2023 Autumn. Конференция по тестированию не только для тестировщиков (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heisenbug - крупнейшая в России конференция по тестированию программного обеспечения. В программе выступления разного формата: от 25 до 45 минут и более, с 10 утра до 7 вечера.
-
-Доклады и дискуссии для специалистов разных профилей: QA-инженеров, разработчиков, тимлидов, директоров по качеству. Конференция больше ориентирована на технологии, чем на процессы и методологии.Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 47:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6C04E1760C9CC28964F076082E61DC59AA89F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598872   (161052) от 21.12.2022
-
-Няня / Nanny (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иммигрантка из Сенегала Аиша устраивается на нелегальную работу няней в дом богатой пары с Манхэттена. Эта работа для нее — шанс на то, чтобы перевезти из Сенегала своего маленького сына, и Аиша готова на все, чтобы сохранить ее. Однако с каждым днем обстановка в доме становится все более зловещей и няня чувствует присутствие потусторонних сил, которые вторгаются (   Читать дальше...   )Производство: США / Blumhouse Television, First Look Media, LinLay Productions, Stay Gold FeaturesЖанр: ужасы, триллер, драмаРежиссер: Никиату ДжусуАктеры: Анна Диоп, Мишель Монахэн, Синква Уоллс, Морган Спектор, Роуз Декер, Лесли Аггамс, Olamide Candide-Johnson, Jahleel Kamara, Princess Adenike, Мици ПрэттПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русские, украинскиеПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279079DCF9EC4643726BCCB9E126C9F9AF6C20E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433197   (161053) от 20.12.2020
-
-Фотографии - Gumroad - Grass Photo Pack [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161053.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 отобранных вручную фотографий из моих недавних поездок в Йосемити и Крит. Готовы для ваших личных или коммерческих концептуальных изображений! Пожалуйста, отметьте и поделитесь, если вы используете что-либо в своих концепциях! Я бы хотел посмотреть, как вы их используете! :) Наслаждайтесь!Формат: JPGРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1C9CC6FA5C7634D7E69C65E5F80504ED08AF98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598860   (161054) от 21.12.2022
-
-Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2364.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B203C0EF5713AF8C9A6FE341953692017DAFC03B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518124   (161055) от 18.12.2021
-
-По следу монстра (18.12.2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161055.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вооружен и очень опасен» В Екатеринбурге две девушки расстреляны в упор. Безутешные матери в гневе. У сыщиков несколько версий… Почему под подозрение попал коллега одной из жертв? Как лучшие друзья стали смертельными врагами? И как детская обида превратила человека в монстра?Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFE8BC31A859DF7F29672C63EE8C505203CD86C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674491   (161056) от 05.11.2023
-
-Успех (1984) DVDRip [H.264/1080p] [handmade upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой режиссёр Геннадий Максимович Фетисов после расставания с женой уезжает из Москвы — областной театр пригласил его поставить чеховскую «Чайку».
-У режиссёра, который стремится поставить классику так, как только он её видит , трудный характер; он жёстко ведёт большой корабль постановки спектакля по намеченному им курсу. При этом у него своеобразная манера работы (   Читать дальше...   )Производство: СССР, МосфильмЖанр: драмаРежиссер: Константин ХудяковАктеры: Леонид Филатов, Алиса Фрейндлих, Александр Збруев, Лев Дуров, Лариса Удовиченко, Анатолий Ромашин, Людмила Савельева, Алла Мещерякова, Марина Полицеймако, Вацлав ДворжецкийПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDB2D4C9BED618F490ECF66A0EC3D859BE99C22
 ```
 
 

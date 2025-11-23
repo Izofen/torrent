@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Otto Dix - Классика (2025) [MP3|320 Kbps] <DarkWave, New Age, Акуст
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68089.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:1E8E6A1B6F024A554FD4FB00226D91F2B0824344
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68090.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ DJ Koze - Music Can Hear Us (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68091.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:5E410F42D7E29211162F978FF10FDC269C00BE77
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68092.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Solar - Frantically Calm (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68093.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:B88575580ECED823B17F5173F6D365CC86F8A292
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68094.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Arida Vortex - Wild Beast Show (2016) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68095.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68096.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B42C39634DEBE05012EDDE53406DD5E490D8ADF4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68097.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:532850098C337751DE9C886FB13A1D2F27C0902B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68098.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Urn - Demon Steel (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68099.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Daylight Dies - Studio Albums (5 releases) (2000-2012) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68100.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Akolyth - Akolyth (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68101.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:88DFAAF0107925A935B648E889FBF2946B2E1467
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68102.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ TuneIn Radio Pro v38.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68103.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:C54918EC2A17810926C91389A3D335B28155EB45
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68104.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Kidz Bop Kids - kidz bop 50 (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68105.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:DE9311DC7E4F03013CB08E5BE31510356602F418
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68106.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [ТВ-1] [2022, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68107.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Platin Vol. 7 (1999) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68108.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:4CC6ACF62E93B4C282CF5845A220E088B404BE3E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68109.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Erasure - Breathe (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68110.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:988E52AEAC37FF1FBB3BB3174251C38D90E5FDC3
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68111.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:7DA1BFDF03B385AA502AB6279FDA7F0677752A9C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68112.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:4B43729A4398BAE511C0DCBB15C350C6C793C457
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68113.jpg" />
 </div>
 
 

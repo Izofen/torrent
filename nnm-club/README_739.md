@@ -6,7 +6,7 @@ Moroi (2025) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19538.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.1.2)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19539.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CF7FA8DA8A89D089BEA1021E4AF45F2F776E12E5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19540.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TrackChecker Mobile v2.28.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19541.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4B7F50FB099F72E63290B13B67C4DE53B4899EE8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19542.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:09BA665468C35670E7E59482ED4C02B7290C9E50
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19543.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Sports: Renovations (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19544.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:ACE7B9B1618EA51A72B5E4E6F5739F8FC20D1A2F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19545.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Desktop Calendar 3.22.233.7103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19546.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E61F1BA17B2BE160A81797265537219010E8E1A6
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19547.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:B60E5F02A0B2C78405DCAA08C93075F4ED211CA1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19548.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:E3589E1EEC63BC52ED23B46B503F21B6008F2F3C
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19549.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Crematory - Destination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19550.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:51F271CC63CED88008F2AE660B5687D81686E0D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19551.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Afro Beats Summer Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19552.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - The Sound of 2025, Chapter 4: Paris (Day Mix) (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19553.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:207541438D202DBCD96195FF4FF827C8EDCB62BB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19554.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ The Flower Kings - Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19555.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Deep Trance Showcase V (2025) [MP3|320 Kbps] <Trance, Progressive, Electron
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19556.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 4 (2025) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19557.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - Made2Chill 1 (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, A
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19558.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Eluveitie - Ànv (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19559.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Armin van Buuren - A State Of Trance 1223 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19560.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Behölder (Beholder) - In the Temple of the Tyrant (2025) [MP3|320 Kbps] <Epic D
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19561.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Blacktree - The Sexual Revolution (2015) [FLAC|Lossless|image + .cue] <Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19562.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:F0ED357E9C3326EDADD13EFD8CC845F70EA00BFF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19563.jpg" />
 </div>
 
 

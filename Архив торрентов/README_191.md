@@ -6,7 +6,7 @@ Youtube Downloader HD 5.8.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45503.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Taskito v1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Illustrator 2024 28.7.0.136 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45507.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Aiseesoft Video Converter Ultimate 10.8.68 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45508.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Adobe Acrobat Pro 2024.003.20054 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45532.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ WinCatalog 2024.8.0.826 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45556.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Adobe Media Encoder 2024 24.6.0.74 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45563.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Glary Utilities Pro 6.14.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45575.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ PowerISO 8.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45576.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Adobe Premiere Pro 2024 24.6.0.86 (x64) Light Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45577.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Viber 23.4.0.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45581.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Perfectly Clear WorkBench 4.6.1.2690 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45583.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.0 Build 69 Portable by 7997 [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45586.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:5376466C7253D04212658BCA9B1D73967FDD79CE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45594.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Premiere Pro 2024 24.6.0.86 (x64) Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45595.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ UltraUXThemePatcher 4.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45596.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ WinToUSB Technician 9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45599.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:32CFA805A849B8E7A460384873A39831A9F45298
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45605.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v20 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45610.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ CCleaner 6.27.11214 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45611.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:4DA5CBF8FCDF6E2B1FEE5C251BEF875E94E2D947
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45613.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:DE1A4DD2FD92B17F2189AD9A465C54773628430D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45616.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:9C44C5EEA42A79521A2A7A9787B09053C1E86996
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45618.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Adobe Audition 2024 24.6.0.69 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45623.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:1A40214AA80E341490B5B65D40926FD6195AE10F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45639.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ CCleaner 6.27.11214 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45643.jpg" />
 </div>
 
 

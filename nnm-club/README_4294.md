@@ -1,3 +1,84 @@
+###  Публикация: 1682011   (132119) от 05.12.2023
+
+Конец Робеспьера / La fin de Robespierre (1912) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация исторических событий предшествующих контрреволюционному мятежу 9-го термидора. Тысячекратно упомянутая и в кино и в литературе и т.п. Так закончилась Великая Французская Революция - женскими интригами, предательством соратников и смертью вождей.Производство: Франция, Pathé FrèresЖанр: короткометражный, драма, история, немое киноРежиссер: Альбер КапелланиАктеры: Жорж Сайяр, Жак Гретийя, Шарль де Рошфор, Жорж Доривал, Фаврэ, Чезаре Гравина, Thelès, Мария ВентураПеревод: Немой с интертитрами (В. Сачков)Язык озвучки: немойСубтитры: голландские (интертитры), русскиеПродолжительность: 00:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8A441B834591CB7BCBED49300610CFD80A3299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595365   (132120) от 29.12.2012
+
+Jerry Lee Lewis - The Platinum Collection (2006) [FLAC|Lossless]<Rock'n'Roll>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Folsom Prison Blues (3:43)
+02. Thirty Nine and Holding (2:56)
+03. Who Will The Next Fool Be (5:49)
+04. I Wish I Was Eighteen Again (3:42)
+05. When Two Worlds Collide (2:28)
+06. Who Will Buy The Wine (2:55)
+07. Good Time Charlieґs Got The Blues (2:24)
+08. Rockinґ Jerry Lee (2:34)
+09. Jukebox Junky (2:28)
+10. Rita May (2:43)(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682042   (132121) от 05.12.2023
+
+Благовест | Святитель Николай Сербский (2016) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный агиографический сборник посвящен личности и наследию святителя Николая Сербского (Велимировича). Он включает в себя жизнеописание святителя Николая, выборку поучений из различных его творений, рассказ о святых мощах и почитании святителя, а также о местах, связанных с жизнедеятельностью свт. Николая Сербского; приводятся в книге и некоторые воспоминания очевидцев (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF86A281851DAC76091136178134597DAC01C1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682025   (132123) от 05.12.2023
 
 Фонд «Традиция» | Непрестанно молитесь. Советы и мысли святых отцов и современных греческих проповедников (2019) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132123.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ magnet:?xt=urn:btih:C3D0795EE48EAD83C7FBC8A116A9F0B9B9361159
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132124.jpg" />
 </div>
 
 
@@ -56,7 +137,7 @@ Anyone - Miracles In The Nothingness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132125.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ magnet:?xt=urn:btih:01C84CE0CD35C7E011B20E6CB075116C7787BDB1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132126.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ Satanic Warmaster - Carelian Satanist Madness (2005) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132127.jpg" />
 </div>
 
 
@@ -134,7 +215,7 @@ magnet:?xt=urn:btih:7ED3ACBB3F3F7A429B0193F61249E1A281E3060C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132129.jpg" />
 </div>
 
 
@@ -160,7 +241,7 @@ magnet:?xt=urn:btih:45BCD4865F6895FD7F78FA0A8D6AC09548765E20
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132130.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ magnet:?xt=urn:btih:4B10C3686B662E3FC333ECB3B910809D617D39D9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132131.jpg" />
 </div>
 
 
@@ -208,7 +289,7 @@ Miss Li - Singles and Selected (2012) [FLAC|Lossless]<Indie Pop, Soul, Vocal Jaz
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132132.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ Miss Li - Singles and Selected (2012) [FLAC|Lossless]<Indie Pop, Soul, Vocal Jaz
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132133.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ Clifford Jordan - Highest Mountain (1975 - 1978) 2CD, 1999, Camden Deluxe [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132135.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ Dyscrasia - Septical Stomach-Pumped Remnants (2004) [FLAC|Lossless]<Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132136.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ Lowell Hopper - Soul Fingers (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132137.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ Anni Piper - 4 Альбома (2004 - 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132138.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ Anni Piper - 4 Альбома (2004 - 2010) [MP3|320 кб/с]<Blues>
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132139.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ magnet:?xt=urn:btih:BE74BC4A1B5C10160F4B10BAB37A3E7AEF28CF6E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132140.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ Haissem - A Sleep of Primeval Ignorance (2022) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132141.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ magnet:?xt=urn:btih:C489F9EED08116C1224E579FF00AEFC3A4DC9601
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132143.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ Dark Fortress - 5 CD (2001-2008) [FLAC|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132144.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ Solitary - Nothing Changes (1998) Reissue, 2004, Casket Music [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132145.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Fiona Boyes - 7 Альбомов (2000 - 2011) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132146.jpg" />
 </div>
 
 
@@ -577,7 +658,7 @@ VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132149.jpg" />
 </div>
 
 
@@ -610,7 +691,7 @@ VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132150.jpg" />
 </div>
 
 
@@ -630,88 +711,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680814   (132151) от 04.12.2023
-
-Navitel / Навител Навигатор v9.13.73 для карт Q3 2023 v9 [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа (файл apk) уже с вшитым ключом для карт Q3 2023.
-Навител Навигатор - точная офлайн GPS навигация, геосоциальные сервисы и подробные карты 65 стран мира. Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо (   Читать дальше...   )Релиз состоялся: 27.11.2023Разработчик: NavitelПоддерживаемая ОС: AndroidЯзык интерфейса: Ru/Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9556BB5865F3C9612503CD302358C906C3C023AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445700   (132152) от 04.12.2023
-
-Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титанов [ТВ-3] [2018, TV, 22 из 22] BDRip 1080p HEVC 10bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько сотен лет назад человечество было почти уничтожено титанами — огромными человекоподобными существами, которые не обладают интеллектом, но пожирают людей и, что хуже всего, делают это ради удовольствия, а не от чувства голода. Небольшой процент человечества выжил, возведя три высокие стены, окружившие мир людей, через которые не пройдут даже ужасные гиганты. (   Читать дальше...   )Производство: Wit StudioЖанр: приключения, фэнтези, драмаРежиссер: Араки ТэцуроЯзык озвучки: Японский, русский (AniLibria, Jam club, KANSAI, NewComers, Wakanim)Субтитры: Русские (AniLibria, Crunchyroll, Firegorn Team, Wakanim)Продолжительность: 22 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74276563CEB03711145E2A9F6AA008207E08D277
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594883   (132153) от 29.12.2012
-
-VA - Самый убойный хит (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Трофимов - Текила Бум
- 02. Ирина Круг - Без тебя
- 03. Виктор Королёв - Три часа
- 04. Стас Михайлов - Тебя оставлю я
- 05. Вика Цыганова - Доставай гитару
- 06. Денис Майданов - 48 часов
- 07. Катерина Голицына - Май
- 08. Анатолий Полотно и Федя Карманов - Не жалей
- 09. Ирина Круг - Я прочитаю в глазах твоих
- 10. Андрей Бандера - Шереметьево(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE3257EED3F2A5D14B63E22C901201B13EB14AB
 ```
 
 

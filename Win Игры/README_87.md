@@ -6,7 +6,7 @@ Mirrors of Deception: The Silver Peaks Secret / Зеркала Обмана: С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24800.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24800.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Reflections of Life 13: Sleep's Embrace / Отражения жизни 13: Об
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24808.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24808.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sail Forth (2022) [Multi] (1.01) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24809.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24809.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24819.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24819.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24825.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24825.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24836.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24836.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24843.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24843.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Combat Mission: Black Sea (2021) [Multi] (2.18.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24850.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24850.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack seleZen [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24909.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24923.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24923.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Remnant II (2) (2023) [Ru/Multi] (453.438/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24937.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24937.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WWE 2K25 (2025) [Multi] (1.03/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24938.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24938.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Trans-Siberian Railway Simulator (2024) [Ru/Multi] (Build 17516909) Repack Wante
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24939.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nightmare: The Lunatic (2024) [Ru/Multi] (1.2.1d) Repack Let'sРlay [Soundtrack 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24940.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Rising Sun: Iron Aces (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24944.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24944.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24953.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24953.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24971.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24971.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ House of Caravan (2015) [Ru/Multi] (1.0.1) Scene PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25009.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sons of the Forest (2023) [Ru/Multi] (53951) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25024.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.7/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25041.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1655.fb15f73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25051.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25055.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bonesaw (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25056.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25056.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ THE KING OF FIGHTERS XIII GLOBAL MATCH (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25058.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hell Division (2022) [Ru/Multi] (1.0b) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25060.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25070.jpg" />
 </div>
 
 

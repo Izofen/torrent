@@ -1,3 +1,78 @@
+###  Публикация: 1689802   (124358) от 04.01.2024
+
+Wise Program Uninstaller 3.1.7.261 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89135C2792FFBD7D55A3796E150973D087FF5D89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689796   (124359) от 04.01.2024
+
+Лев Лурье | Лекция «Москва – Петербург. 13 отличий» (2019) [MP3, Лев Лурье]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124359.jpg" />
+</div>
+
+
+###  Подробнее
+
+На лекции Льва Лурье, посвящённой различиям Петербурга и Москвы, вы узнаете, чем так гордятся петербуржцы, что теряют москвичи, а также о том, каковы истоки этого вечного противостояния. Так уж сложилось, что два этих главных города нашей родины всё время противопоставлялись друг другу и конкурировали между собой. Везло то одному, то другому по очереди, в зависимости (   Читать дальше...   )Жанр: Публицистика, культурология, историяИздательство: Лекторий "Прямая Речь"Продолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E5581449A5D26B7EA170DD4B750301006BAF61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689867   (124360) от 04.01.2024
+
+Soft Deep - Compilation (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  So Long
+ 02.  Devorra`
+ 03.  Dream Away
+ 04.  Memories(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214898856435C730987F46C15A40253201D47682
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689860   (124361) от 04.01.2024
 
 Журнал | Инженер №12 (декабрь 2023) [PDF]
@@ -6,7 +81,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124361.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Laibach - 3 Releases (2023) [MP3|320 Kbps] <Industrial, Neo-Classical, Experimen
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124362.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:826E7DB09DA54F61CCE93276C70F92347B9B78DA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124363.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124364.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:5D662FFDF77D14E7B6F189D17C520D3896CD7D81
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124365.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [MP3|320 Kbps] <Alt
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124366.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ Sandboxie plus 1.12.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124367.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ PhotoRoom v4.8.0 b1226 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124368.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ magnet:?xt=urn:btih:BEBE74E04C1B0A8E807809C3489F4275A4629B3F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124369.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124369.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ LOUNA - Обратная сторона. Часть 2 (2023) [FLAC|Lossless|WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124370.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ magnet:?xt=urn:btih:5553F26624E7CDB76FC9689EB26C5BEB9DA8654E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124371.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ magnet:?xt=urn:btih:93EFDCE1494683B7C14F98B5C1C3048EB889E347
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124372.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ magnet:?xt=urn:btih:6F0CF821DDCDE83A423DDF8AAACA7CBC98A91C93
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124373.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ magnet:?xt=urn:btih:406655D38CC2BEDBBE2B8DDEC04AD8675AEC867E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124374.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ magnet:?xt=urn:btih:9F160ED33C74E600AF55D786484ADB7AC82133E5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124375.jpg" />
 </div>
 
 
@@ -380,7 +455,7 @@ magnet:?xt=urn:btih:99A565FCB6DA06AAF3EED4653D03E9386A0097CF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124376.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ magnet:?xt=urn:btih:FA057FE60DB3A65D89D7AB583CB92F7597F5E5EE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124377.jpg" />
 </div>
 
 
@@ -430,7 +505,7 @@ simplewall 3.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124378.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ Kaya Joshi: Magical Detective (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124379.jpg" />
 </div>
 
 
@@ -480,7 +555,7 @@ Astrological Charts / Астрологические Карты Pro v10.5 [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124380.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ magnet:?xt=urn:btih:561BD9FF196904575B70A777EC18CA2E24B2CE83
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124381.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ magnet:?xt=urn:btih:D327E67FE548FDC7BACE135DE6C380480EF825BD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124382.jpg" />
 </div>
 
 
@@ -553,7 +628,7 @@ Kirill Pokrovsky - Music from the Divinity Universe (2004) Limited Edition Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124383.jpg" />
 </div>
 
 
@@ -567,81 +642,6 @@ Kirill Pokrovsky - Music from the Divinity Universe (2004) Limited Edition Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:712606B541A076AEC67A93ADC212D923AA0E4B0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689891   (124384) от 04.01.2024
-
-Вадим Скумбриев | Департамент Контроля Реальности (Книга 3). Иллюзия контроля (2023) [MP3, Юрий Несговоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, все слышали о попаданцах – людях, которые внезапно перемещаются из одного мира в другой. Одни благодаря своим познаниям наводят в нездешнем мире шороху. Другим – не везёт… Так вот, оказывается, каждый попаданец учтён, а их деятельность отслеживается специальными органами. Артём Лещенко уже давно живёт в параллельном мире, но по-прежнему мечтает вернуться (   Читать дальше...   )Жанр: Героическая фантастика, ПопаданцыИздательство: 1С-ПаблишингПродолжительность: 09:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981171C04FD56252B0C1DAC8E3B282DA4EB5D46F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689895   (124385) от 04.01.2024
-
-Google Chrome 120.0.6099.200 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB46FC89E701FACC6B5DE9870B766ACD1495D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823306   (124386) от 11.10.2025
-
-Стихи русских поэтов v2.0.6.3 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи русских поэтов - содержит более 19000 стихи 260 русских поэтов.
-
-Александр Пушкин
-Сергей Есенин(   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 11.10.2025Разработчик: TTdictionaryПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A5A83A3278E30EDA956D9AA90484A59A0A7BF8
 ```
 
 

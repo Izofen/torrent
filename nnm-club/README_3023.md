@@ -1,3 +1,101 @@
+###  Публикация: 453720   (93708) от 18.02.2012
+
+Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Love (2:16)
+02. Love Me Or Leave Me (3:13)
+03. The Man I Love (3:21)
+04. You're The One (3:35)
+05. People Will Say We're In Love (3:25)
+06. Don't Take Your Love From Me (3:09)
+07. Love Is The Thing (3:21)
+08. Someone To Watch Over Me (3:15)
+09. At Long Last Love (2:41)
+10. I'm Confessin' (That I Love You) (3:28)(   Читать дальше...   )1999Жанр: Vocal JazzПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453905   (93712) от 18.02.2012
+
+Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues For Shai (4:43)
+02. Moment We Touch (4:21)
+03. Ahava (5:07)
+04. Borbala (6:13)
+05. Home By Five (5:00)
+06. Ease My Mind (3:56)
+07. Midnight Walk (5:31)
+08. City Lights (4:59)
+09. Memories of You (5:20)
+10. Roughly Smooth (5:26)2011Жанр: Smooth Jazz, BluesПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453811   (93714) от 18.02.2012
+
+Caribbean Jazz Project - Mosaic (2006) [FLAC|Lossless]<Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nardis (7:00)
+02. St. Ogredol (5:00)
+03. Portraits Of Cuba (7:52)
+04. Afro Green (5:41)
+05. Wazo Dayzeel (8:51)
+06. Slow Dance (4:45)
+07. Spinnaker (4:40)
+08. Mambo De Luna (Para Cachao) (6:56)
+09. Dusk (7:59)2006Жанр: Latin JazzПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453974   (93724) от 18.02.2012
 
 [EN] 13 часов / 13Hrs (2010) DVDRip
@@ -6,7 +104,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93724.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@ magnet:?xt=urn:btih:EC6C66547B104A88D7BA6E8CAA3FF8F74504AAB1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93729.jpg" />
 </div>
 
 
@@ -54,7 +152,7 @@ Seven Seals - ... of Contradictions (2012) [MP3|320 kbps]<Heavy/Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93740.jpg" />
 </div>
 
 
@@ -87,7 +185,7 @@ UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93741.jpg" />
 </div>
 
 
@@ -120,7 +218,7 @@ Tony Bennett & K.D.Lang - A Wonderful World (2002) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93751.jpg" />
 </div>
 
 
@@ -153,7 +251,7 @@ Tony Bennett & K.D.Lang - A Wonderful World (2002) [FLAC|Lossless]<Vocal Jazz>
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93752.jpg" />
 </div>
 
 
@@ -177,7 +275,7 @@ VA - Ballads in Blue (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Jazz ballads>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93754.jpg" />
 </div>
 
 
@@ -210,7 +308,7 @@ VA - New Russian Electro - Vol.16 (2012) (2012) [MP3|320 kbps]<Electro House,Hou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93759.jpg" />
 </div>
 
 
@@ -243,7 +341,7 @@ magnet:?xt=urn:btih:D4D125AC18F987E9E41E93F5828C9A1A4FB3893D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93762.jpg" />
 </div>
 
 
@@ -267,7 +365,7 @@ Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93763.jpg" />
 </div>
 
 
@@ -299,7 +397,7 @@ Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, P
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93767.jpg" />
 </div>
 
 
@@ -323,7 +421,7 @@ Soen - Cognitive (2012) [MP3|320 kbps]<Progressive Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93780.jpg" />
 </div>
 
 
@@ -356,7 +454,7 @@ VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93782.jpg" />
 </div>
 
 
@@ -389,7 +487,7 @@ VA - Minimal Art v.5 (13.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93784.jpg" />
 </div>
 
 
@@ -422,7 +520,7 @@ VA - The Dance Cube XXXI (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93793.jpg" />
 </div>
 
 
@@ -455,7 +553,7 @@ IntroWert - Progressive Reason Episode 070 [06.02.2012] (2012) [MP3|192 kbps]<Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93794.jpg" />
 </div>
 
 
@@ -488,7 +586,7 @@ VA - Goa 2012 Vol. 1 (2CD) (2012) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Ful
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93797.jpg" />
 </div>
 
 
@@ -521,7 +619,7 @@ VA - Stay Alive (Compiled by Wega) (2012) [MP3|192-320 kbps]<Psychedelic / Full 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93810.jpg" />
 </div>
 
 
@@ -554,7 +652,7 @@ VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93815.jpg" />
 </div>
 
 
@@ -578,7 +676,7 @@ VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93817.jpg" />
 </div>
 
 
@@ -611,7 +709,7 @@ magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93826.jpg" />
 </div>
 
 
@@ -635,7 +733,7 @@ Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electr
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93829.jpg" />
 </div>
 
 
@@ -666,7 +764,7 @@ VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93832.jpg" />
 </div>
 
 
@@ -678,96 +776,6 @@ VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451CEEC97E1E446D6402B26E5AB99EE70329FDA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455014   (93842) от 19.02.2012
-
-Н.В.Мельникова | Семейный обед [2012] [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем читателям рецепты для совместных трапез из недорогих и простых в приготовлении продуктов. Соберитесь всей семьей на обед!2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80CF5E3A22240237880469C61C8260FC80733C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454329   (93843) от 19.02.2012
-
-VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lauge & Baba Gnohm - Nordlys 13:39
- 02. Bob Tracker - 17 Grand Way 07:44
- 03. Bahramji and Mashti - All About You 04:56
- 04. MIC - Visite Champetre 16:53
- 05. Nalepa - Snowflakes 06:00
- 06. Metaphorical Cloud - Substance 06:04
- 07. E-Mantra - If there is Nothing 07:29
- 08. Soulalive - Undercurrent 05:10
- 09. Easily Embarrassed - Blurred Clouds Under The Gloomy Moon 08:02
- 10. Side Liner - A Hand To Hold 09:02(   Читать дальше...   )2012Жанр: Psychedelic / Ambient, Psy ChillПродолжительность: 01:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EFC983498F7E72FA4968BCC5ECD551FAE0A697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454694   (93845) от 19.02.2012
-
-VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Changes (Original Mix)
-02. LMFAO - Sexy And You Know It
-03. Niels van Gogh vs. Emilio Verdez - Beatrocker (Original Mix)
-04. Dj Kuba & Ne!tan - Deejay Deejay (Peppermint Remix)
-05. Knife Party - Internet Friends (Original Mix)
-06. DJ SMASH FEAT MAURY - Rendez Vous (Sebastien Lintz Extended Mix)
-07. Roisin Murphy feat. The Crookers - Royal T
-08. Sarvi - Amore (Chuckie Remix)
-09. Dj Antoine vs. Empire Of The Sun - Walking On A Dream (Dj Pitchugin Booty Mix)
-10. Rihanna Feat. Calvin Harris - We Found Love (Chuckie Remix)18.02.2012Жанр: House, Trance, DanceПродолжительность: 02:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949BBB3E7E949D069EE0C09BE1893F296608BE1B
 ```
 
 

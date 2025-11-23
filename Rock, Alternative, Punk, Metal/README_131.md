@@ -6,7 +6,7 @@ Decortication - Necrolatry: A Morbid Worship (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108671.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dead Head - Kill Division (1999) [FLAC|Lossless|image + .cue] <Thrash, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108691.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Celestial Season - Mysterium III (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108693.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Modern Rock New Anthems (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108699.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Night Sins - A Silver Blade In The Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108701.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hell Riders - Rising Phoenix (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108702.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kalad - Arkamine (2024) [MP3|320 Kbps] <Modern Metal, Symphonic Metal, Female Vo
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108703.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Fughu - Stolen Pictures (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108706.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Freeways - Dark Sky Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108707.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ twikipedia - for the rest of your life (2024) [FLAC|Lossless|WEB-DL|tracks] <alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108708.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Teramaze - Eli: A Wonderful Fall from Grace (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108725.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Methodica - Hypocricity (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108729.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mad Hatter - Oneironautics (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108733.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Armed Cloud - Nimbus (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108735.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Vasco Rossi - Greatest Hits (2002) [WavPack|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108750.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Theater of Malum - Edge of The Unknown (2024) [FLAC|Lossless|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108752.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Silver Horses - Electric Omega (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108756.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tezza F - Key To Your Kingdom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108775.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wizzard - Back and Alive (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108777.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Cypecore - Take the Consequence (2010) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108779.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dawn of Perception - Fragments (2005) Demo [FLAC|Lossless|tracks + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108780.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Cypecore - Identity (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108781.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dead Head - Dream Deceiver (1993) [FLAC|Lossless|image + .cue] <Thrash, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108782.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Stellar Circuits - Ways We Haunt (2018) Remaster, 2024, Stellar Circuits [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108785.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:0A2A65E76CA996B4810F5364881F23C0AFBEA1EE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108788.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Unnamed Feeling - Наша Последняя Ночь (2024) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108790.jpg" />
 </div>
 
 

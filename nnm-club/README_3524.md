@@ -1,3 +1,84 @@
+###  Публикация: 1716735   (111306) от 17.04.2024
+
+The Dave McKenna Quartet featuring Gray Sargent - No More Ouzo For Puzo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look for the Silver Lining [4:57]
+02. Shake Down the Stars [5:29]
+03. Smile [5:25]
+04. Lonesome Me [3:22](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88DEF2CCCBDC14B48E8775510841CE7A677A8DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716734   (111307) от 17.04.2024
+
+Dave McKenna - Giant Strides (1979) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Dreams Come True [3:42]
+02. Yardbird Suite [2:58]
+03. Windsong [2:50]
+04. Dave's Blues [6:10](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB575D81D1B5B191763536F961242739D66D79F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716736   (111308) от 17.04.2024
+
+Dave McKenna & Gray Sargent - Recorded Live At Maybeck Recital Hall (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sheik of Araby [6:58]
+02. Girl of My Dreams [7:04]
+03. Red Woods in the Sunset [7:21]
+04. Letter Medley [13:34](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385B146980B5F1DD44DA29D10E2ED5C10AD94C09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716862   (111309) от 17.04.2024
 
 Нашедшиеся / Weergevonden (1914) WEBRip [H.264/720p-LQ]
@@ -6,7 +87,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111309.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ Daevar - Amber Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, Psych>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111310.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ magnet:?xt=urn:btih:CC9569F7BF1E48C6628F511C25CC59EE3C650C1D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111311.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ VA - Klavier - Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111312.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Erroll Garner - Piano Magic (1940-e - 1950-e) 1999, Hallmark [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111313.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Kevin & JD - Island Of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111314.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ Erroll Garner & Billy Taylor - Separate Keyboards (1945, 1949) 1993, Savoy Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111315.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ Pat Martino & Gil Goldstein - We Are Together Again (2012) Warner [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111316.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ Voided - One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111317.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ magnet:?xt=urn:btih:B21B2BE8E9B0874977147A3F36B65A3919C9383B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111318.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ magnet:?xt=urn:btih:F9A269269D9A1883FCF33221791A9CE41595C8A2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111319.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ Jeff Russo - Fargo Year 5 (Soundtrack from the MGM/ FXP Series) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111320.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ VA - Ultimate Relaxing Lounge Jazzy Weekend Playlist (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111321.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ Jeff Russo - Fargo Year 4 (Soundtrack from the MGM/FXP Series) (2020) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111322.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ House Of Lords - Come To My Kingdom (2008) [FLAC|Lossless|image + .cue] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111323.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ magnet:?xt=urn:btih:D296A6079160331C87DCA7D4BA5452DE56C5D945
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111324.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ Giuseppe Alicata - Take Me To Your Heart (2019) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111325.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ magnet:?xt=urn:btih:34C4362EBA082DD82261F04CAD899A21979E561E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111326.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ magnet:?xt=urn:btih:E518E9784C3E8848E0BD65A65959C2A380E4D0DC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111327.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ magnet:?xt=urn:btih:1D21BEB6369AA1BDE36B0EBD640F3982DC67E52A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111328.jpg" />
 </div>
 
 
@@ -527,7 +608,7 @@ Estopa - Estopía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Latin Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111329.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ VA - Ultimate Relaxing Jazz Music for Weekends (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111330.jpg" />
 </div>
 
 
@@ -581,7 +662,7 @@ Evolucija - The World is Full of Wrath (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111331.jpg" />
 </div>
 
 
@@ -595,87 +676,6 @@ Evolucija - The World is Full of Wrath (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FD214A24B42F9A95679FE7883BF091E2EE6C4DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716539   (111332) от 16.04.2024
-
-VA - Urban Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Funk, Downtempo, Soulful House>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anduze - How To Love A Good Man (Those Guys From Athens Radio Remix) (3:23)
-02. Durty Geeks - Dolomyte (4:05)
-03. Funk Revenge - By Our Side (4:18)
-04. Vito Lalinga (Vi Mode Inc. Project) - Funk In A Min (4:44)(   Читать дальше...   )Жанр: Chill Out, Funk, Downtempo, Soulful HouseПродолжительность: 02:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64EF7ADEF76FC965F13707F710C580EF50E058E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716532   (111333) от 16.04.2024
-
-VA - Jazzy Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Puschnig - Naima (3:46)
-02. Benny Carter - If Dreams Come True (5:49)
-03. Oscar Peterson - Come Dance With Me (2:19)
-04. Dinah Washington - Teach Me Tonight (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7F6999B40CA290FF3349F1EF66C15581D9B733
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716529   (111334) от 16.04.2024
-
-VA - Jazz Dinner Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Café Drechsler - And Now…Boogie! (2:48)
-02. Chet Baker - Let's Get Lost (3:44)
-03. Vienna Art Orchestra - Rem Blues (3:54)
-04. Wolfgang Puschnig - Microphone Veteran (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B278B5E0F5A82248AD5788EB5DEA27680AD24D9
 ```
 
 

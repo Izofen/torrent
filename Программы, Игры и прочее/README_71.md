@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8537BD1AE2E07A442CECC5BC09834859D30F0AE8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174482.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174582.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Unmechanical v1.04 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174844.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174844.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:16035AE96D7C425B678EF64A433CE6708AD524DD
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174849.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174849.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Simple Gallery v6.28.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175052.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175999.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lock Me Out v7.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176005.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176005.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0FCEB6C25769E7FB11FFE4EF201E24EA5631E248
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176482.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ RAR for Android v6.23 build 119 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176574.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ ColorNote - Блокнот заметки v4.4.6 Free + Mod by СМАРТОС [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176582.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Relax Rain: sleeping sounds v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176683.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:256C97FC935482F7BEB44648AD95407508EC0E93
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177156.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_177156.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ X-Plane Flight Simulator v11.4.6 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177179.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_177179.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:0B5BD9D864A1CE68F9CA9F18FB00CB922A75DD97
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177211.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177211.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C8EE859DAF02C182B2BA1FF66A27CC9A71AB0657
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177283.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177283.jpg" />
 </div>
 
 
@@ -390,6 +390,54 @@ magnet:?xt=urn:btih:7E11010580B789543614E6D519DDB38C7BAE0692
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429018   (177351) от 05.12.2020
+
+Awesome Tanks - Крутые Танки v1.261 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Awesome Tanks – захватывающий экшен на андроид, где вы примите участие в танковых баталиях. В этой игре с видом сверху вы перенесетесь на поле боя где будете разрабатывать свою стратегию ведения боя чтобы уничтожить все танки противника.Тип издания: Пиратка (Мод)Релиз состоялся: 23 ноября 2020 г.Разработчик: EmitterCritter gamesПоддерживаемая ОС: Android 4.1 и вышеЖанр: Action (Экшен)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362C4557EF6630BDDD16B257CC71F22F0B169223
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429108   (177356) от 05.12.2020
+
+Sonic Dash v4.15.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonic Dash – раннер от SEGA про знаменитого ежа на Андроид. Вас ждут сумасшедшие скорости, различные препятствия и красочные уровни. Обходите все препятствия, собирайте монетки, получайте сверх способности и крушите всё на своём пути.Тип издания: Пиратка (Мод: Много колец - много алмазов)Релиз состоялся: 25 ноября 2020 г.Разработчик: SEGAПоддерживаемая ОС: Android 4.4 и вышеЖанр: Arcade (Аркада)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D4E1F25D7DD8F686153667CE9A167264171C51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667176   (177378) от 07.10.2023
 
 Photo Lab PRO v3.12.72 Mod by Mixroot, maxi123444 [Ru/Multi]
@@ -398,7 +446,7 @@ Photo Lab PRO v3.12.72 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177378.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177378.jpg" />
 </div>
 
 
@@ -414,6 +462,30 @@ magnet:?xt=urn:btih:6136CEFD0DD0337B404D85F67D0D2C1EAD54732D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429110   (177476) от 05.12.2020
+
+Tag Team Karate Fighting Games: PRO Мастер кунг-фу v2.3.3 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tag Team Карате Борьба Игры: PRO Kung Fu Master - качественный файтинг, в котором игрок будет участвовать в соревнованиях по боевым искусствам.Тип издания: Пиратка (Мод)Релиз состоялся: 4 декабря 2020 г.Разработчик: Боевая аренаПоддерживаемая ОС: Android 4.1 и вышеЖанр: Fighting (Файтинг)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFA3868C50FBB7DA1C1EC226A22FEE47A469E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667163   (177520) от 07.10.2023
 
 ActionDirector - Видеоредактор v7.10.0 Mod by Balatan [Ru/Multi]
@@ -422,7 +494,7 @@ ActionDirector - Видеоредактор v7.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177520.jpg" />
 </div>
 
 
@@ -438,6 +510,30 @@ magnet:?xt=urn:btih:2E2796146F0BEB0A1BF52945673A935A88CBBB32
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340673   (177953) от 04.12.2020
+
+Мнемонист v1.8.1 [Ru] - тренировка памяти и мозга (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересное и полезное приложение для тех, кто любит напрягать свой мозг. Смысл прост - проходите уровни, запоминая и вспоминая слова. Игровая форма и мотивирующие уведомления, которые воздействуют на совесть, не дадут вам забросить тренировки. В игре приведены основные методики запоминания. Благодаря им вы сможете запоминать десятки и даже сотни слов. Ваша память (   Читать дальше...   )Тип издания: Пиратка (Mod, куплены звезды и подсказки)Релиз состоялся: 09.04.2020Разработчик: Pavel ShirokovПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6C84015A55EF570F1CD0CC4A1E86D5FECAC65B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594328   (178319) от 30.11.2022
 
 Poweramp v3-build-946-uni [Ru/Multi]
@@ -446,7 +542,7 @@ Poweramp v3-build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178319.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178319.jpg" />
 </div>
 
 
@@ -470,7 +566,7 @@ Slaughter 2: Prison Assault 1.42 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178336.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178336.jpg" />
 </div>
 
 
@@ -494,7 +590,7 @@ Carly — OBD2 car scanner 48.47 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178343.jpg" />
 </div>
 
 
@@ -518,7 +614,7 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178398.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178398.jpg" />
 </div>
 
 
@@ -529,102 +625,6 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D7D469007026958EF553CB0127E84D4BA0B94C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594212   (178405) от 30.11.2022
-
-Сканер QR- и штрих-кодов (Pro) 2.8.0-P [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сканер QR- и штрих-кодов (Pro) - приложение для считывания штрих-кодов и QR-кодов. Пользователи смогут быстро получать исчерпывающую информацию скрывающуюся за полосками и квадратиками. Товары и продукты, реклама и объявления, билеты и зашифрованные полезные знания. Подобные элементы окружают нас со всех сторон в современном мире. И зачастую мы их просто-напросто (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 06.10.2022Разработчик: TeaCappsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE6099668C1028DE429FDBBD22F17AD03CE5077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594333   (178410) от 30.11.2022
-
-Slaughter 1.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит побывать в шкуре Рассела - наемника, который попал в плен в городе, населенном одними психопатами! Перед ним долгий путь к свободе, лежащий через тёмные улицы заброшенного городка. Берите в руки пушку и вперед - прорываться через орды отъявленных психов и устрашающих боссов!Тип издания: PaidРелиз состоялся: 11.07.2019Разработчик: Ray SparkПоддерживаемая ОС: Android 4.1+Жанр: Action, Adventures, ShooterЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC74E8CAE74459B8511AF45DB49ABDFB4387332C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594357   (178432) от 30.11.2022
-
-Точная погода YoWindow Pro 2.35.17 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178432.jpg" />
-</div>
-
-
-###  Подробнее
-
-YoWindow - это нестандартная но очень удобная погодная программа. Секрет YoWindow - живой пейзаж отражающий настоящую погоду. Например, если погода дождливая - в YoWindow идет дождь. Солнце в YoWindow восходит и садится в то же время, что и в реальной жизни. Но главное - это возможность прокрутить время вперед. Для этого достаточно просто провести пальцем по экрану (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 11.11.2022Разработчик: RepkaSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E4143E7D7EB128DF856345421153384ACA7E82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594314   (178492) от 30.11.2022
-
-Olauncher 3.5.6 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Olauncher - это минималистичный лаунчер без рекламы, который уважает вашу конфиденциальность. Это приложение избавит вас от отвлекающих факторов, чтобы вы могли сосредоточиться на действительно важных вещах. Вы должны использовать свой телефон, а не наоборот.Тип издания: FreeРелиз состоялся: 11.11.2022Разработчик: tanujnotesПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский, Французский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975CB22E10B57E47A561361ED2F430CD7C9B5C80
 ```
 
 

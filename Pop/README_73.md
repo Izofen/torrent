@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163876.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CCAC405E3CCB2C307F983D60365B20B9C8DC2313
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163881.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:BFD1A0C9842F965828E3A63B17A4654AC99C84CF
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163899.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6484B93312E60B388A406E6A24CAAAFB24A820C7
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163923.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163932.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Patric Cowley - Malebox (2022) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163934.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163954.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:E173C6279867BB010CBD89CD4143BC4A0751A3AB
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163971.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:AB85EBF6CA937DED6EAC1F134A01E5CBE8123FB5
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163999.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2C5D8B7C741FB3A2894D7C45FB8D4C97FA8BE014
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164018.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Vanessa Mai - Für Immer Tour Live 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164057.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ The Philarmonics - Philadelphia Disco (1977) LP [MP3|320 Kbps] <Disco, Instrumen
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164216.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Elton John - The Lockdown Sessions (2021) Japanese Edition [FLAC|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164288.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Apres Ski Party Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164447.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Riccardo Cocciante - - ... Je Chante (1999) [FLAC|Lossless|image + .cue] <Pop, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164448.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - ОДНАЖДЫ В ЛАТВИИ Песни А.Мирского и С.Нем�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164513.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:13ED33BF43391D6A0A1BDEDFF4EBB21BE9F94194
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164807.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Sensation 80s - The Ultimate Funk & Disco Classics (2022) 2CD, Compilation 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164981.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165091.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - MNM Big Hits - Best Of 2019 (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165107.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Kelly Marie - 2 Albums (1976-1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165345.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Liz Mitchell - A Christmas Rose (2001) (ex. Boney M) [MP3|320 Kbps] <Pop, Ballad
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165776.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Dance Dance  Best of 2022 [MP3|320 Kbps] <Pop, Dance, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165851.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Jennifer Lopez - This Is Me...Then (2022) 20th Anniversary Edition [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165884.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Mylene Farmer - Monkey Me (2012) 2xCD, Reissue, 2021, Stuffed Monkey [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166012.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:C31C80EF385C25C78CCB7F202056527960609939
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166090.jpg" />
 </div>
 
 

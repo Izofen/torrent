@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22801.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22801.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Which Way Up: Galaxy Games (2025) [Ru/Multi] (1.0.0+e1d15/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22802.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22802.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft PowerToys 0.90.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22803.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22803.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2873C5F1FB7DAB06F2E889742816F8215A03ADEB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22804.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22804.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:658BAA3111B950A17F1C5C4AA0909C61793B23FB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22805.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22805.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Nature & Life: Drunk On Nectar (2016) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22806.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22806.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fast Video Cutter Joiner 6.7.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22807.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A92DA1AF7D0032103E3B756E62A940C174DBEA0C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22808.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22808.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:61054C94CD1C6960C1B5F4E1F2713B755ED1557B
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22809.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22809.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:3BC5724F5BFC7FE3FD920BED16599FF6DCC6175E
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22810.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22810.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B24F934B232E94F1045DCC7DD54B289E845ADAE0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22811.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22811.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:DEE6F245BACD2D6F52530BE48FCDAACD4DEDBC1B
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22812.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ KStars 3.7.6 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22813.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:FDAB9942404C33901E12AC611A9FA7CACDB9F83E
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22814.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22814.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:07D7E3F380A72A5EA10BBBBD6D72D178B0BC52B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22815.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22815.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Romantic Dreams (2025) [MP3|320 Kbps] <Pop, Rock, Love Songs>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22816.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22816.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:7D8E09D943AF45A85E6A6CB3CA1A0E89359642ED
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22817.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22817.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:75DAA4B35BE17AC5C73F30172A0E7D526F3DFE7F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22818.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22818.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:3476AB56BCBBA9D9C8C032D1B1A6EC91C8935F33
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22819.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:863676B6AFB2D283CD55AA1D55D0FE32721979B0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22820.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22820.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:AFC08D88ED8106AB856B59F7ACC56F663EDEA97F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22821.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22821.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:F7AD2C54116047760A7CDAD8C7F94C49AFFCDCC8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22822.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22822.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:76F5936069186514D4627178512C4DB7AEA8B66C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22823.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22823.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:97F9AE6670C182A85E42DE4C6124D61CC26D584B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22824.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22824.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Karing 1.1.2.606 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22825.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22825.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.3d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22826.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22826.jpg" />
 </div>
 
 

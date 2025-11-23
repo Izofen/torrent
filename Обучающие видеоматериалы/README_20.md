@@ -6,7 +6,7 @@ George Vondriska | Основы изготовления мебели (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42760.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:87D832A5E868ABD01030629866E3885386C7A48B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42912.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:54C4A6FFA6A64200E5BA4EFC8A0E9BACE7EB4DB1
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43318.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9352AFDF1B47ADAD2EE7E912E9F0451D925F23F7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43400.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ George Vondriska | Изготовление ящиков: «ласточкин �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43452.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:1E5971816F612AFDC90E12DA082EEBF85B4E5C7F
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44020.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44033.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ pro-z.ru | Проектирование стального каркаса скл
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44039.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ pro-z.ru | Обследование конструкций зданий (2024) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44040.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ pro-z.ru | Проектирование одноэтажного жилого д
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44045.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Profileschool, Никита Чесноков | Blender - базовый уров
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44051.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:BECEF35A8CC6AB5F985E2E81D05ABD6BDF071EA5
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44123.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:7688E355F8E81B15D89BC65E680E07CEA1224EE0
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44139.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ CG INCUBATOR, Артём Куприяненко | Архитектурный в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44148.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Profileschool, Никита Чесноков | Blender - продвинутый 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44157.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Christopher Schwarz | Создайте походное кресло (2018) WEBR
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44227.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:4CABC83557E9F3AED190EF28B472FA3D902CBB61
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44259.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Cynthia Bleskachek | Начало работы с обивкой мебели (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44280.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:134BB93F604DF16ACDCEB2A89CDE93CE400B60B0
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44325.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:CB3B45A80E50FA24B59EA9A7AB0F86EEA2DD81A0
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44330.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:575A53A79AE5B524A392738F3F21AB8B704A2A03
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44352.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Jim Heavey | Ящики для шкафов и изысканной мебели
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44386.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Robert Spiece | Двери для шкафов и изысканной мебе�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44632.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-740) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44792.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Christopher Schwarz | Верстак (2008) DVDRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44842.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:22CE1C7F47EC9A5538E6FA677758C7C488CF14C5
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44982.jpg" />
 </div>
 
 

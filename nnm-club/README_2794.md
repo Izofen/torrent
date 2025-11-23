@@ -1,3 +1,79 @@
+###  Публикация: 460310   (79415) от 01.03.2012
+
+9 1/2 недель / Nine 1/2 Weeks (1985) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Элизабет встречает Джона, ее уравновешенность улетучивается в одно мгновение. Изощренный соблазнитель втягивает ее в эффектную любовную игру, которая заставляет ее отказаться от прежних жизненных принципов. Их свидания - это утоление голода, это мед, стекающий по ее груди, это клубника, которую он губами вынимает у нее изо рта.
+
+Их постель - это металлическая лестница в подворотне, где они занимаются любовью. И сама их любовь - это дождь, льющийся из разверзшихся небес, это землетрясение, это всесокрушающий ураган.
+
+Их любовь - это трагическая невозможность жить вместе, потому что вместо вопроса «что я могу сделать для тебя?» оба задаются вопросом «на что ты готов пойти ради меня?»...Жанр: Драма, МелодрамаРежиссер: Эдриан ЛайнАктеры: Микки Рурк, Ким Бейсингер, Маргарет Уиттон, Дэвид Маргулис, Кристин Барански, Карен Янг, Уильям Де Акутис, Дуайт Уайст, Родерик Кук, Виктор ТруроПеревод: Многоголосый закадровый, Авторский одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:56:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460687   (79418) от 01.03.2012
+
+Братья Блум / The Brothers Bloom (2008) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Стивен и Блум — мошенники международного масштаба. За многие годы совместной работы они в совершенстве освоили искусство ненасильственного отъёма денег у миллионеров. Берясь за своё последнее дело — обман красивой и эксцентричной наследницы Пенелопы — они не могли и предположить, какие приключения их ждут.Жанр: Комедия, Мелодрама, ПриключенияРежиссер: Райан ДжонсонАктеры: Рейчел Вайс, Эдриан Броуди, Марк Руффало, Ринко Кикучи, Робби Колтрейн, Максимилиан Шелл, Рикки Джей, Захари Гордан, Макс Рекордс, Энди Найман ...Перевод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459754   (79433) от 01.03.2012
+
+Полночь в Париже / Midnight in Paris (2011) BDRip [H.264/1080p] [AVO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель и безнадежный романтик, уверенный в том, что должен был жить в 1920-е годы, приезжает в Париж со своей возлюбленной на каникулы и попадает в прошлое. Встречаясь там с Хемингуэем, Пикассо, супругами Фицжеральдами, Гертрудой Стайн он понимает, что принадлежит этому времени и хочет остаться там навсегда.Производство: США, Испания / Gravier Productions, Mediapro, Televisiо de Catalunya (TV3)Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Вуди АлленАктеры: Оуэн Уилсон, Рэйчел МакАдамс, Курт Фуллер, Мими Кеннеди, Майкл Шин, Карла Бруни, Морис Зонненберг, Тьерри Ханчиссе, Эдриан Броуди, Марион Котийяр, Кэти Бейтс, Том ХиддлстонПеревод: Авторский закадровый, Ю.СербинСубтитры: Русские, ФранцузскиеПродолжительность: 01:33:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459910   (79456) от 01.03.2012
 
 hochuchu | Параллельная обработка звука эффектами в Adobe Audition 3.0 [2012] PCRec
@@ -6,7 +82,7 @@ hochuchu | Параллельная обработка звука эффекта
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79456.jpg" />
 </div>
 
 
@@ -32,7 +108,7 @@ BBK | Сборник схем и сервис-мануалов по ремонт
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79457.jpg" />
 </div>
 
 
@@ -65,7 +141,7 @@ magnet:?xt=urn:btih:F10A56E8F0B93B5C3DA19EB2746E75726C57EA90
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79463.jpg" />
 </div>
 
 
@@ -89,7 +165,7 @@ magnet:?xt=urn:btih:595E89440E09BB9297F3E808A092B1C77411FC2C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79464.jpg" />
 </div>
 
 
@@ -114,7 +190,7 @@ Spectra Foo Complete 4.2.3 [English]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79465.jpg" />
 </div>
 
 
@@ -138,7 +214,7 @@ SpectraFoo предоставляет все инструменты звукоа
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79472.jpg" />
 </div>
 
 
@@ -164,7 +240,7 @@ magnet:?xt=urn:btih:0EABFAD95AB16AE4BD019BFF17A91C2C12C9A95C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79473.jpg" />
 </div>
 
 
@@ -189,7 +265,7 @@ magnet:?xt=urn:btih:3AAF3943482794F6E880618F4B6A7105363D4265
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79488.jpg" />
 </div>
 
 
@@ -215,7 +291,7 @@ magnet:?xt=urn:btih:3AAF3943482794F6E880618F4B6A7105363D4265
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79489.jpg" />
 </div>
 
 
@@ -240,7 +316,7 @@ magnet:?xt=urn:btih:3AAF3943482794F6E880618F4B6A7105363D4265
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79491.jpg" />
 </div>
 
 
@@ -266,7 +342,7 @@ magnet:?xt=urn:btih:2D142932C6C81DC79309BA2DB421FA1A5EB59E5D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79494.jpg" />
 </div>
 
 
@@ -292,7 +368,7 @@ magnet:?xt=urn:btih:FA3AC9B454FB9703B3051DD5B4AF32FFA2BAF0BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79500.jpg" />
 </div>
 
 
@@ -316,7 +392,7 @@ magnet:?xt=urn:btih:FA3AC9B454FB9703B3051DD5B4AF32FFA2BAF0BF
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79502.jpg" />
 </div>
 
 
@@ -340,7 +416,7 @@ magnet:?xt=urn:btih:DA0A340571E004D0EC227138C17F589A3C1FCDD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79503.jpg" />
 </div>
 
 
@@ -364,7 +440,7 @@ magnet:?xt=urn:btih:AF88EEFD294FA4D87FF17165D23F1A4FB27482A3
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79506.jpg" />
 </div>
 
 
@@ -388,7 +464,7 @@ magnet:?xt=urn:btih:A99946DE94633DF3BA97FA475CE0659D2ACA9525
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79508.jpg" />
 </div>
 
 
@@ -412,7 +488,7 @@ magnet:?xt=urn:btih:519611AC61CDFA2BDD61D73EA0351AFADD925865
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79511.jpg" />
 </div>
 
 
@@ -438,7 +514,7 @@ magnet:?xt=urn:btih:4116DC2FDF9910FF49C30A21D1E291724848B92E
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79513.jpg" />
 </div>
 
 
@@ -470,7 +546,7 @@ VA - Дискотека 90-х Vol.2 (2012) [MP3|320 кб/с]<Dance/EuroDance/Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79514.jpg" />
 </div>
 
 
@@ -503,7 +579,7 @@ magnet:?xt=urn:btih:5EABB8F5224293F5C2B50F172EDE4E67DCFC0446
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79515.jpg" />
 </div>
 
 
@@ -527,7 +603,7 @@ magnet:?xt=urn:btih:DD4ED029CEDEF6D4957417574D331FDFD1943C7A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79518.jpg" />
 </div>
 
 
@@ -551,7 +627,7 @@ magnet:?xt=urn:btih:0F170CC83E4C4EDEF4BE19A903FDC2C0DD12E855
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79519.jpg" />
 </div>
 
 
@@ -575,7 +651,7 @@ magnet:?xt=urn:btih:FB9E3E900C94AED0B80121504ABFC9D0EEB37586
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79521.jpg" />
 </div>
 
 
@@ -586,100 +662,6 @@ magnet:?xt=urn:btih:FB9E3E900C94AED0B80121504ABFC9D0EEB37586
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:169EBD9E455FA39D547FCE8447866EFA701B4CCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460238   (79526) от 02.03.2012
-
-Southpaw Swagger - Party With Guns (2010) [MP3|320 кб/с]<Hip-Hop, Rapcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make The Party Loud
-02. Showdown
-03. Can't Stop Now
-04. It's Showtime
-05. It Ain't Over
-06. Back Up
-07. Whatcha Want
-08. Revolution Movement
-09. Crowd Control (Hell Yeah)
-10. BreatheЖанр: Hip-Hop, RapcoreПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F944E31E6E87C9015C895B402951632E8E2437C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461165   (79533) от 02.03.2012
-
-Atma - Beyond Good And Evil (2006) [APE|Lossless]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atma - We Will Rise Again (7:55)
-02. Atma - Beyond Good & Evil (7:45)
-03. Atma - The Other Side (7:38)
-04. Atma - Deviant Behaviour (8:21)
-05. Atma - The Ganzfeld Experiment (8:11)
-06. Atma - The Doors Of Perception (7:57)
-07. Atma - Psychedelic Visionars (8:01)
-08. Atma - Eternal Cycles (8:36)
-09. Atma - There Is Still Hope (7:35)2006Жанр: Psychedelic / Full OnПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461207   (79534) от 02.03.2012
-
-Almeza MultiSet Pro 8.1.0 Portable [Multi (Русский)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Almeza MultiSet - это автоматический установщик программ и Windows.
-Хотите создать инсталляционный диск Windows, который бы автоматически устанавливал систему, не задавая вопросов про имя пользователя, ключ продукта, временные и региональные настройки?
-* При этом автоматически устанавливаются ваши любимые приложения, прописываются нужные ключи реестра, обновляются драйвера, ставятся новые заплатки (сервис паки).
-* С помощью программы MultiSet можно создать загрузочный диск для автоматической установки программ и ОС Windows на любое количество компьютеров.
-* C помощью MultiSet можно создать загрузочную флэшку для установки Windows. Если вставить такой флэш-диск в компьютер и перезагрузить его, то Windows будет установлена в автоматическом режиме.
-* MultiSet специально сделан для того, чтобы освободить пользователей от рутинной работы - установки приложений. Вам не нужно писать ни строчки кода/скрипта.Название программы: Almeza MultiSetЯзык интерфейса: Multi (есть русский)
-
-## Скачать торент
-```bash
-нет
 ```
 
 

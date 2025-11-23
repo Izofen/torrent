@@ -6,7 +6,7 @@ Andy Whatley & Co. - Call It What You Want (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66182.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Magnetic Gardener - Time Ain't My Friend (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66193.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kenny Wheeler - Song For Someone (1973) 2004, Psi [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66207.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66214.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66216.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66217.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nikki Iles & NDR Bigband - Face To Face (2023) Edition Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66226.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Unna & Helge Tallqvist Band - Today I Sing the Blues (2025) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66245.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sol Raven - Wanderer No More (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66247.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Simon Kinny-Lewis - Pouring Water On A Drowning Man (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66248.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Strong Bow & Wry - Rosin N' Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66249.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ron D Bowes - Vampire in the Basement (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66250.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ronny Smith - Cruisin (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66252.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The River Arkansas - Tin Years (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66253.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Christopher Dean Band - Steppin out Tonight (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66254.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sean Poluk - Gamut (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66255.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Reverend Freakchild - A Bluesman of Sorts (2025) (2CD) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66256.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ella Fitzgerald - The Moment Of Truth (1967) 2025, Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66294.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Howard Rumsey's Lighthouse All-Stars - Volume 4: Oboe / Flute (1956) 1991, Origi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66299.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Tim Gartland - Right Amount of Funky (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66345.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Emma Wilson - A Spoonful of Willie Dixon (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66347.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sandy Rogers - Tingling Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66350.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Donald Byrd - Byrd In Flight (1960) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66351.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Catfish John Tisdell - True To My Core (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66352.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Swtch Fu - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66353.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Arend Jansen - Eagle Johnson Project (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66357.jpg" />
 </div>
 
 

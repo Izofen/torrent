@@ -1,3 +1,76 @@
+###  Публикация: 1570627   (118066) от 12.02.2024
+
+Cult of the Lamb v.1.3.5.214 (2022) [Multi/Ru] [macOS Native game]
+
+>>Игры для macOS
+>>Quests, Adventure, Arcade для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118066.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Cult of the Lamb вы окажетесь в роли одержимого ягнёнка, спасённого от гибели жутким незнакомцем. Чтобы вернуть долг своему спасителю, вам придётся найти ему верных последователей. Взращивайте собственный культ в землях лжепророков, совершайте походы по таинственным уголкам леса, объединяйте вокруг себя верных последователей и несите своё слово в массы, чтобы сделать (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2022Разработчик: Massive MonsterПоддерживаемая ОС: 10.9+Жанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык интерфейса: русский, английский, французский +
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD13DC5EA1D199321E0E258B6445E4E22E4F936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699124   (118067) от 12.02.2024
+
+Гнев материнский / The Good Mother (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отчаянная мать и профессиональная журналистка Марисса берётся самостоятельно расследовать дело о жестоком убийстве собственного сына. Пока второй ее сын — полицейский — пытается скрыть детали следствия, девушка погибшего решает вступить в опасное расследование и помочь матери. Вместе они должны докопаться до правды, какой бы страшной она ни была.Производство: США / SSS Entertainment, Artemis, Priority PicturesЖанр: триллер, драма, криминал, детективРежиссер: Майлз Джорис-ПейрафитАктеры: Хилари Суэнк, Оливия Кук, Джек Рейнор, Дилон, Норм Льюис, Мэдисон Харрисон, Хоппер Пенн, Карен Элдридж, Jason Giampietro, Маджестик ТиллманПеревод: Дублированный (Велес)Язык озвучки: Русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA7EFD4C6A51096E86F54788AD8AD4C7BF52A09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699183   (118068) от 12.02.2024
+
+Санктуарий: История ведьмы / Sanctuary: A Witch's Tale (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) TVShows
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименной книги В. В. Джеймс.
+Сотни лет ведьмы живут как признанные и священные члены сообщества в маленьком английском городке под названием Санктуарий. Но однажды местный подросток Дэн Уитхолл, капитан команды по регби и хулиган школы, погибает в результате несчастного случая на вечеринке. Его мать Эбигейл из-за своего горя и убеждений начинает современную (   Читать дальше...   )Производство: США / AMC Studios, Monumental Television, Sundance NowЖанр: фэнтези, триллерРежиссер: Лиза Мулкахи, Джастин МолотниковАктеры: Элейн Кэссиди, Хэйзел Дуп, Стефани Леви-Джон, Эми Де Брюн, Стивен Лорд, Adam Isla O'Brien, Барри Джон Кинселла, Darragh Gilhooly, Elish Liburd, Holly SturtonПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED506F70371759FD088B1E407BEDAC467484012F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699326   (118069) от 12.02.2024
 
 Любовь в воздухе / Romance with a Twist (Love in the Air) (2024) WEBRip [H.264/1080p] [MVO] [AD]
@@ -6,7 +79,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118069.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118070.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118071.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:A0A096F056146C8B37C9350AAFD7305A37F8BA7B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118072.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Succubus With Guns (2021) [Ru/Multi] (13403147/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118073.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:9EDC4F76EE2A77FC00428CFAC8D14FF4FA46AFDE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118074.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ John Coltrane Quartet With Red Garland - Complete Recordings (1957, 1958) 3CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118075.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ magnet:?xt=urn:btih:6424A4C56828AF99EF63D052DAFE5A35BDD6EDF3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118076.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ Pat Martino & Joyous Lake - Stone Blue (1998) Blue Note [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118077.jpg" />
 </div>
 
 
@@ -231,7 +304,7 @@ Stranger Vision - Wasteland (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118078.jpg" />
 </div>
 
 
@@ -258,7 +331,7 @@ Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118079.jpg" />
 </div>
 
 
@@ -285,7 +358,7 @@ magnet:?xt=urn:btih:6EA4ABC0E76DCCAC78D5D2C640A5C7E06F2C7E3C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118080.jpg" />
 </div>
 
 
@@ -312,7 +385,7 @@ Al Grey & Bjarne Nerem - Al Meets Bjarne (1989) Gemini [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118081.jpg" />
 </div>
 
 
@@ -339,7 +412,7 @@ magnet:?xt=urn:btih:21E3F1CD409494E193F558F6B71B1C836F04190E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118082.jpg" />
 </div>
 
 
@@ -363,7 +436,7 @@ Sovereign - Altered Realities (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118083.jpg" />
 </div>
 
 
@@ -390,7 +463,7 @@ Battle Ram - Long Live the Ram (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118084.jpg" />
 </div>
 
 
@@ -417,7 +490,7 @@ Synesthesia - Worst Case Scenario (2015) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118085.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ Crying Steel - The Steel Is Back! (2007) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118086.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ Solstice - Lamentations (1994) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118087.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ magnet:?xt=urn:btih:1490AE148FAC47FFE69D5AF48015E835A809D079
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118088.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ magnet:?xt=urn:btih:E54593C26D44089D58983C940B62E5957C263694
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118089.jpg" />
 </div>
 
 
@@ -548,7 +621,7 @@ magnet:?xt=urn:btih:8B4FF7461EE5A97E5D919362F0BC54460DB8F6A9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118090.jpg" />
 </div>
 
 
@@ -572,7 +645,7 @@ magnet:?xt=urn:btih:B355190C194BCD8579E2E94123E42EA352DECAE1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118091.jpg" />
 </div>
 
 
@@ -583,87 +656,6 @@ magnet:?xt=urn:btih:B355190C194BCD8579E2E94123E42EA352DECAE1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC60FB4660D3EC245DE314771B6BB3B64B92EA93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698909   (118092) от 11.02.2024
-
-Иксион - Последняя симфония (2024) [MP3|320 Kbps] <Heavy Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ночной горизонт [00:05:21]
-02 - Одинокий вой [00:06:30]
-03 - Возвращение джедая [00:06:07]
-04 - Тени замка [00:05:06](   Читать дальше...   )Жанр: Heavy Metal, Symphonic MetalПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF626E93A3D7E71EA67607C12425B3D5986962F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698778   (118093) от 11.02.2024
-
-My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Britpop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Running Out Of Heartbeats
-02 – I’m a God
-03 – Tits & Attitude
-04 – Numb Numb Numb (Album Version)(   Читать дальше...   )Жанр: Britpop, Pop RockПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158AA031BCFBE7B05812014B2E4DE6B9D5945964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698893   (118094) от 11.02.2024
-
-Heretic - Angelcunts And Devilcocks (2013) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Black Metal, Black 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail the Beast [00:03:14]
-02. Black Perversion [00:04:04]
-03. Crowned in Filth [00:05:00]
-04. Angelcunts and Devilcocks [00:04:24](   Читать дальше...   )Жанр: Hard Rock, Black Metal, Black 'n' RollПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9E958FC134A381D762A39E5514F9918465BB86
 ```
 
 

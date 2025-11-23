@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48429.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AAA2EA8063865892E3AA860E5878E7F7A98F8F48
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48430.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:64808A9847BE8247D3B079FF68CF9DC5E7971BDF
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48431.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BCAEF19640648CB120E1E3343D9A88CB271160CC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48432.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3DAC9B03043C33E7AC22666CFE323CFEE7E23B3F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48433.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ DefenderKiller 12.4 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48434.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:08FEC0E0EB21CF92266E3E652247611DB15C2C3F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48435.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7B6FFB772D70E1A9C147DE141BA34E19EACFAF93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48436.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:6F18352A0FD168829F86C7492975CEFF2A07BDF2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48437.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ State of Decay 2 (2020) [Ru/Multi] (34.0/dlc) Scene Rune [Juggernaut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48438.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ The Renovator: Origins (2024) [Ru/Multi] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48439.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:0B9BF7322C92A75C48EF443471ECF4B3ACC99B50
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48440.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:3D6741F8269BABE5948CE6B06FE5A3C9E517A408
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48441.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8BC7F45036E3FB1BEDC675B8A0CDDA9232FE66E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48442.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:8BC7F45036E3FB1BEDC675B8A0CDDA9232FE66E0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48443.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:4326F720465934DDD4BF6FE50FDA1E15F23B1335
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48444.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:4326F720465934DDD4BF6FE50FDA1E15F23B1335
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48445.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:620694156C8567431537173F25723FDB0D78CD3F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48446.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Trepang2 (2023) [Ru/Multi] (77.00/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48447.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:5CCE69822FABCC7D3FFA2F17E418C62E9AB488E4
 >>Анатомия страсти / Grey's Anatomy
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48448.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9A3283AE63936170CCFFA2AC9814BB04C2F635A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48449.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:1A3C6C9B05BDF6BE0DF39ACFEB6B3672570957C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48450.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48451.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:B1FFE6BD34D23AEECC95CA841FBC147B369C9F6B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48452.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:82E85EC334FC1EB38D31606D3B0590D311E56D3F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48453.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ The Thaumaturge (2024) [Ru/Multi] (1.1.1 HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48454.jpg" />
 </div>
 
 

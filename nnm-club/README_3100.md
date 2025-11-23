@@ -1,3 +1,92 @@
+###  Публикация: 478421   (98702) от 05.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 40
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98702.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 40 
+Название:  Desktop Wallpapers Pack 40 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х720 - 4224х3168
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F0B55E534127045877F48F7349D7084B0807A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478363   (98703) от 05.04.2012
+
+Tetuna - Crazy Trips (2012) [MP3|320 кб/с]<Psy Trance,  Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connexus 8:06
+02. Mistakes 7:32
+03. Spintronics 7:54
+04. Rain Of Fire (Voice Version) 8:24
+05. Circus Light (Live Mix) 7:36
+06. Crazy Squeak 7:32
+07. Atmostrips 7:37
+08. Hallisa 7:38
+09. Virtual Light - Castlevania (Te Tuna Remix) 7:50
+10. Sheitan (Vs Axone) 7:502012Жанр: Psy Trance,  Full OnПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8CE0831575645A2EB32A20C765072E33C79573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478742   (98704) от 05.04.2012
+
+[Wallpapers] HD Wallpapers №5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98704.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №5
+Название: HD Wallpapers №5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680x1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB52E88ED8A32983BF5449BA8D9E540E113BBB5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478083   (98705) от 05.04.2012
 
 Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
@@ -6,7 +95,7 @@ Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98705.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98705.jpg" />
 </div>
 
 
@@ -36,7 +125,7 @@ Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98706.jpg" />
 </div>
 
 
@@ -64,7 +153,7 @@ VA - Made In The 90s (2012) [MP3|224-283 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98707.jpg" />
 </div>
 
 
@@ -97,7 +186,7 @@ magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98709.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98709.jpg" />
 </div>
 
 
@@ -123,7 +212,7 @@ magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98711.jpg" />
 </div>
 
 
@@ -147,7 +236,7 @@ VA - Русский Best от DFM (2012) [MP3|256 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98716.jpg" />
 </div>
 
 
@@ -180,7 +269,7 @@ magnet:?xt=urn:btih:B26F91EE15CBAACF4B47D5FEF0D423BA0108369D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98717.jpg" />
 </div>
 
 
@@ -208,7 +297,7 @@ magnet:?xt=urn:btih:7E08D4EF4D9B3705377841953B79C325DFE977D2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98719.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98719.jpg" />
 </div>
 
 
@@ -232,7 +321,7 @@ VA - Танцевальный клубный поп хит vol.6 (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98722.jpg" />
 </div>
 
 
@@ -265,7 +354,7 @@ magnet:?xt=urn:btih:DCCEF4EC092ADFCF626E1159AC1C24EBCDE8AE61
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98723.jpg" />
 </div>
 
 
@@ -289,7 +378,7 @@ VA - Лучшие сливки муз-весны (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98724.jpg" />
 </div>
 
 
@@ -322,7 +411,7 @@ magnet:?xt=urn:btih:08303A9E7A3262BE89642649826F72297147F124
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98725.jpg" />
 </div>
 
 
@@ -350,7 +439,7 @@ magnet:?xt=urn:btih:9837A0A62FF6F8CC5DC7EFDBF2B0E7EB78ECF9F1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98726.jpg" />
 </div>
 
 
@@ -374,7 +463,7 @@ magnet:?xt=urn:btih:8C3E95AD62C9EF63DBDE59A8F1233B598F324464
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98728.jpg" />
 </div>
 
 
@@ -398,7 +487,7 @@ VA - MAXI. Русские ДиДжеи Зажигают (2012) [MP3|224 kbps]<Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98730.jpg" />
 </div>
 
 
@@ -431,7 +520,7 @@ VA - Bottleneck Blues Anthology (2011) 2CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98731.jpg" />
 </div>
 
 
@@ -464,7 +553,7 @@ VA - Русская Дискотека Best-of-ka (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98732.jpg" />
 </div>
 
 
@@ -497,7 +586,7 @@ magnet:?xt=urn:btih:75C21E0D5D26C27C9CF004498935B802F19AD9CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98733.jpg" />
 </div>
 
 
@@ -521,7 +610,7 @@ magnet:?xt=urn:btih:4E66BDA7166C659DAC7D2896344C190342143186
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98735.jpg" />
 </div>
 
 
@@ -545,7 +634,7 @@ VA - Продвинутый Модный Хит DFm (2012) [MP3|256 kbps]<Club |
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98736.jpg" />
 </div>
 
 
@@ -578,7 +667,7 @@ Somnesia - Mystic Moon (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98739.jpg" />
 </div>
 
 
@@ -610,7 +699,7 @@ magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98740.jpg" />
 </div>
 
 
@@ -638,7 +727,7 @@ Mozilla Thunderbird 12.0 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98743.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98743.jpg" />
 </div>
 
 
@@ -649,87 +738,6 @@ Thunderbird - простая и удобная бесплатная програ
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478784   (98744) от 06.04.2012
-
-Wise Registry Cleaner 7.13 build 449 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478711   (98745) от 06.04.2012
-
-[Wallpapers] Best HD Wallpapers (06.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478888   (98746) от 06.04.2012
-
-Новые Ворота - Не сезон (2012) [MP3|320 кб/с]<Folk Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Баян (3:40)
-02.  Детство (4:22)
-03.  У порога неба (5:02)
-04.  Июнь (3:47)
-05.  Усталость (4:04)
-06.  Ajde Jano (5:11)
-07.  Нездешние ветры (3:18)
-08.  Половодье (5:44)
-09.  Цветение (7:43)
-10.  Романс (3:28)Жанр: Folk RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE05B79FA5F02283B228AAB5E64EA1E16CEBD4F
 ```
 
 

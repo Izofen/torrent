@@ -1,3 +1,75 @@
+###  Публикация: 1725237   (109070) от 23.05.2024
+
+Opera One 110.0.5130.35 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B35D107A8DEED51ACB76868BA41CF1D9AF908C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725135   (109071) от 23.05.2024
+
+Выкуп / Bigongsikjakjeon / Ransomed / Unofficial Operation (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец 1980-х. Сотрудник дипломатической службы внезапно получает зашифрованное сообщение от своего похищенного коллеги, которого долгое время считали погибшим. Он решает отправиться на поиски своего сослуживца и спасти его любой ценой, вступив в смертельную схватку с отъявленными преступниками.Производство: Южная Корея / B&C CONTENT, ShowboxЖанр: боевикРежиссер: Ким Сон-хунАктеры: Ха Джон-у, Чу Джи-хун, Ю Сын-мок, Ким Ын-су, Лим Хён-гук, Ким Джон-су, Пак Хёк-квон, Берн Горман, Со Ён-сам, Чхве Джон-уПеревод: Дублированный (Видео Продакшн)Субтитры: русские, английскиеПродолжительность: 02:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B422BC555D561F9918EBF9C08A5EE85D2D4B03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725224   (109072) от 23.05.2024
+
+Илья Рэд | Инвестиго (Книга 4). Из медика в маги. Том 4 (2024) [MP3, Александр Потеряев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 08:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2D1471911BEDC1ACAE6CB3112651990579229F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725258   (109073) от 23.05.2024
 
 Lenny Kravitz - Blue Electric Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +78,7 @@ Lenny Kravitz - Blue Electric Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109073.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Lenny Kravitz - Blue Electric Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109074.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ magnet:?xt=urn:btih:CAEBE026D6CFF565251A6261D605EB41193D8415
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109075.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ VA - Organica 2024 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <Organi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109076.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ magnet:?xt=urn:btih:392B7DC26A414F78005231283DCFCA3DB24FA2C4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109077.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ puzzlebrain, Ильгизар Зинатов | Как подготовить р�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109078.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:AF9C0A9B9FDBFF920CCDF7E693B5D018D44D2360
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109079.jpg" />
 </div>
 
 
@@ -183,7 +255,7 @@ Big Special - Postindustrial Hometown Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109080.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ Rusthead - Gear Up (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109081.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ PhotoRoom 4.9.6 (b1403) Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109082.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ Moon Shot - The Power (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109083.jpg" />
 </div>
 
 
@@ -288,7 +360,7 @@ This - Impulsive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109084.jpg" />
 </div>
 
 
@@ -315,7 +387,7 @@ magnet:?xt=urn:btih:070BE442D77C03CAC3474AEAECC0374EDB5FFD35
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109085.jpg" />
 </div>
 
 
@@ -340,7 +412,7 @@ Simon Lasky Group - For the Dreamers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109086.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ Ricky Ford - Hot Brass (1992) Candid [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109087.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ Malachi Thompson - 47th Street (1997) Delmark Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109088.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ Superblue - Superblue (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109089.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ A Bad Think - X (2022) Remaster, 2024, Windmark Records [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109090.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ magnet:?xt=urn:btih:F35F81A2C96DD52A0C81FA8644D9EAA2F4306B53
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109091.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ BurnAware Free 17.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109092.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ VA - EDM Deejay Compilation 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109093.jpg" />
 </div>
 
 
@@ -550,7 +622,7 @@ Jazz L’Amour - Erotic Jazz 2024 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109094.jpg" />
 </div>
 
 
@@ -577,7 +649,7 @@ magnet:?xt=urn:btih:CC9347583DCC926BB9CE9EB7CE707F55584AA9DE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109095.jpg" />
 </div>
 
 
@@ -588,81 +660,6 @@ magnet:?xt=urn:btih:CC9347583DCC926BB9CE9EB7CE707F55584AA9DE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5ED802600E8EB4D99509903B6357993D018D519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725024   (109096) от 22.05.2024
-
-VA - Fulltime Production Electro 80, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kano - Super Extra Sexy Sign (Extended) (6:30)
-02. International Music System - Run Away (5:40)
-03. Peter Richard - Marlene (4:31)
-04. International Music System - Bonus Single 'Joke' (5:19)(   Читать дальше...   )Жанр: Electro, House, Nu-DiscoПродолжительность: 01:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81148E9CE6B6087666CADE3872EA5A36D3EC0C97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724948   (109097) от 22.05.2024
-
-Чингиз Абдуллаев | Только свои (2024) [MP3, Анатолий Петухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109097.jpg" />
-</div>
-
-
-###  Подробнее
-
-В уединенном особняке неподалеку от Лондона на встречу Рождества собрались только свои: посол одной из восточных стран с женой, его сын со своей взбалмошной супругой, дочь с элегантным сдержанным мужем, а также друг дипломата – миллионер с красавицей-женой. Приближается ночь, за окном метель, словом, самая подходящая обстановка для идеального английского убийства. (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЛитРес: чтецПродолжительность: 06:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E077B043E2B29BFCE0AA82123DA2A5B14317EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725005   (109098) от 22.05.2024
-
-Soul Browser 1.4.21 Mod by youarefinished [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soul Browser - добротный браузер, что несмотря на своё минималистичное визуальное исполнение весьма функционален. И ко всему прочему прилагает максимум усилий для того, чтобы пользователи не сталкивались с различными трудностями и ненужными им факторами. Автоматическая борьба с рекламой, встроенная качалка, видеоплеер, тонкая настройка управления (есть поддержка (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.05.2024Разработчик: SoulSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F2826A432D1012782B4CCC87FEA41D43B4B5B6
 ```
 
 

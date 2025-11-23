@@ -1,3 +1,78 @@
+###  Публикация: 1825538   (136727) от 17.10.2025
+
+К Хэллоуину приготовиться / Haul Out the Halloween (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые соседи, помешанные на Хэллоуине, вдохновляют жителей Эвергрин-Лейн использовать самые жуткие костюмы и декорации, чтобы стать Эверскрим-Лейн.Производство: США / Hallmark MediaЖанр: комедияРежиссер: Маклейн НельсонАктеры: Лейси Чаберт, Уэс Браун, Стивен Тоболовски, Мелисса Питерман, Эллен Траволта, Лора Уордл, Уолтер Платц, Кимберли Дж. Браун, Дэниел Каунтц, Питер ДжейкобсонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732AE9B92157AA84DD5BA5C2090FC6F89B988BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825547   (136728) от 17.10.2025
+
+Battle Beast - Steelbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Burning Within
+02. Here We Are
+03. Steelbound
+04. Twilight Cabaret(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D04FBCBE7B6025B7F84850F389825CCD98FB05F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825532   (136729) от 17.10.2025
+
+ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite (17.10.2025) RePack by KpoJIuK [Ru/En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136729.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACDSee Photo Studio Ultimate сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AE165AB44B0613738947F11404D3895E408ADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825535   (136730) от 17.10.2025
 
 Пресеты - Myrtle & Moss - EVOKE - Presets + Essentials Pack [XMP, LRTEMPLATE, ATN]
@@ -6,7 +81,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136730.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ magnet:?xt=urn:btih:4D886F374BB78F5BFEF59887D772D9A274470921
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136731.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:15C25E047F02041A0A4B599D91404F19FEA9A879
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136732.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ Microsoft  Visual C++ Runtimes AIO v0.102.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136733.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136734.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ Grailknights - Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136735.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ DBF Viewer 2000 8.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136736.jpg" />
 </div>
 
 
@@ -182,7 +257,7 @@ magnet:?xt=urn:btih:137BE0D58D61987F54AC3F0440D4584A872F0C47
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136737.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ magnet:?xt=urn:btih:E319A6A27D051841B1C981F8BB36D0D1D739A7A5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136738.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ Crysis (2007) [Ru] (1.1.1.6156) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136739.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ Sabaton - Studio Albums (12 releases) (2005-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136740.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ MassTube Ultra 21.0.3.169 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136741.jpg" />
 </div>
 
 
@@ -305,7 +380,7 @@ magnet:?xt=urn:btih:CB669615C743809FD93DD8E8AB69F1E8B70D7C00
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136742.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ magnet:?xt=urn:btih:EE652903933D6A0C386F7ACEE11E17D72F88AB92
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136743.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ magnet:?xt=urn:btih:D4178979DA0795D1BBC402B9BE53A71CBBAED79C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136744.jpg" />
 </div>
 
 
@@ -382,7 +457,7 @@ magnet:?xt=urn:btih:D867F47CC53816F3FF02F3ADDADDFC20670C63FB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136745.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ magnet:?xt=urn:btih:1CC282E7435F28C411D441E0A59723AA007F4CB8
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136746.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ magnet:?xt=urn:btih:9F09353926330C026C2613FADB4D6A1854AFB105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136747.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ magnet:?xt=urn:btih:EAAA753F15599CF262E05A4CD9BD09267C59CE00
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136748.jpg" />
 </div>
 
 
@@ -480,7 +555,7 @@ magnet:?xt=urn:btih:0E844DC1D69B749CC720D7B605B541DADC3A8AF9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136749.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136750.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ magnet:?xt=urn:btih:F40F45A128E4EB1B8FC3F1992EE06F089970B4B2
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136751.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ Microsoft® Windows® 11 Professional VL x64 25H2 RU by OVGorskiy 10.2025
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136752.jpg" />
 </div>
 
 
@@ -566,78 +641,6 @@ Microsoft® Windows® 11 Professional VL x64 25H2 RU by OVGorskiy 10.2025
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB0EE82C1165CAD929012525A121948E99D1AB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825410   (136753) от 17.10.2025
-
-Что за девушка у тебя / Kaj ti je deklica / Little Trouble Girls (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136753.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Люсия присоединяется к хору католической школы, подружившись со старшей Аной-Марией. Во время выезда хора в монастырь Люсия испытывает влечение к реставратору, что создает напряженность в отношениях с Анной-Марией и ставит под сомнение ее веру.Производство: Словения, Италия, Хорватия, Сербия / Croatian Audiovisual Centre, Izazov365, Friuli Venezia Giulia Film Commission, Slovenian Film CenterЖанр: драмаРежиссер: Уршка ДюкичАктеры: Jara Sofija Ostan, Mina Svajger, Sasa Tabakovic, Наташа Бургер, Tomazin Irena, Марко Мандич, Strle Mateja, Casson Matia, Саша Павчек, Лотос Винценц ШпаровецПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, СловацкийСубтитры: Английские (Full, SDH)Продолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4982DC98872F781B332F0E457B0B2DAE97BDB478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825413   (136754) от 17.10.2025
-
-Фоны - Creative Market - Autumn Portrait Backgrounds - 5814806 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавьте тепла и красоты осени в свои портреты с нашими осенними портретными фонами. Эти изображения высокого разрешения представляют собой разнообразные тёплые и красочные осенние пейзажи, которые идеально подойдут для придания вашим фотографиям атмосферы времени года.Формат: JPGРазрешение файлов: 4857x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A114BD89253814DCA3914B5FB05D478E4765A5F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825412   (136755) от 17.10.2025
-
-Шрифты - MyFonts - Distinct Style [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте стильными с Distinct Style, модной и современной парой шрифтов для подписи и без засечек, которые идеально дополняют друг друга. Благодаря быстрому рукописному шрифту и двухнасыщенному современному шрифту без засечек дуэт Distinct Style предлагает типографическую гармонию для ваших профессиональных дизайнерских проектов, включая: логотипы, брендинг, журналы, (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3362CF1125D37E377505335AEC48E5FEA4CCCA
 ```
 
 

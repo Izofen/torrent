@@ -1,3 +1,76 @@
+###  Публикация: 1715460   (111566) от 12.04.2024
+
+NIUBI Partition Editor 9.9.5 Technician Edition Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111566.jpg" />
+</div>
+
+
+###  Подробнее
+
+NIUBI Partition Editor (Repack & Portable) – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37255F9F9375EF966F7C793EA57506B0EDE72ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715543   (111567) от 12.04.2024
+
+Kurayukaba | Краюкаба [2024, Movie] WEBRip 544p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективное агентство "Ооцудзи" работает медленно. Сутару и его малолетний приятель Саки берутся за любую работу, даже за ту, которая кажется гораздо более рискованной, чем стоит. Сейчас в городе сезон фестивалей, но вдали от посторонних глаз прокатилась волна загадочных исчезновений. Газетчик нанимает Сутару для расследования, предполагая, что ответы могут (   Читать дальше...   )Производство: Team OneOneЖанр: приключенияРежиссер: Цукахара СигэёсиПеревод: Официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 65 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A11C343DAF241DC4F4C874E494F72D89CD78A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715556   (111568) от 12.04.2024
+
+Собачья жизнь: Друзья навек / Zai jian, Li Kele / So Long for Love (2023) WEB-DLRip [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в семье наступают непростые времена, на помощь приходит очаровательный щенок по кличке Кола. Новый друг способен вдохнуть жизнь и научить людей искренней любви и преданности.Производство: Китай / Matt Film, Asia Pacific National Film Cultural Media, Beijing DengfengЖанр: семейный, драмаРежиссер: Ван СяолеАктеры: Янь Ни, Тань Сунъюнь, Джеки У, Цзян Лун, Чжао Сяотан, Фэн Лэй, Ли Хучэн, Гао Лу, Госюн Ху, Лю ЯцзиньПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Английские, Китайские (hardsub)Продолжительность: 01:45:28Реклама: Присутствуют вставки аудио и видео рекламы.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715558   (111569) от 12.04.2024
 
 VA - Electronic compilation part 69 (2024) [MP3|320 Kbps] <Electronic>
@@ -6,7 +79,7 @@ VA - Electronic compilation part 69 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111569.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:269E82F1FF5423CE62825C69C4F756F80315B9D3
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111570.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:24240E90F79B8D1A314748A36D0A5C2AEABD06DC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111571.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ magnet:?xt=urn:btih:EB8F3FF8ADD2AD91D4717F88E4A6379E545A2D4B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111572.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ magnet:?xt=urn:btih:3A2B398F70779A5D446D7597F63E661D5C99DBB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111573.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111574.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ magnet:?xt=urn:btih:0BC94A5DCB3CD9CB216F792C7AF656ABEF6C256E
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111575.jpg" />
 </div>
 
 
@@ -184,7 +257,7 @@ magnet:?xt=urn:btih:9EC78EB17105227B29559BCEFAD1FE774C046FEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111576.jpg" />
 </div>
 
 
@@ -208,7 +281,7 @@ magnet:?xt=urn:btih:9EC78EB17105227B29559BCEFAD1FE774C046FEC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111577.jpg" />
 </div>
 
 
@@ -235,7 +308,7 @@ magnet:?xt=urn:btih:7DBBF19CC9FED15C2AD785F41A310CED91833802
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111578.jpg" />
 </div>
 
 
@@ -259,7 +332,7 @@ magnet:?xt=urn:btih:6DCA2DBFFF8C3C5FC4BFE810F327EC2DF1CA1D0D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111579.jpg" />
 </div>
 
 
@@ -283,7 +356,7 @@ magnet:?xt=urn:btih:CD65FC85B3F305ACFA60D67298036338CEB23BE5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111580.jpg" />
 </div>
 
 
@@ -307,7 +380,7 @@ Catfish John Tisdell - Don't Look Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111581.jpg" />
 </div>
 
 
@@ -334,7 +407,7 @@ Jimi Fiano - Sweat and Pray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111582.jpg" />
 </div>
 
 
@@ -361,7 +434,7 @@ magnet:?xt=urn:btih:3D55F59581408BEF3B0B1F1DBD8160ECBDB578E2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111583.jpg" />
 </div>
 
 
@@ -385,7 +458,7 @@ Leif De Leeuw Band - Mighty Fine (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111584.jpg" />
 </div>
 
 
@@ -412,7 +485,7 @@ Snakebite - Cobra Crew (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111585.jpg" />
 </div>
 
 
@@ -439,7 +512,7 @@ Monastery Dead - Ego Sum Dolor (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111586.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ Copenhagen Blues Band - I'm Not in a Hurry - Copenhagen Blues Band - I'm Not in 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111587.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ Keely Smith - The Essential Capitol Collection (1950-e - 1960-e) 2007, Capitol R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111588.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ The Palace Of Tears - Veiled Screen, Woven Dream (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111589.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ Leviathan Project - The Final War (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111590.jpg" />
 </div>
 
 
@@ -574,7 +647,7 @@ Dorothy Donegan - Sophisticated Lady (1980) 1991, Ornament [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111591.jpg" />
 </div>
 
 
@@ -588,84 +661,6 @@ Dorothy Donegan - Sophisticated Lady (1980) 1991, Ornament [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F2F9E96FC42AFC16B3124C916AD69752C084F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714664   (111592) от 11.04.2024
-
-Leviathan Project - Sound of Galaxies (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Frequency (00:01:36)
-02 - Solar Storm (00:04:51)
-03 - Falling Apart (00:04:13)
-04 - Deserted (00:03:17)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E784623204952EB44840283677B31CB94AEFA89A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714930   (111593) от 11.04.2024
-
-Storm Seeker - Live in Stuttgart (2023) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal, Pirate Folk Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mare Len Lunor (Live in Stuttgart) [2:30]
-02 - Heavaway (Live in Stuttgart) [3:46]
-03 - Pirate Squad (Live in Stuttgart) [3:19]
-04 - Destined Course (Live in Stuttgart) [4:21](   Читать дальше...   )Жанр: Folk Metal, Pirate Folk Metal, MetalПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5A73609717B156CB9C8E44D181C3BAF393C248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715009   (111594) от 11.04.2024
-
-Хельга Воджик | "Песок Мэйтару" (Книга 1). Архив Тирха. Коготь Кулуфины (Том 1) (2023) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клыкарь и Ашри получают заказ на Коготь Кулуфины – артефакт предводительницы бистов, чудовища, некогда бывшего дочерью самого Орму, которая переродилась в Бездне и получила прозвище Тьма Мира… Но кто поверит во все эти сказки? Добраться до оазиса, разгадать загадку, достать реликвию и получить увесистый кошель золота! Идеальный план и дело на пару кварт дней! Наши (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: 1С-ПаблишингПродолжительность: 07:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893B7D5148C738F06C4DEDB60270C862D0B8C353
 ```
 
 

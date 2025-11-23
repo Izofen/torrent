@@ -6,7 +6,7 @@ Telegram Desktop 5.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70683.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alfa eBooks Manager 9.1.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70698.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ TikTok Private Plus (PayBack Edition) v38.7.5 Mod by TikTok Updates [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70702.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Alfa eBooks Manager 9.0.240.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70704.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.44 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70723.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:EC114337F5C33757831EED4341DD208C93EFE7F7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70728.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Microsoft Visual Studio 2022 Community 17.13.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70738.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70739.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Taskito v1.1.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70743.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Photo Supreme 2024.2.2.6715 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70745.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ O&O DiskImage Professional 20.2 Build 343 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70750.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sante DICOM Viewer Pro 14.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70789.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Sante DICOM Editor 10.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70791.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PrivaZer Pro 4.0.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70816.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PhotoDirector v19.11.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70829.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Balabolka 2.15.0.887 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70835.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Perfectly Clear WorkBench 4.6.1.2717 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70839.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Desktop Calendar 3.21.222.6986 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70840.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ PrivaZer Pro 4.0.98 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70843.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Wise Disk Cleaner 11.2.0.837 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70844.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Process Lasso Pro 15.1.0.19 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70847.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ TuneIn Radio Pro v37.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70848.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Text Editor Pro 31.4.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70852.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ YT Downloader 9.11.21 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70863.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ PictureThis - Plant Identification v5.1.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70864.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ MusicBrainz Picard 2.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70907.jpg" />
 </div>
 
 

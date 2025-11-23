@@ -1,3 +1,174 @@
+###  Публикация: 968537   (153558) от 24.12.2015
+
+С. Георгиевская | Серебряное слово. Тарасик (1962) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153558.jpg" />
+</div>
+
+
+###  Подробнее
+
+С. Георгиевская пишет для взрослых и детей. В повестях «Серебряное слово» и «Тарасик» действие развертывается в наши дни. Герои этих повестей — советские молодые люди. В повести «Серебряное слово» это молодой библиотекарь-методист Лера Соколова. Она едет из Москвы в горные районы Тувы «пропагандировать книгу» и там, в далеком краю, встречает не только высокообразованных, (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8802E6D290D7067C256C7E6E6987DADE08939D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194820   (153559) от 26.12.2017
+
+Ashampoo Burning Studio 19.0.1.4 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте классическую программу в новом исполнении! Ashampoo Burning Studio не только выглядит роскошно, она ещё и содержит тщательно улучшенный набор функций. Новая защита от царапин создаёт диски, которые пригодны для чтения даже когда их поверхность поцарапана! Новая функция истории восстанавливает последние 20 проектов по требованию, включая все Ваши изменения. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E94E715B3ECBD566D1B5C107B5CBBEA5331DBAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724153   (153560) от 22.12.2019
+
+В. Ю. Преображенский | Удивительная океанология (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга доступно и увлекательно рассказывает о морях и океанах, покрывающих большую часть поверхности нашей планеты и гораздо менее изученных по сравнению с сушей. Читатель получит представление о современном состоянии океанологии и узнает множество интереснейших фактов. Книга адресована всем, кто интересуется тайнами Мирового океана.Жанр: познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CDB1FB820FEB7F5E9FD8F57A886D9B7327714C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589263   (153561) от 14.12.2012
+
+Журнал | АиФ. Спецвыпуск. Вопросы и ответы № 22 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы любим покушать. И известные люди в этом не составляют исключения. Но вот чем они угощают домочадцев, близких и знакомых, если приглашают кого-то к себе в дом? "Аргументы и факты" решили, что наши читатели ничем не хуже тех самых званых гостей и вправе узнать секреты звездного меню. В этом выпуске вы узнаете множество кулинарных секретов знаменитых людей. А некоторые из них даже предложат нам целый обед. Готовьте с удовольствием, а угощая своих близких, не забудьте рассказать, что этим рецептом с вами поделилась та или иная звезда. Ведь знаменитости, как ни удивительно, тоже люди и тоже не дураки поесть.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72CF2DAE7877C94FB309465B050F770CEFCC4CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086357   (153562) от 24.12.2016
+
+Yusef Lateef - Autophysiopsychic (1977) 2003, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Robot Man [06:39]
+ 02.Look On Your Right Side [05:11]
+ 03.YL [07:55]
+ 04.Communication [09:23](   Читать дальше...   )Жанр: Post-Bop, Jazz FunkПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C13987115339A16675A4B416A2553E65BE642D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968632   (153563) от 24.12.2015
+
+Время покажет с Петром Толстым (24.12.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153563.jpg" />
+</div>
+
+
+###  Подробнее
+
+В студии программы "Время покажет" обсуждают, надо ли сократить количество выходных дней в новогодние праздники. Эксперты пытаются понять, как лучше распределить выходные дни, и рассуждают, как повысить культуру празднования. Во второй части программы говорят о кибертерроризме и кибервойнах, обсуждают их возможный вред и способы защиты от хакерских атакТелекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B31FD4ECD406C82BDED0ACB1C0C99FCCE2B76E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434166   (153564) от 23.12.2020
+
+Ларри Симон. Продавец-живчик / The Counter Jumper (1922) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ларри работает продавцом в магазинчике. Со свойственной ему живостью он принимает за поимку преступника (хотя последнего и близко рядом нет). Харди играет роль, возможно, одного из хозяев магазина (точнее пока определить невозможно), роль у него довольно крупная, но, как обычно в фильмах с Ларри, он противостоит ему как злодей.Производство: СШАЖанр: Короткометражка, комедия, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Люсиль Карлайл, Оливер Харди, Спенсер Белл, Ева Тэтчер, Джек Даффи, Уильям МакКолл, Реджинальд Лайонс, Джеймс Доннелли, Уильям ХауберЯзык озвучки: НемойСубтитры: ОтсутствуютПродолжительность: 00:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2E071C5A2D63AA9D6232687D98BA4C160E53B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194150   (153565) от 26.12.2017
 
 Подшивка журналов | Saveurs [+спецвыпуск] (2010-2015) [PDF]
@@ -6,7 +177,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153565.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ magnet:?xt=urn:btih:E56EC482AC5B57A9E10002E688CF1A18BA2B5F0C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153567.jpg" />
 </div>
 
 
@@ -54,7 +225,7 @@ VA - Jazz Moods Volume 1 (1993) Jazz World[FLAC|Lossless|image + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153568.jpg" />
 </div>
 
 
@@ -81,7 +252,7 @@ Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153569.jpg" />
 </div>
 
 
@@ -108,7 +279,7 @@ Wallpapers Sexy Girls (13.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153570.jpg" />
 </div>
 
 
@@ -132,7 +303,7 @@ magnet:?xt=urn:btih:C536021DD5BC53578775E4B8C2222512145121E1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153571.jpg" />
 </div>
 
 
@@ -156,7 +327,7 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153572.jpg" />
 </div>
 
 
@@ -180,7 +351,7 @@ magnet:?xt=urn:btih:C4A3713AE0E3F5A7C669FDAF611E69A15A1A7C9F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153574.jpg" />
 </div>
 
 
@@ -204,7 +375,7 @@ magnet:?xt=urn:btih:FE4FED2F6913350FD936FA320544BFD679D87D6A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153575.jpg" />
 </div>
 
 
@@ -228,7 +399,7 @@ magnet:?xt=urn:btih:5ADA549183A4808DD12C2708C563A34754D14317
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153576.jpg" />
 </div>
 
 
@@ -255,7 +426,7 @@ magnet:?xt=urn:btih:30C893DD8E76393A6E00F9F60CD2B9902D70D39D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153577.jpg" />
 </div>
 
 
@@ -279,7 +450,7 @@ magnet:?xt=urn:btih:3445E3BFAFC0EB62DED55CDF60BF3CBABC069A03
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153578.jpg" />
 </div>
 
 
@@ -303,7 +474,7 @@ magnet:?xt=urn:btih:AD40DC063C985CA29EB57B5519FA4B866F291720
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153579.jpg" />
 </div>
 
 
@@ -327,7 +498,7 @@ magnet:?xt=urn:btih:41C228882E6AB13B5E0618CADF3186E1F4EB4517
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153580.jpg" />
 </div>
 
 
@@ -354,7 +525,7 @@ Yummy 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153581.jpg" />
 </div>
 
 
@@ -378,7 +549,7 @@ Poisonblack - Nothing Else Remains (2CD) (2020) Japanese Edition [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153582.jpg" />
 </div>
 
 
@@ -405,7 +576,7 @@ magnet:?xt=urn:btih:7F9AF6992489FAE1A56DE7C091E057010882639C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153583.jpg" />
 </div>
 
 
@@ -432,7 +603,7 @@ Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153584.jpg" />
 </div>
 
 
@@ -459,7 +630,7 @@ Terry Gibbs And His Big Band - Swing Is Here! (1960) 2009, Universal[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153585.jpg" />
 </div>
 
 
@@ -473,192 +644,6 @@ Terry Gibbs And His Big Band - Swing Is Here! (1960) 2009, Universal[FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F16A5D8259BA9CC005C03E96532F79A4562E6940
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434221   (153586) от 23.12.2020
-
-VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заряд бодрости и позитива в твои колонки! Только самые свежие и отборные хиты от House Garden Music. Рейтинг треков был составлен исходя из регулярного голосования слушателей на сайте радио, а так же по средствам смс. Здесь нет какого-то определенного направления, на сборнике можно услышать артистов различного рода жанров электро музыки, но единственное, что объединяет (   Читать дальше...   )001. Hoodzz X Sherwee - Words
-002. Valiant Ft. Ryan Green - What That Body Do
-003. Dj Dark - Ai Ai Ai (Radio Edit)
-004. Din Jay - Just Be Good To Me(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC001002BAC658027B8C5F1523822607D65E3DED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086143   (153587) от 24.12.2016
-
-The Trombones, Inc. - The Trombones, Inc. (1958) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Neckbones [04:03]
- 02.Dues Blues [06:58]
- 03.Long Before I Knew You [04:01]
- 04.Soft Winds [03:55](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC4362BF7EA291588D5A1F70AC017678FD37192
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433989   (153588) от 23.12.2020
-
-VA - Blues Harmonica (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153588.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:47] 01. Bo Diddley - I'm A Man
-[4:44] 02. John Hammond - When You Got A Good Friend
-[2:22] 03. Howlin' Wolf - Crazy About You Baby (1991 Chess Box Version)
-[1:45] 04. John Mayall & The Bluesbreakers - Another Man(   Читать дальше...   )Жанр: BluesПродолжительность: 01:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D074818F7A987006DCF9BF2B798E630D61756F4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434182   (153589) от 23.12.2020
-
-Voodoo Room - Tension City Blues (2020) [FLAC|Lossless|image + .cue] <Blues Rock, Hard Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Love
-02. Shock
-03. No Problem
-04. Headstrong(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB785D25DF8E1FDA4A72EC4B842AD286AC661825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433981   (153590) от 23.12.2020
-
-Murphy Road - No Business (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Business (4:57)
-02. You're My Rock (4:55)
-03. Gaslight (4:19)
-04. I Am Your Mother (4:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD9C881461C9A1A44B4B549709BBF4F354E5ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677065   (153591) от 16.11.2023
-
-Dizzy Reece - Blues In Trinity (1958) 2005, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues in Trinity [6:48]
-02. I Had the Craziest Dream [3:06]
-03. Close-Up [10:43]
-04. Shepherd's Serenade [6:39](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D8E00AAA3652335FA2BDD00110AB7A6C033230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434259   (153592) от 23.12.2020
-
-NCH WavePad Masters Edition 11.49 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это программное обеспечение для редактирования аудио и является полнофункциональным, профессиональным редактором аудиофайлов. Это позволяет записывать и редактировать музыку, голосовые и другие аудиозаписи. При редактировании аудиофайлов вы можете вырезать, копировать и вставлять части записей, а затем добавлять эффекты, такие как эхо, усиление и шумоподавление. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5A2A56C1C0306944CE7BDDE9BC2D9F601B47A8
 ```
 
 

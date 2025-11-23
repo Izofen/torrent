@@ -1,3 +1,322 @@
+###  Публикация: 1152326   (188949) от 13.11.2022
+
+Boney M. - Ten Thousand Lightyears (1984) [FLAC|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_188949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus (Noah's Ark 2001) (5:19)
+02. Wild Planet (4:06)
+03. Future World (3:53)
+04. Where Did You Go (4:11)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25999307F1A1C0A1A2FCADD2766343B699D2A67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590408   (189046) от 13.11.2022
+
+Roxette - The Very Best of Roxette (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roxette - Joyride (04:24)
+02. Roxette - The LookЖанр: Pop RockПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590262   (189061) от 13.11.2022
+
+Андрей Губин - Только ты (1998) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Губин - Зима-холода (03:55)
+02. Андрей Губин - Я знаю, ты знаешь (03:52)
+03. Андрей Губин - Милая моя далеко (04:15)
+04. Андрей Губин - День и ночь (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F134AEBE482D87A012B05B49E6B3F2508013E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590421   (189124) от 13.11.2022
+
+C.C. Catch - Strangers By Night (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers By Night
+02. One Night's Not Enough
+03. 'Cause You Are Young
+04. Don't Wait Too Long(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D6268FE783F11FC5EBB136CB5219F5849CEB3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590460   (189151) от 13.11.2022
+
+Living in a Box - Blow the House Down (1989) Single [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living in a Box - Blow the House DownЖанр: PopПродолжительность: 00:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871CFF66D334BCE754E4004E0AF01CD9BE093BE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659583   (189185) от 13.09.2023
+
+VA - Italo 2000 - Italo Dance Classics Vol. 1 (1998) 2CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolce Vita - Ryan Paris
+02. Happy Children - P. Lion
+03. Feel The Drive - Doctor's Cat
+04. Hey Hey Guy - Ken Laszlo(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 02:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA601313A23D298B74FEE80FBD05453D5865F20C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660389   (189234) от 13.09.2023
+
+VA - Italo 2000 - Italo Dance Classics Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On - Alan Berry
+02. I'm Your Lover - Joe Yellow
+03. Stop Bajon (primavera) - Tullio De Piscopo
+04. Delirio Mind - Scotch(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 02:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B26A952996FE2847BF7820B9D3E8AF23DB15C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660667   (189261) от 13.09.2023
+
+VA - Italo 2000 - Italo Dance Classics Vol. 3 (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Box - Ride On Time
+02. Albert One - Hopes & Dreams
+03. Linda Jo Rizzo - Perfect Love
+04. Solo - Harem(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 02:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A707EB7F913A44DAAD92B5071B0CB5FA8753FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660693   (189299) от 13.09.2023
+
+Mariah Carey - Music Box (1993) 2023, 3CD, 30th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189299.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dreamlover
+02. Hero
+03. Anytime You Need A Friend(   Читать дальше...   )Жанр: Pop |Продолжительность: 02:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDFEE12ECAF27D63705047F771872F53BA66A08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590073   (189326) от 12.11.2022
+
+Юлия Савичева - Стихия (2022) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189326.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скажи мне
+2. Жёлтое такси
+3. От его голоса
+4. Незнакомец(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659467   (189340) от 13.09.2023
+
+The Coral - Sea Of Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychedelic, Baroque, Alternative, Cinematic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Actor And The Cardboard Cowboy (1:10)
+2. Cycles Of The Seasons (2:54)
+3. Faraway Worlds (3:51)
+4. Wild Bird (3:12)(   Читать дальше...   )Жанр: Indie rock, Psychedelic folk, Baroque pop, Alternative, Cinematic rockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815B65D0388781C67237457997C143BFB26A2390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589893   (189610) от 11.11.2022
+
+DJ Bobo - Evolut30n (Evolution) (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolut30n (Evolution)
+02. Better Days
+03. Together We Fly
+04. Love(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE670C2BCA3B6BC02AE969B68479B41060E9D3A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658741   (189677) от 12.09.2023
 
 VA - Grand Prix 90's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House>
@@ -6,7 +325,7 @@ VA - Grand Prix 90's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189677.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189677.jpg" />
 </div>
 
 
@@ -33,7 +352,7 @@ Olivia Rodrigo - Guts (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189713.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189713.jpg" />
 </div>
 
 
@@ -60,7 +379,7 @@ VA - KuschelRock 11 (1997) 2CD [FLAC|Lossless|tracks + .cue]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189743.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189743.jpg" />
 </div>
 
 
@@ -87,7 +406,7 @@ Romy - Mid Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Indie-Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189757.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189757.jpg" />
 </div>
 
 
@@ -114,7 +433,7 @@ VA - Grand Prix 80's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190070.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190070.jpg" />
 </div>
 
 
@@ -141,7 +460,7 @@ Genghis Khan - Greatest Hits (1980) Japanese Edition, Compilation, Reissue, 1992
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190270.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190270.jpg" />
 </div>
 
 
@@ -170,7 +489,7 @@ The Laser Cowboys - Radioactivity (1986) Remastered, Unofficial Release, 2018, V
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190282.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190282.jpg" />
 </div>
 
 
@@ -197,7 +516,7 @@ Laid Back - Road To Fame (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listeni
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190436.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190436.jpg" />
 </div>
 
 
@@ -224,7 +543,7 @@ Supermax - 3 Albums (1977 - 1986) Remastered, 2005, CD-Maximum [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190454.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190454.jpg" />
 </div>
 
 
@@ -251,7 +570,7 @@ Blue System - 40 Jahre ZDF Hitparade (2009) [OGG Vorbis|480 Kbps] <Electronic, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190873.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_190873.jpg" />
 </div>
 
 
@@ -278,7 +597,7 @@ VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190884.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190884.jpg" />
 </div>
 
 
@@ -305,7 +624,7 @@ Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190949.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190949.jpg" />
 </div>
 
 
@@ -332,7 +651,7 @@ Joe Dassin - Joe Dassin Éternel... (2022) Edition deluxe [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190996.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_190996.jpg" />
 </div>
 
 
@@ -359,7 +678,7 @@ Blue System - When You Are Lonely (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191105.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191105.jpg" />
 </div>
 
 
@@ -373,330 +692,6 @@ Blue System - When You Are Lonely (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C8B405152525F59F6D24B75CA9E3E0342FAF00B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588624   (191392) от 05.11.2022
-
-Blue System - Seeds Of Heaven (1991) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Serenata (Overture)
-02. Lucifer
-03. Testemente D'Amelia
-04. Is She Really Going Out With Him(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD8BDDA6F9B6E5F0DBDEE3D6B6B946CDED002BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588468   (191394) от 05.11.2022
-
-Blue System - 21st Century (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The 21st Century
-02. 6 Years - 6 Nights
-03. Venice In The Rain
-04. If I Will Rule The World(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18078C874ADD0C7ED91093F93DF01A2562ED5417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588612   (191409) от 05.11.2022
-
-Blue System - Hello America (1992) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romeo & Juliet
-02. Crossing The River
-03. I Will Survive
-04. I Like Your Sexy Body(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4697F0C9B0B68821306171D22BE5E75DA7B059D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588526   (191410) от 05.11.2022
-
-Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. History
-02. Operator
-03. Backstreet Heaven
-04. You Are An Angel(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FF47974EC6587E0C71875DD9BAFBEE545CA1DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658285   (191492) от 07.09.2023
-
-Supermax - 5 Albums (1982 - 1992) Remastered, 2007, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So I
-02. Honkey Curt
-03. Smoke Is Up
-04. Reggaesizer(   Читать дальше...   )Жанр: Electronic, Pop, Soul, FunkПродолжительность: 05:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A92956086154F37A158B596B0D06BE7DDC380A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658323   (191534) от 07.09.2023
-
-VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Katy Perry - California Gurls (03:55)
-002. Avicii - Wake Me Up (Radio Edit) (04:06)
-003. PAENDA - Second Summer (02:46)
-004. Luis Fonsi - Despacito (Remix) (03:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD69C97CE2A5D56E3E4DC3C870808B5122FA8A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658023   (191599) от 07.09.2023
-
-Jamiroquai - Party Songs (2005) [MP3|320 Kbps] <Acid-Jazz, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Virtual Insanity (Remastered) [00:03:49]
-02 - Cosmic Girl (Remastered) [00:03:47]
-03 - Little L (Remastered) [00:03:59]
-04 - Alright (Remastered) [00:03:42](   Читать дальше...   )Жанр: Acid-Jazz, FunkПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3D786DC6D40E09802EB6056C0154E2DCD121A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588383   (191643) от 04.11.2022
-
-Blue System - Forever Blue (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laila
-02. I Wanna Smile
-03. Baby Jealousy
-04. Taxi Girl(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDF11845316BA09C1EB12289EFCC67BE042C227
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588411   (191644) от 04.11.2022
-
-Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Mabuse
-02. If There Is A God In Heaven
-03. How Will I Know
-04. Goodnight Marielin(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0504CB6AABC0C3E6DDC292053F8FEC38CA974190
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588173   (191795) от 03.11.2022
-
-Маленький Принц - Мы Встретимся Снова (1994) Reissue, 2022, Maschina Records [OGG Vorbis|480 Kbps] <Disco, Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не знаю, зачем мне ты
-02. Голос в ночи
-03. Прощай
-04. Не знаю я тебя(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA26DE828DD95EB03482E2415B54A2F26922EF6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588268   (191809) от 03.11.2022
-
-Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body To Body (Radio Version)
-02. Only With You (Radio Version)
-03. For The Children
-04. It's For You(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5E3EB3180E1E2E63708624D9D789F985801400
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588217   (191816) от 03.11.2022
-
-Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Drive Me Crazy
-02. Anything
-03. I Miss You
-04. I Love The Way You Are(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
 ```
 
 

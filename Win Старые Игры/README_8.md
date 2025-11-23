@@ -6,7 +6,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90716.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90898.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101688.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101791.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101791.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101959.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101959.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101961.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101961.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102075.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102075.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102193.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102193.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Battle Master [En] (RePack) 1991 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102380.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102380.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102536.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104420.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109854.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled (2004) [Ru/Multi] (2.2.b) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114758.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Alexander (2004) [Ru] (1.60) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116625.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116991.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117898.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ General Strategic Simulations Inc. Anthology (1994-2000) [En] License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118027.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118040.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119052.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119382.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119387.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Descent + Descent II (1995-1996) [Ru/En] (0.58-1/dlc) Mod [DXX Rebirth]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119417.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Blood: One Unit Whole Blood (1998-2016) [En] (12.2016) Repack/Mod 1nomok [BloodC
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121051.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123838.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124991.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Shattered Union / Shattered Union: Захват США (2005) [Ru] (1.00x) Repac
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125121.jpg" />
 </div>
 
 

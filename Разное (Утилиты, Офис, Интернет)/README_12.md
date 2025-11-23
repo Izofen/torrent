@@ -6,7 +6,7 @@ Webcam Surveyor 3.9.2 Build 1212 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199318.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PopChar 8.7.0.3001 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200123.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200123.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:53EAC1D4D202D2CF7D6820B9BB9E9972559F90B9
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201247.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201247.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Removable Access Tool 1.4 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201253.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201253.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ MouseExtender 1.9.9.3 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201685.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201685.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FileMenu Tools 8.6 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201753.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201753.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ScrollNavigator 5.16.1 RePack by KpoJIuK [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201755.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201755.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ ABBYY Screenshot Reader 16.0.14.7295 Portable by Conservator (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202229.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202229.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Screen Translator 3.3.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202538.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202538.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Scrivener 3.1.4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202544.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202544.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Nekonverter 1.3.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202552.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202552.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ GenoPro 2020 3.1.0.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202574.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202574.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hetman Internet Spy Unlimited Edition 3.8 RePack (& Portable) by elchupacabra [M
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203494.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203494.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Sidebar Diagnostics 3.6.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204116.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204116.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ DesktopImages3D 2.29 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205071.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205071.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ DesktopNoteOK 3.88 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205882.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205882.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WorldWide Telescope 6.1.2.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205890.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205890.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Interactive Calendar 2.2 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206461.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206461.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ CLCL 2.1.3 Portable + Plugins [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206704.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206704.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ ScreenHunter Pro 7.0.1447 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206902.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206902.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Family Tree Builder 8.0.0.8625 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206942.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206942.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Firemin 9.0.3.5608 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207288.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207288.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ HashMyFiles 2.44 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207669.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207669.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ OpenHashTab 3.0.4 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208063.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208063.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ NVCleanstall 1.16.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208973.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208973.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ MultiHasher 2.8.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209199.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209199.jpg" />
 </div>
 
 

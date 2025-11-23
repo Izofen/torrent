@@ -6,7 +6,7 @@ Psiphon 3 build 183 (02.07.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50613.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shrot (2024) [Multi] (1.2) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50614.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D7ABDDF09791EF82E3CB26D9D472312B82BD3D71
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50615.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FC07B07A1286064B09BA4ADD522C837CEFBF4968
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50616.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ X-VPN 76.2 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50617.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:72CC766CF5CCEBCFF5CED5D6D6E2A06C5EFCD311
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50618.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:971B495315CE9F1E15B588A6A039DB5092086AEA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50619.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:44C86BC5417E48CF99C6C2405FC989F8E18D53A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50620.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Adobe Acrobat Reader 2024.002.20895.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50621.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:1C936553EE99A1CE953D38FD6A97B02949A09599
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50622.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50623.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Animal Planet & BBC: Сурикаты / The Meerkats (2008) BDRip [H.264/1080p]
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50624.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:FF06527D9AA60A49F86D91F5BB951CC42477DF5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50625.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:62FFFE2C75977B9E0D171976B27ABE3E463B99F5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50626.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Total Commander 11.03 Extended 24.7 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50627.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Adguard 7.18.1 (7.18.4778.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50628.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8B46D4F6689FC3C35FD67A45FCAC45CFCA8BBB28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50629.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1B2AD08A6DEF831D0F37BD784C7386C6E345C4C3
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50630.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:0AF5F070A5C9981E0CFF4D8CDD1D02E17AB2BF37
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50631.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:92FCA434B0BA7EF44B0800675A796F1832601643
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50632.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:361BEEB63F2B388169A0AB699E2E2675E590DD2C
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50633.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A09F37E4DDB797F764E5C2995B5DDFF2B3400469
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50634.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Splatter - Zombiecalypse Now (2024) [Ru/Multi] (1.2_gog) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50635.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E09EE49FE2312767A797D36CFEB54CD8E2393021
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50636.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:E7EFD45C8FE40AFF10AEA67E9A60079DA2B63EE5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50637.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Telegram Desktop 5.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50638.jpg" />
 </div>
 
 

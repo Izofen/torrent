@@ -6,7 +6,7 @@ ASUS GPU Tweak III 1.7.7.0 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58334.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Geekbench 6.3.0 Pro RePack (& Portable) by elchupacabra [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58371.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Auslogics Video Grabber 1.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58373.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Winstep Nexus 22.7 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58487.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ FonePaw Android Data Recovery 6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58564.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Total Uninstall 7.6.1.677 Professional RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58572.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ IObit Driver Booster Pro 11.4.0.60 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58672.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Office.Files.Images 2.46 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58801.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Macrorit Partition Expert 8.1.6 Technician Edition Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59633.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Free Alarm Clock 5.2.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59666.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ AOMEI Backupper Pro 7.3.5 [Multi/Ru] (акция Comss)
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59671.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ ASUS Armoury Crate 5.8.6.0 (11.04.2024) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59857.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ CpuFrequenz 4.31 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59905.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AutoHideDesktopIcons 6.12 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60232.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ TheAeroClock 8.55 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60256.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Wise Memory Optimizer 4.2.1.124 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60658.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Uranium Backup 9.9.0.7469 Free [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60678.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ ASCOMP Cleaning Suite Pro 4.011 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60751.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ MSI Kombustor 4.1.29.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60786.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ FileOptimizer 16.60.2819 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60878.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ iVentoy 1.0.20 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60896.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ StopUpdates10 4.6.2024.0403 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60907.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:42692A67882A9548D87264FF0ABFC48ECE263C0C
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61327.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ PC HelpSoft Driver Updater 7.1.1130 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61572.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ GetWindowText 4.94 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61699.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Samsung SSD Magician Tool 8.1.0.800 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61772.jpg" />
 </div>
 
 

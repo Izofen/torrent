@@ -6,7 +6,7 @@ VA - Танцевальная зима. Выпуск № 2 (2016) [MP3|256 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145334.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Хиты под водочку: Замкнутый круг (2016) [MP3|320
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145338.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Отрывайся с лучшими хитами. Сборник № 6 (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145352.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Музыкальные новинки. Only Best Hits № 3 (2016) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145359.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bond - Just Bond Compilation (2018) [MP3|320 Kbps] <Instrumental, Classical Cros
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145360.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The BossHoss - Compilation (2021) [MP3|320 Kbps] <Rock/Country/Rockabilly>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145395.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Хиты под водочку: Поворот на 360 (2005) [MP3|320 Kbp
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145401.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Взрывной Хит-Парад выпуск № 4 (2016) [MP3|256 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145414.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Корпоратив 2020 (mixed by Dj V) (2019) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145466.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Дискотека 2020 Dance Club Vol. 196 Новогодний выпус
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145473.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Top 100: Most-Read Lyrics (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145535.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Trance In Motion Vol.368 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145547.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Шансон в натуре (2015) [MP3|320 кб/с] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145589.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Trance In Motion Vol.367 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145619.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - 80's Hits Time Machine (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145641.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Roxette - 25 Best Songs (2012) [MP3|~245 кб/с]<Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145661.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - ЕвроХит Топ 40 Europa Plus 25.12.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145755.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:E93DB816AA8CEDBF15F74D937A8B24EA82E2E4BC
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145782.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Chill Session 2016 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145868.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Privileged Euro Trance: December Party (2015) [MP3|320 кб/с] <Trance, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145873.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - DJ Mixes New Year 2022 (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146067.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Blues Collection 5 (2016) [MP3|320 Kbps] <Blues, Folk, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146266.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Cool Chillout: Smooth Lounge Music Served for a Chilled Winter Season (2012
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146322.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Новогодние подарки. Лучшие песни (2016) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146408.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Romantic Soul RnB (2016) [MP3|320 Kbps] <RnB, Lyric>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146416.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Русское Радио. Лучшее '2021 (25.12.2021) (2021) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146491.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61834.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:94DFF66A0E02BC581611B156F426500B0C1F7799
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62123.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mivari - Жар-Птица (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Ethnic, H
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62342.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Deep Forest - Studio Albums (15 releases) (1992-2023) [APE, Flac|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63124.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Various Artists - Sazz & Jaz (2013) [FLAC|Lossless|image + .cue] <Ethno, Jazz>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63183.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - The Orient Collective - Moonlight Desert Odyssey (2023) [FLAC|Lossless|WEB-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63382.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:0066449E8CE10F74618F1698450786B5ABFB80D6
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63385.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cesaria Evora - Cafe Atlantico (1999) [FLAC|Lossless|image + .cue] <Latin, Folk,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63393.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jo Dee Messina - A Joyful Noise (2002) CD, Album [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65373.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ John Denver - Windsong (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Soft Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65408.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Trisha Yearwood - (Songbook) A Collection Of Hits (1997) CD, HDCD, Compilation, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65416.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ You+Me - Rose Ave (2014) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65423.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ George Koller - Zen Tranquility (2011) CD, Album [FLAC|Lossless|tracks + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65819.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Willie Nelson - Natural Renegade: Opus Collection (2007) CD, Compilation [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65832.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Ultimate Broadway (1998) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65834.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65998.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66086.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hank Williams Sr. - Lonesome Blues (1992) [FLAC|Lossless|tracks + .cue] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66208.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ George Strait - One Step at a Time (1998) CD, HDCD, Album [FLAC|Lossless|tracks 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66386.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Gandharva Loka Orchestra (Оркестр "Гандхарва Лока", Sri Chin
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66430.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66609.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - The Wedding Singer: Music From the Motion Picture (1997) CD, Compilation [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66626.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:111B29578A100FE43C253C185513C9D19400B5DB
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67544.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WE
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67760.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67767.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dwight Yoakam - This Time (1993) CD, Album, Club Edition [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68344.jpg" />
 </div>
 
 

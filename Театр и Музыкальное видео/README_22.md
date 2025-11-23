@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56710.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Modern Talking - Video Collection (2024) WEBRip [H.264/1080p] [Handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56724.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E91810CD76CDF6A4DBC7E0DD789EB5E9FB3049C6
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56790.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:5A2316167516110C5AFE548A3B0EF637145FA697
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56840.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:6DD94D5CCB5A8894317730A5466CDE7DC9112E07
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57456.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:7ADAB2E29728FF8A6AD2A1A6A2F3149BA35DAAE3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57509.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:245C41DD7CA8258BA870BC9CE7C38D66DA05A9C4
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57720.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Two Steps From Hell - Europe Tour 2023 (2024) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58048.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:7DBEFA9CCCD88A95011AF8170459A587B7D66CCE
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58274.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:CC2D2C7CDEC6EDBB9D8B42E572E6898F6C2CC7D6
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58483.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:986E246F82C156F61019D19DE9661F87497B5A51
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58528.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:653B61CBCFB4BD921F820E1996ACAAE0B181B41C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58877.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Black Keys - Live from the KROQ Helpful Honda Sound Space (2024) HDTV [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59501.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:87E6BED2C7E4459E2C6788DE6DD77B06A17A5526
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59526.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Andrea Bocelli & CeCe Winans: An Easter Music Special from Lakewood Church with 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59614.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Synthony: Live at Auckland Domain with Auckland Philharmonia (2024) WEB-DL [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59626.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ The Offspring - Live in Lollapalooza Brazil (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59627.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ AC/DC / No Bull (1996/2008) BDRip [H.264/1080p] [Director's Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59685.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:96CAA232EF4DFDAD8B184FAC3514D7F872E50050
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59696.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Elton John and Bernie Taupin: The Library of Congress Gershwin Prize for Popular
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59706.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:A90BA655CAE29DD2DBD5902218F8D008C5B8E739
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59980.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lovebites: Heavy Metal Never Dies (2021) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60138.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:3FFD90DCD23A15829ADA8A7000D11A94BCDE860B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60453.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60574.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60593.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:4ABFE9ED36415663740A760464AE2BC1B29F376F
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60968.jpg" />
 </div>
 
 

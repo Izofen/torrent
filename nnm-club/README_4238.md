@@ -1,3 +1,83 @@
+###  Публикация: 490858   (130186) от 02.05.2012
+
+Anthropics Portrait Professional Studio v10.9.3 RePack by wadimus [2012,ENG\RUS]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Portrait Professional - автономная программа для обработки фотопортретов от компании Anthropics Technology. В ней реализована уникальная технология, которая поволит вам быстро устранять основные недостатки лица на фотографии всего лишь за несколько кликов в полуавтоматическом режиме.
+Программа устраняет морщины и дефекты кожи, изменяет форму лица, превращая полные или тощие лица в более худенькие и наоборот, улучшает черты лица, делая их более правильными и привлекательными.
+
+Универсальные графические редакторы типа Photoshop имеют достаточно средств для улучшения фотографий. Однако неподготовленному пользователю часто бывает сложно разобраться с тонкостями использования многочисленных инструментов.
+
+В результате на то, чтобы выполнить такие часто используемые операции, как устранение морщин, отбеливание зубов, удаление пигментных пятен и пр., уходит достаточно много времени и сил. Portrait Professional – это простая программа, которая ориентирована исключительно на улучшение портретных снимков. С ее помощью можно (   Читать дальше...   )Название программы: Anthropics Portrait Professional StudioЯзык интерфейса: ENG\RUS
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525099   (130189) от 19.01.2022
+
+Трагедия Макбета / The Tragedy of Macbeth (2021) WEB-DL [H.264/720p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличившись на поле боя во славу Шотландии, лорды Макбет и Банко встречают трёх ведьм, которые предсказывают, что первый станет таном кавдорским и даже королём, а второй — предком династии королей. Вскоре Макбет получает в своё распоряжение Кавдор и начинает задумываться о престоле. Следуя наущениям честолюбивой жены, он решает убить остановившегося в его замке короля (   Читать дальше...   )Производство: США / A24, IAC FilmsЖанр: Драма, фэнтезиРежиссер: Джоэл КоэнАктеры: Дензел Вашингтон, Фрэнсис МакДорманд, Алекс Хэсселл, Берти Карвел, Брендан Глисон, Кори Хоукинс, Гарри Меллинг, Майлз Андерсон, Мэтт Хельм, Моусес ИнгрэмПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (forced х2, full, SDH), украинские (forced, full), английские, эстонские, латвийские, литовские, французские, немецкие, испанские, китайскиеПродолжительность: 01:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272D5C172C1536B7D175BE1861878B836211F3E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490796   (130190) от 02.05.2012
+
+Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Kid in Town
+02. Wasted Time
+03. Peaceful Easy Feeling
+04. I Can't Tell You Why(   Читать дальше...   )Жанр: Rock, country rock, soft rock, folk rockРежиссер: Carol DoddsАктеры: Glenn Frey, Joe Walsh, Timothy B. Schmit, Don HenleyПеревод: ОтсутствуетПродолжительность: 02:44:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525069   (130191) от 19.01.2022
 
 School of Motion, Mark Christiansen | VFX For Motion After Effects (2020) PCRec [En]
@@ -6,7 +86,7 @@ School of Motion, Mark Christiansen | VFX For Motion After Effects (2020) PCRec 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130191.jpg" />
 </div>
 
 
@@ -31,7 +111,7 @@ magnet:?xt=urn:btih:B2317770707510E93219C8CC3D8D6FE426B311AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130193.jpg" />
 </div>
 
 
@@ -55,7 +135,7 @@ PowerCMD Pro 2011 2.2 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130194.jpg" />
 </div>
 
 
@@ -79,7 +159,7 @@ Adobe Photoshop 2021 22.5.5.691 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130195.jpg" />
 </div>
 
 
@@ -103,7 +183,7 @@ magnet:?xt=urn:btih:9DA6B82C0A7039B18A557FB9F759AA59BDBC77DC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130196.jpg" />
 </div>
 
 
@@ -127,7 +207,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130197.jpg" />
 </div>
 
 
@@ -151,7 +231,7 @@ magnet:?xt=urn:btih:A8C87AB38C1640C890ECBCCAE8460C435D665D71
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130198.jpg" />
 </div>
 
 
@@ -175,7 +255,7 @@ magnet:?xt=urn:btih:68FD0B5FE44FCD6F061F8C247C5CFDDC3E2142CA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130199.jpg" />
 </div>
 
 
@@ -199,7 +279,7 @@ magnet:?xt=urn:btih:68FD0B5FE44FCD6F061F8C247C5CFDDC3E2142CA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130200.jpg" />
 </div>
 
 
@@ -226,7 +306,7 @@ magnet:?xt=urn:btih:16B7B9BB19E0BAFB9C9E34A9C9D050F8B41B8A8C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130201.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ Adobe Acrobat Reader для PDF 21.11.1.20710 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130202.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ GRAN TURISMO 5 Prologue (2008) [PS3] [EUR] 2.16 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130204.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ magnet:?xt=urn:btih:FB3E2F7FE6B706DE9EEF7F7AD200982CD05BBD31
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130205.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ Udemy, Gary Pettie, Ben Tristem | Math For Video Games: The Fastest Way To Get S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130206.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ magnet:?xt=urn:btih:3F14B5C9098940AE898D79EE75BBF703BC49175F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130207.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ VirtualBox 6.1.32 Build 149290 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130208.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ Loredana Berte - E La Luna Busso (1988) [MP3|320 кб/с]<Rock, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130209.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ magnet:?xt=urn:btih:A1DFEFF2DF7F2EDB1CE4DD9D31DFFDC2C7BE0943
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130210.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ magnet:?xt=urn:btih:82B88B8201F1CD8F55615B11593973141FD75CBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130212.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ magnet:?xt=urn:btih:9182C3FE6786248243D617F48B793B812D83D8EC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130214.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ VA - Smooth Jazz - Sexual Healing (2000) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130215.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130216.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ magnet:?xt=urn:btih:729D6912C45272767068E71123DA0F40B679A8EE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130217.jpg" />
 </div>
 
 
@@ -572,78 +652,6 @@ magnet:?xt=urn:btih:729D6912C45272767068E71123DA0F40B679A8EE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDADC2E1B69FA478AE75E72FCC8B6F5DC9D0E05B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525049   (130218) от 19.01.2022
-
-Дэниел Фрайер | Вредные мысли. Четыре психологические установки, которые мешают нам жить (2022) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если жизнь кажется вам невыносимой, не спешите винить в этом весь мир, своего начальника или случайного прохожего, неосторожно наступившего вам на ногу. И уж точно перестаньте валить все на себя. Чтобы изменить жизнь к лучшему, вам не нужно искать себе другую планету, закатывать скандал или заедать стресс: достаточно отказаться от вредных мыслительных привычек. Именно (   Читать дальше...   )Жанр: О психологии популярно, Саморазвитие / личностный ростПеревод: Анна ВласюкФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD8F9CCC797C79C1821B19A91EC2559D15740BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525206   (130219) от 19.01.2022
-
-Hard Disk Sentinel PRO 5.70.10 Build 12540 Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755DE9C5590B2A5BAE9A1731CB2262E26EFA08A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491305   (130220) от 02.05.2012
-
-[Wallpapers] Wallpapers Fantasy №15(Pavel)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 шт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F396E177EA7A57072A0D21C8F1CBFC0937AE30F
 ```
 
 

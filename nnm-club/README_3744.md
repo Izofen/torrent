@@ -1,3 +1,84 @@
+###  Публикация: 1700461   (117026) от 17.02.2024
+
+Serena Forni - Rhythmic Nocturne (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Chronicles (2:33)
+02. Vintage Vinyl Jazz Lounge Suite (2:47)
+03. Harmonic Horizon (2:46)
+04. Risonanza D'infinito (2:02)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CEDE4648D1C8B818DAC814231B1CB4F169F2E28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700472   (117027) от 17.02.2024
+
+VA - Redux Selection Vol. 3 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Binner - Blessing In Disguise (Extended Mix) [7:34]
+02. Air Project & Ruslan Aschaulov - Lost In The World (Extended Mix) [5:49]
+03. Masaru Hinaiji - I Need. I Feel (Extended Mix) [6:38]
+04. Alima x Nold - Somewhere In The Sky (Extended Mix) [5:57](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF317E9BFCED73928D9421D174FF4B6A51AC749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700658   (117028) от 17.02.2024
+
+Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
+2003 - Regressus
+2004 - Never Ending
+2006 - Savage SoulsЖанр: Power/Speed/Thrash MetalПродолжительность: 09:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700587   (117029) от 17.02.2024
 
 Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
@@ -6,7 +87,7 @@ Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117029.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Leah - The Glory and the Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117030.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117031.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ VA - After Hours Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117032.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Galahad - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117033.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ The Requiem - A Cure To Poison The World (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117034.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ VA - Green Hill: 30 Years Of Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117035.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Life by Night - Life by Night (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR, New Wav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117036.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ VA - Extend The 80s Groove (Essential 12" And Extended Mixes Of 80s Groove Class
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117037.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Romantic Jazz Music Club, Erotic Moods Music Club - Sensual Date Night: Set the 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117038.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ PhotoRoom v4.8.5 b1292 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117039.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ Tinlicker - Cold Enough For Snow (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117040.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Paloma Faith - The Glorification of Sadness (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117041.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ VA - Rock Party Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117042.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ VA - Bass Music Grooves 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117043.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ QOwnNotes 24.2.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117044.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ The Barry Harris Sextet - Bull's Eye! (1968) 2002, Original Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117045.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ Smart Converter Pro 3 v.3.1.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117046.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ Elektrikill - Propaganarchy! (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industri
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117047.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ VA - Women in Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117048.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ magnet:?xt=urn:btih:0A25F629A30C77C4067A6E5C141D1C567071C9CE
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117049.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ NCH Express Burn Plus for Mac 12.02 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117050.jpg" />
 </div>
 
 
@@ -586,7 +667,7 @@ magnet:?xt=urn:btih:DDDCC2054BB58F454780DE83F934E812C74497FC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117051.jpg" />
 </div>
 
 
@@ -600,85 +681,6 @@ magnet:?xt=urn:btih:DDDCC2054BB58F454780DE83F934E812C74497FC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:426CA819F01E7ED620100B722CAF6D0757834166
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700596   (117052) от 17.02.2024
-
-VA - Billboard Top Pop Hits, 1961 (1994) [OGG Vorbis|480 Kbps] <Pop, Rock, Funk / Soul, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Shirelles - Dedicated To The One I Love
-02.  Dick & Deedee - The Mountain's High
-03.  Jorgen Ingmann & His Guitar - Apache
-04.  Joe Dowell - Wooden Heart(   Читать дальше...   )Жанр: Pop, Rock, Funk / Soul, FolkПродолжительность: 00:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D650E26B468075164E1A88C28805037203AFD1A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700573   (117053) от 17.02.2024
-
-Живая еда с Сергеем Малозёмовым (17.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микробы на кухне: где они живут и стоит ли их бояться? Что эксперты обнаружили на разных кухнях, какие опасности хранят в себе губки для мытья посуды, какие доски лучше — деревянные или пластиковые? Почему ученые запрещают мыть мясо? И что случится, если все-таки это сделать?
- Плюсы и минусы омлета: как его готовят в Таиланде, Дубае, Франции и в российских студенческих (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0D738A8C1873D615D04985CCA77557D17BAF23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700516   (117054) от 17.02.2024
-
-VA - Ultimate Chillout Ambient Lounge I (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Into the Unknown (4:13)
-02. Konstantin Klashtorni - Let's Chill (5:29)
-03. Love Suggestions - Little Talks (4:59)
-04. Chillaxonic - Serenity (4:17)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B66CE98EBB47F16CC2AFD0D48F41E9C2777011D
 ```
 
 

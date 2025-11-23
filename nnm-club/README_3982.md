@@ -1,3 +1,78 @@
+###  Публикация: 1691810   (123214) от 13.01.2024
+
+Арт-Студия Виталия Лещенко, Александр Рыжкин | Как научиться рисовать с нуля Часть 3. Рисование розетки в перспективе. Натюрморт (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123214.jpg" />
+</div>
+
+
+###  Подробнее
+
+В видеокурсе "Рисование розетки в перспективе. Натюрморт" представлена та база и азы, которые необходимы любому художнику, потому что это системное мышление - "как в двухмерную плоскость переводить объёмные трёхмерные предметы".
+
+В видеокурс входят: Рисование розетки в перспективе. Натюрморт.
+Этот курс является составной третьей частью курса "Как (   Читать дальше...   )Производство: Арт-Студия Виталия ЛещенкоЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0DD958DD7E0EB2EC83587C95B62D3D9DE50D3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691561   (123215) от 13.01.2024
+
+Нулевой час / Zero Hour (2023) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123215.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти мужа молодую женщину начинают преследовать те, кто несёт ответственность за его смерть.Производство: США / Groetsch EntertainmentЖанр: Триллер, детективРежиссер: Джастин ГроетчАктеры: Микаэла Хувер, Сара Дюмон, Сидни Морган, Джастин Гроетч, Faith Stanley, Керрингтон Брук Дархэм, Lindsey Todd, Jenna GroetschПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:08:29Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630ACE6AFA558160A552205F34BC5C7EB09D7A48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251622   (123216) от 13.01.2024
+
+SCUM (2018) [Ru/En] (0.9.511.80646/dlc) Repack West4it [Early Access]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миру недостаточно простых развлечений. Теперь он жаждет крови, и медийный гигант TEC1 готовит премьеру второго сезона телевизионной сенсации SCUM, чтобы удовлетворить потребности зрителей. В новом сезоне участники не будут ограничены закрытыми аренами;Тип издания: RepackРазработчик: Gamepires, CroteamЖанр: Action, Survival, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304266A2CFD691C3B0398AE7147BE64ED8A78986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691574   (123217) от 13.01.2024
 
 Моя жена – киллер / Role Play (2023) WEBRip [H.264/1080p]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123217.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:C0ECFB232E5C39D2ABF5D04F6161C2326C204D45
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123218.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:807F39BDC809EA5B91235E5BABE90E36CDDD1EF2
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123219.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:1D93238FACA04E8CC4FDA64C902AB190411F34EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123220.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:56CBCAC7B8A50867F7F13C09827E91EBA3EABC56
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123221.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:65EC0C099804D9CD6F82BC78F1029990C6DBFE11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123222.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:37046773BD84513D584FCD99F8F8E5812F8A22F7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123223.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:871D14C7F615D76FFA2552945A8A9F6711E2CFB7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123224.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:1AFD207D9E266848683ACAE2E8143F542973B954
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123225.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:3BB6CBC6B9B38D31C6ECE872AB7B9911C51F9902
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123226.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ magnet:?xt=urn:btih:3D6C2C7B4F1336D3FF90CF339C9F0088CA50D642
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123227.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ magnet:?xt=urn:btih:0CA4F0B7A7EB2E9FD0141F3175367C1FBFD53344
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123228.jpg" />
 </div>
 
 
@@ -295,7 +370,7 @@ magnet:?xt=urn:btih:548B8C2ABCB4C8CB4CD8A33D2526B0D0747EBE9B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123229.jpg" />
 </div>
 
 
@@ -319,7 +394,7 @@ magnet:?xt=urn:btih:BFB55931C5EDEEF89FC42F759BCD2587B0CAFD1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123230.jpg" />
 </div>
 
 
@@ -343,7 +418,7 @@ Remnant II (2) (2023) [Ru/Multi] (402.015/dlc) Scene Rune [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123231.jpg" />
 </div>
 
 
@@ -367,7 +442,7 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123232.jpg" />
 </div>
 
 
@@ -391,7 +466,7 @@ magnet:?xt=urn:btih:5A8250FFA679D1A2809E95483B2DC9E97426F38A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123233.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123234.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ Avast Premium Security 23.11.6090 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123235.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ Clarity Vision - Clarity Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123236.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123237.jpg" />
 </div>
 
 
@@ -515,7 +590,7 @@ Infernal Poetry - Studio Albums (4 releases) (2002-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123238.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ Acid Enema - A Faint Light At The End Of The World (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123239.jpg" />
 </div>
 
 
@@ -556,87 +631,6 @@ Acid Enema - A Faint Light At The End Of The World (2024) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414322DC63C98876F43D434513B33C39979F373F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691370   (123240) от 12.01.2024
-
-McCoy Tyner - Passion Dance (1978) 2005, Original Jazz Classics [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment's Notice [9:23]
-02. Passion Dance [11:47]
-03. Search For Peace [6:37]
-04. The Promise [6:29](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438308E41AD56E5CF1F7E654154FA660F6A5C67E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690861   (123241) от 12.01.2024
-
-Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123241.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fight Or Flight
-A2. Are We Soldiers
-A3. Control Conquer Collide
-B1. From Saviour To Assassin(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CEABB8030D1F0FC2F6CE903CFDE3F12975DC7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689890   (123242) от 12.01.2024
-
-Athemon - Athemon (2022) Reissue, 2024, Athemon [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perception [00:03:15]
-02. Whispers [00:05:28]
-03. The Glass Hindered Us [00:03:57]
-04. Different from What Was Missing [00:05:22](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B618E10AEAAD52B2985C0BFA62E80B3C67F9A247
 ```
 
 

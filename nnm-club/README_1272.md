@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33425.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33426.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:693D7162D53F48644530F318E7771EE2946A5E15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33427.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Free - 12 Albums, 3 Box Set (1968 - 2018) 42 CD [FLAC|Lossless|image + .cue|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33428.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33429.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E8AAF9FCB898120227D0DC96FBD77589F3E2284E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33430.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C488C93750EE4DD990A321B30F0A81D7DE955172
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33431.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.2 Build 3 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33432.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Nageki no Bourei wa Intai Shitai / Let This Grieving Soul Retire! / Скорбя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33433.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:25ADEEC7DB111304B303DB69C06803CAFB18B25E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33434.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:25ADEEC7DB111304B303DB69C06803CAFB18B25E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33435.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Mystery Case Files 27: The Riddle of Mrs. Bishop / За семью печатя�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33436.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6B935F3A1D36233F123E9FF3BD400FE914E913AF
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33437.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:9F35EBF46D093B0A1056DE8A9837C0AF2555E136
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33438.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:16E6C642A3C8C98FEE48DB3A41D2694F427E0B61
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33439.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:182906CCA751D6C15A5451630334324FDFD02FF2
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33440.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:7ED93CC6ACE4340ADDA6732CEDF37EEF52C8B878
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33441.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:6F919A2496570DA6E2E14A83EFF2C2E9248C4F5A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33442.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:5BA6432731F825333E3E9BD99DD4BEAD2AEC67E2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33443.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:B76F7FDEE8161C22416CEB5192503B93FD58CCB0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33444.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.3) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33445.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.115 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33446.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Armada Music Year Mix 2024 - Extended Versions (2024) [MP3|320 Kbps] <Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33447.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:ADBFE759A3389AA6AD0DFF777776CF69CFD1D460
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33448.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Happy New Year Party 2025 (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33449.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:4EE3325A262CCB4FD34F5F5BC7AEBEB31BA62311
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33450.jpg" />
 </div>
 
 

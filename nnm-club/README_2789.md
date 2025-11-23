@@ -1,3 +1,77 @@
+###  Публикация: 458719   (78897) от 28.02.2012
+
+Airwave - Atlas Winds / Chiricahua (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlas Winds (11:00)
+02. Chiricahua (10:17)2012Жанр: TranceПродолжительность: 00:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773A1666C96C172DFC65CD9C580AAFE8482DCC58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459040   (78901) от 28.02.2012
+
+Сирокко / Sirocco / Damasco’25 (1951) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78901.jpg" />
+</div>
+
+
+###  Подробнее
+
+1925-й год… Гарри Смит - аморальный американский торговец оружием, продает оружие арабским мятежникам в Дамаске, пытающимся свергнуть французский протекторат. Последняя отгрузка лидеру мятежников Хассану перехвачена французами. Генерал Лазолл, захватывает заложников, а французские солдаты заманены в засаду. Полковник Фероуд требует переговоров, вместо этого, Смит все усложняет, похитив любовницу Фероуда Виолетту, стремящуюся убежать от командующего. Фероуд принуждает Смита встретиться с Хассаном, чтобы обсудить вопросы мирного урегулирования проблемы. Уважая храбрость Смита, прибывшего в укрытие мятежников в одиночку и без оружия, Хассан соглашается на дальнейшие переговоры. Однако, Смит, поверив Фероуду, допустил ошибку…
+(Существует еще одно название этого фильма: "Damasco’25".)Жанр: Боевик, ДрамаРежиссер: Кёртис БернхардтАктеры: Хамфри Богарт, Марта Торен, Ли Дж. Кобб, Эверет Слоун, Джералд Мор, Зеро Мостел, Ник Дэннис, Онслоу Стивенс, Людвиг Донат, Дэвид Бонд, Абдулла Аббас, Джон Блейфер, Питер Брокко, Арджентина Брунетти, Джефф Кори, Гарри ГуардиноПеревод: Многоголосый закадровыйПродолжительность: 01:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCB568930414975FFBE4649DD34E440AEB6744D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459270   (78911) от 28.02.2012
+
+Журнал | Автокомпоненты [№2 (февраль)2012] [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Периодическое издание освещающее все основные темы рынка автокомпонентов. Отличительная особенность издания – компетентность,всесторонний подход к событиям , знание автокомпонентов изнутри, их свойств, особенности эксплуатации, специфику подбора и стоимость, обзоры, аналитика, тесты, презентации новинок рынка, а так же, консультации специалистов и производителей автокомпонентов.№2 (февраль)2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE50B627188870A1A724BCCD929EFFA83CB825DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459551   (78927) от 28.02.2012
 
 Журнал | Идеи вашего дома [Россия] №3 [март 2012] [PDF]
@@ -6,7 +80,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78927.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ A State Of Trance 550 Anthem Contest Podcast (2011) HDRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78937.jpg" />
 </div>
 
 
@@ -58,7 +132,7 @@ magnet:?xt=urn:btih:A23677DEC3421C66279ABC288C4815394AAA0572
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78941.jpg" />
 </div>
 
 
@@ -85,7 +159,7 @@ PhotoLine_17.01_ML+RUS_Portable 17.01 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78942.jpg" />
 </div>
 
 
@@ -109,7 +183,7 @@ PhotoLine_17.01_ML+RUS_Portable 17.01 [Русский]
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78944.jpg" />
 </div>
 
 
@@ -133,7 +207,7 @@ magnet:?xt=urn:btih:39E70155B8A141C36443A7C13BDEDCA649FFEAB7
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78954.jpg" />
 </div>
 
 
@@ -157,7 +231,7 @@ magnet:?xt=urn:btih:15BE9BD5E117DAAA6674E549E0DAB8D49253A889
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78962.jpg" />
 </div>
 
 
@@ -182,7 +256,7 @@ magnet:?xt=urn:btih:9512207886D5D3977F156CE6124D7F54028FB0BD
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78964.jpg" />
 </div>
 
 
@@ -215,7 +289,7 @@ magnet:?xt=urn:btih:DC64889D8DD132C31C37325ACE74750731F0ED27
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78965.jpg" />
 </div>
 
 
@@ -242,7 +316,7 @@ magnet:?xt=urn:btih:DC64889D8DD132C31C37325ACE74750731F0ED27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78971.jpg" />
 </div>
 
 
@@ -266,7 +340,7 @@ magnet:?xt=urn:btih:699169046177C8DF544357284AB5A191C5E62A65
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78972.jpg" />
 </div>
 
 
@@ -292,7 +366,7 @@ magnet:?xt=urn:btih:699169046177C8DF544357284AB5A191C5E62A65
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78974.jpg" />
 </div>
 
 
@@ -317,7 +391,7 @@ magnet:?xt=urn:btih:950C6DAA71BAE3EF7DD8FC0DC81ADD279D44AC94
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78975.jpg" />
 </div>
 
 
@@ -343,7 +417,7 @@ magnet:?xt=urn:btih:A5E396A3382E41F56C48CD3F92E4BA515D78EF9C
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78977.jpg" />
 </div>
 
 
@@ -367,7 +441,7 @@ magnet:?xt=urn:btih:05F8E7657C6D1EDDA347E70A20774D85049FE473
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78982.jpg" />
 </div>
 
 
@@ -392,7 +466,7 @@ magnet:?xt=urn:btih:E9D666112677C39A5C55E40E738BFB42E7E77E9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78991.jpg" />
 </div>
 
 
@@ -416,7 +490,7 @@ magnet:?xt=urn:btih:5BF305E544F34E5F9F0A97EE7CCE8EA4592744B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78999.jpg" />
 </div>
 
 
@@ -440,7 +514,7 @@ magnet:?xt=urn:btih:7ED08CA0B3642964F178E0150311F873C8D7A5B4
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79001.jpg" />
 </div>
 
 
@@ -465,7 +539,7 @@ David Gilmour - Greatest Hits (2006) [WavPack|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79011.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ David Gilmour - Greatest Hits (2006) [WavPack|Lossless]<Progressive Rock>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79012.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ Qip 2012 4.0 Build 7210
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79013.jpg" />
 </div>
 
 
@@ -549,7 +623,7 @@ QIP 2012 является прямым преемником QIP Infium и QIP 20
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79029.jpg" />
 </div>
 
 
@@ -573,7 +647,7 @@ Dio - Holy Diver (1983) /2012, Audio Fidelity [FLAC|Lossless]<Heavy Metal / Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79031.jpg" />
 </div>
 
 
@@ -587,78 +661,6 @@ Dio - Holy Diver (1983) /2012, Audio Fidelity [FLAC|Lossless]<Heavy Metal / Hard
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459294   (79039) от 28.02.2012
-
-Непокоренный / Invictus (2009)  [720p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о времени после падения апартеида, когда Южная Африка провела у себя Кубок мира по регби 1995 года. Тогда шел первый президентский срок Нельсона Манделы, который пытался использовать все возможности, чтобы прекратить многолетнее непонимание между белым и чернокожим населением страны.Жанр: ДрамаРежиссер: Клинт ИствудАктеры: Морган Фриман, Мэтт Дэймон, Тони Кгороге, Патрик Мофокенг, Мэтт Штерн, Джулиан Льюис Джонс, Аджоа Андох, Маргарит Уитли, Лелети Кумало, Патрик ЛистерПеревод: ДублированныйЯзык субтитров: Русский, Английский, Въетнамский, Чешский, Французский, Шведский и др.Продолжительность: 02:13:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459506   (79040) от 28.02.2012
-
-Oil Rush [Native] [Eng + Rus]
-
->>Игры для macOS
->>Strategy, RPG для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия в игре разворачиваются в постапокалиптическом мире, где ведутся сражения за нефть. Игроку нужно контролировать свои платформы, модернизировать их, наращивать силы, использовать флот и авиацию для захвата вражеских платформ и нефтяных установок. Нефть является основным ресурсом игры. Она используется для покупок оборонительных башен и финансирования научных исследований. Нефтяные установки не способны защищать сами себя. Установление контроля над ними — важнейшая (и сложная) задача. Платформы предназначены для производства боевых юнитов. Их можно оснащать оборонительными башнями для отражения вражеских атак. Платформы способны как-то влиять на находящихся рядом юнитов. Сами юниты бывают разных типов: самолёты, корабли и подводные лодки. Научные исследования позволят игроку производить более продвинутое оборонительное оружие и более мощное оружие для нападения, включая ядерное оружие..2012Mac OS XТип издания: NativeЖанр: StrategyЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F52EF2EE2FBAA2C7A776C44D7F1434075275B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459518   (79053) от 28.02.2012
-
-Выжить / Alive (1992) HDTVRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79053.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1972 году над Андами потерпел авиакатастрофу самолет. В этом самолете летели на спортивные соревнования школьники из Уругвая. В живых, после падения самолета, осталась лишь небольшая группа детей. Горное плато, на котором они оказались, было отрезано от окружающего мира. Запасов еду у школьников не было, так же как не было и теплой одежды, морозы и голод мгновенно (   Читать дальше...   )Производство: США, КанадаЖанр: Триллер, драма, приключения, историяРежиссер: Фрэнк МаршаллАктеры: Винсент Спано, Иллеана Дуглас, Джон Ньютон, Дэвид Кригель, Кевин Брезнахэн, Этан Хоук, Джош Хэмилтон, Сэм Беренс, Джек Ноузворфи, Брюс РамсейПеревод: Профессиональный многоголосыйПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F1432905C949040E291DD4FA80C9D283D73B74
 ```
 
 

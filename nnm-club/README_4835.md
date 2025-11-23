@@ -1,3 +1,184 @@
+###  Публикация: 969008   (149866) от 25.12.2015
+
+(Linux) Alien: Isolation (2015) [Ru/En] (1.0RC29.22738/dlc) SteamRip
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие триллера Alien: Isolation разворачивается спустя пятнадцать лет после событий оригинальной кинокартины Ридли Скотта «Чужой». И теперь уже дочери Эллен Рипли, Аманде, предстоит столкнуться с ужасом из космических глубин в попытке выяснить всю правду об исчезновении матери.
+В роли Аманды вы повстречаетесь с ослепленными паникой, доведенными до крайней степени (   Читать дальше...   )Тип издания: SteamRipРазработчик: Free LivesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95FF7611A74695481B8761CD14FE04EE93936849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434690   (149868) от 25.12.2020
+
+Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Голосом олова
+2. О людях
+3. Я за тобой
+4. Беларусы(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEF1FCF106D4E95263990BE09025FA5EFBD408F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086819   (149869) от 25.12.2016
+
+Расплата / The Accountant  (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: СШАЖанр: боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон Райт, Джейсон Дэвис, Роберт С. ТревилерПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанский, португальскийПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670A39F1D2796FF9CCDE2D820C754B0CB86E2DE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434278   (149870) от 25.12.2020
+
+MonsterTools - Renegade (2019) [MP3|320 Kbps] <Darkwave, Electro Industrial rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Renegade [00:03:45]
+02 - Kill My Memories [00:03:40]
+03 - Doberman [00:03:58]
+04 - Angels Vs Devils [00:03:32](   Читать дальше...   )Жанр: Darkwave, Electro Industrial rockПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A9A53B13DF148B5360BFE67BFAB6053D13C518
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086719   (149871) от 25.12.2016
+
+Europe - Best ballads (1995) Compilation [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Arena rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open your heart [4:08]
+02. Carrie [4:34]
+03. Dreamer [4:30]
+04. Words of wisdom [4:08](   Читать дальше...   )Жанр: Melodic Hard Rock, Arena rockПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7562E223732074B69C3578CF7ABEE79A216A87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086533   (149873) от 25.12.2016
+
+Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кайто Куроба — обыкновенный подросток, ученик старшей школы, чей отец умер при загадочных обстоятельствах 8 лет назад. Кайто узнаёт, что его отец был известен как международный преступник — вор Кайто Кид (1412), и что его отца Тоити убила таинственная организация после того, как тот отказался отдать им камень Пандоры. Камень Пандоры — волшебный камень, который прольет (   Читать дальше...   )Производство: Студия TMS / トムス・エンタテインメントЖанр: приключения, комедияРежиссер: Хирано ТосикиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A833806C81114EEB56711AAC1E83AA3AB45542
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434477   (149874) от 25.12.2020
+
+Hate Forest - Hour of the Centaur (2020) [MP3|320 Kbps] <Black Metal, Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Occidental, Beware the Steppe (Intro) [00:00:26]
+02 - Those Who Worship the Sun Bring the Night [00:07:20]
+03 - No Stronghold Can Withstand This Malice [00:05:39]
+04 - To the North of Pontos Axeinos [00:04:43](   Читать дальше...   )Жанр: Black Metal, Death Metal, Doom MetalПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EC3118847443FD1122CF2B2B34C94F4184E724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519273   (149876) от 23.12.2021
 
 Allavsoft Video Downloader Converter 3.24.2.8025 [Multi/Ru]
@@ -6,7 +187,7 @@ Allavsoft Video Downloader Converter 3.24.2.8025 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149876.jpg" />
 </div>
 
 
@@ -30,7 +211,7 @@ magnet:?xt=urn:btih:C80D6DEF6760F15B8C723934489927929EFC53F4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149878.jpg" />
 </div>
 
 
@@ -54,7 +235,7 @@ Memories Of Old - The Zeramin Game (2020) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149879.jpg" />
 </div>
 
 
@@ -81,7 +262,7 @@ The Ancestry Program [TAP] - Mysticeti Ambassadors Part 1 (2021) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149880.jpg" />
 </div>
 
 
@@ -108,7 +289,7 @@ magnet:?xt=urn:btih:B8DB9AF3F11BA346499091C0D6BDD453C068114D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149882.jpg" />
 </div>
 
 
@@ -132,7 +313,7 @@ magnet:?xt=urn:btih:F658AEE78D6BA23967A0A7F2036459B299E7C4C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149883.jpg" />
 </div>
 
 
@@ -156,7 +337,7 @@ magnet:?xt=urn:btih:F658AEE78D6BA23967A0A7F2036459B299E7C4C0
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149885.jpg" />
 </div>
 
 
@@ -180,7 +361,7 @@ magnet:?xt=urn:btih:D6E40A3427AA5F4BF0D3C3D1F95C7F3EF0DE76DA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149886.jpg" />
 </div>
 
 
@@ -204,7 +385,7 @@ VA - 5 Years of Delights: Earthly Reflections (2021) [AAC|~321 Kbps] <Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149887.jpg" />
 </div>
 
 
@@ -231,7 +412,7 @@ magnet:?xt=urn:btih:56BCC298869C7ADA8527442E5BDFF185E14849FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149889.jpg" />
 </div>
 
 
@@ -256,7 +437,7 @@ magnet:?xt=urn:btih:8039C07666EA5B52297C4FCB987233BF17D43EB2
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149890.jpg" />
 </div>
 
 
@@ -280,7 +461,7 @@ VA - Classy Lounge (2021) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149892.jpg" />
 </div>
 
 
@@ -307,7 +488,7 @@ Last Trial - А Время Шло (2020) [MP3|320 Kbps] <Modern Melodic Death Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149894.jpg" />
 </div>
 
 
@@ -334,7 +515,7 @@ magnet:?xt=urn:btih:62EF4513D6605EC74C84F5F99E7DF60206382719
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149895.jpg" />
 </div>
 
 
@@ -358,7 +539,7 @@ Ana Gazzola - Brazilian Blues (2018) [MP3|320 Kbps] <Vocal Jazz, Soul, Blues, Bo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149896.jpg" />
 </div>
 
 
@@ -385,7 +566,7 @@ magnet:?xt=urn:btih:91E2EAAC2648165A3E8C3FEFDA10E793A654264B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149897.jpg" />
 </div>
 
 
@@ -418,7 +599,7 @@ magnet:?xt=urn:btih:706CA4AE7C19AF2009643FA543D803E0B5AD08A4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149898.jpg" />
 </div>
 
 
@@ -443,7 +624,7 @@ magnet:?xt=urn:btih:5CF715F90D8F9DAB60D8A72BB5040773E92D238B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149899.jpg" />
 </div>
 
 
@@ -467,7 +648,7 @@ Wise System Monitor 1.4.8.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149900.jpg" />
 </div>
 
 
@@ -478,183 +659,6 @@ Wise System Monitor 1.4.8.118 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23CAF2EAE94E54328A96F33A49BD9ADD59058EEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519231   (149901) от 23.12.2021
-
-GIF'ted 2.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свои фильмы MPEG-4 в анимированные GIF-файлы в кратчайшие сроки. GIF'ted будет анализировать цвета вашего исходного фильма, чтобы лучше всего выглядеть GIF. Или используйте классическую палитру, например, из Gameboy или SNES, для дурацких и забавных результатов. Вы также можете обрезать и обрезать выходной GIF в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Bitfield ABПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский и Шведский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F143A808F053962007EA4E05363442F5A180A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968746   (149902) от 25.12.2015
-
-(Linux) Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (1.21.1.4s/dlc) SteamRip
-
->>*Nix Игры
->>Native *Nix Games
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149902.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Euro Truck Simulator 2 дарит вам опыт управления самыми мощными машинами, когда-либо появлявшимися на шоссейных магистралях и автобанах Европы. Вы сможете пройти весь путь - от энтузиаста-дальнобойщика, до обладателя собственной транспортной империи. Настраивайте грузовики с нуля, максимально расширяйте свой автопарк, наймите водителей, купите гараж в каждом (   Читать дальше...   )Тип издания: SteamRipРазработчик: SCS SoftwareЖанр: Racing, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Мульти (35)Язык интерфейса: Русский, Мульти (35)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E75FF4ACC1118BA4A1B6CD7CD40DF1E74F0645
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434510   (149903) от 25.12.2020
-
-Dance Gavin Dance - Tree City Sessions 2 (2020) [MP3|320 Kbps] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Backwards Pumpkin Song [00:04:47]
-02. Uneasy Hearts Weigh The Most [00:04:14]
-03. NASA [00:03:33]
-04. Blue Dream [00:05:11](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7518F9DC56A837F7D329C19C5A6C3A852E22D778
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677268   (149904) от 18.11.2023
-
-TrayButton for WhatsApp 1.0.83 [Ru/En] [Авторская раздача]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149904.jpg" />
-</div>
-
-
-###  Подробнее
-
-"TrayButton for WhatsApp" - небольшая программа позволяющая сделать работу с новой UWP версией WhatsApp для Windows более удобной. Как известно, WhatsApp для Windows нет возможности свернуть в system tray и восстановить обратно используя этот значок. TrayButton решает это, а так же добавит еще несколько полезных функций, например отображение числа пропущенных (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A0FBF3F95C1938BA912167F2F11C9D1839E3D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519173   (149905) от 23.12.2021
-
-VA - Connecting The Dots (Robag Wruhme) (2021) [AAC|~305 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robag Wruhme - Connecting The Dots, Continuous Mix (1:11:56)
-02. Ulf Lohmann - Because (4:32)
-03. Dettinger - Oasis 4 (6:58)
-04. Studio 1 - Rosa 1 (11:15)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDEEB3911EA8C9B139B795C297EC0C033771F76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434592   (149906) от 25.12.2020
-
-Courtney Pine - Black Notes From The Deep (2017) Freestyle Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rules (feat. Omar) [3:15]
-02. You Know Who You Are [4:54]
-03. Darker Than the Blue (feat. Omar) [3:22]
-04. Rivers of Blood [5:39](   Читать дальше...   )Жанр: Post-Bop, Soul Jazz, Contemporary JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722E2130B70C3BF2B2AFD0207F73F4DEBD5F9370
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968862   (149907) от 25.12.2015
-
-Кэрол / Carol (2015) DVDScr
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о сложных взаимоотношениях двух женщин, живущих в Нью-Йорке 50-х годов. Одна из них — совсем молоденькая продавщица, мечтающая о большем, а другая — замужняя дама, страдающая от отсутствия любви.Производство: Великобритания, США, ФранцияЖанр: МелодрамаРежиссер: Тодд ХейнсАктеры: Кейт Бланшетт, Руни Мара, Кайл Чандлер, Джейк Лэси, Сара Полсон, Джон Магаро, Кори Майкл Смит, Кевин Краули, Ник Паич, Кэрри БраунштейнПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Parovoz ProductionПродолжительность: 01:57:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 

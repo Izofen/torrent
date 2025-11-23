@@ -6,7 +6,7 @@ Spyware Terminator 2012 3.0.0.61 Portable x32 x64 by Noby  [Многоязычн
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130516.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Spyware Terminator - одна из лучших бесплатных прогр�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130522.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VOX - JamVOX v.3.00 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130529.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VOX JamVOX v.3.00  - программное обеспечение для гит
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130531.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PotPlayer 220106 (1.7.21595) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130537.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Internet Download Manager 6.11 Build 7 Final  [Мульти, есть русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130552.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130565.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130580.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130584.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:BA51BDB65A1FFF2AC8697453508F487B633F33FC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130595.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:BA51BDB65A1FFF2AC8697453508F487B633F33FC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130596.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Autodesk® Building Design Suite Standard 2013
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130627.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ HDDlife Pro 4.0.192 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130630.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.3 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130652.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3EFF138F121E21FE002426F8C87438FCADF1F3D5
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130671.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Fan Ren Xiu Xian Chuan | Путешествие к бессмертию [2022, W
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130677.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Valentina Grobler, Udemy | Free To Speak Foundation (2023) WEB-DL [AD] [RU]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130692.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ RegSeeker 2.1 Build 4412 Beta Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130698.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ RegSeeker – мощная программа для работы с реест�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130706.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ RegSeeker – мощная программа для работы с реест�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130713.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ RegSeeker – мощная программа для работы с реест�
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130716.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Nitro Pro 14.18.1.41 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130743.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.77 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130758.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.77 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130767.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ ASAP Utilities for Excel 8.3 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130768.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:30DB7F7395213F2137F0F4C0C0EE6338D1868750
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130775.jpg" />
 </div>
 
 

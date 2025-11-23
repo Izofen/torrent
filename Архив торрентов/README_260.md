@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58542.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DVDFab 13.0.1.6 x64 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58545.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ KMPlayer 2024.4.25.13 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58555.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ IObit Driver Booster Pro 11.4.0.60 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58556.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ ISO Workshop 12.8 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58563.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:FF82DAE6868E1B502988C6481F4F815910DD004D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58565.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Internet Download Manager 6.42 Build 9 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58567.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ IObit Driver Booster Pro 11.4.0.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58609.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ ACDSee Photo Studio Ultimate 2024 17.1.0.3778 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58619.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Sumatra PDF 3.6.16047 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58647.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ NetLimiter 5.3.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58651.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ OneCommander Pro 3.77.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58652.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Wise Disk Cleaner 11.1.1.826 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58653.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Glary Utilities Pro 6.9.0.13 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58655.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ IObit Driver Booster Pro 11.4.0.60 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58659.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Audacity 3.5.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58663.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Wise Care 365 Pro 6.6.7.637 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58667.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ HWiNFO 8.01 Build 5425 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58668.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ NetLimiter 5.3.10.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58678.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ IObit Driver Booster Pro 11.4.0.60 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58682.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ ISO Workshop Pro 12.8  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58686.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Music Collection 3.6.4.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58688.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Internet Download Manager 6.42 Build 8 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58706.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Adguard 7.17.1 (7.17.4709.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58716.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Photoshop 2024 25.7.0.504 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58720.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Windows 10 Manager 3.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58725.jpg" />
 </div>
 
 

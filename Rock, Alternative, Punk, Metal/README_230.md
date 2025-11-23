@@ -6,7 +6,7 @@ Immortal Guardian - Age of Revolution (2018) [MP3|320 Kbps] <Progressive, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145953.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Immortal Guardian - Revolution, Pt. 1 (2014) EP [MP3|320 Kbps] <Progressive, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145957.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Exotheria - Angels Are Calling (2015) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145964.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kampfar - Profan (2015) [FLAC|Lossless|image + .cue] <Pagan Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145980.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Planet Rain - The Fundamental Principles (2014) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145986.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sidious - Revealed in Profane Splendour (2014) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145995.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Les Cameleons - Todos (2001) Single [FLAC|Lossless|tracks + .cue] <Rock, Ska>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146010.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Hassle: Volume One (2007) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146011.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:90BC09D723A10D9BB4F8AB6DC174FDABDBE26615
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146023.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Olathia - The Forest Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Power/Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146026.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Meet Me In St Louis - Variations On Swing (2007) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146028.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ E-Force - 4 Альбома (2003 - 2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146036.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Malad - Malad (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146127.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Manilla Road - Spiral Castle (2002) Remaster, 2023, GoldenCore Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146152.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ King - Fury and Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146159.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:03D69872CC2339075EC4CCC52B3E093550D9F6C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146166.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Mizmor - 8 Albums (2012-2023) [MP3|320 Kbps] <Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146172.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Soars - Repeater (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146180.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Sot-75 - Мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146185.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Jag Panzer - Decade of the Nail-Spiked Bat (2003) Compilation, re-recorded, Cent
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146190.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ The Rook Ensemble - Conform to the Pageantry (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146203.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Border Cross - 2 Albums (2006-2008) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146217.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Lacuna Coil - Black Anima (2019) Limited Edition [FLAC|Lossless|image + .cue] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146218.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Fortune - 3 альбома Discography (1993-1995) [MP3|320 Kbps] <Melodic Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146250.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Jernlov - Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Christian
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146277.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Patriarchs in Black - My Veneration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146280.jpg" />
 </div>
 
 

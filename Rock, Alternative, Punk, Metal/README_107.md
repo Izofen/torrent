@@ -6,7 +6,7 @@ Euge Valovirta - Hardtones (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104793.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Korrosive - Katastrophic Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104796.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ragnar​ö​k - Schicksal der G​ö​tter, Tod der Menschen und Ende der Wel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104799.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Breaklight - I (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104805.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Matthew Sting - Brave (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104837.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Arbitrator - Kill Their Religion (1998) Remaster, 2024, NORZ Records [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104842.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Drakkar - Spread Your Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104843.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jurelia - Hinnos de Libertaz (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Prog Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104847.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Remedy - Pleasure Beats The Pain (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104848.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DemonDown - The Rise Of The Devil (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104851.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Oceano - Living Chaos (2024) [MP3|320 Kbps] <Deathcore, Soft-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104852.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:19D7F617BD8B1183294951060F4957F9E264C732
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104853.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Fallen Man - Influenza (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rcok>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104854.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ian Wilde - Dream Hunter (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104858.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Quantifier - The Ordinary Strain (2024) [MP3|320 Kbps] <Progressive Sludge Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104859.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Curtis Erdek - Fuktrump (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104860.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Byron Nemeth - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104861.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Wall - Brick by Brick (2024) [MP3|320 Kbps] <Sludge Rock, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104862.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ F.O.R. - Love (2024) [MP3|320 Kbps] <Gothic Metal, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104863.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Palace - Reckless Heart (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104877.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Saint - Immortalizer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104878.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:AF0C7FA3C593C1EED006849E3C7AF2FDF8DAFE8F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104883.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ousiodes - The Forest (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104887.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ F.O.R. - Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104889.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Attaxe - Braving The Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104891.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Void of Vision - What I'll Leave Behind (2024) [MP3|320 Kbps] <Electronic Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104894.jpg" />
 </div>
 
 

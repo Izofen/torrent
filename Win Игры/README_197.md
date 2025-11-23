@@ -6,7 +6,7 @@ The Harmony Chronicles: Chaos Realms (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59917.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59938.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59948.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59955.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59957.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59958.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Cursed Legacy (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59967.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59981.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59983.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Inquisitor (2024) [Ru/Multi] (1.1/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59984.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59986.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Other s [AD]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60034.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60038.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dark Days (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60041.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ South Park: Snow Day! (2024) [Multi] (70374/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60061.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (20240405) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60089.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Paradise Marsh (2022) [Multi] (1.0) Scene Tenoke [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60136.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Inkbound (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60146.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60158.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Shadow Strikers (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60160.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60165.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.033s/dlc) Repack Other
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60169.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Felvidek (2024) [Multi] (20240405) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60197.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60250.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dishwashing Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60272.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60288.jpg" />
 </div>
 
 

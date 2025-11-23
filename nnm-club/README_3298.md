@@ -1,3 +1,84 @@
+###  Публикация: 1743128   (105430) от 15.08.2024
+
+Doug Duffey and Badd - Ain't Goin' Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whirlpool (5:29)
+02. You Got What It Takes (5:06)
+03. The Wishing Game (6:09)
+04. Rock It All Night (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546DF65A4C587F80F1CE44A27CBAF9DFCC0563DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743124   (105431) от 15.08.2024
+
+Chris Gibbons - Blues On The Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dustbowl (4:37)
+02. Blues On The Road (4:03)
+03. Close Your Eyes (4:28)
+04. Steamy Angels (5:20)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3D2AD3679D2131B2EFA62AE1C68ABFF10880A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743142   (105432) от 15.08.2024
+
+Mark Atkinson - Three Stations East (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Little Girl (3:10)
+02. Crazy Me (3:54)
+03. It's Only A Girl (4:26)
+04. Three Stations East (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3159F199EE8C32F36FF9D60B53AB40699DC76DE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743253   (105433) от 15.08.2024
 
 Veil Of Eternity - Land of the Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +87,7 @@ Veil Of Eternity - Land of the Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105433.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Early Fox - Free Bird (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105434.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Elephant Gerald UK - Outcasts And Castaways (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105435.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Dax Butler - Trouble in Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105436.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Blind Lemon Pledge - Oh so Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105437.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Darrell Arnold - Portraits of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105438.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Lou Majaw - The Bluesman of Shillong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105439.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Allan Wylco and the Voltanics - Time in Time Out (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105440.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Battle Lost - Into The Realms (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105441.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Ritual - The Story Of Mr. Bogd - Part 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Cr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105442.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ magnet:?xt=urn:btih:4F311ADC411F5960DBF7DAC80EC4E6062B1EA0DE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105443.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ magnet:?xt=urn:btih:4D3C3DEC9E13105FAAD8897105EA88FD75BF8C6F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105444.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ magnet:?xt=urn:btih:04677BC6EA862E8E52287B0A4D1B70D1328D7CD6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105445.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ magnet:?xt=urn:btih:F23663918B0BC72143F9665B2954C7284028FE36
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105446.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ magnet:?xt=urn:btih:344D0F83C7B8BDD304955B15880308FE092E9215
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105447.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ magnet:?xt=urn:btih:4F1284E88C2D726B1F8D5DE9BCF87C98B445C121
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105448.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ magnet:?xt=urn:btih:121128327B3584003254EEF0C0CB221876C9F92B
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105449.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ magnet:?xt=urn:btih:F63ADA5F6B376E77588BA0F36F4A92EECD900530
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105450.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ magnet:?xt=urn:btih:B3185B0ACA39AA45B8F345CE7E9CD943052E13B2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105451.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ magnet:?xt=urn:btih:36874FB236EC187093F47EDBF3236A88C97AA7A4
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105452.jpg" />
 </div>
 
 
@@ -523,7 +604,7 @@ PhotoDirector v19.5.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105453.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ Orville Peck - Stampede (2024) [FLAC|Lossless|image + .cue] <Folk, World, Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105454.jpg" />
 </div>
 
 
@@ -574,7 +655,7 @@ Hoc Eritis - What we will be (complete edition) (2024) [MP3|~245 Kbps (V0)] <Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105455.jpg" />
 </div>
 
 
@@ -588,84 +669,6 @@ Hoc Eritis - What we will be (complete edition) (2024) [MP3|~245 Kbps (V0)] <Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22462732EA3BC3CAE425D749395A54BFBBC132E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743339   (105456) от 15.08.2024
-
-Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shivers and Voids (3:48)
-02. Unforgivable (3:44)
-03. Neuronal Fire (4:32)
-04. Not Nothing (4:53)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D125D476B53723D5E8184422EE17ECB9E1C843BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743272   (105457) от 15.08.2024
-
-Всегда / Ojik geudaeman (O-jik geu-dae-man) / Always (2011) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший боксёр Чхоль-мин теперь работает охранником на парковке и развозит воду в бутылях. Однажды, во время вечернего дежурства, к нему приходит слепая девушка, которая с прежним охранником «смотрела» сериалы по вечерам. Между молодыми людьми завязывается дружба, а затем и любовь. Чхоль-мин чувствует, что должен защищать свою любимую и сделать всё возможное, чтобы (   Читать дальше...   )Производство: Южная Кореяb / HB Entertainment, Showbox/MediaplexЖанр: драма, мелодрама, боевикРежиссер: Иль Гон СонВ ролях: Чжи Соп Со, Хё Чжу Хан, Чжон Хва Юн, Син Иль Кан, Чхоль Мин Пак, Сун Ха Чо, Чжин Гу, Кван Рок О, Чон Хак Ким, Ми Гён Ким (I), Сын Пэ Ви, Чжэ Чжин Чон, Кён Джин Мин, Хе Ран Ём, Се Хо АнПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Samjogo Subbing Squad), английскиеПродолжительность: 01:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68689C496E15344E2E9A0A5AD0E8D56ABC4C732B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742479   (105458) от 15.08.2024
-
-MEDUZA - Radio 1's Essential Mix (2024-07-13) [MP3|~245 Kbps (V0)] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daft Punk ft. Giorgio Moroder - Giorgio by Moroder
-02. The Weeknd - In Your Eyes (MEDUZA Remix)
-03. Bea Miller & Arcane - Playground (From The Series Arcane League Of Legends) (MEDUZA Remix)
-04. Depeche Mode - Enjoy The Silence (Mavee Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B149510079E7210773E90DFD03C381B2ACF4AC4
 ```
 
 

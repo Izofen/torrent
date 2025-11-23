@@ -1,3 +1,179 @@
+###  Публикация: 1674885   (160626) от 07.11.2023
+
+Luke Morley - Songs From The Blue Room (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna See The Light (3:51)
+02. Killed By Cobain (3:07)
+03. Errol Flynn (3:13)
+04. Damage (3:27)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DFAB84F3E8125D1DB0E09E94EF874DA0A7B1F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675017   (160627) от 07.11.2023
+
+Артуро Перес-Реверте | Учитель фехтования (2013) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артуро Перес-Реверте – современный испанский писатель, романы которого, написанные в жанре интеллектуального детектива, принесли ему мировую известность.
+В Романе «Учителя фехтования» автор описывает жизнь в Испании XIX века. Какова цена чести? Как выжить в эпоху, раздираемую революциями и политическими дрязгами? Мир, где остались только человеческая подлость и предательство, (   Читать дальше...   )Жанр: Зарубежная литература, исторические приключения, детектив, романИздательство: Нигде не купишьПродолжительность: 11:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17EB49CA4FD142D57A0508B9DBEFF0C60A5D06F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675059   (160628) от 07.11.2023
+
+Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best of Me (4:04)
+02. Carrie (3:53)
+03. My Kinda Life (3:31)
+04. Wired for Sound (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B271498896F48E4F69A57FEAA739066C1F2D39B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674874   (160629) от 07.11.2023
+
+По течению великих рек (Как река становится морем) Рона / Au Bout c'est la Mer. Le Rhone (2021) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие по реке Роне - королеве рек Франции и ШвейцарииПроизводство: Франция, France television, Step by Step producionЖанр: документальный, познавательный, путешествияРежиссер: Николя БоероУчастники: Франсуа ПешоПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAC25D7F792502B1C82D344A66476EF8C3D50B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674817   (160630) от 07.11.2023
+
+Alt SwitchER 21.5 Portable [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alt SwitchER - программа для автоматического исправления "раскладки" слова (с возможностью отключения, назначения программ-исключений), а также авто-обучением и возможностью "ручного" добавления слов в пользовательский словарь и словарь исключений. Alt SwitchER прекрасная альтернатива таким программам, как Punto switcher и Caramba Switcher. В (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B476EF447A849AECF392BFBAF49C5BB33264D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674850   (160631) от 07.11.2023
+
+Журнал | MediaVision №9 (139) (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160631.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Mediavision» — Информационно-технический журнал посвящен техническим и технологическим аспектам по трем основным направлениям: телевизионное производство и вещание, цифровой кинематограф, видеоинформационные системы (Digital Signage). Также каждый номер содержит статьи, в которых опытные специалисты делятся своими впечатлениями от работы с тем или иным устройством (   Читать дальше...   )Жанр: Электроника, телевидениеИздательство: ООО «Издательство Медиавижн»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BADBF20C66858C673415B59A91A1C0D935AF1A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674841   (160632) от 07.11.2023
+
+Луиза Хей, Дэвид Кесслер | Исцели свое сердце (2023) [MP3, Михаил Лукашов , Ольга Салем]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Луиза Хей, автор международных бестселлеров, лектор-метафизик и психолог. По всему миру продано свыше 50 миллионов ее книг. Более 25 лет она помогает людям всего мира преодолеть физическую и психологическую боль.
+На собственном опыте проверив целительную силу аффирмаций, она предлагает этот эффективный способ работы над собой всем, чье сердце постигла боль утраты, (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 06:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711A2484FCCBD448B050088BB9E5A542B67ACDD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674931   (160633) от 07.11.2023
 
 Wise Disk Cleaner 11.0.5.819 RePack (& portable) by Dodakaedr [Multi/Ru]
@@ -6,7 +182,7 @@ Wise Disk Cleaner 11.0.5.819 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160633.jpg" />
 </div>
 
 
@@ -30,7 +206,7 @@ magnet:?xt=urn:btih:17B570FD918F5914B09228C8715BF4C375ABCF57
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160634.jpg" />
 </div>
 
 
@@ -55,7 +231,7 @@ Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160635.jpg" />
 </div>
 
 
@@ -82,7 +258,7 @@ Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160636.jpg" />
 </div>
 
 
@@ -109,7 +285,7 @@ VA - Hit News Vol. 9 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160637.jpg" />
 </div>
 
 
@@ -136,7 +312,7 @@ Saboter - Architects Of Evil (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160638.jpg" />
 </div>
 
 
@@ -163,7 +339,7 @@ Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160639.jpg" />
 </div>
 
 
@@ -190,7 +366,7 @@ magnet:?xt=urn:btih:B2B9602661BE49259FDA09C707D4D2878AF3244F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160640.jpg" />
 </div>
 
 
@@ -214,7 +390,7 @@ VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160641.jpg" />
 </div>
 
 
@@ -241,7 +417,7 @@ FonePaw Data Recovery 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160642.jpg" />
 </div>
 
 
@@ -265,7 +441,7 @@ magnet:?xt=urn:btih:1770690730F701131136B61FC9D276BEB197451F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160643.jpg" />
 </div>
 
 
@@ -289,7 +465,7 @@ VA - Pop & Dance Anthems 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160644.jpg" />
 </div>
 
 
@@ -316,7 +492,7 @@ magnet:?xt=urn:btih:4394871AB50C31CAE16C6F818BB0EFE14CFFC39F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160645.jpg" />
 </div>
 
 
@@ -340,7 +516,7 @@ VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160646.jpg" />
 </div>
 
 
@@ -367,7 +543,7 @@ magnet:?xt=urn:btih:C0C810E63242815CDF924C294C2D7D63A22F567F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160647.jpg" />
 </div>
 
 
@@ -391,7 +567,7 @@ Red Harvest - Cold Dark Matter (2000) Promo CD [APE|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160648.jpg" />
 </div>
 
 
@@ -418,7 +594,7 @@ magnet:?xt=urn:btih:6F56C75C3BF3C33F446B51BAA6B2252B3DD0F3DC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160649.jpg" />
 </div>
 
 
@@ -442,7 +618,7 @@ Dreams - Dreams (1987) 2xCD, Reissue, 2023, Bad Reputation [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160650.jpg" />
 </div>
 
 
@@ -469,7 +645,7 @@ Barcode 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160651.jpg" />
 </div>
 
 
@@ -482,185 +658,6 @@ Barcode предлагает Вам все необходимые инструм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D41E7DA2FBE384BEBC9C58CC9E951B0025DCF9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675032   (160652) от 07.11.2023
-
-Благовест | О святых иконах (2016) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая брошюра рассказывает о том, что представляют собой иконы и для чего они нужны; объясняется разница между иконой и портретом; раскрывается значение разных символов на иконах; большое место уделено истории появления и развитию иконописного творчества в истории Церкви, а также полемике с иконоборцами и догматических основаниях иконопочитания в Православной (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F019CDA5DD8F1358C63493ABCAF8A2F3F7A43D58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675014   (160653) от 07.11.2023
-
-Галина Романова | Лабиринт простых сложностей (2023) [MP3, Максим Ушаков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полковник Хмельнова имела неосторожность назвать новое дело банальным. И как сглазила! Стройная версия рассыпалась, все запуталось, и кого подозревать в совершении убийства, непонятно… А началось все с того, что две подруги не поделили парня. Алла пригласила Ирину в гости, рассказала, что собирается уезжать с любимым Иваном на Сахалин, даже продает квартиру. В разгар (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 07:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20677F7A1F6EA581CFB99FE69040E13B1D500869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674854   (160654) от 07.11.2023
-
-Angel Dust - Border Of Reality (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Border Of Reality
-02. No More Faith
-03. Nightmare
-04. Centuries(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B0C7698CA6D14929429F6C4241EF6336CFD72A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674754   (160655) от 07.11.2023
-
-Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160655.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wiseman
-A2. Alley Cat
-A3. The Angelmaker
-B4. King Of Whitewater(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D79F0D2F176BF1F22D1ABE5203ACFB61CD50A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675020   (160656) от 07.11.2023
-
-Сибирская Благозвонница | Читаем Евангелие с детьми (2022) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга представляет собой подробный, по стихам, разбор Евангелия от Луки, поданный в форме непринужденной беседы отца со своими четырьмя детьми. Разговор о Евангелии, предельно серьезный и глубокий, тем не менее остается доступным для восприятия ребенка и подростка. Автор говорит о важных и порой непростых вещах понятно и объясняет требующие толкования евангельские (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15810C95E3984C892F654D4B269A5E92D7B244C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675000   (160657) от 07.11.2023
-
-Be Focused Pro - Focus Timer 2.4 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Be Focused Pro - создайте задачи, настройте перерывы и отслеживайте свои успехи в течение дня, недели или в произвольный промежуток времени.
-«Помидорная техника» планирования, в основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
-Be Focused Pro - сосредоточитесь на производительности. Be Focused (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 XwavesoftПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC32D47487F2E8CB85508EFF8FE1F70D8F0EF36C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674795   (160658) от 07.11.2023
-
-Aura - Злая магия (2019) [FLAC|Lossless|image + .cue] <Symphonic Gothic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На смерть поэта 5:57
- 02. Моя философия 6:02
- 03. Город 4:46
- 04. Ветер души 3:58(   Читать дальше...   )Жанр: Symphonic Gothic Power MetalПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2E55389718641D28028EDC3B831B2747B0D7EF
 ```
 
 

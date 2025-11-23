@@ -6,7 +6,7 @@ Abelssoft SSD Fresh Plus 2026 15.03.62686 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13940.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CrystalDiskMark 9.0.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14019.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BitComet 2.15 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14438.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Privacy Eraser Free 6.20.0 Build 5265 RePack (& Portable) by elchupacabra [Multi
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14537.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ CoolUtils Total XML Converter 3.2.0.158 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14609.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ CoolUtils Total HTML Converter 5.1.0.315 RePack (& portable) by elchupacabra [Mu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14614.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Defender Remover Portable 12.8.4 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14798.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ O&O DiskImage Premium 21.0.1074 RePack by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14942.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ PDF Shaper Premium / Ultimate 15.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15067.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Kingston SSD Manager 1.5.5.5 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15585.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15689.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ashampoo Driver Updater 1.8.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15697.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Revo Uninstaller Pro 5.4.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15782.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15822.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AOMEI Backupper Technician Plus 7.5.0 WinPE by FC Portables [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16019.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ashampoo WinOptimizer 28.00.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16121.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ LogViewPlus 3.1.22 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16364.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Hard Disk Sentinel PRO 6.30.1 Build 13402 Beta [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16725.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:F988E27C4D1666D66B96DE99E7E86EAD2A3E3D47
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16763.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ FileMenu Tools 8.5 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16877.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Directory Opus 13.15.2 Beta [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16907.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Find MAC Address 25.05 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16986.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ BitTorrent 7.11.0.47143 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17046.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Open Shell (Classic Shell) 4.4.196 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17053.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Wi-Fi Scanner 25.05 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17223.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ AOMEI Backupper Technician Plus 7.5.0 Repack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17610.jpg" />
 </div>
 
 

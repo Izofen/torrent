@@ -1,3 +1,180 @@
+###  Публикация: 1347958   (145715) от 26.12.2019
+
+Того / Togo (2019) WEBRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пёс Того в 1928 году помог предотвратить эпидемию дифтерии в городе Ном, Аляска. В упряжке с другими ездовыми собаками Того, несмотря на страшные погодные условия, смог доставить в город посылку с антитоксином, остановившим распространение болезни.Производство: США / The Walt Disney Company, Walt Disney PicturesЖанр: ДрамаРежиссер: Эриксон КорАктеры: Уиллем Дефо, Джулианна Николсон, Кристофер Хейердал, Ричард Дормер, Эдриан Дорваль, Madeline Wickins, Майкл Грейес, Нив Нилсен, Николай Николаефф, Торбьорн ХаррПеревод: Двухголосый любительский (MUZOBOZ )Субтитры: ОтсутствуютПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7551688AC213C53427D31D68EA25A23756541B54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272065   (145717) от 26.12.2018
+
+Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tracks + .cue] <Industrial, Post-Punk, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ligeti's Breath / Hilflos Kind (22:17)
+02. Ich Sehe Die Alle In Einer Reihe (04:47)
+03. Surrogate Drones (02:56)
+04. YRP (08:51)(   Читать дальше...   )Жанр: Industrial, Post-Punk, ExperimentalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5DD9ED2D637773DC6E762AF91F6CB75611110C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969744   (145718) от 28.12.2015
+
+Сесил Битон | Зеркало моды (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сесил Битон – культовый английский фотограф, автор портретов монархов, звезд экрана и сцены. Он превосходно рисовал, создавал костюмы и декорации к фильмам и театральным постановкам, много путешествовал, снимал страны и людей, писал статьи и мемуары. Книга «Зеркало моды» имела огромный успех, ее не раз переиздавали и переводили на другие языки. Она поистине уникальный (   Читать дальше...   )Жанр: История модыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C03F9BFB7ECC15B4BB943D53DF936BA1CBA7DC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435151   (145719) от 27.12.2020
+
+Cent Browser 4.3.9.241 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9522EE098FDEAA9B9218656C68B35A9EA5EAA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519657   (145721) от 26.12.2021
+
+VA - Deep Reflections, Session 2 (Deep House Vibes) (2021) [AAC|~328 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol, Darles Flow - Feel the Rain (Original Mix) (6:10)
+02. Ian Otta - Sunshine Airlines (Original Mix) (5:47)
+03. DMTunes - Ocean Drive (3:50)
+04. Monodeluxe - When the Time Will Come (5:28)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4019281A8E64DC13B71B491689E5AB0B421CAFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271994   (145722) от 26.12.2018
+
+Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] <Trailer Music, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiery the Angels Rose (01:34)
+02. Thunderborn (02:03)
+03. Dragon Rider (02:21)
+04. Iron Poetry (feat. Kate St. Pierre) (03:09)(   Читать дальше...   )Жанр: Trailer Music, SoundtrackПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087366   (145723) от 27.12.2016
+
+Гибби / Gibby (2016) WEB-DLRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьница Кэти (Шелби Лион) никак не может избавиться от депрессии после смерти матери. У нее буквально всё валится из рук, нет интереса ни к учёбе, ни к общению с друзьями, даже любимая гимнастика не доставляет былой радости. Но ситуация меняется,, когда летом Кэти просят присмотреть за маленькой обезьянкой-капуцином. Забота об этой веселой зверушке начинает менять (   Читать дальше...   )Производство: США, Half Moon FilmsЖанр: Семейный, Комедия, ПриключенияРежиссер: Фил ГорнАктеры: Кристал Манки, Шеннон Элизабет, Пейтон Мейер, Шелби Лион, Ysa Penarejo, Шон Патрик Флэнери, Вивика А. Фокс, Тесс Картел, Эрин Николь ПабликоПеревод: Профессиональный многоголосый | iTunesСубтитры: ОтсутствуютПродолжительность: 01:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB4D08E2A43435967052B093D683CA8E72BAD3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348068   (145724) от 26.12.2019
 
 Дитя робота / I Am Mother (2019) BDRip [H.264/720p-LQ]
@@ -6,7 +183,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145724.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:07A3CF0CEF274442D5A90BA3D54F76EB994A6BCD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145726.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ Photo Lab 3.12.77 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145727.jpg" />
 </div>
 
 
@@ -79,7 +256,7 @@ magnet:?xt=urn:btih:9B555A756B1FB80BE66DB799B958ED653105170F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145729.jpg" />
 </div>
 
 
@@ -104,7 +281,7 @@ magnet:?xt=urn:btih:AD32C0C2DDB3D45F2154DF95F8D94A66544B988A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145731.jpg" />
 </div>
 
 
@@ -128,7 +305,7 @@ VA - Sincopat 2021 Day Collection (2021) [AAC|~347 Kbps] <Deep House, Tech House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145732.jpg" />
 </div>
 
 
@@ -155,7 +332,7 @@ BELLATRIX - I Love KOTO - Covers and Remixes (2018) [MP3|320 Kbps] <Spacesynth, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145733.jpg" />
 </div>
 
 
@@ -182,7 +359,7 @@ magnet:?xt=urn:btih:71C7E41C6A9C25AF537CE34F8D2213DED283F529
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145734.jpg" />
 </div>
 
 
@@ -206,7 +383,7 @@ magnet:?xt=urn:btih:C15D5E315C69706670AC5356E2E5F16AFBB8AFF3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145735.jpg" />
 </div>
 
 
@@ -232,7 +409,7 @@ VA - DeepHouseJazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145736.jpg" />
 </div>
 
 
@@ -259,7 +436,7 @@ magnet:?xt=urn:btih:EE36CF17A5540635B6AC1E6CD125389E5296543E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145738.jpg" />
 </div>
 
 
@@ -283,7 +460,7 @@ magnet:?xt=urn:btih:6CC71013B5F7E7ADA34BE857B4D1F1C385A933C0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145739.jpg" />
 </div>
 
 
@@ -307,7 +484,7 @@ magnet:?xt=urn:btih:571606B239E8BA9D0522390165B567A12646D4F5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145740.jpg" />
 </div>
 
 
@@ -331,7 +508,7 @@ Rencontre Nocturne - Recap 2021 (2021) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145742.jpg" />
 </div>
 
 
@@ -358,7 +535,7 @@ magnet:?xt=urn:btih:F76EEA687E197A6880112B0BBDCE05B1C3BB0724
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145743.jpg" />
 </div>
 
 
@@ -382,7 +559,7 @@ Imperia - Tears Of Silence (2015) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145744.jpg" />
 </div>
 
 
@@ -409,7 +586,7 @@ magnet:?xt=urn:btih:0E0F5B8E700E68A3D428EDEBDF2DDC6EBE2248E8
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145745.jpg" />
 </div>
 
 
@@ -436,7 +613,7 @@ ExoMiner - Idle Miner Adventure v0.7.8 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145746.jpg" />
 </div>
 
 
@@ -461,7 +638,7 @@ VA - Winter Chill 2022 (Relaxed Nu-Disco & Deep House Sounds) (2021) [AAC|~320 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145749.jpg" />
 </div>
 
 
@@ -475,180 +652,6 @@ VA - Winter Chill 2022 (Relaxed Nu-Disco & Deep House Sounds) (2021) [AAC|~320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FA22C3444FD71275ED74DACD8A753CB88A7A588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272128   (145750) от 26.12.2018
-
-Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hark! The Herald Angels Sing [2:25]
-02. Jingle Bells [2:03]
-03. Let It Snow! Let It Snow! Let It Snow! [2:38]
-04. O Come All Ye Faithful (Adeste Fidelis) [2:36](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2FAE9E2901D2143B60C7DED97F1BF7D532888F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087313   (145751) от 27.12.2016
-
-Проекты - VideoHive - Christmas Particle Logo - 19158068 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas Particle Logo - представьте ваш логотип или бренд в праздничной, Новогодней форме!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0389C945D74394F5C0859BD9520FD21162363A36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348115   (145752) от 26.12.2019
-
-Эспен в поисках Золотого замка / Askeladden - I Soria Moria slott (2019) WEB-DLRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Король и королева отравлены. Единственный шанс на спасение — живая вода, спрятанная на краю света в стенах таинственного Золотого замка. Эспен с принцессой Кристин отправляются в путешествие, полное опасностей и приключений.Производство: Норвегия / Maipo Film, UmediaЖанр: Фэнтези, приключенияРежиссер: Миккель Бренне СандемусеАктеры: Сюннёве Хёрсдаль, Асхильд Ариан Рамборг, Клоэ Гарбай, ... Актеры: Вебьёрн Энгер, Элли Харбоа, Мадс Сьёгард Петтерсен, Элиас Хольмен Сёренсен, Гэбриел Эндрюс, Гискен Арманд, Петронелла Баркер, Фроде Биркеланд, Гард Б. Эйдсвольд, Александра ГйерпенПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B6BD70C959F6FC2F645ECC23165CE07F3B7FB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678309   (145753) от 21.11.2023
-
-Леонард Берковиц | Агрессия причины, последствия и контроль (2023) [MP3, Петр Маркин]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонард Берковиц известен всему миру как ведущий исследователь в области психологии агрессии. Для нескольких поколений психологов его лабораторные, полевые и теоретические исследования стали образцом для подражания. Стэнфордский, Оксфордский, Мичиганский, Корнеллский, Кембриджский университеты гордятся участием Берковица в их научной деятельности. Наконец основной (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 28:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477857A1EC4EF470E642072F63ECDBF72E72205D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969826   (145754) от 28.12.2015
-
-Мишель Турнье | Лесной царь (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145754.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Лесной царь" (1970) - второй роман Мишеля Турнье, одного из самых ярких французских писателей второй половины XX века. Сюжет романа основан на древнегерманских легендах о Лесном царе, похитителе и убийце детей. Роман упрочил славу Турнье и был удостоен Гонкуровской премии. В 1996 году по роману был поставлен фильм, главную роль в котором исполнил Джон (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 19:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A529BE59A97EAA40D99FCBDBF41F9161541629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435189   (145755) от 27.12.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 25.12.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foushee - Deep End (2:22)
-02. Jason Derulo - Take You Dancing (3:11)
-03. Billie Eilish - ‎everything i wanted (4:06)
-04. Dotan - Numb (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93DB816AA8CEDBF15F74D937A8B24EA82E2E4BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589839   (145756) от 16.12.2012
-
-Ночные видения / Night Vision (2001) TVRip [1 сезон: 1-13 серий из 26]
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал представляет из себя отдельные истории. Некоторые истории фантастические, некоторые просто показывают темные стороны человеческой натуры.Жанр: Детектив, триллер, ужасы, фантастикаРежиссер: Томас Дж. Райт, Кит Гордон, Джефри ЛевиАктеры: Генри Роллинз, Джон Кетберт, Меган Блэк, Эмили Холмс, Дион Лютер, Ти Олссон, Кэрол Александр, Бен Басс, Робин Дуглас, Патриция ДрэйкПеревод: Авторский, одноголосыйПродолжительность: 13x ~ 00:22:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 

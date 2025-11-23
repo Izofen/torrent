@@ -6,7 +6,7 @@ PotPlayer 231220 (1.7.22077) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123717.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:98D79203A9A4E5E90636B916C565F87A0228D083
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123720.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Megacubo 17.3.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123722.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ NetLimiter 5.3.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123729.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Enigma Virtual Box 10.60 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123730.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:CD039D959C63A6AD0549BCA0ED81B21EB841F21F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123746.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:34D341986D3912C592FE6D8FB4AB840CDC1C7541
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123748.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ FreeCAD 0.21.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123749.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C6F69B0394DF0DE458802EEF292FB8AEDBFD54A6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123752.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ WinRAR 6.24 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123767.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Monkey's Audio 10.42 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123778.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Text Edit Plus 13.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123802.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Sante DICOM Viewer Pro 14.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123805.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sante DICOM Editor 10.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123807.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ WinCatalog 2024.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123825.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ XYplorer 25.40.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123834.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Process Lasso Pro 12.4.6.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123835.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Antivirus Removal Tool 2024.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123846.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Resource Hacker 5.2.7.427 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123851.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Subtitle Edit 4.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123932.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Opera One 106.0.4998.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123933.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Telegram Desktop 4.14.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123936.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Opera One 106.0.4998.28 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123941.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Vivaldi 6.5.3206.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123946.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Chromium 120.0.6099.200 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123947.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Brave Browser 1.61.114 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123964.jpg" />
 </div>
 
 

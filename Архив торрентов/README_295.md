@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66431.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:08FFC9C1F1734BA2906EBFD1F8677F0FDFE599A9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66448.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66622.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:70AB5EDF0B051A3E6A232E71A05E332DEC3CF717
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66625.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Smart AudioBook Player Pro v11.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66632.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PowerDirector – Video Editor v15.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66633.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Smart AudioBook Player Pro v11.3.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66709.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VideoShow VIP v11.0.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66715.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Polarr v6.11.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66740.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ TikTok Private Plus v40.0.5 Mod by TikTok + Plugin Update 2.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66741.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:AE08E74352DC5BFBEBDE27A6A74F7F62B7FFF7F8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66742.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ PicWish: AI Photo Editor v2.0.13 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66746.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ PictureThis - Plant Identification v5.2.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66748.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Smart AudioBook Player Pro v11.3.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66751.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PhotoDirector v20.1.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66785.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Smart AudioBook Player Pro v11.3.7 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66789.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Smart AudioBook Player Pro v11.3.1 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66876.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ TikTok Private Plus v39.9.5 Mod by TikTok + Plugin Update 2.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66985.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ MultiTimer: МультиТаймер v1.7.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66986.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VideoShow VIP v10.3.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66993.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Polarr v6.11.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67217.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ GeoGebra 6.0.884-1 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67224.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Tablacus Explorer 25.4.28 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67332.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6AF6C76C22FBC4FB4887CB570074C43853996E30
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67336.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ DLNow Video Downloader 1.54.2025.04.26 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67356.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:E58C02F0F29B32388C3CDDB9DBB0953C7D2723CA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67361.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16197.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16197.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C8D48150541649DE299856378153623A6CBD6800
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16198.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16198.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3C68C2298E744DC8DC3E0F0FB436530F551130A6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16199.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16199.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16200.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16200.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16201.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:7DD04781FE46BD68CA7DEC272EDFF82485174D3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16202.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16202.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:CDE265933172D5A7CDFA0071F2AA3F14FFD856E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16203.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16203.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Загадочные 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16204.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:82EF9D294A7AE54038B8EBF4166D67C3424F13B9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16205.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:472008BCBA6628BD2E1EE966FFD6CB683E341A32
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16206.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:DE038DDB9791E2F08F44F96AE8755D2124216071
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16207.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:CC74E7E7CFDDDFD47CCBB655870099CED888A500
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16208.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene T
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16209.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16210.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:5E9E32FEC2398D7EFDA6C58EA0ABDEDD3B5380EE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16211.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Photo Sherlock v1.127 Mod by Mixroot  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16212.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:3718FDC281332EE686DE292F5081DE2DFA46BC55
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16213.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16214.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Pencil Photo Sketch : Drawing v2.2.35 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16215.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:3E999785A42FC587EC60A379AA82015BDCA7BC1E
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16216.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16217.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Kono Subarashii Sekai ni Shukufuku wo! | Да будет благословен 
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16218.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [MP3|320 Kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16219.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:4D42CAC60C8ADD0E72892DD73F7861F0849F6DF6
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16220.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:E52C51FB4FE24AEF8C0BEF9D6F71A6563BA698E1
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16221.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Maretimo Chill Radio - Best of Vol.4 - Positive Summer Vibes (2025) [FLAC|L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16222.jpg" />
 </div>
 
 

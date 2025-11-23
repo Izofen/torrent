@@ -6,7 +6,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14335.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Far Cry 2 (2008) [Ru] (1.03) Repack EXROW [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14343.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14354.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.524/dlc) Repack FitGirl [The Galactic Te
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14361.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Scene Rune [Elite Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14362.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hero of the Kingdom / Герой Королевства (2012) [Ru/Multi] (1.6.1
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14367.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ STONKS-9800: Stock Market Simulator (2023) [Multi] (0.6.2.19) License GOG [Early
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14368.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14382.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Hero of the Kingdom: The Lost Tales 3 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14385.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mindseye (2025) [Ru/Multi] (4598223) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14391.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Crow Country (2024) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14437.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14466.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BallisticNG (2018) [En] (1.4.0.1b/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14468.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ An Amazing Wizard (2025) [Ru/Multi] (0.5.195) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14469.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14471.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14484.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Heading Out (2024) [Ru/Multi] (1.040) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14488.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14491.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14507.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14522.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fort
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14542.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Downward (2017) [Multi] (2.0.2) Scene Rune [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14552.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14555.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Multi] (1.0.20250606) Scene
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14558.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.109/dlc) Repack Other s [Digital Col
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14560.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Carrier Command 2 (2021) [Ru/Multi] (1.5.10) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14569.jpg" />
 </div>
 
 

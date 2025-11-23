@@ -1,3 +1,175 @@
+###  Публикация: 622814   (155431) от 24.12.2013
+
+Подшивка газеты | Авторевю (2013) [PDF]
+
+>>След.
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155431.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Авторевю» — российское автомобильное издание. Формально Авторевю — газета, что отражено в названии компании ООО «Газета Авторевю». Издание выходит с 1990 года. Журналисты Авторевю неоднократно удостаивались престижных российских и международных наград за вклад в автомобильную журналистику, а само издание по итогам 2008 года признано Лидером продаж в категории
+«Автомобильные (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F485877992F41E18EDB2D497DD65BCB3EC56D181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194502   (155432) от 25.12.2017
+
+360 Extreme Explorer 9.0.1.154 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155432.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Extreme Explorer- браузер, который можно смело назвать многофункциональным и безопасным, он направлен на борьбу с окружающими вас угрозами при Интернет серфинге. Если рассматривать внешний вид: удобно в работе, достаточно информативно, плюс часто посещаемые сайты будут отображаться в виде миниатюр на новой вкладке. Если вы являетесь экспертом, то можете смело (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E646BEADEFAEB3EE43C2353CED9035724BC5EAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346892   (155433) от 21.12.2019
+
+Current Value - SENEX LP (2019) MethLab Recordings [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Experimental>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incite (03:07)
+ 02. Embedded (04:34)
+ 03. E-Machine (05:08)
+ 04. Megacity (05:15)(   Читать дальше...   )Жанр: Drum n Bass, ExperimentalПродолжительность: 01:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00CCBE8E74156C050917401786CF159D4E165B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676699   (155434) от 14.11.2023
+
+Е.В. Титов, А.А. Сошников | Контроль и оценка электромагнитной обстановки для выбора защитных мероприятий (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы обеспечения электромагнитной безопасности на предприятиях агропромышленного комплекса, в организациях и учреждениях различных отраслей экономики, занимающихся и/или связанных с вопросами проектирования, эксплуатации, обслуживания и ремонта систем электроснабжения городов и других населённых пунктов, промышленных предприятий и сельского хозяйства, (   Читать дальше...   )Жанр: Электротехника, электроэнергетикаИздательство: Алтайский государственный технический университетФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304E4227F7A181DC997376E06A37F810FB28EF57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518475   (155435) от 19.12.2021
+
+Величайшие сокровища древнего мира / Greatest Treasures of the Ancient World (2019) WEB-DL [H.264/1080p] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор истории Беттани Хьюз на протяжении всей своей жизни путешествует по планете, изучая культуры и цивилизации древнего мира. В этом цикле передач она хочет рассказать о своих удивительных находках. Мы отправимся с ней в Древний Египет. Тысячи лет земля фараонов оставалась для нас неразгаданной тайной. Эта одна из величайших цивилизаций в истории человечества, (   Читать дальше...   )Производство: Великобритания, SandStone Global Production, National GeographicЖанр: документальный, история, археологияРежиссер: Джим ГрейерПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 6x ~00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6203A3CDE76AFE4F3D1449DEF89FE44FC90B07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968142   (155436) от 23.12.2015
+
+AIMP 4.00 Build 1680 Final RePack (& Portable) by D!akov (with Bongiovi Acoustics DPS | DFX Audio Enhancer) [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155436.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C21126926EF57C0ACC29A0A0442756B5044B32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085555   (155437) от 22.12.2016
+
+Склон Черной горы / Black Mountain Side (2014) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155437.jpg" />
+</div>
+
+
+###  Подробнее
+
+На склоне Черной горы, в Северной Канаде, группа геологов и археологов находит ритуальное захоронение тольтеков, относящееся к мезоамериканскому периоду. Раскопав могильник и потревожив души мертвых, они выпускают в наш мир нечто враждебное... Из-за природных условий, команда остается в изоляции, системы связи оказываются неисправны, и совсем скоро все начинают ощущать (   Читать дальше...   )Производство: КанадаЖанр: ТриллерРежиссер: Ник ШостакивскиАктеры: Шейн Твердан, Майкл Диксон, Карл Тофтфельд, Марк Энтони Уильямс, Эндрю Моксэм, Тимоти Лайл, Стив Брэдли, Натаниэль Гордон, Брайс МакЛафлин, Келвин БоннеПеревод: Многоголосый закадровыйПродолжительность: 01:38:57Реклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97E35FD386B9185585FA4C5F1920666E082925C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194547   (155438) от 25.12.2017
 
 Величайший / The Greatest (1977) VHSRip
@@ -6,7 +178,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155438.jpg" />
 </div>
 
 
@@ -30,7 +202,7 @@ magnet:?xt=urn:btih:4D4EB65BE7B15BCB029283A95F05092DD87B9F92
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155439.jpg" />
 </div>
 
 
@@ -54,7 +226,7 @@ Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155442.jpg" />
 </div>
 
 
@@ -81,7 +253,7 @@ Red Giant Magic Bullet Suite 12.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155443.jpg" />
 </div>
 
 
@@ -105,7 +277,7 @@ BiglyBT 3.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155444.jpg" />
 </div>
 
 
@@ -130,7 +302,7 @@ Movavi Screen Recorder 21.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155445.jpg" />
 </div>
 
 
@@ -155,7 +327,7 @@ magnet:?xt=urn:btih:122A38C39A2FCC0B1DB8254AFA305408C522FEF1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155446.jpg" />
 </div>
 
 
@@ -179,7 +351,7 @@ Acon Digital - Mastering Suite 1.0.6 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155447.jpg" />
 </div>
 
 
@@ -203,7 +375,7 @@ Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155448.jpg" />
 </div>
 
 
@@ -230,7 +402,7 @@ Testadeporcu - Acciaiu (2005) [MP3|320 кб/с]<Jazzcore / Mathcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155449.jpg" />
 </div>
 
 
@@ -263,7 +435,7 @@ Waterfox Current G4.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155450.jpg" />
 </div>
 
 
@@ -287,7 +459,7 @@ magnet:?xt=urn:btih:8A62A53F3FF1DB144526E79E753641E270318785
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155452.jpg" />
 </div>
 
 
@@ -311,7 +483,7 @@ Shania Twain - Now (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Cou
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155453.jpg" />
 </div>
 
 
@@ -338,7 +510,7 @@ Domestika, Trini Guzmán | Interior Mural Painting (2023) WEB-DL [AD] [ES / EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155454.jpg" />
 </div>
 
 
@@ -365,7 +537,7 @@ magnet:?xt=urn:btih:95257CCAB476285907E39B256A78B4434C0019D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155455.jpg" />
 </div>
 
 
@@ -390,7 +562,7 @@ magnet:?xt=urn:btih:95257CCAB476285907E39B256A78B4434C0019D6
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155456.jpg" />
 </div>
 
 
@@ -414,7 +586,7 @@ magnet:?xt=urn:btih:327BA7BC6E8EC87B0EFDE90665ABF233C34972CB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155457.jpg" />
 </div>
 
 
@@ -438,7 +610,7 @@ Haikyuu!! To the Top (2020) | Волейбол [ТВ-4, часть II] [2020, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155458.jpg" />
 </div>
 
 
@@ -462,7 +634,7 @@ Santana - Best Ballads (1996) Compilation [MP3|320 Kbps] <Classic Rock, Blues Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155459.jpg" />
 </div>
 
 
@@ -476,186 +648,6 @@ Santana - Best Ballads (1996) Compilation [MP3|320 Kbps] <Classic Rock, Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EED53FDC6140D41C32AC98778B82FCAC49308D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676712   (155461) от 14.11.2023
-
-Telegram Desktop 4.11.7 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5182FE276C1E755A63BF21D046693FEE0965C2A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085522   (155462) от 22.12.2016
-
-Афера под прикрытием / The Infiltrator (2016) BDRip [Rus Transfer]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федеральный агент Боб Мейзур, специалист по внедрению в преступные группировки, ставит себе целью раскрыть схему отмывания денег наркокартеля Пабло Эскобара. В одной команде со вспыльчивым оперативником Эмиром Абреу, а также начинающим агентом Кэти Эртс, исполняющей роль подставной невесты Боба, ему предстоит провернуть самую рискованную операцию под прикрытием в (   Читать дальше...   )Производство: Великобритания, Good FilmsЖанр: Триллер, Драма, Криминал, БиографияРежиссер: Брэд ФурманАктеры: Брайан Крэнстон, Лиэнн Бест, Дэниэл Мейс, Том Вон-Лолор, Ниал Хэйес, Лара Дэкаро, Джульетт Обри, Олимпия Дукакис, Эми Райан, Джон ЛегуизамоПеревод: Дублированный (Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AEBBE193C2C9216293EAA063DA9CB51DFDEFD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588907   (155463) от 14.12.2012
-
-Hallucination - Memories From A Dream (2012) [MP3|320 кб/с]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By The Hands Of God 04:19
-02. Abyss Diver 04:15
-03. Memories From A Dream 06:24
-04. The Forlorn Watchman 05:21
-05. Bloodmoon 01:37
-06. …As My Flesh Crawls 05:57
-07. Inhumation 02:28Жанр: Death MetalПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA12AFC230D24659677FFE7CB1F30B32F0B0F267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518250   (155464) от 19.12.2021
-
-Восточный ветер. Великий ураган / Ostwind - Der große Orkan (2021) BDRemux [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за внезапно разразившегося урагана бродячий цирк, знаменитый потрясающими номерами с лошадьми, заезжает в небольшое немецкое поместье Кальтенбах. В скором времени Ари понимает, что одному из коней этого цирка по имени Оркан грозит смертельная опасность.
-Вместе с мальчиком Карло и своим верным другом — конём Оствинд они пытаются спасти Оркана от жестокого владельца (   Читать дальше...   )Производство: Германия, Constantin Film InternationalЖанр: приключения, семейныйРежиссер: Леа ШмидбауэрАктеры: Луна Пайяно, Ханна Бинке, Марвин Линке, Амбер Бонгард, Тило Прюкнер, Корнелия Фробёсс, Нильс Брункхорст, Гедеон Буркхард, Маттео МискаПеревод: Дублированный (iTunes)Субтитры: Немецкие PGS, Английские PGSПродолжительность: 01:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCADEC7906C571C3321A5B0F15F9FEE507ABAE3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352975   (155465) от 21.12.2020
-
-Гранд тур / The Grand Tour (2019) WEB-DL [H.264/1080p] (сезон 4, серии 1-2 из ?) AlexFilm, NewStudio (обновляемая)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155465.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: Ток-шоу, АвтопередачаРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин Уайтхед, Брайан КлейнАктеры: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm, NewStudio)Субтитры: Русские (full - Amazon), английские (forced, full, SDH)Продолжительность: 01:31:00 (одна серия)Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8976DFF2ED5F6F17DD56F5A4E64119E95EA40831
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964400   (155466) от 23.12.2015
-
-В пустыне смерти / Into the Badlands (2015) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) OMSKBIRD records
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческий боевик о двух друзьях. В пустыне смерти, какие испытания предстоит пройти главным героям на пути просвещения. Ради обретения высшей мудрости мастер боевых искусств Санни и его юный напарник решают пройти через неизведанные земли. Они знают, что там их будут встречать враждебно, но ради высшей цели главные герои готовы вынести всё. В основу сюжета (   Читать дальше...   )Производство: СШАЖанр: боевик, драма, приключенияРежиссер: Дэвид ДобкинАктеры: Эмили Бичем, Сара Болгер, Орла Брэйди, Мартон Чокаш, Элли Иоаннидес, Арамис Найт, Мадлен Манток, Майкл Сил, Оливер Старк, Дэниэл Ву и др.Перевод: Лилия КушнаренкоЯзык субтитров: английскийПродолжительность: ~ 00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A928D423857CCE8DA3CD9A3C22728640BDEA2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194479   (155467) от 25.12.2017
-
-VA - Chill Out 2018 Top 40 Hits (Yoga, Chill Dub, Ambient, EDM, Psychill, Trip Hop, Lounge) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dusha  -  Entering Orbit (Original Mix)  4:00
-02.  Prematron  -  Ascension (Original Mix)  4:14
-03.  Noiland  -  These Structure (Original Mix)  5:22
-04.  Newteck  -  Zeus (Original Mix)  9:57(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 04:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD587C2FC9D66E1B79DB4296356BCFA2D5EAD50
 ```
 
 

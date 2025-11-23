@@ -6,7 +6,7 @@ Kazumi Tateishi Trio - Ghibli Meets Jazz: Memorable Songs (2011) Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169528.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol. 1 (1953, 1954) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169533.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Toshiyuki Miyama & The New Herd - Sunday Thing (1976) 2021, Three Blind Mice [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169542.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1953 - 1955) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169554.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Erroll Garner - 1944, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169678.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Della Reese - Essential Della Reese 1950-e - 1960-e (2004) MasterSong [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169830.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Della Reese - Voice Of An Angel 1959 - 1964 (1996) RCA [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169839.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mel Torme - Sings For Lovers 1982 - 1996 (2008) Concord Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169877.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ John Clark - I Will (1997) Postcards [FLAC|Lossless|image + .cue] <Post-Bop, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169881.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Blues Dance Hits (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169885.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169890.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Blues & Roots Rock (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169900.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tsuyoshi Yamamoto Trio With Koji Moriyama - Hida-Takayama Jazz Session (XRCD24) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169984.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Charlie Parker - 3 Essential Albums (1948 - 1952) 3CD, 2017, Universal [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169998.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Highway Boys - Country for the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170387.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Modern Jazz Quartet - Milestones Of A Legend (1953 - 1962) 10CD, 2016, The Inten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170407.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jojo Effect - Spreading Rhythm (2022) [FLAC|Lossless|WEB-DL|tracks] <Future Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170437.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kazumi Tateishi Trio - Ghibli Meets Jazz: Beautiful Songs (2011) Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170472.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Steve Gadd Band - At Blue Note Tokyo (2021) BFM Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170501.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lorraine Geller - At The Piano (1954) 2018, Universal [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170528.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jazz at Lincoln Center Orchestra - Big Band Holidays II (2019) Blue Engine Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170609.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jazz at Lincoln Center Orchestra - Big Band Holidays (2015) Blue Engine Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170675.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Jazz at Lincoln Center Orchestra - Handful Of Keys (2017) Blue Engine Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170684.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mel Torme - Encore at Marty's, New York 1982 (1995) DCC Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170690.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Avishai Cohen - The 50 Gold Selection (2020) [MP3|320 Kbps] <Conterporary Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170767.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Al Kooper - The Complete MusicMasters Recordings (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171039.jpg" />
 </div>
 
 

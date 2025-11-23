@@ -1,3 +1,29 @@
+###  Публикация: 1517032   (161881) от 16.12.2021
+
+CODIJY Recoloring 4.2.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите черно-белые фотографии в цветные шедевры с помощью новейших технологий!
+Оживите старые семейные фотографии, соберите винтажные иллюстрации, попробуйте цветовые схемы и многое другое!
+ Это простое в использовании программное обеспечение CODIJY Recoloring для редактирования фотографий раскрашивает черно-белые фотографии, талант графического дизайна не требуется! (   Читать дальше...   )Язык интерфейса: Русский, английский, и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880BEAAD51789FBD60D5DD475A28872B471A68AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517381   (162479) от 15.12.2021
 
 reFX - Nexus 3.4.4 VSTi (x64) + Content [En]
@@ -6,7 +32,7 @@ reFX - Nexus 3.4.4 VSTi (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162479.jpg" />
 </div>
 
 
@@ -31,7 +57,7 @@ Gospel Musicians - FM TiNES for (UVI Falcon) 2.0 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162717.jpg" />
 </div>
 
 
@@ -55,7 +81,7 @@ UVI - Key Suite Digital v1.1.1 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162821.jpg" />
 </div>
 
 
@@ -79,7 +105,7 @@ UVI - Synth Anthology 3 v1.0.1 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162848.jpg" />
 </div>
 
 
@@ -103,7 +129,7 @@ UVI - Falcon v2.5.3 STANDALONE, EXE/VST/AAX(MOD) x64 RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163347.jpg" />
 </div>
 
 
@@ -127,7 +153,7 @@ RF SCreater 2.3.3 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163845.jpg" />
 </div>
 
 
@@ -152,7 +178,7 @@ Recolored 1.1.0 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163903.jpg" />
 </div>
 
 
@@ -176,7 +202,7 @@ Fransiz AIFilter #1 Professional  v1.11.03926 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164175.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Acoustica Premium Edition 7.5.2 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164254.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Tone2 - RayBlaster 2.6.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164421.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ magnet:?xt=urn:btih:04B5E4F367EE54D4B895F280E57AA8B5BCF85FF8
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164773.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ magnet:?xt=urn:btih:89885EE20890DDF67D57AE973372E82B5378E732
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164776.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Arturia - Synth Collection 2019.12 STANDALONE, VSTi, VSTi3, AAX (x64) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164907.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Acoustica Premium Edition 7.5.1 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165183.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ magnet:?xt=urn:btih:0F8BC07071B7EBE2DEBEB320925A23191A0062DC
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165764.jpg" />
 </div>
 
 
@@ -369,7 +395,7 @@ ArchvizTools - uPVC Window Generator 1.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165771.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ Streaming Audio Recorder 4.3.5.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166710.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ Room Arranger 10.3.0.735 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167349.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ WinX VideoProc Converter 6.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167700.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ PSPaudioware - PSP NobleQ 1.8.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167722.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ Aiseesoft Video Enhancer 9.2.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167941.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Tipard Blu-ray Converter 10.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168691.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Electronik Sound Lab - 808 Bass Module III 3.3.1 VSTi, VSTi3 (x86/x64) Retail + 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168839.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ SmallFoto 7.1 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168859.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Teorex Inpaint 10.2.2 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168956.jpg" />
 </div>
 
 
@@ -597,30 +623,6 @@ Inpaint - позволяет умно удалять нежелательные 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:338AD96D90B68847A0BAA521F9D78D1B02A9988D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672299   (169050) от 28.10.2023
-
-SILKYPIX Developer Studio Pro 11.0.12.0 (x64) Portable by 7997 [En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169050.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro 11 — японская программа, позволяющая редактировать, обрабатывать и конвертировать цифровые фотографии различных форматов. SILKYPIX поможет ввести поправку экспозиции, подстроить баланс белого, в том числе пипеткой, настроить резкость, отредактировать контраст, выбрать насыщенность, уменьшить шум. Одно из преимуществ программы – возможность (   Читать дальше...   )Язык интерфейса: Английский (Русский отсутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED249AFE7A8CA28BFE21B27E53E99022244B8438
 ```
 
 

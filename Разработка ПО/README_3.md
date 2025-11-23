@@ -6,7 +6,7 @@ JetBrains Rider 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255363.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual Studio 2022 Professional 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255902.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255902.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255903.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255903.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.0 [11205.157] (Offline Cache) [Ru/E
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256803.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256803.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Microsoft Visual Studio 2026 Professional 18.0.0 [11205.157] (Offline Cache) [Ru
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256804.jpg" />
 </div>
 
 
@@ -115,6 +115,54 @@ Microsoft Visual Studio 2026 Professional 18.0.0 [11205.157] (Offline Cache) [Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D0D50B7DEFC8E8272A79672DA85B1CE7947274F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838272   (259840) от 
+
+Microsoft Visual Studio 2022 Enterprise 17.14.21 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода, а затем развертывания приложения. Visual Studio включает компиляторы, средства завершения кода, управление (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E6CD7043E60B9D609A1EC9B8A74BAFC77C4C80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838269   (259851) от 
+
+Microsoft Visual Studio 2026 Enterprise 18.0.1 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встреча Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4192B64C71CE4B22566D70B075AD82B9B10F399
 ```
 
 

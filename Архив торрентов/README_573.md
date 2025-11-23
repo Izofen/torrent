@@ -6,7 +6,7 @@ Opera One 106.0.4998.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123298.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NIUBI Partition Editor 9.9.2 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123300.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Icecream Video Converter Pro 1.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123302.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FileMenu Tools 8.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123306.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Wise Care 365 Pro 6.6.4.634 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123307.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.11 Stable RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123310.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ KStars 3.6.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123316.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ NIUBI Partition Editor 9.9.2 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123320.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Icecream PDF Editor Pro 3.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123321.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Icecream Screen Recorder PRO 7.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123323.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ PotPlayer 231220 (1.7.22077) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123326.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kingston SSD Manager 1.5.3.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123329.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DefenderKiller 11.1.1 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123331.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ SamDrivers 24.00 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123333.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Acrobat Reader 2023.008.20458.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123334.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Windows 11 Debloater 2.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123343.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Macrorit Partition Expert 8.1.3 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123348.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ AIDA64 Extreme Edition 7.00.6716 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123351.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Kodi 20.3 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123352.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Modern Tweaker 2.0 Final Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123353.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ EasyUEFI Technician 5.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123358.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:96AF04E5072C46ECAA1DC2B994131D46A9CA182A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123360.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ MobaXterm 23.6 build 5186 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123361.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Office Tool Plus 10.6.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123378.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Windows 11 Debloater 2.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123379.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ MiniTool Power Data Recovery 11.8 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123382.jpg" />
 </div>
 
 

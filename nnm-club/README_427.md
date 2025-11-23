@@ -6,7 +6,7 @@ Rosetta Stone: Изучение языков 8.33.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11316.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Krita 5.2.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11317.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:8C6F6880C16B5CE5011104422CD449BEED42FDD6
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11318.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:50FECD961EA5BAC2EB34ACF697FC4199AB3E674F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11319.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Automate It: Factory Puzzle (2025) [Ru/Multi] (1.0.0.6) Repack FitGirl [Supporte
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11320.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:60BBDCAF775B19517F90EE9877D806B8CC1CE903
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11321.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:19F62CC3A944FA7513B0AB3E9CC598AD36EC1BB4
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11322.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11323.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:A40670BDD86FD45FF8C144CF998F0EA7E0E359AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11324.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:1B1342DF33921E5B7737946B6171487264384DD9
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11325.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:C81C4888A87187611EBA349A8C6BFA9DF47B1336
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11326.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:FBDDC09177F38ED8B05DA9AA7473A60E23D69088
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11327.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ MediaHuman YouTube to MP3 Converter 3.9.14 (1407) RePack (& Portable) by elchupa
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11328.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C195BB50AC662332256FC23CD1D45BC69DF950C3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11329.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:DCDF9BC7FED54BCAC3D3EFBB4C9AB597EC1B0EE0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11330.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:E19FD1D39511BB38AD4ADAD706941A3FE538A894
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11331.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:34220B71BFE58B516A186088675CA65BE072A07C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11332.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:8495C9AAC70167BF332E484E368E9495BD7309CC
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11333.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ DISTRHO - Cardinal 25.06 VST 3, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11334.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Minecraft в кино / A Minecraft Movie (2025) UHD BDRemux [H.265/2160p] [4K, 
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11335.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:5A5B58A7368A5D7F2D75F9ADA1556E1EE991FB57
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11336.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:D63E909C3AED6EDAFD84CE1E49BD5ADFE71A609B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11337.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11338.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11339.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Breaking Bad & Better Call Saul (2008-2022) [MP3|320 Kbps] <Soundtrack>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11340.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:5C33CD00E7C27495A05B70CEDD36CCBA116F35E2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11341.jpg" />
 </div>
 
 

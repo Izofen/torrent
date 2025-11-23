@@ -1,3 +1,76 @@
+###  Публикация: 1677394   (150629) от 17.11.2023
+
+WSCC (Windows System Control Center) 7.0.7.4 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150629.jpg" />
+</div>
+
+
+###  Подробнее
+
+WSCC (Windows System Control Center) - портативная программа, представляющая собой оболочку, которая объединяет в себе пакеты Sysinternals Suite и NirLauncher. Все утилиты входящие в данный набор, разделены по категориям в зависимости от назначения, а также присутствует возможность запуска некоторых встроенных средств Windows.
+При первом запуске программа попытается (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFD1CFBA99F6C9C45247F45998A9A436A03ED89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677337   (150640) от 17.11.2023
+
+Total Commander 11.02 (17.11.2023) Portable by MiG [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портативная сборка Total Commander 11.02 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 11 появился новый мультимедиа (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785203983D5061A6C95DFB2C33865E3E971B4EC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677307   (150643) от 17.11.2023
+
+Topaz Photo AI 2.1.2 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4192045488A9A4884DEC8C5904B42954F8EEBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677317   (150646) от 17.11.2023
 
 Luminar Neo 1.16.0.12503 (x64) Portable by 7997 [Multi]
@@ -6,7 +79,7 @@ Luminar Neo 1.16.0.12503 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150646.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ Audacity 3.4.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150647.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ Ventusky: Прогноз погоды v29.0 (b2901) Mod by Alex.Strannik [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150651.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ HandBrake 1.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150749.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ EssentialPIM Pro 11.7.3 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150753.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Calibre 7.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150758.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ Busuu - изучение языков 31.8.1(859427) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150760.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ CrystalDiskInfo 8.13.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150762.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ AOMEI Partition Assistant Technician Edition 9.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150788.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ Movavi Video Editor Plus 2022 v22.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150789.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ One Commander Pro 3.29.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150820.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:A762D039FD163B31B5D34AFB47F96F0A22A6F08F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150823.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ Wondershare UniConverter Ultimate 15.0.6.19 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150831.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ EssentialPIM Pro Business Edition 9.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150833.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ Macrium Reflect v7.2 .3957 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150836.jpg" />
 </div>
 
 
@@ -375,7 +448,7 @@ magnet:?xt=urn:btih:61B2600E08AD5E2548947EB98751544D3BD7BC8D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150841.jpg" />
 </div>
 
 
@@ -402,7 +475,7 @@ magnet:?xt=urn:btih:AA06302EB85F978D9189CEB0065F27DCF9B491DF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150846.jpg" />
 </div>
 
 
@@ -426,7 +499,7 @@ Panda Free Antivirus 2016 16.0.2 DC 22.12.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150854.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ IceCream Ebook Reader Pro 6.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150858.jpg" />
 </div>
 
 
@@ -474,7 +547,7 @@ Movavi Video Converter 22 Premium 22.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150867.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ magnet:?xt=urn:btih:641D0DE0C929116F00A7B2CBDC4B5E0937AAD4F0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150870.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150875.jpg" />
 </div>
 
 
@@ -546,7 +619,7 @@ Slimjet 33.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150876.jpg" />
 </div>
 
 
@@ -557,78 +630,6 @@ Slimjet 33.0.0.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:147C92E416FA0F2E9D2EA640B4EE0906C6DC9229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968969   (150878) от 25.12.2015
-
-O&O DiskImage Professional 9.0 Build 223 RePack by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150878.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O DiskImage Professional - программа позволяющая создавать образы целых жестких дисков и внешних накопителей или содержащихся на них разделов или данных. Образы получаются абсолютно идентичными оригиналу, а поэтому их действительно можно использовать для восстановления операционной системы, отката к предыдущему состоянию компьютера и решения прочих подобных (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF610998A8B2B497666D92BD771EE1B5DEFF411E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677311   (150888) от 17.11.2023
-
-Transparent clock & weather / Прозрачные часы и погода 6.46.0 Mod by youarefinished [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прозрачные часы и погода - Pro – это виджет для Android, позволяющий настраивать часы и погоду, которые всегда отображаются на вашем экране. Хотя виджет и выглядит хорошо, больше всего впечатляют его множественные настройки. Можно выбрать отображение температуры в градусах Цельсия или Фаренгейта, время рассвета и заката, влажность, продолжительность дня, фазу луны (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.11.2023Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AF473B2CEA25B3DD16CB6476850F0B3F8FFD6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519100   (150890) от 22.12.2021
-
-Opera 82.0.4227.43 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168A8883A47A72C4F49755A33D535438F1804FEF
 ```
 
 

@@ -6,7 +6,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37056.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37322.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37553.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GTA - Flame's Story (2024) [Ru/En] (1.7) Repack/Mod CTXMaps
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37716.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37816.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37825.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38012.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38027.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38028.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38029.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Oni (2001) [Ru] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38030.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Turok 2: Seeds of Evil (1998) [Ru/En] (1.4) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38031.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38034.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38043.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Descent II (1996) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38056.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38057.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38064.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Cold Zero: No Mercy / Cold Zero: Финальный отчет (2003) [Ru/En] (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38142.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38157.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38160.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38163.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38164.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38165.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ UberSoldier / Восточный фронт: Неизвестная война (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40816.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Aliens vs Predator Антология [Ru/En] (RePack) 1999-2002 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41029.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42116.jpg" />
 </div>
 
 

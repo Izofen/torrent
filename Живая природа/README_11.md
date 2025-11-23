@@ -1,3 +1,99 @@
+###  Публикация: 1628623   (241980) от 23.04.2023
+
+Тибет: крыша мира / Tibet: Roof of the World (2019) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к нам в изучении самых высоких горных плато на Земле. От тибетских волков до антилоп чиру, мы узнаем, как удивительным животным удается процветать на крыше мира.Производство: Австралия, Infocus Asia PTE LTDЖанр: документальный, природа, флора, фаунаРежиссер: Карен Басс, Дэвид МарксПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95DD055EA334F8A6B58A27E78AE04EEBDAF7D82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628602   (242068) от 23.04.2023
+
+Жизнь пчелы / A Bee's Diary (2020) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_242068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя мир медоносной пчелы Виннифрид! В течение альпийской весны и лета фильм рассказывает о двух пчелах, которые собирают еду, разведывают и сражаются с захватчиками - каждая со своим поведением и индивидуальностью. Эта волнующая картина отражает красоту и сложность мира пчелы, проблемы, с которыми она сталкивается, и решения, которые ей предстоит принять. (   Читать дальше...   )Производство: Германия, aglicht media, handful of filmsЖанр: документальный, природа, флора, фаунаРежиссер: Деннис УэллсПеревод: одноголосый профессиональный (1 ТВЧ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D6C0F814846BBDD2005D986730801588E6ABA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628613   (242103) от 23.04.2023
+
+Снежный барс и его друзья / Snow Leopards and Friends (2021) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_242103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о жизни новорожденных детенышей снежного барса и животных, которые учат и защищают их в годы становления. Дружба, сотрудничество и забота в мире снежных барсов очень важны.Производство: Австрия, Китай, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Си ЧжинунПеревод: одноголосый профессиональный (Iyuno-SDI Group Russia)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B190109A9E0A11EB72498D59AE336967B84F1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628606   (242119) от 23.04.2023
+
+Тайное обезьянье царство в Китае / China's Secret Monkey Kingdom (2020) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_242119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холмы Китая - это последнее убежище самых редких приматов в мире - белоголовых лангуров. В дикой природе их осталась всего 1000, и сериал рассказывает об их общественной жизни.Производство: Китай, Mandarin Film, Earth TouchЖанр: документальный, природа, флора, фаунаРежиссер: Бенджамин ХьюиттПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C273A6FEFEF28173EBD57773F229B68FFB9F64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628629   (242151) от 23.04.2023
 
 Скрытые чудеса зимы / Winter's Hidden Wonders (2020) HDTVRip (серии 1-3 из 3)
@@ -6,7 +102,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242151.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242151.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ magnet:?xt=urn:btih:6EA24E7784B5D7C9F784E0611B9E8F645CB2ADFC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242444.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242444.jpg" />
 </div>
 
 
@@ -54,7 +150,7 @@ magnet:?xt=urn:btih:04498F04372AD4643A97024F01C0FF795E496C95
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242506.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242506.jpg" />
 </div>
 
 
@@ -78,7 +174,7 @@ magnet:?xt=urn:btih:B7EC7F079BEE8AC3FAFB3958AB8529088BB54253
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242762.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242762.jpg" />
 </div>
 
 
@@ -102,7 +198,7 @@ magnet:?xt=urn:btih:778A8DB99217581448D5D6150EC026F6B577166C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242774.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242774.jpg" />
 </div>
 
 
@@ -126,7 +222,7 @@ BBC: Куницеобразные. Дерзкие и бесстрашные / We
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242834.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242834.jpg" />
 </div>
 
 
@@ -150,7 +246,7 @@ magnet:?xt=urn:btih:D784E2B7496CFBBC509EEC8E5E72EC811C32AD41
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243180.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243180.jpg" />
 </div>
 
 
@@ -174,7 +270,7 @@ magnet:?xt=urn:btih:902D04658918996CDE93D050303ABD219E64ADF2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_243198.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_243198.jpg" />
 </div>
 
 
@@ -198,7 +294,7 @@ magnet:?xt=urn:btih:07292002736B4B62D3E74CC72ACEA8ED2A2B08C9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243278.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243278.jpg" />
 </div>
 
 
@@ -222,7 +318,7 @@ magnet:?xt=urn:btih:D4738EFD374DACC0A9C5B0531D4C4934323D729D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243724.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243724.jpg" />
 </div>
 
 
@@ -246,7 +342,7 @@ magnet:?xt=urn:btih:78746728AFCC6F1F5A36EA9FFA6A31EF24F6034E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243890.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243890.jpg" />
 </div>
 
 
@@ -270,7 +366,7 @@ magnet:?xt=urn:btih:010CC835FADEABAEAFB91134F0942BA4EA633C43
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243896.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243896.jpg" />
 </div>
 
 
@@ -294,7 +390,7 @@ magnet:?xt=urn:btih:A5659333EFFE4426F5F462F0B468DD3BBD3E3057
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244102.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244102.jpg" />
 </div>
 
 
@@ -318,7 +414,7 @@ magnet:?xt=urn:btih:7EBA96A62CF3C66FCC3C3B2E0CF7F257C605801A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244457.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244457.jpg" />
 </div>
 
 
@@ -342,7 +438,7 @@ magnet:?xt=urn:btih:51DA15807FEB3B3988E07605F8C896E50845A68D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244460.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244460.jpg" />
 </div>
 
 
@@ -366,7 +462,7 @@ magnet:?xt=urn:btih:A04D2BB4210E6AA04FFF79F04701F7FDAC6165CD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244531.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244531.jpg" />
 </div>
 
 
@@ -390,7 +486,7 @@ magnet:?xt=urn:btih:7DBE7E891875CD3F1454E11C45197F728B25CCD0
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244718.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244718.jpg" />
 </div>
 
 
@@ -414,7 +510,7 @@ magnet:?xt=urn:btih:83A5EB3E258FB4757271613BD8A1D0B706CEA489
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244747.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244747.jpg" />
 </div>
 
 
@@ -438,7 +534,7 @@ magnet:?xt=urn:btih:55E6F4EDED03353BC0579E3BB8AA1ACB97105BC3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245003.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245003.jpg" />
 </div>
 
 
@@ -462,7 +558,7 @@ magnet:?xt=urn:btih:B9200766A00C90BD43A08C3641F95610B445585D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245054.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245054.jpg" />
 </div>
 
 
@@ -486,7 +582,7 @@ magnet:?xt=urn:btih:29748975B9B0CAAF9221FB7EBCBF63BD8087F4E9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245507.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245507.jpg" />
 </div>
 
 
@@ -510,7 +606,7 @@ magnet:?xt=urn:btih:1A38595B073AB7305BDE8AD897BE65EBBDCE6E08
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245748.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245748.jpg" />
 </div>
 
 
@@ -521,102 +617,6 @@ magnet:?xt=urn:btih:1A38595B073AB7305BDE8AD897BE65EBBDCE6E08
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7732B60FFB2AAFE4AD99EE647DDB6CD4F81DE7EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630397   (245792) от 30.04.2023
-
-Матсалукские лоси. Гиганты Прибалтики / Matsalu Moose - Wild Giants of the Baltics (2019) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Национальный парк Матсалу на северо-восточном побережье Балтийского моря известен как одно из самых важных мест остановки в Европе на Восточном пролетном пути - рай для перелетных птиц. А также это убежище для диких гигантов Балтии, могучих лосей. Большую часть года эти великолепные существа бродят по открытым болотам, которые являются сердцем национального парка (   Читать дальше...   )Производство: Германия, Marco Polo Film AGЖанр: документальный, природа, флора, фаунаРежиссер: Аннетт ШойрихПеревод: одноголосый профессиональный (1ТВЧ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEDE5C82A4E301E1F88D8D645AF8F88DE60B61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630254   (245891) от 29.04.2023
-
-Возвращение медведей / The Return of the Bears (2020) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые надеются, что возвращение медведей в Европу окажет положительное влияние на всю экосистему. Но готова ли Европа к сосуществованию с бурыми медведями? В фильме сравнивается, как бурые медведи живут и сосуществуют с людьми в Словении, Словакии, Румынии и национальном парке Абруццо в Италии, где они никогда не вымирали, с ситуацией во французских Пиренеях и Трентино (   Читать дальше...   )Производство: Германия, prospect tv, ZDF, arteЖанр: документальный, природа, флора, фаунаРежиссер: Юрген Хансен, Саймон СириппПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A719F505EDB17A64DD35734D5E340A97DA6B8FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630255   (245895) от 29.04.2023
-
-Большая пятерка Африки / Africa's Big Five (2020) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые культовые животные Африки были придуманы охотниками за трофеями. Посмотрите, как эти удивительные существа сражаются со стихиями и друг с другом, чтобы выжить.Производство: США, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Джеймс БирнПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91569BA7E4253E9B58B225B4E3D4093EA5E4EF2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630259   (245914) от 29.04.2023
-
-Быстроногая королева Серенгети / Serengeti Speed Queen (2020) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самка гепарда Нзури, впервые ставшая мамой, осваивает новые методы охоты, чтобы обеспечить выживание своих детенышей.Производство: Южная Африка, Earth TouchЖанр: документальный, природа, флора, фаунаРежиссер: Билли-Джин ПаркерПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D40CE6EB4CF985D01E1A21704616C4F67627C0B
 ```
 
 

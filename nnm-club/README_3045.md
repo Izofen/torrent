@@ -1,3 +1,85 @@
+###  Публикация: 464756   (96078) от 09.03.2012
+
+VA - Шоферской Хит 6 (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кафе - Комплект свободы
+02. Спартак Арутюнян - Опа, Магадан
+03. Александр Антимиров - Я тебя забыл
+04. Александр Кузнецов - Амулет
+05. Борис Шварцман - Лето на Урале
+06. Алена Андерс - Пацан
+07. Ирина Круг - Осеннее кафе
+08. Александр Вестов - Жизнь-монета
+09. Св.Питерская и Г.Жаров - Таежная
+10. Григорий Заречный - Зодиак2012Жанр: ШансонПродолжительность: 06:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366CB18109D4DA6ACDCB3EA71A20A81AB70D6CEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465256   (96083) от 09.03.2012
+
+В. Роман | "Аэрокобры" над Кубанью [2006] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена истории создания истребителя Р-39 «Аэрокобра» и применении его «ранних» моделей Р-39К, L и М советскими ВВС в боях над Кубанью. Рассматриваются особенности конструкции и ЛТХ самолета, пути поставок в СССР, хроника боевых действий авиаполков ВВС РККА и ВВС ВМФ. Приведены подробные чертежи в масштабе 1:48, схемы, карты, 21 цветное и 51 ч/б фото.
+Впервые публикуется окраска самолетов советских асов А.И. Покрышкина, Б.Б. Глинки, В.М. Дрыгина и др. Издание предназначено для любителей истории авиации и моделистов.2006Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72185CE6D257A894040D8B5101FAB031C43D1B2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464945   (96085) от 09.03.2012
+
+Майский снег (1988) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Провинциальный город Грузии. Эпизод из жизни подростков: их мечты, шалости и взаимоотношения со взрослыми.Жанр: КиноповестьРежиссер: Зураб ИнашвилиАктеры: Леван Турманидзе, Тинатин Кобаладзе, Ника Чхаидзе, Гурам Лордкепанидзе, Этер Геловани, Георгий Берозашвили, Ника Джапаридзе, Георгий Кацаридзе, Гаюз Зедгенидзе, Бердиа ИнцкирвелиПеревод: Профессиональный (многоголосый)Продолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E93A93385AB2D233285CD115F050E4D8F47106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464949   (96089) от 09.03.2012
 
 Amaranthe - Amaranthine (2011) HDRip [720p]
@@ -6,7 +88,7 @@ Amaranthe - Amaranthine (2011) HDRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96089.jpg" />
 </div>
 
 
@@ -31,7 +113,7 @@ Gun Barrel - 2 альбома (2003-2007) [FLAC|Lossless]<Heavy-metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96090.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96090.jpg" />
 </div>
 
 
@@ -64,7 +146,7 @@ Gun Barrel - 2 альбома (2003-2007) [FLAC|Lossless]<Heavy-metal>
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96091.jpg" />
 </div>
 
 
@@ -88,7 +170,7 @@ magnet:?xt=urn:btih:6C7270FB18ACCB7C0DED42E706ADE24CBCDE1638
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96093.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96093.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ magnet:?xt=urn:btih:6C7270FB18ACCB7C0DED42E706ADE24CBCDE1638
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96094.jpg" />
 </div>
 
 
@@ -143,7 +225,7 @@ VA - Mushroom Trance Vol 3 (1999) [FLAC|Lossless]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96095.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96095.jpg" />
 </div>
 
 
@@ -176,7 +258,7 @@ CD1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96097.jpg" />
 </div>
 
 
@@ -202,7 +284,7 @@ magnet:?xt=urn:btih:23A7DA0FE0BBC7B7B621B9DB662EB21C781302A0
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96098.jpg" />
 </div>
 
 
@@ -226,7 +308,7 @@ magnet:?xt=urn:btih:70D0F28E6FCD842B4CCD64F1121FA2382A9EC169
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96099.jpg" />
 </div>
 
 
@@ -250,7 +332,7 @@ Dark Matters - Fallen Feathers (2011) [FLAC|Lossless]<Electronic, Downtempo, Lou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96100.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96100.jpg" />
 </div>
 
 
@@ -283,7 +365,7 @@ Dark Matters - Fallen Feathers (2011) [FLAC|Lossless]<Electronic, Downtempo, Lou
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96101.jpg" />
 </div>
 
 
@@ -308,7 +390,7 @@ Sunstryk - Pure Essence (2010) [FLAC|Lossless]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96103.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96103.jpg" />
 </div>
 
 
@@ -339,7 +421,7 @@ Autopoiesis - Cytherean Dreams (2002) [MP3|192 Kbps] <Electronic, Berlin School,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96116.jpg" />
 </div>
 
 
@@ -369,7 +451,7 @@ magnet:?xt=urn:btih:AD7028CD4C067E17FA43C1C78EE19F19997648E6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96118.jpg" />
 </div>
 
 
@@ -395,7 +477,7 @@ magnet:?xt=urn:btih:71D49F09C2DA4AF7BD2AD81E62635338BA7A7C72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96120.jpg" />
 </div>
 
 
@@ -421,7 +503,7 @@ magnet:?xt=urn:btih:CD3B7390498D2A93CF625868DE3619F50FF07A62
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96123.jpg" />
 </div>
 
 
@@ -445,7 +527,7 @@ magnet:?xt=urn:btih:4B66EADB900CC539C7651F5A565B2FCC076F63FF
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96127.jpg" />
 </div>
 
 
@@ -469,7 +551,7 @@ magnet:?xt=urn:btih:22F121CE19B8076DFD7C6F424008B1E6B49F95CB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96131.jpg" />
 </div>
 
 
@@ -494,7 +576,7 @@ magnet:?xt=urn:btih:9985C5D1B1B441A2EAEC5028A63F77116327DF09
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96139.jpg" />
 </div>
 
 
@@ -518,7 +600,7 @@ magnet:?xt=urn:btih:55DE87905A139F4FF141E4602AFB511D51A3E182
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96143.jpg" />
 </div>
 
 
@@ -543,7 +625,7 @@ magnet:?xt=urn:btih:FDDB0D01D6AC94582C3AD92432536B21CECA403A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96145.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96145.jpg" />
 </div>
 
 
@@ -568,7 +650,7 @@ The Dwindlers - Allegories (2012) [MP3|~245 Kbps (V0)]<Ambient,Female vocal, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96147.jpg" />
 </div>
 
 
@@ -598,7 +680,7 @@ VA - Взрывной хит-парад Весна (2012) [MP3|256-320 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96149.jpg" />
 </div>
 
 
@@ -618,92 +700,6 @@ VA - Взрывной хит-парад Весна (2012) [MP3|256-320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1675603B457D1A2F443004ADFB5641905705754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465028   (96154) от 09.03.2012
-
-Эдита Пьеха - Пьеха, знакомая и незнакомая (1995) [APE|Lossless]<Ретро/Эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моё сердце стучит (2:21)
-02. Осенний мост (3:37)
-03. Биби-юба (2:05)
-04. Осень (4:11)
-05. Каравелла (3:28)
-06. Места (3:08)
-07. Только ты (2:01)
-08. Метелица (3:47)
-09. Сама садик я садила (2:55)
-10. Королева звёзд (3:00)(   Читать дальше...   )1995Жанр: Ретро/ЭстрадаПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465036   (96155) от 09.03.2012
-
-Забытый вождь. Александр Керенский (2012) DVDRip
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся биография Керенского – цепь тайн, мистификаций и недомолвок. В тридцать шесть лет он стал самым молодым избранным правителем России, а уже в тридцать семь – и на всю оставшуюся долгую жизнь – беглецом, изгнанником. Верховная власть находилась в его руках только три месяца, но время ему досталось такое, что один день стоил года: Керенский успел многое.
-Он отменил все национальные и вероисповедные ограничения, покончил с "чертой оседлости". Он упразднил помещичье землевладение, уравнял женщин в правах с мужчинами. Он провел широкую амнистию, выпустив из тюрем тысячи заключенных (в том числе бандитов, которых остряки называли "птенцами Керенского"). Он покончил с хождением старых денег и ввел в оборот новые, которые вошли в историю под его именем – "керенки".
-Он арестовал царскую семью и провозгласил Россию республикой…
-Но можно посмотреть на сделанное им и под другим углом. Именно Керенский разрушил основы тысячелетнего российского государства. Он реформировал судебную систему, (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Алексей ПищулинПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3324C0EF0D5818375E0EAD01B668C77A5678E1FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465062   (96158) от 09.03.2012
-
-Мазерати - Триумф инженерной мысли / Maserati - Victory by design (2003) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мазерати (Maserati), это итальянская компания, которая специализируется на выпуске комфортабельных, но в то же время спортивных автомобилей с элегантной внешностью и высокими динамическими показателями. С недавнего времени входит в состав крупнейшей итальянской автомобильной корпорации «ФИАТ».
-Каждый из братьев Maserati - Карло, Биндо, Альфьери, Марио, Этторе и Эрнесто - в какой то мере, внесли свой вклад для развития своей компании, которая до сих пор носит их фамилию.
-Карло, старший из братьев, первым в семье начал заинтересованно заниматься автомобилями. Первый автомобиль Maserati, был сделан именно его руками, который был оснащён двигателем V1 и сконструирован на очень простым шасси. Но, к сожалению, из-за болезни и последовавшей за ней смертью 29-летнего Карло Мазерати, пришлось прервать работу.Жанр: ТелепередачаПеревод: Профессиональный (одноголосый)Продолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABB4C349D84AE7675C80ED08239BB2E279D1DF0
 ```
 
 

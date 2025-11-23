@@ -1,3 +1,180 @@
+###  Публикация: 1678415   (145658) от 21.11.2023
+
+София Баюн | Абсурдные сны (Книга 1). Механические птицы не поют (2023) [MP3, Игорь Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145658.jpg" />
+</div>
+
+
+###  Подробнее
+
+София Баюн – разноплановая писательница-фантаст, работающая в жанрах фэнтези и мистического триллера. Атмосфера её книг загадочна и мрачновата, но тем более они захватывают читателя и слушателя. С романом «Механические птицы не поют» София Баюн вошла в тройку призёров литературного конкурса «Технология чудес», проведённого порталом Author.Today. Книга представляет (   Читать дальше...   )Жанр: детектив, фантастикаИздательство: 1С-ПаблишингПродолжительность: 19:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D80C3F3868CB1DBA02AA1592BE8C138C5E5D9D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348135   (145659) от 26.12.2019
+
+Только не попадись / Don't Get Caught (2018) WEB-DLRip [H.264/1080p-LQ] [MVO] [Line] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время поездки за город два друга случайно натыкаются на ферму по выращиванию марихуаны. Случайная находка станет причиной того, что за их головы объявят награду в 100 000$Производство: США / MomentumЖанр: Боевик, комедияРежиссер: Ди-ШортАктеры: E-40, Майк Эппс, Брайан Хукс, Брок Йонсен, Луэнелль, Элиз Нил, Дэн Л. Портер, Снуп ДоггПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119AA62416D9BFD993028F3878553DD7463FB340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519962   (145660) от 26.12.2021
+
+Autumn's Child - Zenith (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergency
+02. Evangeline
+03. Love Is A Fighter
+04. Nightingale(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5945C08EF6A4B43C78A082EB96FEF7D848E3B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739511   (145661) от 28.12.2013
+
+Roxette - 25 Best Songs (2012) [MP3|~245 кб/с]<Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look 1988
+02. Joyride 1991
+03. How Do You Do! 1992
+04. Neverending Love 1986(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B93C35286A569607E97DB663AD6C388420C7DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272151   (145662) от 26.12.2018
+
+Отчаянные / Los desesperados (1969) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солдат дезертирует из своей части перед решающим сражением. Он отправляется на границу с Мексикой, чтобы успеть жениться на своей возлюбленной, до того как она родит ребенка. Отец девушки проклинает их брак, но солдат решителен в своих намерениях. Вскоре в сюжете появляются преступные элементы, которые несут угрозу для всех, кто находится рядом…Производство: Испания, Италия / Atlántida Films S.A., Daiano Film, Leone FilmЖанр: ВестернРежиссер: Хулио БучсАктеры: Джордж Хилтон, Эрнест Боргнайн, Альберто де Мендоса, Лео Анкориц, Аннабелла Инконтрера, Антонио Пика, Хосе Мануэль Мартин, Мануэль де Блас, Мануэль Миранда, Густаво РохоПеревод: Авторский (В.Горчаков)Субтитры: ОтсутствуютПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF2304A8253F55DD64154A7CE33E5B5BFCB3D39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272049   (145663) от 26.12.2018
+
+NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (Сезон 1, серии 1-4 из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брент и Грант Ридс обитают в самом диком месте дельты реки Окаванго. Они покажут, как работают плечом к плечу с самыми известными животными планеты. Вместе они создали одну из самых успешных сафари-компаний Ботсваны. Вы увидите, как харизматичная пара преодолевает трудности, связанные с ведением бизнеса в диких условиях.Производство: США, Symbio Studios, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4CA1FB12068B69565C38BA7020024AC2320D0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678442   (145664) от 21.11.2023
+
+VA - Hustle Hits (1975) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crown Heights Affair - Dreaming A Dream (3:53)
+02. Gary Toms Empire - 7-6-5-4-3-2-1 Blow Your Whistle (5:13)
+03. Kool & The Gang - Spirit Of The Boogie (4:57)
+04. Yambu - Sunny (4:36)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FE132DE3B09169A90D4FE28376C91E1A6C382D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519930   (145665) от 26.12.2021
 
 Чудо техники с Сергеем Малозёмовым (26.12.2021) SATRip
@@ -6,7 +183,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145665.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:DCA0F77BC898763D8B8918A28790235D87007213
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145666.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ magnet:?xt=urn:btih:4CF694261E116F2B7987C03B9530EB3F6D6EB00A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145667.jpg" />
 </div>
 
 
@@ -78,7 +255,7 @@ Stay Away - СССР 2077 (2023) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145669.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №1 (январь
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145670.jpg" />
 </div>
 
 
@@ -129,7 +306,7 @@ magnet:?xt=urn:btih:35046F12D64B6B301F0B072A1D75C9FA610871EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145671.jpg" />
 </div>
 
 
@@ -153,7 +330,7 @@ VA - SpinCat Music - Best Of 2021 (2021) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145672.jpg" />
 </div>
 
 
@@ -180,7 +357,7 @@ magnet:?xt=urn:btih:7A9B1C0908AF8AE392A74EE4D66FBDCB600C15E1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145673.jpg" />
 </div>
 
 
@@ -206,7 +383,7 @@ magnet:?xt=urn:btih:D4FF951738BEB683EA8833F0B600E91FA3973B5D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145674.jpg" />
 </div>
 
 
@@ -230,7 +407,7 @@ magnet:?xt=urn:btih:09B10AE5966413EB2D51E961452ACE84B6D3CA64
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145675.jpg" />
 </div>
 
 
@@ -254,7 +431,7 @@ Total Commander 9.0a Final MAX-Pack Extended 2016.12.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145676.jpg" />
 </div>
 
 
@@ -278,7 +455,7 @@ magnet:?xt=urn:btih:43E27ED898027CE0934C659EF32E678E120D6983
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145677.jpg" />
 </div>
 
 
@@ -302,7 +479,7 @@ magnet:?xt=urn:btih:BAE733795C8E8C272B295049E11FC7EB0BF06813
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145678.jpg" />
 </div>
 
 
@@ -326,7 +503,7 @@ magnet:?xt=urn:btih:B3C1B28C10B11C48F7F7BB941A124BD72D6A16F4
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145679.jpg" />
 </div>
 
 
@@ -350,7 +527,7 @@ VA - Fear FM Hardstyle Top 40 January (2012) Unmixed [MP3|320 Kbps] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145681.jpg" />
 </div>
 
 
@@ -377,7 +554,7 @@ magnet:?xt=urn:btih:8A39C8DECEF371D8F740BEB4C017C0A85AB2E840
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145682.jpg" />
 </div>
 
 
@@ -403,7 +580,7 @@ magnet:?xt=urn:btih:21CF27C364E1F3C0828A13DC5E55051CDB2D476F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145684.jpg" />
 </div>
 
 
@@ -427,7 +604,7 @@ Dan Lucas - The Long Road (2021) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145685.jpg" />
 </div>
 
 
@@ -454,7 +631,7 @@ magnet:?xt=urn:btih:6F5B7BE2CAC081E525784D45608A493E19102728
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145686.jpg" />
 </div>
 
 
@@ -465,184 +642,6 @@ magnet:?xt=urn:btih:6F5B7BE2CAC081E525784D45608A493E19102728
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A073388BC0BABB950216024912BFDE2980429284
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087183   (145687) от 27.12.2016
-
-Substance Painter 2.4.1 build 1383 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Painter - современное решение для 3D-рисования с невиданными возможностями и оптимизированным рабочим процессом, позволяющее создавать текстуры проще, чем когда-либо.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6521F42F0382175E4403BAB969844C58F76FF83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969975   (145688) от 28.12.2015
-
-VA - Chillout 2016 Best of 30 Top Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illuminus - The Purrts Of Navarone [06:55]
-02. Lemonchill - I Missed a Heart Beat - Deep in Mind Remix [06:09]
-03. Argus - Elenya [07:13]
-04. Flux Natura - Reconnect to Our True Elves [12:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E7D7EAD97457965022049D389B0A5EB68872E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520126   (145689) от 26.12.2021
-
-Cocktail Monterey Edition 15.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cocktail - комплекс утилит по всестороннему обслуживанию вашего Mac, который помогает каждый день получить от своего компьютера максимальную отдачу. Приложение позволяет: исправить права доступа к файлам, оптимизировать сетевое соединение, очистить всевозможные кэши (системные и пользовательские), воспользоваться скрытыми настройками, автоматизировать выбранные процессы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.12.2021Разработчик: © 2021 MaintainПоддерживаемая ОС: macOS 11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669C7AFB7BD1849E505948D8EF8428D325CB4F83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347847   (145691) от 26.12.2019
-
-Противостояние / The One (2001) BDRip [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если твой мир рушится, когда в него вторгается безжалостный пришелец из параллельных миров? Стремясь стать сверхчеловеком, агент Межпространственного Бюро Расследований Юло совершает головокружительное сафари по параллельным мирам, охотясь за своими двойниками.
-Силы его растут с каждой новой жертвой, их жизненная энергия аккумулируется в нем, наделяя (   Читать дальше...   )Производство: США / Revolution Studios, Hard Eight PicturesЖанр: фантастика, боевик, триллерРежиссер: Джеймс ВонгАктеры: Джет Ли, Джейсон Стэтхэм, Карла Гуджино, Делрой Линдо, Джеймс Моррисон, Дилан Бруно, Ричард Стейнметц, Стив Рэнкин, Такер Смоллвуд, Харриет Сэнсом ХаррисПеревод: Дублированный, многоголосый профессиональный, двухголосый профессиональныйСубтитры: русские, английскиеПродолжительность: 01:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759F6DA5E359EEC0BF544F9B80B7E8615BC2E810
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086484   (145692) от 27.12.2016
-
-Одноклассницы (2016) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три подруги Вика, Света и Даша бросают свои дела и едут в Сочи на девичник к бывшей однокласснице Кате, чтобы как следует там оторваться. Веселье в разгаре и шампанское льется рекой, но тут случается то, чего никто не мог ожидать — в самый разгар праздника Катя застает своего жениха с пышногрудой блондинкой. Невеста в истерике. Она запирается в номере и говорит, (   Читать дальше...   )Производство: Россия / Russian World Vision, КинофирмаЖанр: КомедияРежиссер: Дмитрий СуворовАктеры: Светлана Ходченкова, Екатерина Вилкова, Валентина Мазунина, Ольга Кузьмина, Арарат Кещян, Роман Юнусов, Илья Любимов, Антон Макарский, Денис Косяков, Дмитрий ХрусталевПеревод: Не требуется (Русский, лицензия)Субтитры: ОтсутствуютПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04B255314BD4DB8C6322D935C3F3B1E6BAB64A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272058   (145693) от 26.12.2018
-
-VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [MP3|320 Kbps] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserlight - Intro (1:26)
-02. AlimkhanOV A. - Cold Winter (4:40)
-03. Spacehawk - From The Shadows (4:02)
-04. NeoSpace - Hibernation (6:16)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB97F0E58CBFDB88D9914620AF48805BCC53B866
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969448   (145694) от 28.12.2015
-
-VA - Chilled Christmas (Finest Chill Out & Ambient Christmas Tunes) (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Mars - Only Time (Dub Mars Remix) (04:12)
-02. Newton - Media France (05:29)
-03. PNFA - Roots (05:13)
-04. Weathertunes - Happy Birthday (05:47)(   Читать дальше...   )Производство: City LoungeЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1256E21C48AE9C3A1078CA8D18204C3154CE793D
 ```
 
 

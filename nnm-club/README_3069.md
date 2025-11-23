@@ -1,3 +1,87 @@
+###  Публикация: 471476   (97335) от 21.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 16
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97335.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 16
+Название: Avto Wallpapers Pack 16
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9411A9005F35A965D7A50909EDA397C8C48C4D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471068   (97336) от 21.03.2012
+
+[Wallpapers] HD Pictures №3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97336.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №3
+Название: HD Pictures №3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA7EF50829523D7497521A181821578F2A9F8F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471494   (97339) от 21.03.2012
+
+[Wallpapers] HD Pictures №5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97339.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №5
+Название: HD Pictures №5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D61EF6F2D104BD91487833F9B4DCD2A54E663D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471477   (97340) от 21.03.2012
 
 [Wallpapers] HD Wallpapers Pack 8
@@ -6,7 +90,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97340.jpg" />
 </div>
 
 
@@ -34,7 +118,7 @@ Counter-World Experience - Metronomicon (2009) [MP3|320 кб/с]<Progressive/Jaz
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97341.jpg" />
 </div>
 
 
@@ -66,7 +150,7 @@ magnet:?xt=urn:btih:463C7E9FB6293F7D04B011457367C2544F3497D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97342.jpg" />
 </div>
 
 
@@ -94,7 +178,7 @@ magnet:?xt=urn:btih:1FEB093D9E472A5A7D20A95B1FD343C888D98B3E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97345.jpg" />
 </div>
 
 
@@ -118,7 +202,7 @@ magnet:?xt=urn:btih:E471D6F0CC8FF3D7CF27BCB93DAB63949D8D3A70
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97346.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ VA - Русский Хит - Релиз (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97349.jpg" />
 </div>
 
 
@@ -184,7 +268,7 @@ VA - Super Trance (2012) [MP3|320 kbps]<Trance | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97350.jpg" />
 </div>
 
 
@@ -217,7 +301,7 @@ magnet:?xt=urn:btih:3FBA73BCAA1429BFB79FB7949E1F99D714492336
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97357.jpg" />
 </div>
 
 
@@ -242,7 +326,7 @@ magnet:?xt=urn:btih:0CD0FAB0E115C5E385B2F56A2F7261BDD14D22F5
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97358.jpg" />
 </div>
 
 
@@ -270,7 +354,7 @@ magnet:?xt=urn:btih:7C006C9932FC2C67EA65B8FCC0256952CA632D87
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97360.jpg" />
 </div>
 
 
@@ -298,7 +382,7 @@ Luigi Lusini - Beyond Horizons (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97363.jpg" />
 </div>
 
 
@@ -322,7 +406,7 @@ Ministry - Relapse (2012) Scene [FLAC|Lossless]<Industrial Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97364.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97364.jpg" />
 </div>
 
 
@@ -355,7 +439,7 @@ VA -  Зарубежный Super Хит (2012) [MP3|128 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97366.jpg" />
 </div>
 
 
@@ -388,7 +472,7 @@ magnet:?xt=urn:btih:5CE73824F608098B0992D1FA4CAC2F8CB395AF38
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97367.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ magnet:?xt=urn:btih:A7D0283F50C54FFB5BCEA527027EED95D84B8725
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97369.jpg" />
 </div>
 
 
@@ -440,7 +524,7 @@ Cynic - The Portal Tapes (Compilation) (2012) [MP3|320 кб/с]<Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97372.jpg" />
 </div>
 
 
@@ -473,7 +557,7 @@ magnet:?xt=urn:btih:AB6C0B6E9BF64508DBBC6254F452709BD30F271A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97373.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97373.jpg" />
 </div>
 
 
@@ -498,7 +582,7 @@ magnet:?xt=urn:btih:AB6C0B6E9BF64508DBBC6254F452709BD30F271A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97375.jpg" />
 </div>
 
 
@@ -523,7 +607,7 @@ magnet:?xt=urn:btih:1859331644D29E26F34D05B106E56CC94EC58248
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97376.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97376.jpg" />
 </div>
 
 
@@ -547,7 +631,7 @@ magnet:?xt=urn:btih:1859331644D29E26F34D05B106E56CC94EC58248
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97378.jpg" />
 </div>
 
 
@@ -571,7 +655,7 @@ VA - Trance Angels  Vol 1-4 (2010-2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97379.jpg" />
 </div>
 
 
@@ -604,7 +688,7 @@ Anna Luca - Listen And Wait (2012) [MP3|320 кб/с]<Acoustic, Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97384.jpg" />
 </div>
 
 
@@ -637,7 +721,7 @@ magnet:?xt=urn:btih:B50CA1DFECCD46F78794394FC0E356311399A456
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97385.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97385.jpg" />
 </div>
 
 
@@ -648,96 +732,6 @@ magnet:?xt=urn:btih:B50CA1DFECCD46F78794394FC0E356311399A456
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470386   (97388) от 21.03.2012
-
-VA - Весенние Танцевальные Хиты. Зарубежный (2012) [MP3|256 кб/с]<Dance, Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97388.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Otherview - So Long (Rivaz Club Mix)
- 002. Sugababes - Freedom (Radio Rip)
- 003. Jack Holiday & Mike Candys - Children (Radio Edit)
- 004. Christina Perri - Jar of Hearts
- 005. E-Partment feat. Kandy - Hang On (Original Mix)
- 006. LaRoxx Project - Jabba Jabba (Radio Edit)
- 007. Jochen Miller - Flashback (Gregori Klosman Remix)
- 008. BunHeaD - Am The Best (Kuba S Remix)
- 009. The Disco Boys - Around The World
- 010. Sophie Zelmani - Dreamer2012Жанр: Dance, РорПродолжительность: 05:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793F300312D8159CEA0059BC8CB100FB0F6B2561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471095   (97390) от 21.03.2012
-
-Cynic - The Portal Tapes (2012) [FLAC|Lossless]<Progressive Metal / Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Endeavors (3:55)
-02. Karma's Plight (5:20)
-03. Circle (5:10)
-04. Costumed in Grace (4:24)
-05. Cosmos (4:20)
-06. Crawl Above (3:57)
-07. Mirror Child (5:03)
-08. Road to You (4:24)
-09. Belong (4:19)
-10. Not the Same (4:29)2012Жанр: Progressive Metal / ExperimentalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471211   (97391) от 21.03.2012
-
-Скажи "Да" / Sae-yi yaeseu / Say Yes (2001) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара по случаю годовщины свадьбы отправляется в поездку, даже не догадываясь, каким ужасом все это обернется после встречи в кафе со странным незнакомцем, которому нужно лишь одно - стереть счастье с лица счастливого мужа и заглушить свою собственную боль...Он никогда не спит и думает на два шага вперед, он везде и нигде...и от него не скрыться.Жанр: Триллер, ДрамаРежиссер: Сун-Хун КимАктеры: Пак Чун Хун,  Чу Сан Ми,  Чу-бон ДжиПеревод: Одноголосый закадровыйПродолжительность: 01:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7A913238F7C5F9E0B1B9A58A15236C274E65E8
 ```
 
 

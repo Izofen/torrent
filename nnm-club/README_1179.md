@@ -6,7 +6,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31007.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31007.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31008.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31008.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7501A809C1A8DBBD58DDD03C6D2AA81D35A4DFB1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31009.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AAB071A4420F20A3836818ED39F6910AE0FEB4AD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31010.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31010.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9DC8418C9C257D7334BF94D8C65594E4E19097A6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31011.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31011.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:82D0EC79D6B0075727E6EB379DA07E3CF7830CA3
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31012.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31012.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ HWiNFO 8.20 Build 5640 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31013.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ YTDisBystro (универсальная сборка на основе Zapret) 2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31014.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31014.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.01.09 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31015.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31015.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:9A861CFA3A4C94E8353E46726042B89B249D7176
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31016.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31016.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:45BBB3BBBEBD7DBACA8C3FB917110C9391145AC7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31017.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E95B970DF68424DE6DC0A66123F066D87EA37F64
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31018.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:93FE137161520836260E89BD991579FD0CE484BC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31019.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:66838F459611F1F89DC69117D0AAF948C8D56A61
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31020.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31020.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:2F499ACFA1C83B6C22A2FBDF6C71CF2ED201E1A3
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31021.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:2F499ACFA1C83B6C22A2FBDF6C71CF2ED201E1A3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31022.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7AF492FF4AF5EC195BF8641F62BC2EF9A641522F
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31023.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:6B4F341B2E815ACACE39A1A42DFEA3A99E5BE58F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31024.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B2673A7BA909251F589F4846BEF168DE5DE9741E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31025.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:DFD108B7A477A9BF73193FFB0DC8EEE6DE1085B0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31026.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:4B43253D1CDD1051F35BDDB30E52E8DEBEFECD2C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31027.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31028.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:41746758193F1BD3E081B1F109479ECCA6C8BC27
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31029.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Altus 5.4.0  (Альтернатива WhatsApp Desktop) Repack & Portable by el
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31030.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31030.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:81E6C11D04FF9EB6AFDCC52980C06B1702078DB7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31031.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AOMEI Backupper Technician Plus 7.4.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31032.jpg" />
 </div>
 
 

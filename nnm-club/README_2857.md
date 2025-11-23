@@ -1,3 +1,83 @@
+###  Публикация: 470438   (83303) от 20.03.2012
+
+Беспечный ездок / Easy Rider (1969) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое байкеров на деньги от контрабанды мексиканских наркотиков пускаются на поиски свободы по южным штатам Америки — из Калифорнии в Луизиану, чтобы успеть на марди-гра. В дороге они понимают, что Америка отнюдь не свободная страна. Чем дальше они заезжают, тем больше рушится у них представление о полной свободе. Никто не подозревал что все так закончится, разрушится как карточный домик их вера, свобода. Люди не могли воспринимать тех, кто хочет жить не так как все. К ним относятся как к преступникам, хотя от тех кто их ненавидит они отличаются только внешним видом, своей индивидуальностью, и непременно тягой к свободе...Жанр: Драма, КриминалРежиссер: Деннис ХопперАктеры: Питер Фонда, Деннис Хоппер, Антонио Мендоза, Фил Спектор, Уоррен Финнерти, Тита Колорадо, Люк Аскью, Луана Андерс, Сэнди Браун Уайет, Роберт Уокер мл., Роберт Болл, Кармен Филлипс, Элли Вуд Уолкер, Майкл Патаки, Джек Николсон, Джордж Фоулер мл., Кейт Грин, Хейярд Робиллард, Арнольд Хесс мл., Даффи ЛафонтПеревод: Многоголосый закадровый, Авторский одноголосыйЯзык субтитров: Русский, Английский, Английский (SDH)Продолжительность: 01:35:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470271   (83304) от 20.03.2012
+
+Зубная фея 2 / Tooth Fairy 2 (2012) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потеряв девушку, Ларри пытается все исправить, но случайно ему удается обидить одного ребенка сказав, что Зубной Феи не существует. За это Ларри наказывает 500-летняя Зубная Фея. Теперь ему предстоит отработать неделю феей и принести им 10 молочных зубов, иначе его лишат лучшего воспоминания в жизни.Жанр: КомедияРежиссер: Алекс ЗаммАктеры: Ларри Кейбл Гай, Дэвид Маккей, Брэйди Рейтер, Люсиус Бастон мл., Джейкоб Бертран, Шерил КарбонеллПеревод: Любительский многоголосыйЯзык субтитров: АнглийскийПродолжительность: 01:30:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469792   (83306) от 20.03.2012
+
+Вспоминая Титанов / Remember the Titans (2000) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83306.jpg" />
+</div>
+
+
+###  Подробнее
+
+При виде этих могучих статных парней девушки падают в обморок, а их кавалеры от зависти проливают свое пиво. Это игроки в одну из самых жестких и динамичных спортивных игр мира - американский футбол.
+
+Для них нет большей радости в жизни, кроме как с победным ревом «тачдаун!» впечатать мяч в зачетную зону соперника, оставив за спиной живописную композицию из сшибленных с ног вражеских защитников. Победа!
+
+Но мало кто знает, как труден их путь к славе. Герой этого фильма, тренер Герман Бун - из тех, кто знает. Он пришел в школьную команду «Титаны» когда она совсем не заслуживала свое название.
+
+Преодолевая сопротивление местного тренера Билла Йоста, Бун приступает к превращению банды лоботрясов в дружную команду.
+
+И аутсайдеры «Титаны» постепенно становятся уверенными в себе грозными игроками, готовыми биться за звание чемпионов штата...Жанр: ДрамаРежиссер: Боаз ЯкинАктеры: Дензел Вашингтон, Уилл Пэттон, Вуд Харрис, Райан Херст, Дональд Фэйсон, Крэйг Кирквуд, Этан Сапли, Кип Парду, Хайден Панеттьери, Николь Ари ПаркерПеревод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:53:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470834   (83307) от 20.03.2012
 
 Amulet of Time: Shadow of La Rochelle / Путешествие во времени. Тени в Ла Рошель (P) [Ru] 2012
@@ -6,7 +86,7 @@ Amulet of Time: Shadow of La Rochelle / Путешествие во времен
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83307.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:C66D19EDE81CBF18AED06710BB26A4E954925C08
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83308.jpg" />
 </div>
 
 
@@ -55,7 +135,7 @@ John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83309.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ magnet:?xt=urn:btih:9C4C59EC3F1661C6513268FAD7663EC120E5A523
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83310.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ The KMPlayer 3.2.0.12 Final Portable by PortableAppZ + Skins [Мульти, ес
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83312.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ Ottawan - Greates Hits (2007) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83313.jpg" />
 </div>
 
 
@@ -171,7 +251,7 @@ Slim - Весна-Лето [EP] (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83314.jpg" />
 </div>
 
 
@@ -199,7 +279,7 @@ magnet:?xt=urn:btih:F7B8D1FA2DF3DCFA586E6C16BBC384B614872AED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83319.jpg" />
 </div>
 
 
@@ -223,7 +303,7 @@ magnet:?xt=urn:btih:F7B8D1FA2DF3DCFA586E6C16BBC384B614872AED
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83320.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ VA - Дорожный патруль. Музыка в дорогу (2012) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83322.jpg" />
 </div>
 
 
@@ -282,7 +362,7 @@ magnet:?xt=urn:btih:A1016EB1FAEA9C58287904D9F80DE08D5F84B071
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83324.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ magnet:?xt=urn:btih:DA7B1F64088CE050868CE4D6BDFD8293D45C2948
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83325.jpg" />
 </div>
 
 
@@ -330,7 +410,7 @@ magnet:?xt=urn:btih:B74EC638DFA300DCD06376DBC89701FC96593807
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83326.jpg" />
 </div>
 
 
@@ -354,7 +434,7 @@ Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 200
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83328.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ magnet:?xt=urn:btih:81F57A7ADB6D89BE419FB4FEB501C8FDA4472290
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83329.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ Dr.Web CureIt 6.0.16 от 16.03.2012 года[Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83330.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ Dr.Web CureIt! 6.0 - Бесплатный антивирусный сканер 
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83331.jpg" />
 </div>
 
 
@@ -453,7 +533,7 @@ magnet:?xt=urn:btih:7437854771554C79A4C5185F1E8AFC1029A77621
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83332.jpg" />
 </div>
 
 
@@ -477,7 +557,7 @@ magnet:?xt=urn:btih:AD01B111AEC0DC3D567E4C25637FD1DBB4A49E17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83336.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ magnet:?xt=urn:btih:AD01B111AEC0DC3D567E4C25637FD1DBB4A49E17
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83337.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ magnet:?xt=urn:btih:1AC50E978A4B396807FD2208A40AECB4AC3FA7E5
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83339.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ magnet:?xt=urn:btih:1AC50E978A4B396807FD2208A40AECB4AC3FA7E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83342.jpg" />
 </div>
 
 
@@ -582,7 +662,7 @@ magnet:?xt=urn:btih:1AC50E978A4B396807FD2208A40AECB4AC3FA7E5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83345.jpg" />
 </div>
 
 
@@ -593,78 +673,6 @@ magnet:?xt=urn:btih:1AC50E978A4B396807FD2208A40AECB4AC3FA7E5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C46EE8AD503DDED95036D75F37C95C0A82F560C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470297   (83346) от 20.03.2012
-
-Ключи для Kaspersky IS & AV 19 марта 2012
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файлы активации различных программ Лаборатории КасперскогоНазвание программы: Ключи для Kaspersky IS & AV 19 марта 2012
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470566   (83348) от 20.03.2012
-
-Я бы не хотел умереть в воскресенье / Jaimerais pas crever un dimanche (1998) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бен работает в морге. Его жена бросила его,близкий друг серьёзно болен, а он сам ищет утешения в экстермальных, альтернативных сексуальных играх...Жанр: Драма, ЭротикаРежиссер: Дидье Ле ПешоАктеры: Элоди Буше, Жан-Марк Барр, Патрик Каталифо, Жан-Мищель Фет, Флоранс Дарель, Жан-Жак ВайнерПеревод: Одноголосый закадровыйПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE22368365D5400438A1F48309BC3C8FD97CC935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469873   (83349) от 20.03.2012
-
-Полночь в Париже / Midnight in Paris (2011) Blu-ray [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель и безнадежный романтик, уверенный в том, что должен был жить в 1920-е годы, приезжает в Париж со своей возлюбленной на каникулы и попадает в прошлое. Встречаясь там с Хемингуэем, Пикассо, супругами Фицжеральдами, Гертрудой Стайн он понимает, что принадлежит этому времени и хочет остаться там навсегда.Производство: США, Испания / Gravier Productions, Mediapro, Televisiо de Catalunya (TV3)Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Вуди АлленАктеры: Оуэн Уилсон, Рэйчел МакАдамс, Курт Фуллер, Мими Кеннеди, Майкл Шин, Карла Бруни, Морис Зонненберг, Тьерри Ханчиссе, Эдриан Броуди, Марион Котийяр, Кэти Бейтс, Том ХиддлстонСубтитры: (PGS) РусскиеПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -6,7 +6,7 @@ FontExplorer X Pro 3.5.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135587.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135587.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Netrunner (интеграция KDE в Ubuntu) 12.12 [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135604.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135604.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Voyager 12.10 [x86-64] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135609.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135609.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Voyager 12.10 [x86-64] (1xDVD)
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135616.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ ScreenFlow 4.0.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135618.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Armin Van Buuren - A State Of Trance Yearmix 2012 (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135622.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:10EB98CCE3B4E1D737903F97591B8B7652927CA5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135633.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Sabicas & Escudero - The Fantastic Guitars (2011) [FLAC|Lossless]<Flamenco, Guit
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135638.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135638.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Flamenco in HI-FI with Anita Ramos
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135642.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ EZ CD Audio Converter 1.0.4.2 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135645.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135649.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7602786CB8DAAB9BFEDD475595947358B06FF2E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135652.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:4B884A15CE9C26A1644863948164EBD9DB12F1DB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135653.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135653.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Armin van Buuren - A State of Trance 592 (Top 20 of 2012) (2012) [MP3|256 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135662.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:1C52A74DFDD57B2D8828774198BD725C760E95BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135665.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:5D2AA1F20CC3803E33927C408DFFF2D66C0188BB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135672.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:69DE2990C8425BD0791018F41BC496322BBFDB3D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135675.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:99D781DF268E378205A0DA6BEFB33C01AD376A8C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135692.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:74138201B437A7162171FE28A0577435CB410C93
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135700.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135704.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/death
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135706.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Butterfly - Favorite Colors Episode 063: End of Year 2012 (Part. 1) (22.12.2012)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135709.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135712.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Animal Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135713.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Freddy Todd - Sick in the City, Alive in the Woods (2012) [MP3|320 kbps]<Dubstep
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135719.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:A4222B2A149210E9DDA3814AB5D6695B275FAA16
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135731.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135731.jpg" />
 </div>
 
 

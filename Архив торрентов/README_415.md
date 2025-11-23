@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97052.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:72239D999F5AD95335C68EB4EE064ABAB924A57A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97053.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:29881536FC8AA8E472B76ED2F087F6E0A0BCFD60
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97054.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Зарубежная Танцевалка (2012) [MP3|256 кб/с]<Pop,Danc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97055.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ magnet:?xt=urn:btih:0B80C1BA26BAE50F160FB1368C00121D56601D79
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97056.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:9DE9E3E188076F6F216EEC7C00E1D24F45D60AD9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97057.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:F3C6273204F4B8B8985EA45CA974F2D4C58E660E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97058.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9903D6AE293F15E5B0FC8C8E2BFD48D7134985F0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97060.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Arkania - La Bestia Dormida (2011) [MP3|320 кб/с]<Heavy Metal, Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97062.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:F2CC5B5EC717A3D90113680924B37EBAF61CC741
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97063.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Johnny Griffin - 2 альбома (1993-2009) [WavPack|Lossless]<Bop, Hard Bop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97064.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97064.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - TMP : Vanilla Dreams 063 (2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97066.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:0267E825E0F929147C1A90B56305C87ADC2DECE5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97067.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - TMP : Vanilla Dreams 064 (2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97068.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - XXXL Союз Record №52 50/50 (2012) [MP3|256 кб/с]<Pop,Dance,Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97069.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:AF8ADD96A990778E7CD8045AF808566E0BC05CC4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97070.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - TMP: Clear Sky 063 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97071.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Yehudi - Groove Technology (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97072.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - TMP: Clear Sky 064 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97073.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:FE4AD5F44ED43E3CAE7402DF04A27ECA68B04A7E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97074.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:5C30AFFB9943BB0CB086ED0CAA568E3A2B4AA381
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97075.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:90D4F96571D5B5AA160FAB0A190F560F144F366F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97077.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:1E1E361F0AD71E6E35AA9C27F4ECB3D6B1CA9354
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97078.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ magnet:?xt=urn:btih:39DC113BA548253394026EEE78A3DC7C177BE675
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97079.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ VA - Звезды блатной волны (2012) [MP3|256 кб/с]<Шансо�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97083.jpg" />
 </div>
 
 
@@ -751,7 +751,7 @@ VA - Зажигательный музон (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97085.jpg" />
 </div>
 
 

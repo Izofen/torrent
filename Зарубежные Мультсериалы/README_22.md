@@ -1,3 +1,27 @@
+###  Публикация: 700263   (212889) от 03.07.2022
+
+Максипес Фик / Maxipes Fik (1975-1981) 2хDVD5
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения маленькой девочки Айи и ее друга - большого пса, а точнее Максипса по имени Фик. Откуда же взялся Фик? Однажды папа принес Айе щенка. Девочка назвала его Фик. Фик очень много ел и очень быстро рос. Сначала он вырос из обувной коробки, потом из корзины, а вскоре и из собачьей будки. Папа был в отчаянии и уже хотел продать прожорливого пса. Но когда Фик (   Читать дальше...   )Производство: ЧехословакияЖанр: Рисованная анимацияРежиссер: Вацлав БедржихПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 02:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9967C2D99496B466F1972064C7DC21ED4F9986E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181394   (213096) от 24.06.2022
 
 Микки и веселые гонки / Mickey and the Roadster Racers (2017) SATRip (Сезон 1, серий 26 из 26)
@@ -6,7 +30,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213096.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213096.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:D7217BB37093D9FD59808028B68E2D893E0EC3A4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213223.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213223.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:4B58DDB1EE3BCAA0B6FAB9FE92891348EF662BD8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214029.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214029.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:1A5A4C391CBA26A9D64944C4A1279FEE30DE5DCB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214158.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214158.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ magnet:?xt=urn:btih:A84390FBE9711B41EDB108FE9ECA22ABDB71AE2E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215350.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215350.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ magnet:?xt=urn:btih:3EFD337FED4205A9365BF17DE01EB244D095FD53
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215565.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215565.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ magnet:?xt=urn:btih:A3F44B40F9BB454D6510A7C93CEAC94BC8A39417
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215576.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215576.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ magnet:?xt=urn:btih:8067AB4E7B658167D0F7DEC327685A110A9C5FF9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217272.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217272.jpg" />
 </div>
 
 
@@ -199,7 +223,7 @@ magnet:?xt=urn:btih:AD0B44766F70CF938F9DB35AF7C4C48337E5B166
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218477.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218477.jpg" />
 </div>
 
 
@@ -223,7 +247,7 @@ magnet:?xt=urn:btih:A4384A57F1A55BE29A2954B625A14DA6B92DDADA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219721.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219721.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ magnet:?xt=urn:btih:AC041EF854D514E5DFD6F41DF6962C07E00F917D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219787.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219787.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ magnet:?xt=urn:btih:67A628DE19641D4BF0817A2A4D01F3CED7FBAD52
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220271.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220271.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ magnet:?xt=urn:btih:2EC7AAC0D27577A2A3C64BAC70D1696118718CA9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220396.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220396.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ magnet:?xt=urn:btih:811EFFE7F56C9856D2A7404B3CE64B5AA813181C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220419.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220419.jpg" />
 </div>
 
 
@@ -344,7 +368,7 @@ magnet:?xt=urn:btih:A2209A71AA556503C458B6F7B611B5CC64BD4583
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220969.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220969.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ magnet:?xt=urn:btih:5CAD0E161866ADE2EE4410F6D491A12E2616878A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221214.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221214.jpg" />
 </div>
 
 
@@ -392,7 +416,7 @@ magnet:?xt=urn:btih:84F62B3945C697C5A7025BDB747E6E0ECBA0E45A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221216.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221216.jpg" />
 </div>
 
 
@@ -417,7 +441,7 @@ magnet:?xt=urn:btih:A482FAFD55D2F46FEFDDD7EB5E5D9AA734A7B277
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222953.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222953.jpg" />
 </div>
 
 
@@ -441,7 +465,7 @@ magnet:?xt=urn:btih:CF72FC23825323FBA56F4465CB36B984FC3898AC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223073.jpg" />
 </div>
 
 
@@ -465,7 +489,7 @@ magnet:?xt=urn:btih:412E0712DCE91F22D72626D87C664FBC0143AAE1
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223420.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223420.jpg" />
 </div>
 
 
@@ -489,7 +513,7 @@ magnet:?xt=urn:btih:50E1910C250F537649234738D342F22A9E245EFC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223623.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223623.jpg" />
 </div>
 
 
@@ -513,7 +537,7 @@ magnet:?xt=urn:btih:BC475A0BB74C84B034B7763B6BEC858FFE43A047
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224236.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224236.jpg" />
 </div>
 
 
@@ -538,7 +562,7 @@ magnet:?xt=urn:btih:1779B4DEA8FCD9556546AEDFBEE685DCC88B61BF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225610.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225610.jpg" />
 </div>
 
 
@@ -564,7 +588,7 @@ magnet:?xt=urn:btih:A3DEF1CC903A81AA89B075AF3803F898D412251C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228039.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228039.jpg" />
 </div>
 
 
@@ -588,7 +612,7 @@ magnet:?xt=urn:btih:E19691F866E29845C422BFEAF8BA119C95BCF286
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228061.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228061.jpg" />
 </div>
 
 
@@ -599,30 +623,6 @@ magnet:?xt=urn:btih:E19691F866E29845C422BFEAF8BA119C95BCF286
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A0729D848233EA70B034C49FFD6A06E8DF18BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463791   (228360) от 26.11.2021
-
-Солнечные противоположности / Solar Opposites (2021) WEB-DLRip (сезон 2, серии 1-9 из 9) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы, спасаясь со своей умирающей планеты, потерпели крушение на Земле и теперь вынуждены прикидываться обычными людьми. Человеческая цивилизация вызывает у гостей из другого мира немало вопросов, и они никак не могут до конца решить, хорошая она или нет. Точно известно только одно: они должны защищать Пупу — живой суперкомпьютер, который однажды эволюционирует, (   Читать дальше...   )Производство: США, 20th Century Fox Television, Fox Television Animation, Justin Roiland's Solo Vanity Card Productions, Walt Disney Pictures and TelevisionЖанр: Для взрослых, комедия, фантастикаРежиссер: Майк МакМахан, Джастин РойландПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика.Субтитры: отсутствуютПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131D531632953D8EE8F4FA7C60C7A014C8C64AF8
 ```
 
 

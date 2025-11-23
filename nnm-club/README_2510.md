@@ -6,7 +6,7 @@ Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66008.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66009.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66010.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Grace Potter - Medicine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66011.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nicole Lawrence - Time In Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66012.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:398ACA5D71725242125E16AE48F4BE54ED531DD3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66013.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Pieces Of A Dream - We Got This (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66014.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Seth MacFarlane - Blue Skies (2022) Verve [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66015.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Paul Steward - You Can Dance to My Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66016.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Mick Clarke - Mozelle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66017.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ e-Dancer, Kevin Saunderson, Dantiez - e-Dancer (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66018.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ BunnyDad - Past Journey (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66019.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Los Angeles Side Hustle - Los Angeles Side Hustle (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66020.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Clementine Moss - Clem & Clearlight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66021.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Kjartan Hesthagen, Ledfoot, Markus O. Klyve, Tim Scott McConnell - Plain Simple 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66022.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ David Cooper - David Cooper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66023.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Leo Cookman - Everyone Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66024.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Fred Hostetler - Blues Back Pages (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66025.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Chris & Mike - unique (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66026.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66027.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66028.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Brewer's Droop - The Booze Brothers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66029.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66030.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Pretenders - The Pretenders (1979) CD, Album, Reissue 1980 [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66031.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ The Guildmaster - GATHERING OF SOULS (2025) [FLAC|Lossless|tracks + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66032.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66033.jpg" />
 </div>
 
 

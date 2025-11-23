@@ -1,3 +1,80 @@
+###  Публикация: 470425   (83041) от 19.03.2012
+
+Turbo Gems (P) [En] 2010
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Gems - красиво оформленная игра, в современном стиле с хорошей графикой, для любителей match-3 и тетриса. Сидите Вы в своем космическом корабле, бездельничаете, как вдруг внезапно, без предупреждения, блестящие драгоценные камни начинают материализоваться прямо в Вашем космическом корабле! Располагайте их по принципу "3 в ряд" и препятствуйте тому, чтобы стек драгоценных камней заполнил Ваш космический корабль, иначе Ваш полет окончен. 3 замечательных режима игры и 21 трофей для победителя!Тип издания: ПираткаЖанр: Три в ряд, тетрисыЯзык озвучки: n/aЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93F342329CC155C0C025B1EAB228AC3DCABBCEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470166   (83045) от 19.03.2012
+
+Парижанка / A Woman of Paris: A Drama of Fate (1923) [1080p] Blu-Ray
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психологическая драма «Парижанка» легендарный немой фильм о нравах высшего общества, в котором Чарли Чаплин продемонстрировал целый набор новых выразительных средств, совершенно неожиданных для кино того времени. Критикам этот фильм Чаплина очень понравился, но зрители, влюбленные в Маленького Бродягу, отнеслись к нему с прохладцей.
+
+Только по прошествии многих лет стало очевидно, что гений Чаплина распространяется далеко за пределы образа Бродяги Чарли. Фильм «Парижанка», направленный против ханжества и аморальности современного общества, оказал огромное влияние на многих режиссеров мелодрам о жизни высшего света.Жанр: драма, мелодрамаРежиссер: Чарльз ЧаплинАктеры: Эдна Пурвинс, Кларенс Гелдарт, Карл Миллер, Лидия Нотт, Чарльз К. Френч, Адольф Менжу, Бетти Мориссей, Мальвина Поло, Нелли Блай Бэйкер, Генри Бергман,Перевод: НемойПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A467841A944BE0B1FC4EEEA592741668BA43566
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469910   (83048) от 19.03.2012
+
+Формула 1. Сезон 2012. Этап 1. Гран-при Австралии. Гонка (Эфир 18.03.2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап чемпионата Formula 1 (F1) состоит из трёх свободных заездов, квалификации (3 сегмента) и гонки.
+Места пилотов на стартовой решётке (старт с места) определяются по итогам квалификации.
+Зачётные очки начисляются первым 10 пилотам по системе "25–18–15–12–10–8–6–4–2–1".
+Состав участников: Red Bull Racing (Vettel - Webber), McLaren Mercedes (Button - Hamilton), Ferrari (Alonso - Massa), Mercedes (Schumacher - Rosberg), Lotus Renault (Raikkonen - Grosjean), Force India (di Resta - Hulkenberg), Sauber (Kobayashi - Perez), Scuderia Toro Rosso (Ricciardo - Vergne), Williams (Maldonado - Senna), Caterham (Kovalainen - Petrov), HRT (de la Rosa - Karthikeyan), Marussia (Glock - Pic).Жанр: СпортТелекомпания: Спорт 1 HDПродолжительность: 02:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F45C2CCDB113F60811C352BF39E27A6B026ACA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470189   (83050) от 19.03.2012
 
 Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless]<Neo-Classic>
@@ -6,7 +83,7 @@ Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83050.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83051.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:3E38C278480FA99DE564BC9AEB083247E8832C1D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83052.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ VA - Russian Pop music (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83055.jpg" />
 </div>
 
 
@@ -114,7 +191,7 @@ magnet:?xt=urn:btih:8F12D1AE86C314816EE53DBEB953449609EF8A42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83056.jpg" />
 </div>
 
 
@@ -138,7 +215,7 @@ magnet:?xt=urn:btih:E00D597AF7AE7F3738EE368108FC6B9964DF807B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83057.jpg" />
 </div>
 
 
@@ -162,7 +239,7 @@ VA - Лучшие из Лучших. Русские Хиты (2012) [MP3|256 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83059.jpg" />
 </div>
 
 
@@ -195,7 +272,7 @@ magnet:?xt=urn:btih:156CAF48C45F0AB2206352B70D5B08F3FDE2113C
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83061.jpg" />
 </div>
 
 
@@ -220,7 +297,7 @@ magnet:?xt=urn:btih:8A639628FEEC8096B758644FB9B57231B6EF5402
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83063.jpg" />
 </div>
 
 
@@ -244,7 +321,7 @@ VA - Дружба начинается с улыбки (1991) [MP3|320 кб/с]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83064.jpg" />
 </div>
 
 
@@ -271,7 +348,7 @@ Alarm from ENOT 1.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83065.jpg" />
 </div>
 
 
@@ -295,7 +372,7 @@ Alarm from ENOT 1.1 [Русский]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83066.jpg" />
 </div>
 
 
@@ -320,7 +397,7 @@ magnet:?xt=urn:btih:574A9B43AA7475B8BCE9EE20C0BFCBAAB2DC0C2E
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83068.jpg" />
 </div>
 
 
@@ -344,7 +421,7 @@ magnet:?xt=urn:btih:574A9B43AA7475B8BCE9EE20C0BFCBAAB2DC0C2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83069.jpg" />
 </div>
 
 
@@ -368,7 +445,7 @@ magnet:?xt=urn:btih:F478769DD70ECF7D736D7AA43FF9B86F257AF871
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83071.jpg" />
 </div>
 
 
@@ -392,7 +469,7 @@ Cubis Gold 2 (P) [En] 2008
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83072.jpg" />
 </div>
 
 
@@ -416,7 +493,7 @@ magnet:?xt=urn:btih:B39FDC3089A60D0FDE5E0E94A96AF981F36E4D79
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83073.jpg" />
 </div>
 
 
@@ -440,7 +517,7 @@ magnet:?xt=urn:btih:8EE00553796F2DEAD87AA7BA2A9D110A7958D604
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83074.jpg" />
 </div>
 
 
@@ -464,7 +541,7 @@ magnet:?xt=urn:btih:8EE00553796F2DEAD87AA7BA2A9D110A7958D604
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83075.jpg" />
 </div>
 
 
@@ -488,7 +565,7 @@ magnet:?xt=urn:btih:16587D85C0FDBEDBD2963801B0422A23A8BFD0E5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83077.jpg" />
 </div>
 
 
@@ -512,7 +589,7 @@ Dream Mysteries: Case of the Red Fox / Тайны грёз: История ры�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83078.jpg" />
 </div>
 
 
@@ -536,7 +613,7 @@ magnet:?xt=urn:btih:C594B75AEB0C68D3796ECE1A6777CB4B9E6464DF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83079.jpg" />
 </div>
 
 
@@ -560,7 +637,7 @@ magnet:?xt=urn:btih:D86E9B51AE5771F5E68C9F543232DB5683DF6142
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83080.jpg" />
 </div>
 
 
@@ -571,78 +648,6 @@ magnet:?xt=urn:btih:D86E9B51AE5771F5E68C9F543232DB5683DF6142
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD03893372DB7D82C4C211CD00CE22630F4E7203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470234   (83082) от 19.03.2012
-
-Послание / The Message (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Военный, Драма, ВестернРежиссер: Мустафа Аккад / Moustapha AkkadАктеры: Энтони Куинн - ХАМЗА, Ирен Папас - ХИНТ, Майкл Ансара - АБУ СУФЬЯН, Джонни Секка - БИЛЯЛ, Майкл Форест - ХАЛИД, Дэмиен Томас - ЗАЙДПеревод: Одноголосый закадровыйПродолжительность: 2:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A58E9CAE14F853E06F95414B82805A899EA4B15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469699   (83083) от 19.03.2012
-
-А.Бузуев, А.Мерцалов | Школа бильярда / Эффективная методика обучения (2008) DVDRip
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уроки игры на русском бильярде от Аслана Бузуева, Антона МерцаловаЖанр: СпортПродолжительность: 2 х 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABA0521259C37A2F3E3DE9C8B86DE0E8864AD01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470175   (83093) от 19.03.2012
-
-Картинки - Самураи.Гравюры Куниёси Утагава [JPEG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 2041*2710...2570*3880Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F5004EE113837348352894293274AFC76BA466
 ```
 
 

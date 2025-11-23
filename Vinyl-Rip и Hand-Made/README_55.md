@@ -1,3 +1,111 @@
+###  Публикация: 1650659   (206467) от 12.08.2023
+
+Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eleine - шведская метал-группа, образованная в 2014 году, известная своим звучанием в стиле «дарк-симфо-метал» с влиянием блэк-метала, дэт-метала и трэш-метала.2015 - Eleine
+2018 - Until The End
+2020 - Dancing in Hell
+2023 - We Shall RemainЖанр: Symphonic MetalПродолжительность: 03:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5CAD9E055657ADBC21805EB2D811DF9AF0DEE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311369   (206695) от 03.10.2022
+
+Middle Of The Road - Middle Of The Road (1972/1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206695.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Talk Of All The USA
+A2	Samson And Delilah
+A3	Try A Little Understanding
+A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: Pop Rock, Classic Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530138   (206839) от 01.10.2022
+
+Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slipknot — американская ню-метал-группа, образованная в сентябре 1995 года в Айове, США.1997 - Mate.Feed.Kill.Repeat
+1999 - Slipknot (10th Anniversary Edition)
+2001 - Iowa (10th Anniversary Edition)
+2004 - Vol. 3 (The Subliminal verses)Жанр: Nu Metal, Groove MetalПродолжительность: 09:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183813   (206927) от 06.08.2023
+
+Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01 Atomic
+ 02 Some Other Place, Some Other Time
+ 03 Star Vision(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612594   (207094) от 17.02.2023
 
 ВИА Синяя птица - Коллекция (1977-1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
@@ -6,7 +114,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207094.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Immortal - Studio Albums (8 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207230.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207230.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ Queen - Greatest Hits (1990) Мелодия, по лицензии EMI Records L
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207268.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207268.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207678.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207751.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207751.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unoffici
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207971.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207971.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ Megadeth - Дискография (23 releases) (1985-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207992.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207992.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Blackmore's Night - Дискография (13 albums) (1997-2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208677.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208677.jpg" />
 </div>
 
 
@@ -225,7 +333,7 @@ VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209153.jpg" />
 </div>
 
 
@@ -252,7 +360,7 @@ VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209223.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209223.jpg" />
 </div>
 
 
@@ -279,7 +387,7 @@ Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209326.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209326.jpg" />
 </div>
 
 
@@ -306,7 +414,7 @@ Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209828.jpg" />
 </div>
 
 
@@ -333,7 +441,7 @@ VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210213.jpg" />
 </div>
 
 
@@ -360,7 +468,7 @@ magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210261.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210261.jpg" />
 </div>
 
 
@@ -387,7 +495,7 @@ magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210315.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210315.jpg" />
 </div>
 
 
@@ -414,7 +522,7 @@ magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210780.jpg" />
 </div>
 
 
@@ -441,7 +549,7 @@ Alice Cooper - Легенды Зарубежного Рока (2000) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211108.jpg" />
 </div>
 
 
@@ -468,7 +576,7 @@ magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211271.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211271.jpg" />
 </div>
 
 
@@ -495,7 +603,7 @@ Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211409.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211409.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211473.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211804.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211882.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211882.jpg" />
 </div>
 
 
@@ -586,114 +694,6 @@ Gloryhammer — шотландская пауэр-метал-группа, ос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD43CF7A96F69B1C66BAF50A6C8A2AAA715EC087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638614   (211934) от 09.06.2023
-
-Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Hear You Calling Me
-02. Nasty Reputation
-03. Dreams Of Passion(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6FAB84FC4BA1F43C91B6643E388F302776B9CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638374   (212054) от 08.06.2023
-
-Sweet - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Set Me Free
-02. Keep It In
-03. Give The Lady Some Respect(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042660   (213384) от 13.06.2022
-
-Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213384.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Берегись • Watch Out
-А2 Руки Прочь • Hands Off
-А3 Щит И Меч • Shield And Sword
-А4 Еще Раз Ночь • It's Night Once Again(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042647   (213390) от 13.06.2022
-
-Август - Ответный Удар (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213390.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Орел
-A2 Ответный Удар
-A3 Гонка
-A4 Точка Отсчета(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC495827F156A441266CC297CEF0F26BC359F5A4
 ```
 
 

@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134101.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134361.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8422D7329CB80B87C9821B253B92794561C503BF
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134439.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134439.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8422D7329CB80B87C9821B253B92794561C503BF
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134472.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B489BA6F69381616382145BB96B802058ECAE41A
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134532.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134532.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B489BA6F69381616382145BB96B802058ECAE41A
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134538.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134538.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B489BA6F69381616382145BB96B802058ECAE41A
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134544.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134544.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:B489BA6F69381616382145BB96B802058ECAE41A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134887.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135185.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135193.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ The Concert For Sandy Relief 12-12-12  (2012) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135226.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135226.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ The Concert For Sandy Relief 12-12-12  (2012) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135279.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:6DA9800C707433F3F0E9E87FA58CBA848A387AB0
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135332.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Plies - Hunna (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135370.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135403.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136078.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136078.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136149.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:5BF72601A8A6B48F1459EE4475A6BE86E5D28093
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136611.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ AC/DC - Live At River Plate (2011) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137324.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137434.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:D2B6D4E637483C45DD10D80C6AF12948874B0B0A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137461.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137540.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137594.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:D7CBBEB57F0EF02221D9A751BDECC1CE66EC8381
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137734.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:C2F18FB8E31B7B5E76099D9689E74783FC9CBAB5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137771.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:72B81E6D990A2D1D8B2D179596F5EE0426758B58
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137820.jpg" />
 </div>
 
 

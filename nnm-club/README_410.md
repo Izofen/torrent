@@ -6,7 +6,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10847.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C9BD320DD50609E22700E793F0A9BB979578802
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10848.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.17.30088/dlc) Repack Le
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10849.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VMware Fusion Pro 13.6.1 [En] Build 24319021
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10850.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1DFAC77296BA02311F910FBC4A38A56707E2D71F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10851.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C2DB30348A2702B1DE1EDD4FB6758F458C5C2350
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10852.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:48B5456D1421F59ACDB0AE70CAED9FFA144F641A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10853.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:48B5456D1421F59ACDB0AE70CAED9FFA144F641A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10854.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:DAD23521ABE84993E41A04BE487305988BE3D063
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10855.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:515F928A7576DE690421887594A5BF277B849E4E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10856.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:50B88DCC3177FC83F1DBD972316BEDEA0F2C7748
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10857.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Sketchbook v6.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10858.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:FCCD5331A1EB30468A447177FF7D8EBB9E7BBABA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10859.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:9D8C459470EC132FC042BE5D843D8608D18C9C6B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10860.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:C58D52BC6D65D904BBD1F0BC84B0CBBC848F452B
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10861.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E68D3FDD556681CBC66B5B551F105BE6008D2BD5
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10862.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Karing 1.2.1.824 (Pre-release) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10863.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:60E2A4730D2EF751DB561566CFF8CA21B51861E8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10864.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:E397712299AFC4FED1DD400B4B74DEEFD9350E6D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10865.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:6DE2FFFD44199EA7197FD30B7925DF0FF5BDF992
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10866.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:1E37B7BA078386D22CB9C708526115ACC7D99D25
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10867.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:DD2DA118F3BC57E8EF0E9D91CE7E7B050FAE9118
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10868.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NokoPrint v5.22.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10869.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - National Pop Dance Music Vol.113 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10870.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Firefox Browser ESR 115.25.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10871.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:08BF86A5713952DEEC73EBAA0E8206BC86FA5D46
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10872.jpg" />
 </div>
 
 

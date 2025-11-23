@@ -1,3 +1,51 @@
+###  Публикация: 739949   (140783) от 30.12.2013
+
+Карательный отряд / Force of Execution (2013) BDRip [720p] [VO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США | Voltage PicturesЖанр: БоевикРежиссер: Киони ВаксманАктеры: Стивен Сигал, Винг Реймз, Дэнни Трехо, Хесус мл., Брен Фостер, Дженни Гэбриэлль, Дэвид Хаус, Сара Минник, Эрик Стейниг, Дж. Энтони Пена, Дилан Кенин ...Перевод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: (Vano)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored), ИспанскийПродолжительность: 01:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7006775379B745703FE7CC871E20EE45255B8E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678890   (140787) от 23.11.2023
+
+Adobe Premiere Pro 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro 2024 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C768193EC46A40D0B70475E26B0186A88FFBF0ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520718   (140788) от 29.12.2021
 
 VA - Space Holidays Vol. 9 (2017) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
@@ -6,7 +54,7 @@ VA - Space Holidays Vol. 9 (2017) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140788.jpg" />
 </div>
 
 
@@ -33,7 +81,7 @@ Visage - Hearts And Knives (2013) [FLAC|Lossless|image + .cue] <Synthpop, New Wa
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140794.jpg" />
 </div>
 
 
@@ -60,7 +108,7 @@ magnet:?xt=urn:btih:0EF960049045F32CEF721C9DDD281E1A410F5275
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140797.jpg" />
 </div>
 
 
@@ -84,7 +132,7 @@ TG Pro (Temperature Gauge Pro) 2.65 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140810.jpg" />
 </div>
 
 
@@ -109,7 +157,7 @@ Father Befouled - Revulsion Of Seraphic Grace (2012) [MP3|320 кб/с]<Death Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140817.jpg" />
 </div>
 
 
@@ -139,7 +187,7 @@ magnet:?xt=urn:btih:CB824DF22354D7C4C2385D568B2FF7C39E1641C7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140824.jpg" />
 </div>
 
 
@@ -163,7 +211,7 @@ magnet:?xt=urn:btih:E65B25CAE99B9F5AB3E78F8AD54E03A40AFDE2C7
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140830.jpg" />
 </div>
 
 
@@ -196,7 +244,7 @@ Orestes - Equivocal Paragraph (2011) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140843.jpg" />
 </div>
 
 
@@ -229,7 +277,7 @@ ASuite 1.5.2 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140845.jpg" />
 </div>
 
 
@@ -253,7 +301,7 @@ magnet:?xt=urn:btih:5EC6D3E599CF39C1992BEC044E0A9C0392EC85CB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140850.jpg" />
 </div>
 
 
@@ -277,7 +325,7 @@ magnet:?xt=urn:btih:F7CF2BEF4BA049AA478C5CCDD7FAD36F2869039F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140852.jpg" />
 </div>
 
 
@@ -301,7 +349,7 @@ NeoOffice 2017.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140857.jpg" />
 </div>
 
 
@@ -326,7 +374,7 @@ magnet:?xt=urn:btih:24E1CA4A5959467D86324FB4B828BF0BBD5A8A9B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140860.jpg" />
 </div>
 
 
@@ -350,7 +398,7 @@ PIDKey 2.0.9 build 1006 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140870.jpg" />
 </div>
 
 
@@ -374,7 +422,7 @@ magnet:?xt=urn:btih:83E861254F139D41231999BDD9EB3A445D7795EA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140879.jpg" />
 </div>
 
 
@@ -398,7 +446,7 @@ App Cleaner & Uninstaller Pro 7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140885.jpg" />
 </div>
 
 
@@ -424,7 +472,7 @@ Downie 4 v4.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140888.jpg" />
 </div>
 
 
@@ -450,7 +498,7 @@ Punto Switcher 4.1.9 Build 903 Final RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140889.jpg" />
 </div>
 
 
@@ -474,7 +522,7 @@ KiCad 5.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140893.jpg" />
 </div>
 
 
@@ -498,7 +546,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140902.jpg" />
 </div>
 
 
@@ -523,7 +571,7 @@ magnet:?xt=urn:btih:DCF885E154087F8E53BC67DC9294CDE0ED11B581
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140904.jpg" />
 </div>
 
 
@@ -547,7 +595,7 @@ Hard Disk Sentinel PRO 5.61.15 Build 11973 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140911.jpg" />
 </div>
 
 
@@ -571,7 +619,7 @@ Risssing - Risssing (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Breaks, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140912.jpg" />
 </div>
 
 
@@ -598,7 +646,7 @@ Bob Holroyd - In Motion (2013) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140914.jpg" />
 </div>
 
 
@@ -612,55 +660,6 @@ Bob Holroyd - In Motion (2013) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:221D64ECEFD18F422973DC69469BBACA925AAB21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088402   (140919) от 30.12.2016
-
-iSoftPhone Pro 4.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140919.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSoftPhone - удобный клиент для IP-телефонии
-iSoftPhone - программа представляет весьма оригинальный VoIP-клиент для Mac OS X. Интерфейс программы выполнен в виде телефона. iSoftPhone обеспечивает отличное качество голосовой связи. При этом программа довольно проста в настройке, имеет встроеную адресную книгу, а так же позволяет создавать виртуальную частную телефонную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 декабря 2016Разработчик: Xnet CommunicationsПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B356205E05E3593873DC4327DD3C90030B574A65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970416   (140926) от 30.12.2015
-
-Torch Browser 45.0.0.10802 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torch Browser - браузер на платформе Chromium с расширенными возможностями: прямо из браузера можно будет скачать файл с торрента, сохранить видео, ускорить загрузку файлов, поделиться ссылками и т.д. Кроме этого, в Torch Browser встроены функции безопасности, призванные защитят пользовательские данные, а также обеспечить приватность деятельности в интернете.Язык интерфейса: Русский, Английский и Другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7697E6F54F8F04322D48A85EC0FE75CDD7AE4649
 ```
 
 

@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57903.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57904.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:E1F0330B357526A246976DDFDBABF29D68950F6A
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57905.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4B27D779A49DC788BCE2DE7CB517501D14E05AA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57906.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B7CB452FAFDEC28CB073559A1A36E67B7879B25B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57907.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Microsoft  Visual C++ Runtimes AIO v0.82.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57908.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:DB73DD42482DF5316967D5B143C35E93BA8A54A5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57909.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Auslogics BoostSpeed 13.0.0.7 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57910.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57911.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:97F7BA991E1036FF50F4786E9358B6A9C2AD4703
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57912.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:0810CBEDB8F54089FBAD3F232FF31BC667159382
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57913.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4100AD6691196F672D189B6BC468EE5CFDE7CC38
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57914.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1B9B01D4327F8EECC2045DE1B71BD903ED122675
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57915.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Perfectly Clear WorkBench 4.6.1.2658 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57916.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:EABB10A9D0005CAFC7DF124D4AE11905B68A0026
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57917.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Icecream Screen Recorder Pro 7.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57918.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Photo Lab PRO v3.13.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57919.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:61CB0D20B6F6FAF2EB1AC1872D01CBC5F5E10830
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57920.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:1154219A36EE6878C3F17C9F8A40D74C583AFBD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57921.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Dawn of Ashes - Reopening The Scars (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwa
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57922.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Pabllo Vittar - Batidao Tropical Vol. 1-2 (2021-2024) [FLAC 24/44.1,48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57923.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Judy Wexler - What I See (2013) Jazzed Media [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57924.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Bobby Watson - Back Home In Kansas City (2022) Smoke Sessions Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57925.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:86A400E31DC3485BC4D0936EBB88B39991735111
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57926.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Icecream Screen Recorder Pro 7.40 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57927.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ n-Track Studio Suite 10.1.0.8642 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57928.jpg" />
 </div>
 
 

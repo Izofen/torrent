@@ -6,7 +6,7 @@ Auslogics File Recovery 11.0.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50977.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:277F471CDA0024D22CC1D0D4AB19D0DB88BC2B14
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50978.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Auslogics Registry Cleaner Pro 10.0.0.6 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50979.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ AOMEI Partition Assistant Technician Edition 10.4.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50980.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Auslogics Driver Updater 1.26.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50981.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D0182180EAF7CD2933D7DC94E325AA38E7BCEFAF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50982.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:8A6298C5221EE49C80B3A8512D0C2925A9D5D07A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50983.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Auslogics Disk Defrag Pro 11.0.0.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50984.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:883E01DA899CFEC497E66D78B1669AB20F1DAC13
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50985.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:F93C767028106D6A7D1C04C9D7CE22E28F27D6BF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50986.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:326B0992FC0DEE2A735AFB0C5ED3FE29E8ED7499
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50987.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:326B0992FC0DEE2A735AFB0C5ED3FE29E8ED7499
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50988.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:3E9127E4D8FFF48A8176DED68577A0D144CB581C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50989.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:3E9127E4D8FFF48A8176DED68577A0D144CB581C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50990.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - 50 хитов на дачу (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50991.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AOMEI Partition Assistant Technician Edition 10.4.1 Portable by FC Portables [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50992.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ AOMEI Partition Assistant Technician Edition 10.4.1 (x64) Portable by 7997 [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50993.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:F6DEAB3F65039E8A7F30B6404B7A0A4524453A8F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50994.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:02B968A44FB1CFB634478B6A6D84032A4FD8E453
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50995.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:1DE897A6B65A7D77CFE3DC94A14ABBFC24821CB3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50996.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:717722EF67506C8D999BF6289D4BFDA0B0ACED07
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50997.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50998.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:B717961FAA337752163C390FC70D8EF0172B9100
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50999.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:E5CF6F960FC8E1091F66F1A77AC222FE2B670180
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51000.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51001.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51002.jpg" />
 </div>
 
 

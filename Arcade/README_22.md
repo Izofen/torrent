@@ -6,7 +6,7 @@ Hero Survival (2023) [Ru/En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171466.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171479.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172184.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172196.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173321.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173448.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173449.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173726.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173726.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Starri (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174369.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Worms Armageddon (1999) [Ru/Multi] (3.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175365.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175365.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175522.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175522.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176392.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178885.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178885.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179523.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179523.jpg" />
 </div>
 
 
@@ -334,6 +334,54 @@ magnet:?xt=urn:btih:2CAF3250A6EAF0DCF98556DF954337A1BDBA18FB
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585447   (181279) от 25.11.2022
+
+Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгие годы планета Альфа производила ресурсы для войн, бушующих в секторе Армагеддон. Планета была привлекательна для многих, в том числе на нее прибыл великий воевода Огрук Гутрекка. Едва появившись на планете, Гутрекка отобрал вашего драгоценного волосяного сквига. Исполнившись жажды мести, вы поклялись, что сделаете всё, чтобы вернуть волосяного сквига и показать, (   Читать дальше...   )Тип издания: LicenseРазработчик: RoguesideЖанр: Экшны, Приключение, Shoot 'em UpЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA806A7167E3A5465119B0A2BB6EFC27901F09DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427741   (181847) от 29.11.2020
+
+God's Trigger (2019) [Ru/Multi] (1.2.58760) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кооперативный экшен, действия которого разворачиваются в апокалиптическом мире. Вам предстоит взять под свой контроль демонессу по имени Джуди и ангела Гарри, которые должны действовать сообща, чтобы победить четырех всадников апокалипсиса и их приспешников, прежде чем те уничтожат все живое на Земле.Тип издания: LicenseРазработчик: One More LevelЖанр: Экшн, Головоломка, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7069B15B8E98461C2370451FEFE32334B5B37E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592838   (182112) от 24.11.2022
 
 Goat Simulator 3 (2022) [Ru/Multi] (208081) Repack DjDI
@@ -342,7 +390,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (208081) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182112.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182112.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182201.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182201.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183464.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183464.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185761.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185761.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Shank (2010) [Ru] (1.3) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185765.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185765.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ CrossCode (2015) [Multi] (1.4.2-3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186129.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_186129.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186144.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186144.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Suicide Guy: The Lost Dreams (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186969.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186969.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Suicide Guy: Sleepin' Deeply (2018) [Ru/Multi] (1.30) Scene HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187037.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187037.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Suicide Guy (2021) [Ru/Multi] (1.0) Scene Plaza [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187047.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187047.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Suicide Guy Deluxe Edition – это приключенческий экшен 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD859C67D5A42A75E01284833E3E348083CEBD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663120   (187051) от 20.09.2023
-
-Suicide Guy (2017) [Ru/Multi] (1.70) Scene Plaza
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Suicide Guy - игра от первого лица в жанре "action-puzzle", действия которой разворачиваются в мире снов. Вы исполните роль большого "милого" парня, который никак не может проснуться. Ваша задача - помочь ему. Игроки должны будут использовать различные предметы в различных ситуациях для решения оригинальных головоломок. Несмотря на название, данная (   Читать дальше...   )Тип издания: SceneРазработчик: Fabio FerraraЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3931654EC40755E713E4735A985BA3E0B8E66A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662700   (187606) от 18.09.2023
-
-Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187606.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Boti: Byteland Overclocked вы отправитесь в захватывающее приключение с Боти, очаровательным информационным ботом, и его очаровательными спутниками, Нулем и Единицей. Вместе вы исследуете динамичный кибермир Byteland, наполненный ошибками, вирусами и сбоями, которые необходимо устранить. Приготовьтесь испытать уникальное сочетание классического 3D-платформера (   Читать дальше...   )Тип издания: SceneРазработчик: Purple Ray StudioЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Польский и другиеЯзык интерфейса: Английский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDE50662A860AA6FE39CE6F716958F13B0B8281
 ```
 
 

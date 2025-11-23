@@ -1,3 +1,77 @@
+###  Публикация: 1690706   (123786) от 08.01.2024
+
+Вячеслав Шишков | Странники (2007) [MP3, Владимир Рыбальченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классический реализм.
+Вячеслав Яковлевич Шишков (1873–1945) – русский советский писатель, журналист, инженер-исследователь, продолжатель классических традиций русской литературы. Шишков известен как автор романов «Угрюм-река», «Емельян Пугачев», «Ватага», «Странники», а так же повестями и рассказами, в которых ярко описаны самобытные нравы дореволюционной (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АрМир (аудио)Продолжительность: 17:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C1D34852ACB526C35ADB11210D6DE58A61733C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690672   (123787) от 08.01.2024
+
+Чингиз Абдуллаев | Дронго (Книга 30). Фактор страха (2022) [MP3, Юрий Леханов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три миллиона долларов – не иголка, без следа исчезнуть не могут. Он и есть этот след – убитые, обманутые люди. А после того, как погиб полковник Кочневский, следствие окончательно зашло в тупик. Политики и бандиты, бизнесмены и авантюристы, чекисты и киллеры сбились с ног, разыскивая злополучные миллионы. Но эксперт аналитик Дронго умеет мыслить парадоксами. Он знает: (   Читать дальше...   )Жанр: Шпионский детективИздательство: Аудиокнига своими рукамиПродолжительность: 10:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53556D9AE8C112794B16042506FA37A42C177D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690641   (123788) от 08.01.2024
+
+Александра Невтонова | В порту (1926) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123788.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рассказе речь пойдёт о коротком промежутке времени из жизни бездомных мальчишек. О том, с какими трудностями приходится им сталкиваться на своём бродяжном веку.
+Для детей среднего школьного возраста. Иллюстрации Д. Мощевитина.Жанр: РассказИздательство: Издание Г.Ф.МиримановаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A5F026B70D9C4F57885FB51A211407AC9DAD86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690587   (123789) от 08.01.2024
 
 VA - One Year Anniversary (2024) [MP3|320 Kbps] <Trance>
@@ -6,7 +80,7 @@ VA - One Year Anniversary (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123789.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ magnet:?xt=urn:btih:52D2165E30F7DA668E7F3BA280378C69F79DB751
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123790.jpg" />
 </div>
 
 
@@ -58,7 +132,7 @@ magnet:?xt=urn:btih:FA104C9E6D6E28324DB433FC4BE64FC31123E7C6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123791.jpg" />
 </div>
 
 
@@ -83,7 +157,7 @@ Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123792.jpg" />
 </div>
 
 
@@ -110,7 +184,7 @@ KATCH Me Please - Дом (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123793.jpg" />
 </div>
 
 
@@ -137,7 +211,7 @@ Distraid - Знак Саламандры (2023) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123794.jpg" />
 </div>
 
 
@@ -164,7 +238,7 @@ Cain's Dinasty - Hollow Earth (2015) Reissued 2017 Japan Edition [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123795.jpg" />
 </div>
 
 
@@ -191,7 +265,7 @@ magnet:?xt=urn:btih:4D8B82CC54467D8C0CAD3AEE0032538C20BAEF7A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123796.jpg" />
 </div>
 
 
@@ -215,7 +289,7 @@ Cake recipes / Рецепты тортов v11.16.426 Mod by youarefinished [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123797.jpg" />
 </div>
 
 
@@ -239,7 +313,7 @@ VA - Beautiful Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123798.jpg" />
 </div>
 
 
@@ -266,7 +340,7 @@ Skillshare | Affinity Photo Master Class iPad Edition (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123799.jpg" />
 </div>
 
 
@@ -290,7 +364,7 @@ VA - The Evening Blues (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123800.jpg" />
 </div>
 
 
@@ -317,7 +391,7 @@ magnet:?xt=urn:btih:2B6F03382DBCA0BF01BACACFE147694F335EAD18
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123801.jpg" />
 </div>
 
 
@@ -341,7 +415,7 @@ Text Edit Plus 13.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123802.jpg" />
 </div>
 
 
@@ -367,7 +441,7 @@ Muvi - Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123803.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ Bull Angus - Bull Angus (1971) Reissue, 2010, Mandala [FLAC|Lossless|tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123804.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ Sante DICOM Viewer Pro 14.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123805.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ Deva Premal - Deva (2018) [FLAC|Lossless|tracks + .cue] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123806.jpg" />
 </div>
 
 
@@ -473,7 +547,7 @@ Sante DICOM Editor 10.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123807.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ magnet:?xt=urn:btih:42135828DAAEC8FB44FA081CA0BBF921ABA44F0E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123808.jpg" />
 </div>
 
 
@@ -523,7 +597,7 @@ Armik - Spanish Lover / Illuminate (2021/2022) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123809.jpg" />
 </div>
 
 
@@ -549,7 +623,7 @@ VA - Selador Decade Mix (Mixed by Dave Seaman & Steve Parry) - 2023 [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123810.jpg" />
 </div>
 
 
@@ -573,7 +647,7 @@ magnet:?xt=urn:btih:844D08D3813AC8D3FE22F050DA5D4877742E2609
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123811.jpg" />
 </div>
 
 
@@ -584,86 +658,6 @@ magnet:?xt=urn:btih:844D08D3813AC8D3FE22F050DA5D4877742E2609
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B6BC98B7276AFB88CB66309D767E947039AA57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690387   (123812) от 08.01.2024
-
-Agnes Obel - Riverside (2010) EP [FLAC|Lossless|tracks + .cue] <Pop, Classical, Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123812.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Riverside 3:49
-2. Close Watch 4:01
-3. Sons and Daughters 3:15Жанр: Pop, Classical, VocalПродолжительность: 00:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F883F9FECAAA315F0B67D6C8DEFD3F21B900A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690713   (123813) от 08.01.2024
-
-Dan Balan - Freedom, Pt. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allegro Ventigo (feat. Matteo) (3:42)
-02. Balzam (feat. Lusia Chebotina) (3:38)
-03. Домой (feat. Тина Кароль) (4:25)
-04. Numa Numa 2 (feat. Marley Waters) (3:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876C2C2D7BEC15B3ABD4733C68DA9EE53C1B9240
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690461   (123814) от 08.01.2024
-
-Robin Meloy Goldsby - Dearest Things - The Piano Room Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlings in a Silver Sky (3:00)
-02. Echo in Winter (2:52)
-03. Indigo Twilight (3:21)
-04. Almost There (4:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B03E59766421D8054EE2F52A91599FC24603DFC
 ```
 
 

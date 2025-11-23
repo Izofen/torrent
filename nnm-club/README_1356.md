@@ -6,7 +6,7 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35609.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35610.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Music News For Forum vol.047 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35611.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:083A7CB7630F4DE5D5F59D0A26C927DDE23AF8B9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35612.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2B455346298F67E3DAC4558C93FADE48E48907BA
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35613.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35614.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - My Electronic Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35615.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:3F6A5526E14861B857004E8200E699C03D666D90
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35616.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Alanis Morissette - Compilation (1987-2020) [MP3|320 Kbps] <Alternative, Post gr
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35617.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:F49728ADB417DBC177C63E500FD0771C9F74724F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35618.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Cliff Richard - Exclusive (2024) Remastered, 2024, DMI [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35619.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Late Night Relax: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35620.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35621.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Mu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35622.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:AC56AC86B7206A5C1433A227A61A4241B805BDDE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35623.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:F639C41FD5777894583530016B681C876D633CE2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35624.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:0F16D47E7A1BAA8A24A0CD67E3C517EC04672C5C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35625.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - It's All About Deep-House, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35626.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ David Arkenstone - In The Wake Of The Wind (1991) [FLAC|Lossless|tracks + .cue] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35627.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Les Paul & Mary Ford - The Best of the Capitol Masters (1992) [FLAC|Lossless|tra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35628.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Deep Trance Showcase IV (2024) [MP3|320 Kbps] <Trance, Progressive, Electro
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35629.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Naomi Sharon - Obsidian (2023) Extended, 2024, OVO Sound [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35630.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Smoothies - Variations of Autumn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35631.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:C1EFD7DC6895EB2398DE1D4962FA3CAF55A9457A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35632.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:04B2C982DCF6EB4827CEB94DDF249E79744AAFDB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35633.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:DEBF8FF45CF56EB41F98A5EBB558145C5F6DDEBC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35634.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162182.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tong Ling Fei | Имперская наложница | Принцесса-ме�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174834.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174834.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188096.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188096.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hosi no Kaabi | Kirby of the Stars | Звезда Кирби [2001, TV, 100 эп
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188753.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188753.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EDA4B0223510FEB5DDEC9E29BFA7BEF8AD82BCD4
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189503.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189503.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193327.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193327.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yao Shen Ji | Tales of Demons and Gods | Сказания о демонах и �
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193862.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193862.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tunshi Xingkong| Swallowed Star | Пожиратель звёзд | Поглощ
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194167.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194167.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tunshi Xingkong| Swallowed Star | Пожиратель звёзд | Поглощ
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194220.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194220.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hotaru no Haka | Grave of the Fireflies | Могила светлячков [198
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194340.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194340.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:31AC9885F425ED9FCBD029DC433A3728F58AE27D
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194353.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194353.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Doupo Cangqiong | Dou Po Cang Qiong | Fights Break Sphere | Battle Through The H
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194381.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194381.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Da Wang Rao Ming | Spare Me, Great Lord! | Пощади меня, Великий
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199949.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199949.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200673.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200673.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:37F945EC581EA0D86CC70210F7BFCF4EA46A4C2D
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204015.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204015.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205020.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205020.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205634.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205634.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Darling in the FranXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208766.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208766.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211229.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211229.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dog Soldier: Shadows of the Past | Пес войны [1989, OVA] LDRip 480p HS+r
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212296.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212296.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221280.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221280.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221287.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221287.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ One Piece: Baseball Special / One Piece: Take Aim! The Pirate Baseball King / В
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227893.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227893.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ One Piece: Jango no Dance Carnival / One Piece: Django's Dance Carnival / Ван
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227908.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227908.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ One Piece: Dream Soccer King! / One Piece: Soccer King of Dreams / Ван-Пис
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228046.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228046.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228403.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228403.jpg" />
 </div>
 
 

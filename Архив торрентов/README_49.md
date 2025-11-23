@@ -6,7 +6,7 @@ Topaz Gigapixel AI Pro 8.4.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16461.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ CCleaner 6.36.11508 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16463.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E743253835ADCCB80039E6D5A370F97ED71B65C4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16492.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:463A20ADFB7861E4206BE68D13F361D7BA5FEC71
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16494.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ StartAllBack 3.9.9 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16501.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ CCleaner 6.36.11508 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16502.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Genius Art: Image AI Generator v1.3.5 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16548.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Native Instruments - Kontakt 8.4.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16553.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Atlantis Word Processor 4.4.6.0 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16586.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Internet Download Manager 6.42 Build 39 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16588.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Malwarebytes Windows Firewall Control 6.16.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16589.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:510F6446FBCA57ACD50F011C27DB4CFA300CE7FF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16625.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:510F6446FBCA57ACD50F011C27DB4CFA300CE7FF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16626.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0 Build 49 RePack by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16637.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Genius Art: Image AI Generator v1.3.4 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16666.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Smart AudioBook Player Pro v11.4.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16667.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ RarmaRadio Pro 2.77.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16694.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Internet Download Manager 6.42 Build 39 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16695.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Electrical Calculations Pro / Электрические расчеты v10.4.1 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16701.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Solid Explorer File Manager v2.8.62 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16702.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ aCalendar+ Calendar & Tasks v2.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16703.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B7151B1FFFED101E5F2FCE70F6138018FA163976
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16712.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Firefox Browser 139.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16734.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:545DAEEAF59D13B424539294BC100A8CEC19B56E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16743.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:456581164B5B70451389E26B8D35D3C94D33A3AF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16765.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:F765F633C509E530AB125CF5A1E62F6FB1A027E7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16767.jpg" />
 </div>
 
 

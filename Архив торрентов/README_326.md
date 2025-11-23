@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80983.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80984.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ I Was an Atomic Mutant! / I was an Atomic Mutant: Убойные будни [Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80985.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8451DD7C9488F4CDF8B551A17C3E42F5716C4F65
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80986.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Madness - Total Madness (2009) [FLAC|Lossless]<new wave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80987.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2B7A32A6E2816738375362FA7AAC2F15F006CD27
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81000.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Wlodzimierz Grabowski - Extreme Sample Converter 3.6.0.1594 by ASSiGN [англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81006.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Extreme Sample Converter - многофункциональный редакто
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81016.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:23C28E6A3F7AC6B6A0E8A35213DEACEDD294A92D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81024.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:395799C6ACED38D8C39CB9A2E17BAE3193FBD108
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81028.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Soundlib - G-Player 1.3.0.3 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81029.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Total Commander SE v.8 (portable) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81032.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Total Commander SE v.8 (portable) [Русский]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81035.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Total Commander SE v.8 (portable) [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81039.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:B4953D6802F7B97D07D628221EDF39F65DE009B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81051.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:068157EA0D105E9CC72A8D055D4436F4E374E8A2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81055.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Poker Night at The Inventory [En] (RePack) 2010 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81087.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:E382E60D85CDF98279EE6BF8B3747643DBC3C32B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81094.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:CE9134420BDF90E71D1749DB7E7F9EAF397CCB3B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81099.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ CyberLink PowerDVD Ultra 11.0.2608.53 Portable by Boomer [Мульти, Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81100.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ CyberLink PowerDVD Ultra 11.0.2608.53 Portable by Boomer [Мульти, Русс
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81113.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:42044F4F9890C9D34C5C6A44FD2EB1DC431950DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81118.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C4E1DCC470985C04B1CE369E0B22393277520014
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81126.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C4E1DCC470985C04B1CE369E0B22393277520014
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81140.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Cделан он на основе русского интерфейса Windows
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81155.jpg" />
 </div>
 
 

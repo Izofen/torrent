@@ -1,3 +1,149 @@
+###  Публикация: 1435709   (141169) от 29.12.2020
+
+CoolUtils Total Doc Converter 5.1.0.255 (Repack & Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Doc Converter решает проблему конвертирования Doc файлов в PDF, HTML, XLS, JPG, TIFF или Text. Total DOC Конвертор умеет приводить все DOC файлы к единому форматированию. Если у вас 1000 doc файлов и у всех разное форматирование, просто задайте нужные настройки в Total DOC Converter. Программа обработает все файлы автоматически, и на выходе Вы получите документы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB751064B1EDF17F11886638BD2A6FA6828A327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520226   (141171) от 28.12.2021
+
+Титан / Titane (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141171.jpg" />
+</div>
+
+
+###  Подробнее
+
+После автоаварии, в которую Алексиа попала в детстве, в голове у неё титановая пластина. 15 лет спустя она работает стриптизёршей, а когда беременеет совершенно невероятным образом, это провоцирует у девушки всплеск неконтролируемой агрессии.Производство: Франция, Бельгия / Kazak Productions, Frakas Productions, Arte France CinémaЖанр: Фантастика, драма, триллер, криминалРежиссер: Жюлия ДюкурноАктеры: Агат Руссель, Венсан Линдон, Геранс Марилье, Лаис Саламе, Мара Сисси, Марин Джудас, Дионг-Кеба Таку, Мириам Акеддиу, Бертран Бонелло, Селин КаррерПеревод: Дублированный, двухголосый любительский, авторскийСубтитры: Русские (stasslender ненормативная лексика), украинские, английские, испанские .srt, французские .pgsПродолжительность: 01:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7264881AA9AD40B0F3A2B13A233ABD1BA137EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088289   (141172) от 30.12.2016
+
+Прот. Лев Лебедев | Заметки по пастырскому богословию (1999) [PDF, FB2, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие
+Перед читателем весьма ценный, интересный и живой труд покойного курского протоиерея Льва Лебедева «Заметки по пастырскому богословию». Несколько десятилетий не издавались пособия по пастырскому богословию на русском языке. Известны классический труд митрополита Антония (Храповицкого) «Учение о пастыре, пастырстве и об исповеди» (переиздан заграницей (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1232F79E28102E4DE999DD1763DEA365AEE5B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195372   (141173) от 29.12.2017
+
+Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В другом мире со смартфоном [TV-1] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аниме «В другом мире со смартфоном» (Isekai wa Smartphone to Tomo ni) рассказывает о парне по имени Тоя Мочизуки, которому не повезло: в него попала молния, и он погиб. Но после смерти он попал не в ад или рай, а прямиком к Богу, который сообщил ему, что он умер просто по ошибке, и пообещал, что в качестве извинения позволит Тое перенестись в параллельный фэнтези-мир, (   Читать дальше...   )Производство: студия Ashi ProductionsЖанр: приключения, комедия, фэнтезиРежиссер: Янасэ ХироюкиПеревод: (SovetRomantica), c моими правками (добавлены OP и ED)Язык озвучки: Русский
+TV-1 (Anilibria), (Animedia), (Kansai) - внешними файламиЯзык субтитров: РусскийПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EAD3E72656F2D455726D23A73AD7EED1613313E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271622   (141174) от 29.12.2018
+
+Борис Можаев | Пропажа свидетеля (2018) [MP3, Марина Толоконская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тот лежал лицом вниз, неудобно подвернув голову. Пуля вошла в грудь и засела в теле – на спине никаких отметин, расстегнутая кожаная куртка с распластанными вразлет по песку бортами, точно крылья подбитой птицы, была чистой от крови. По всему было видно, что человек убит наповал – упал и не трепыхнулся. От лесной опушки вел к нему размашистый след: его массивные (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 15:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B985E99EEA721C0E69AB474F2BEB0E696EDC45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520410   (141175) от 28.12.2021
+
+Энканто / Encanto (2021) WEB-DL [H.264/720p] [DVO]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительная семья Мадригаль живет в спрятанном в горах Колумбии волшебном доме, расположенном в чудесном и очаровательном уголке под названием Энканто. Каждого ребёнка в семье Мадригаль магия этого места благословила уникальным даром — от суперсилы до способности исцелять. Увы, магия обошла стороной одну лишь юную Мирабель. Обнаружив, что магия Энканто находится (   Читать дальше...   )Производство: США, Колумбия / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, драма, комедия, семейныйРежиссер: Джаред Буш, Байрон Ховард, Чариз Кастро СмитПеревод: двухголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9812DCE0F3744888A194CE55A42F7647F6D70863
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348658   (141176) от 29.12.2019
 
 Microsoft Visual Studio 2019 Enterprise 16.4.1 (Offline Cache, Unofficial) [Ru/En]
@@ -6,7 +152,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.1 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141176.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ magnet:?xt=urn:btih:D735F97E9C940E241FEC1CA0B5B3669BC6AAB7AC
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141179.jpg" />
 </div>
 
 
@@ -54,7 +200,7 @@ Alien Shooter 2: Reloaded (2009) [Ru/En] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141180.jpg" />
 </div>
 
 
@@ -78,7 +224,7 @@ magnet:?xt=urn:btih:050CF2FDB7416AE1D45EEA1A740905E6143279C9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141181.jpg" />
 </div>
 
 
@@ -102,7 +248,7 @@ magnet:?xt=urn:btih:DEA3BF8A88B7778E41DFC7F2A398CDCC088B32F1
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141182.jpg" />
 </div>
 
 
@@ -126,7 +272,7 @@ magnet:?xt=urn:btih:818B49BEA2E33CBB3831EB857105E3F0375803EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141183.jpg" />
 </div>
 
 
@@ -150,7 +296,7 @@ magnet:?xt=urn:btih:C6CC3D9F2F5FCD9167E81A7BC0E09E2DD42DE089
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141185.jpg" />
 </div>
 
 
@@ -175,7 +321,7 @@ magnet:?xt=urn:btih:FE538B2D62571539DE26864D7C753CCE4832E27F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141186.jpg" />
 </div>
 
 
@@ -199,7 +345,7 @@ magnet:?xt=urn:btih:DBBE345D31880DB6AD08AA7F45815AA617ADF261
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141188.jpg" />
 </div>
 
 
@@ -224,7 +370,7 @@ AdwCleaner 5.027 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141190.jpg" />
 </div>
 
 
@@ -248,7 +394,7 @@ magnet:?xt=urn:btih:A6CBE82527D4F92171346521BBCBD77CCA33E691
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141191.jpg" />
 </div>
 
 
@@ -272,7 +418,7 @@ Profondita - Ciel (2016) [MP3|320 Kbps] <Psychill, Progressive Chill>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141192.jpg" />
 </div>
 
 
@@ -299,7 +445,7 @@ magnet:?xt=urn:btih:999038A88235EDAFF777D35EDF29C06D496A36A9
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141194.jpg" />
 </div>
 
 
@@ -323,7 +469,7 @@ magnet:?xt=urn:btih:8E55B8E7F5E4FD69D9C1ACCE633ECC6EE50473E4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141195.jpg" />
 </div>
 
 
@@ -347,7 +493,7 @@ Sweet - Isolation Boulevard (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141196.jpg" />
 </div>
 
 
@@ -374,7 +520,7 @@ magnet:?xt=urn:btih:946AED832547A5519DAA0E9847A866E3D8BD7D3C
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141197.jpg" />
 </div>
 
 
@@ -398,7 +544,7 @@ magnet:?xt=urn:btih:9E5F210999CA19DE2AA0CAC5643E7FDE0DBBE0F1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141198.jpg" />
 </div>
 
 
@@ -423,7 +569,7 @@ magnet:?xt=urn:btih:B10C3A034D59394AF7B2F04515F4F82053B3EE8E
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141199.jpg" />
 </div>
 
 
@@ -450,7 +596,7 @@ magnet:?xt=urn:btih:D6FB7EA2945C0A0AB71E9BD5270AD3F48F5696D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141200.jpg" />
 </div>
 
 
@@ -474,7 +620,7 @@ magnet:?xt=urn:btih:C547456EB90165C5DA32F2A8722D80355B6999D3
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141201.jpg" />
 </div>
 
 
@@ -487,159 +633,6 @@ magnet:?xt=urn:btih:C547456EB90165C5DA32F2A8722D80355B6999D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E68E9FB6952030B88B26A2C12F57EAD9C59DD692
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195333   (141202) от 29.12.2017
-
-Человек-паук: Возвращение домой / Spider-Man: Homecoming (2017) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141202.jpg" />
-</div>
-
-
-###  Подробнее
-
-После исторической встречи с командой Мстителей Питер Паркер возвращается домой, стараясь зажить обычной жизнью под опекой своей тёти Мэй. Но теперь за Питером приглядывает ещё кое-что… Тони Старк видел Человека-Паука в деле и должен стать его наставником. Когда новый злодей Стервятник угрожает уничтожить всё, что дорого Питеру, приходит время доказать всем, что (   Читать дальше...   )Производство: США, Columbia Pictures, Marvel Studios, Pascal PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд, Роберт Дауни мл., Майкл Китон, Мариса Томей, Джон Фавро, Джейкоб Баталон, Зендея, Лора Хэрриер, Тони Револори, Дональд ГловерПеревод: ДублированныйСубтитры: Английские, Русские, УкраинскиеПродолжительность: 02:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97619743B30D064AC36FF130D372FC71B7B4A9B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740292   (141203) от 30.12.2013
-
-Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Electro, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. I Love You  3:23
-2. Lost Again  4:18
-3. No More Words  3:59
-4. Crash Dance  2:10
-5. Great Mission  2:57
-6. You Gotta Say Yes To Another Excess	2:10
-Сторона 2
-1. Swing  3:22
-2. Heavy Whispers  3:57(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435958   (141206) от 29.12.2020
-
-Екатерина Иолтуховская | Новогодняя книга исполнения желаний (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - лучший подарок на Новый год каждой девочке. Она поможет сделать праздник незабываемым, подарит счастье, исполнит самые заветные желания. А ещё она станет лучшим другом и советчиком. Достаточно заштриховать простым карандашом пространство внутри рамки на 16 волшебных страницах - и перед тобой возникнет ответ-картинка на самый сокровенный вопрос. 80 прикольных (   Читать дальше...   )Жанр: Детские поделки/Досуг/РазвлечениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D65499AD3F279F9474C84F8AFEFCE0025652C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970581   (141208) от 30.12.2015
-
-Альфред Ван Вогт | Империя атома (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неординарный фантастический роман «Империя атома», вышедший из-под пера известного канадского писателя Альфреда Ван Вогта, рассказывает о мире, в котором существование науки в качестве религиозной доктрины – вполне привычное дело. Священниками подобного рода храмов могут стать только ученые, познавшие все глубины атомического учения и способные читать послания, которые (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 06:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB3949E454A560F1A31186849321690F81FA219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195327   (141209) от 29.12.2017
-
-Нетология | Node, AngularJS и MongoDB: разработка полноценных веб-приложений (2017) PCRec [H.264/720p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141209.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе три эксперта, в узких кругах, расскажут и покажут как строить приложения с помощью node, angular и mongoDB. С помощью этих трех вещей действительно может получится годное веб-приложения, но это только если Вы не сойдете с ума во время просмотра этого курса.Жанр: Программирование, JavaScript, Node.JS, AngularJS, MongoDBПродолжительность: 27:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBC233BED102486312FD4EA7F16C686CC90962B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590617   (141210) от 17.12.2012
-
-Приключения Соника Ежика / Adventure of Sonic The Hedgehog (16 серий из 66) (1993) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем давно известно, что Соник — самый быстрый в мире ежик. Беззаботный Соник обожает приключения! Дом Соника — Планета Мобиус, здесь у него много хороших друзей. Но есть и враги…Жанр: Рисованная анимация, Детский, ПриключенияРежиссер: Кент БаттерворфПерсонажи: Sonic, Tails, EggmanПеревод: ДублированныйПродолжительность: 16 серий по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9500ED773F17962D668C9A5A5B5632E755183CDA
 ```
 
 

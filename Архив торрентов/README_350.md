@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84469.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA - Armada Vocal Trance Sessions 2012 - 01 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84474.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:4BD2955147A8F8CA37913E4C589D844FB6D6C346
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84479.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:7E5C323F2B33F0F35A9C58AE8324359A86837F50
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84482.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:8DAD2F3D7347781D5A3AC657F7299A585A1E923E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84484.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:658A9EBFC3C631344AEA3A5D321DAF702985CAEE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84486.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tammy Wynette - Anniversary: Twenty Years of Hits (1987) [MP3|320 кб/с]<Count
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84494.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:C9F36E6325B4EBFFFDBC9011718A40ED71F536B0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84501.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:C9F36E6325B4EBFFFDBC9011718A40ED71F536B0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84504.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:1A98EF91AD2812AA7D030C832102E57489850FDF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84507.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:EC74D1B79BFA4EA166AFA8F9CA886991EBC3F48C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84509.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:A47251AE21E72941DA6A14C22C7BDEA70DBDDD76
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84517.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tiamat - Wildhoney (1994) reissue /2011/ [FLAC|Lossless|image +.cue] <Doom Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84518.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Il Volo -Takes Flight - Live From the Detroit Opera House (2012) Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84538.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ http://en.wikipedia.org/wiki/Il_Volo (   Читать дальше...   )Жан
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84544.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:0D8B80FC1897C3FF21D5CFE79D851B93A0859ACB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84550.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:6D4A91C7AB0ADBB903762F7FE2EC2D85BFF2628F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84551.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Microsoft WorldWide Telescope (WWT) 3.0.72.1 Beta [Мульти, есть рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84568.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84570.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Burn Zombie Burn! [Ru] (RePack) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84577.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:04885F2F89B922AC9705763F91C09E41089E6C73
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84592.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:04885F2F89B922AC9705763F91C09E41089E6C73
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84603.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ HitFilm Ultimate v1.1 Build 2412 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84604.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ HitFilm Ultimate v1.1 Build 2412 [Английский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84612.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:77D7E86B298C6CA58A3F142DCAD0FF3673FFB455
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84628.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:77D7E86B298C6CA58A3F142DCAD0FF3673FFB455
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84633.jpg" />
 </div>
 
 

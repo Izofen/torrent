@@ -1,3 +1,77 @@
+###  Публикация: 1824528   (128835) от 15.10.2025
+
+Татьяна Богданович | Соль Вычегодская. Строгановы (2024) [OGG, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128835.jpg" />
+</div>
+
+
+###  Подробнее
+
+У небольшого Соленого озера, что в двух шагах от реки Вычегды люди селились еще в XV веке. Наиболее предприимчивые из них уже в то время начали строить на берегу первые «варницы», специальных приспособления для «варения соли».
+В последствии эти варницы стали основой крупного промышленно-торгового центра – Соль Вычегодска, процветанию которого помимо солеварения способствовало (   Читать дальше...   )Жанр: Историческая литература, Исторические личности, Развитие бизнеса, Российская империя, Семейная сага, Современная русская литератураИздательство: СОЮЗПродолжительность: 08:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09C1AAD1FD3B5CECB555D375F55311ADE67962A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824549   (128836) от 15.10.2025
+
+Дмитрий Зеленин | Мертвецы и русалки. Очерки славянской мифологии (2025) [OGG, Кирилл Долгов]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как много вы знаете о русалках? Знаете ли вы, кто такие купалки, водяницы, чертовки и шутовки? А знаете ли вы, как русалки связаны с покойниками? Дмитрий Зеленин (1878—1954), советский этнограф, в «Очерках славянской мифологии» изучает эти вопросы, обращаясь к верованиям и обрядным практикам восточных славян.
+В масштабном исследовании Зеленин фокусируется на конкретном (   Читать дальше...   )Жанр: Литература 20 века, Мифические существа, Научпоп: прочее, Религиоведение, история религий, Русская культура, Русские традиции, Славянская культура, Славянская мифология, Этнографические исследования, Этнография, ЯзычествоИздательство: Аудиокниги (АСТ)Продолжительность: 12:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937BC07C37A9C02464C24D507F8787F7575E1A27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824554   (128837) от 15.10.2025
+
+Андрей Дышев | Я бриллианты меряю горстями (2025) [OGG, Юлия Тарнавская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный угонщик допустил смертельную ошибку: он нечаянно угнал машину высокопоставленной особы. Профессиональный автослесарь тоже вляпался по полной, когда перебивал номера на этой машине, а потом заметил в салоне кейс. Профессиональный журналист Гера Герасимов тоже попал в крутой переплет, взявшись за криминальное расследование… Судьба свела их в одно время (   Читать дальше...   )Жанр: ДетективИздательство: ЛитРесПродолжительность: 09:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DBC6A8A9419FA1C1CF51A108395C3D2C694F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824571   (128838) от 15.10.2025
 
 Закон тайги (2025) HDTVRip [H.264] (сезон 2, серии 1-22 из 56) (обновляемая)
@@ -6,7 +80,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128838.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128839.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:38613B5884CA6DCBE237A71289130D6586BB4C52
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128840.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:5E1E414C3D9F8EF574D0A598731BD3ABEA1DEBC7
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128841.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:AF7A6D68C2FFF7DA41D5624E1672F8F1A177AD36
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128842.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:47856EE014E0EAEAF4E4B416A32B5719115929AB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128843.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ magnet:?xt=urn:btih:0D232AA24074FD2A6A96F7FAB0E92A70091968A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128844.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:FAFC1C5A22BA6A2BD79F280D945BD91FFA828101
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128845.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ magnet:?xt=urn:btih:72E649B7A2D787DDDD43B154C3D22C86CBA35D8E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128846.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ magnet:?xt=urn:btih:541901C4DE6CC31CFCBFC15FEE4E403B9C588F9B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128847.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ magnet:?xt=urn:btih:587195505D46FF0721A2B1ACDD43F4BAAD09C97D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128848.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ magnet:?xt=urn:btih:3F8C08B6B98E60FA1B4DABC423C5407B9EDB3D88
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128849.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ magnet:?xt=urn:btih:98FB68611A3D5DA167EDB1917187C8680B12637A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128850.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ magnet:?xt=urn:btih:7483A19554438704838EC5086B1B54BFA9868807
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128851.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ Danny Peyronel - It Happens When You Look The Other Way (2025) [FLAC 24/48|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128852.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ Promare | Промар [2019, Movie] DVDRemux 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128853.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ magnet:?xt=urn:btih:62FE964DD8748D113E71C07C0DCC7E00EE64AD5F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128854.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ magnet:?xt=urn:btih:E2E9273695D166738A95272B221955644E75B3C6
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128855.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ magnet:?xt=urn:btih:74F0D3A9E144C455772C9DFBED2E3DEC8E7F2CE6
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128856.jpg" />
 </div>
 
 
@@ -471,7 +545,7 @@ The Riverview Band - Finger Prints (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128857.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ The Kokomo Kings - Turbomouth (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128858.jpg" />
 </div>
 
 
@@ -525,7 +599,7 @@ The Hoochie Coochie Men - Second Helping (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128859.jpg" />
 </div>
 
 
@@ -552,7 +626,7 @@ Silverflame - FLY ON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128860.jpg" />
 </div>
 
 
@@ -566,85 +640,6 @@ Silverflame - FLY ON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AB0BF65760972899BD49DA9ECE5046C5DD8BD32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824529   (128861) от 15.10.2025
-
-Lil'Magic Sam - Tired Out (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  LEAVING TOWN (4:12)
-02.  I'M COMING BACK (3:52)
-03.  LOOKING SO FINE (3:57)
-04.  ACTION LADY (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE44F9DEC27E1EE17C3759641E2D495FB9E00BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824525   (128862) от 15.10.2025
-
-Kristina Train - County Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Singer-Songwriter>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  County Line (3:49)
-02.  99 Floors (3:15)
-03.  Hard Road To Travel (3:41)
-04.  Believe (3:59)(   Читать дальше...   )Жанр: Blues, Rock, Singer-SongwriterПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04A036DE49CE6338F1F6BB38BA9E96D05FC0C14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 55427   (128863) от 15.10.2025
-
-Русалка (2007) WEB-DL 1080p
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алиса - хроническая неудачница. Но в одном ей сказочно повезло - Алиса умеет говорить с морем и обладает даром влиять на происходящие в мире события. Достигнув 18-летия, Алиса решает попытать счастья в Москве. В столице Алису поджидают новые неприятности и первая в жизни влюбленность… без взаимности.
-Могут ли волшебные способности Алисы помочь ей завладеть сердцем (   Читать дальше...   )Производство: Россия, Централ ПартнершипЖанр: ДрамаАктеры: Мария Шалаева, Евгений Цыганов, Мария Сокова, Анастасия Донцова, Вероника Скугина, Наталья Рычкова, Ирина Скриниченко, Игорь Яцко, Нана Кикнадзе, Артур Смольянинов, Нелли Уварова, Игорь Урываев, Марина Николаева, Сергей Юркин, Инга Сметанина, Иван Николаев, Сергей Алдонин, Сергей Чирков, Алексей Гущин, Антон Ескин, Максим Коновалов, Виктор Перевалов, Альбина Евтушевская, (   Читать дальше...   )Продолжительность: 01:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300D74845987C5EDCE283B57A5DABF53EFF6222C
 ```
 
 

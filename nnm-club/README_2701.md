@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E5B3DD5FEF34077C3F5F002651E2C3063946899F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70975.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:016D696A3715CEC961A81ED08DB31557F765417E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70976.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dream Theater - Parasomnia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70977.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:756E0005A5A96719E3C681EF84A9CD9C774C9940
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70978.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - The Best Of Italo Disco Vol. 9 (1987) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70979.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Marko Hietala - Roses From The Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70980.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Sixth Sample & Integraudio - Deelay 1.3.1 VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70981.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Nel Begley - Small Flame (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70982.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Peter Erskine & JAM Music Lab All-Stars - Vienna to Hollywood: Impressions of E.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70983.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Drohkaal - Divinity Within (2024) [MP3|320 Kbps] <Thrash, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70984.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Dick Hyman - Face The Music: A Century Of Irving Berlin (1988) Musicmasters [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70985.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Bill Moio - Try This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70986.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Nico's Trio - Standard's Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70987.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Kimmo Salminen - Love House (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70988.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ The Buddy Rich Big Band - Mercy, Mercy (1968) 1997, Pacific Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70989.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Jean-Maxime Pinta Quintet - For the Peace (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70990.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ John Hicks Quartet - Naima's Love Song (1988) DIW Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70991.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ The James Williams Magical Trio - Awesome! (1997) 2000, DIW Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70992.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Art Farmer & Slide Hampton - In Concert (1984) 1995, Enja Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70993.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:26E6D055A95FE63487323AF55F09E8A261AEDBA5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70994.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:8DDB230FC748D44AC13B65AE79B69B41C8665EAC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70995.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:A0714B253483A8B4B4FEAB2A0F9477417626B643
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70996.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:7E78DEF45CFA0C7351A60854720D399AD678BA52
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70997.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:F324FE704BC5DF58EB6A41F8777694FC3DE39C0A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70998.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:0BBACA1CFCF93E62C4DFF6E6C25FA91DE6CC11BC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70999.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20918.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20918.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Age of Empires IV: 4K HDR Video Pack (2021) [Ru/Multi] (11.0.782) Repack FitGirl
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20919.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20919.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:733B87D22EC5B60E5AE49A9F237CC766FB2C3AE7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20920.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20921.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8278D8D5C82348E26E1A428C1EDB2D09B69EBFAF
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20922.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ RAR for Android v7.11 build 127 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20923.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20923.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A34070752FF29391A00443FCC2B753416BC85C85
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20924.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20924.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ dBpoweramp Music Converter 2025.04.17 Reference (x64) Portable by FC Portable [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20925.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festiv
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20926.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20926.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.4.55968 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20927.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20927.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:859405E887E77DE7EBB6B3FC16CA2E95235FD53E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20928.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20928.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B747FCFE72355E097ED625D5100386327202EA11
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20929.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:D5C731FCFA800C0E15DA6B6AF0C79A958842D50B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20930.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20930.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Reg Organizer 9. 70 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20931.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 15.04.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20932.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20932.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20933.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20933.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:A8644AE8DDBC5F7110DEE39A9936F0A9C66FD7E5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20934.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20934.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:84F4CE57B43D3EBEB33A4D81898F8E98A6C5B503
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20935.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20935.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:84F4CE57B43D3EBEB33A4D81898F8E98A6C5B503
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20936.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20936.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Judaica Multimedia (Israel) Ltd | Encyclopaedia Judaica CD-ROM Edition v1.0 / Е
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20937.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20937.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:46234CA0D5D6E9E774AD299B27237E99ECB14F56
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20938.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20938.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.4 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20939.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3408E07B339BBCFA5EC426673C4D82858CA70280
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20940.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ MediaHuman YouTube Downloader 3.9.10.0 (1804) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20941.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Athentech Perfectly Clear Complete 4.7.0.2780 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20942.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:EB567E471D4045CA8616549B6D4AA0FF4806BC76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20943.jpg" />
 </div>
 
 

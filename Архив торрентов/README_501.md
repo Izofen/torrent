@@ -6,7 +6,7 @@ DesktopOK 11.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111339.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Driver Booster Pro 11.4.0.57 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111342.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ YT Downloader 9.7.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111346.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Brave Browser 1.64.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111390.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Telegram Desktop 4.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111392.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Text Editor Pro 29.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111400.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Draw.io 24.2.5+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111405.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Opera One 109.0.5097.45 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111414.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:7D7FB18EC78A238BE94DF38E9355BA0F0860D11E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111416.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Subtitle Edit 4.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111417.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ KineMaster - Video Editor & Maker v7.4.7.32377.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111451.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ PhotoRoom v4.9.2 b1356 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111452.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Photo Lab PRO v3.13.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111471.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Macrorit Partition Expert 8.1.6 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111478.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sumatra PDF 3.6.16019 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111481.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ OfficeSuite Pro + PDF 14.4.51666 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111487.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Topaz Gigapixel AI 7.1.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111493.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ OfficeSuite Pro + PDF 14.4.51666 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111495.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Topaz Gigapixel AI 7.1.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111496.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ NIUBI Partition Editor 9.9.5 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111504.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ R-Studio Network 9.4 Build 191301 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111507.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Moon+ Reader Pro v9.3 (b903002) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111508.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Vivaldi 6.6.3271.61 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111547.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Image Uploader 1.4.0 Build 5138 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111551.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PIDKey Lite 1.64.4 b41 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111555.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ NIUBI Partition Editor 9.9.5 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111566.jpg" />
 </div>
 
 

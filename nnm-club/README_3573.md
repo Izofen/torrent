@@ -1,3 +1,80 @@
+###  Публикация: 1711009   (112580) от 28.03.2024
+
+URL Manager Pro 6.4.4 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112580.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2024Разработчик: © 2024 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50239307B16CB4B9D08CABA0C6E765A7D8812E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710786   (112581) от 28.03.2024
+
+Молчаливый / Le silencieux (1973) BDRip [H.264/720p] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто такой Антон Халяков, который только что был похищен MI5 в Лондоне? Очевидно, советский ученый. Но шестнадцатью годами раньше у этого человека была другая личность - Клеман Тибер. И другое гражданство - французское. Так что же заставило его стать русским и сменить личность? И почему им заинтересовались британские спецслужбы?...Производство: Франция, Италия / Gaumont International, Medusa Distribuzione, Trianon FilmsЖанр: драма, триллерРежиссер: Клод ПинотоАктеры: Лино Вентура, Лео Генн, Сюзанн Флон, Роберт Харди, Леа Массари, Пьер-Мишель Ле Конте, Анни Дежуа-Жодри, Бернар Деран, Пьер Зиммер, Роже Крузе, Люсьенн Легран, Пьер Колле, Андре Фалькон, Ричард Сайнт-Брис, Габриэль СинкуаПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E27B9167030A4C2EE86E5AED9A848689B140BBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710874   (112582) от 28.03.2024
+
+Валерий Курас - Мужские истории (2021) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А я чё...
+02. Каблучок
+03. Шансон
+04. Жизнь моя - такси(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD071C149FCE076C28CBFC10C2405CD90B3097B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710655   (112583) от 28.03.2024
 
 Блаженный Феодорит Кирский | Толкование на 50-й псалом (2013) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +83,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112583.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112584.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ magnet:?xt=urn:btih:D7920E0AD0F6715F62B2A5AFB71CA038217EE8CF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112585.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ magnet:?xt=urn:btih:6D56166A2CCC04174B70EE7E79469A4D2B2CC415
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112586.jpg" />
 </div>
 
 
@@ -107,7 +184,7 @@ magnet:?xt=urn:btih:BEC494B5E15912E576270744CB0DBB3E4CB21A31
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112587.jpg" />
 </div>
 
 
@@ -134,7 +211,7 @@ Skype 8.115.0.217 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112588.jpg" />
 </div>
 
 
@@ -158,7 +235,7 @@ magnet:?xt=urn:btih:30E2C9DA605AC383FEB14D0E3CD66B28F7F4540D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112589.jpg" />
 </div>
 
 
@@ -182,7 +259,7 @@ Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112590.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ magnet:?xt=urn:btih:D7398DF616D2D57A104C1A16243A640B5AFAC5C7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112591.jpg" />
 </div>
 
 
@@ -233,7 +310,7 @@ Photo Studio Premium v2.7.3.2445 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112592.jpg" />
 </div>
 
 
@@ -257,7 +334,7 @@ magnet:?xt=urn:btih:D66E4070C36E4EA74F18B6B611C20E4159B769AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112593.jpg" />
 </div>
 
 
@@ -281,7 +358,7 @@ Beyonce - Cowboy Carter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112594.jpg" />
 </div>
 
 
@@ -308,7 +385,7 @@ magnet:?xt=urn:btih:691CBDF086022A5CBC72178D29C7094EBF9F8A3D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112595.jpg" />
 </div>
 
 
@@ -335,7 +412,7 @@ Mp3tag 1.8.20 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112596.jpg" />
 </div>
 
 
@@ -359,7 +436,7 @@ Password Repository 4 v.4.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112597.jpg" />
 </div>
 
 
@@ -383,7 +460,7 @@ magnet:?xt=urn:btih:955CA7DCAC0CE9468F37B4DA2826C728A6BD2E88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112598.jpg" />
 </div>
 
 
@@ -407,7 +484,7 @@ MediaInfo for Mac 24.03 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112599.jpg" />
 </div>
 
 
@@ -431,7 +508,7 @@ EF Commander 24.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112600.jpg" />
 </div>
 
 
@@ -455,7 +532,7 @@ Polarr v6.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112601.jpg" />
 </div>
 
 
@@ -479,7 +556,7 @@ magnet:?xt=urn:btih:B1AC61C1BD4E34621CB638EF2FAAEA97D24246CF
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112602.jpg" />
 </div>
 
 
@@ -503,7 +580,7 @@ magnet:?xt=urn:btih:C288660342CC56893888880C23BE3BF526391412
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112603.jpg" />
 </div>
 
 
@@ -527,7 +604,7 @@ magnet:?xt=urn:btih:021F372F11727B5B435F19D6D01277E80279DE67
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112604.jpg" />
 </div>
 
 
@@ -551,7 +628,7 @@ magnet:?xt=urn:btih:6357C6DDF8C478C68EE54234A3F5E28CF5B7A8F1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112605.jpg" />
 </div>
 
 
@@ -562,82 +639,6 @@ magnet:?xt=urn:btih:6357C6DDF8C478C68EE54234A3F5E28CF5B7A8F1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AB9900365008CC9FDE24C39477BC15FB604FD8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710947   (112606) от 28.03.2024
-
-Sum 41 - Heaven :x: Hell (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-punk, punk rock, alternative metal-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting On A Twist Of Fate (2:47)
-02. Landmines (2:56)
-03. I Can't Wait (2:06)
-04. Time Won't Wait (2:31)(   Читать дальше...   )Жанр: Pop-punk, punk rock, alternative metal-rockПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD06142AF85CD177FC31AA933E4E689D2B0C62E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711019   (112607) от 28.03.2024
-
-Wondershare UniConverter for Mac 15.5.4 Intel/ARM [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2024Разработчик: © 2024 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 (Intel) macOS 11.0 (Apple Silicon)Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB410C3CEEB0825152F91FBC3F626A7AA19B1D97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710964   (112608) от 28.03.2024
-
-CherryTree 1.1.1.0 (x64) + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112608.jpg" />
-</div>
-
-
-###  Подробнее
-
-CherryTree - функциональная программа, которая позволит вам без проблем вести разного уровня сложности заметки. Из плюсов можно отметить наличие Русской поддержки, подхватывается автоматически после запуска. Вы сможете создавать иерархическую структуру заметом, имеется подсветка синтаксиса, все ваши записи вы сможете защитить паролем, также вы сможете импортировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB89087CD110F3F762C706EAEC5A42EB36C0B9A
 ```
 
 

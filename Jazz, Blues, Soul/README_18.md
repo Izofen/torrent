@@ -6,7 +6,7 @@ Joe Bonamassa - If Heartaches Were Nickels (Live At The Hollywood Bowl With Orch
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52571.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mike Franano - Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52681.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vladimir Tolkachev Jazz Orchestra (Владимир Толкачев) - General'
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53327.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Toronzo Cannon - Shut Up & Play! (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53615.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Warren Wolf - Black Wolf (2009) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53617.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lee Ritenour - The Very Best Of Lee Ritenour (2003) GRP [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53618.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jack Walrath - Neohippus (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53623.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mildred Bailey - 1940 - 1942 (2002) Classics [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53625.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mildred Bailey - 1939 - 1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53627.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mildred Bailey - 1939 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53628.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Guitar Pete - 7 Albums (1998 - 2021) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53644.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Vic Dickenson & Joe Thomas - Mainstream (1958) 2013, Warner [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54147.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Doc Severinsen - & Friends (1992) MCA Special Products [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54148.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ruby Braff - Ad Lib Blues (1951 - 1954) 2002, Past Perfect [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54150.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Scott Hamilton - From The Beginning (1977, 1978) 2CD, 2002, Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54253.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Italian Restaurant Lounge Music Vol. 3 (The Best Italian Songs to relax for
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54355.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lucky Peterson - 29 Albums, 1 Box Set (1984 - 2020) 33 CD [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54433.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Gary Clark Jr. - 9 Albums (2005 - 2024) 10 CD[FLAC|Lossless|tracks + .cue|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54620.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Blues Dudes - Organ Blues (2013) [MP3|320 Kbps] <Blues, Organ, Instrumental>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54675.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Erotica, Ladies Jazz Group - Sexy Vocal Jazz (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56240.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Slash - Orgy of the Damned (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56347.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Nightfall: Piano in the Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56462.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Billy Butcher - Penny Dreadful (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56567.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Jazz Covers Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56667.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jeff Michaels - 3 Albums (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56767.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Spyro Gyra - Catching The Sun (1980) 1994, BMG Music [FLAC|image+.cue]<Smooth, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56884.jpg" />
 </div>
 
 

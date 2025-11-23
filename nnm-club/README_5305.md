@@ -1,3 +1,181 @@
+###  Публикация: 1517193   (163395) от 14.12.2021
+
+Код игрока / Куцукакэ Токидзиро / Kutsukake Tokijirо / The Gambler's Code (1961) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куцукакэ Токидзиро (Райдзо Итикава) странствует по свету и живет одним днем. Долг боссу Тамарида вынуждает его бросить вызов Сандзо, единственному выжившему члену банды Наканума. Нанеся несколько ударов и посчитав, что с долгом покончено, Токидзиро отпускает Сандзо к жене и сыну, но тот все равно погибает в неравной битве с бандой Тамарида. Перед самой смертью, Токидзиро (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: Драма, историяРежиссер: Кадзуо ИкэхироАктеры: Раидзо Итикава, Митиё Аратама, Такаси Симура, Харуко Сугимура, Рюдзо Симада, Фудзио Суга, Ёсио Инаба, Гэн Симидзу, Сигэру Аоки, Тосио ТибаПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B47458D7CF9B3D0E980FEE65E0D215C2D7AD0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430287   (163396) от 17.12.2020
+
+Мертвые души (2020) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет романа Гоголя развивается в наше время. Чичиков, чиновник из Москвы, на этот раз не скупает мертвые души у недалеких провинциалов, а продает им места на кладбище рядом со знаменитостями. История показывает, что уклад сегодняшней российской жизни не так уж сильно изменился за 200 лет, а делать деньги из воздуха, продавая места на кладбищах Москвы рядом с могилами (   Читать дальше...   )Производство: Россия / LOOK FILM, IVI OriginalsЖанр: комедия, драмаРежиссер: Григорий КонстантинопольскийАктеры: Евгений Цыганов, Александр Робак, Дмитрий Дюжев, Тимофей Трибунцев, Елена Коренева, Максим Емельянов, Алексей Серебряков, Анна Михалкова, Сергей Колтаков, Виктория Толстоганова, Игорь Верник и др.Продолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7489C83219131A41BBE178883859AE3AA5C83387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517305   (163397) от 14.12.2021
+
+Opera 82.0.4227.33 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CA4A442CDFBF7F1AC511B21A52A872CF36A33D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673987   (163398) от 03.11.2023
+
+Billy Merziotis ft Gary Moore Band & Irene Movia - All the things you are (2023) [FLAC|Lossless|image + .cue] <Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий студийный альбом Билли Мерзиотиса .
+На этот раз виртуоз Les Paul объединяет усилия с бывшими участниками группы Гэри Мура : Виком Мартином (клавишные), Питом Рисом (бас) и Грэмом Уокером (ударные). Вместе с давней музыкальной партнершей, певицей и автором текстов Ирен Мовиа , Билли создает аутентичный альбом, состоящий из запоминающихся рок-риффов, зажигательных (   Читать дальше...   )01. I Wanna Breathe
+02. Same Kind Of Fool
+03. Lady Of The Sea
+04. You Shouldn’t Play With Fire(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D1E60FF6C7074BF00EFDFD23FFEE2FC262A762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598230   (163399) от 18.12.2022
+
+Odd Dimension - The Last Embrace To Humanity (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unknown King
+02. Under My Creed
+03. Dissolving Into The Void
+04. It's So Late(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7D45F5ECFB2C3D6E82EBD0C93A004233E3786D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598198   (163400) от 18.12.2022
+
+Biff Byford - School Of Hard Knocks (2020) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Show 05:22
+02. School of Hard Knocks 04:21
+03. Inquisitor 01:26
+04. The Pit and the Pendulum 07:18(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DA895ADD8D14689E4F3224925C3621249003E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346442   (163401) от 19.12.2019
+
+Патруль времени / Timecop (1994) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Передвижения во времени породили новый тип преступлений. Можно изменять события прошлого, контролировать финансовые рынки и даже уничтожать целые народы. Правительство США создает специальное полицейское подразделение — патруль времени.Производство: Канада, США, Япония / Largo Entertainment, JVC Entertainment Networks, Signature PicturesЖанр: фантастика, боевик, триллер, криминалРежиссер: Питер ХайамсАктеры: Жан-Клод Ван Дамм, Миа Сара, Рон Сильвер, Брюс МакГилл, Глория Рубен, Скотт Беллис, Джейсон Шомбинг, Скотт Лоуренс, Кеннет Уэлш, Брент ВулсиПеревод: Многоголосый профессиональный, двухголосый закадровый, авторскийСубтитры: Русские (форсированные, полные), английскиеПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBC3D7EDCBCE5181A8B8FFD49B42E09932084E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432267   (163402) от 17.12.2020
 
 HTML Academy | Онлайн-курс «Вёрстка email-рассылок» (2020) PCRec [unpacked]
@@ -6,7 +184,7 @@ HTML Academy | Онлайн-курс «Вёрстка email-рассылок» (
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163402.jpg" />
 </div>
 
 
@@ -31,7 +209,7 @@ magnet:?xt=urn:btih:C6BAA895A79EC19935DC9457F9C7179D813AE690
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163403.jpg" />
 </div>
 
 
@@ -56,7 +234,7 @@ Bad Wolves - Die About It (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163404.jpg" />
 </div>
 
 
@@ -83,7 +261,7 @@ CupHead v.1.2.4 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163405.jpg" />
 </div>
 
 
@@ -109,7 +287,7 @@ Sweet Hole - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163406.jpg" />
 </div>
 
 
@@ -136,7 +314,7 @@ magnet:?xt=urn:btih:97DD9DBDD0588F892B8C6B91AB346B3F58A01B2E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163407.jpg" />
 </div>
 
 
@@ -160,7 +338,7 @@ FabFilter Total Bundle v.2023.10.31 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163408.jpg" />
 </div>
 
 
@@ -184,7 +362,7 @@ magnet:?xt=urn:btih:9A8D62D9371043E2D177DC4C0436A8CAA50FEB3F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163409.jpg" />
 </div>
 
 
@@ -208,7 +386,7 @@ magnet:?xt=urn:btih:08B972B7A5710D76433ECA9D4F1F9E88F31F9D09
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163410.jpg" />
 </div>
 
 
@@ -233,7 +411,7 @@ magnet:?xt=urn:btih:1A610B34CDADF24BB113E1737621EC94164B49FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163411.jpg" />
 </div>
 
 
@@ -257,7 +435,7 @@ magnet:?xt=urn:btih:54815CF3A07AF6C9DFDE8EED950AA02B1FA466E8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163412.jpg" />
 </div>
 
 
@@ -283,7 +461,7 @@ Serenity - Nemesis AD (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163413.jpg" />
 </div>
 
 
@@ -310,7 +488,7 @@ magnet:?xt=urn:btih:D7D2BAFA5F3F15EB00734EF156B6DB7EE37BF77B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163414.jpg" />
 </div>
 
 
@@ -334,7 +512,7 @@ magnet:?xt=urn:btih:E3D857F14F8494F2012C2DD46C246877F82D9AD0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163415.jpg" />
 </div>
 
 
@@ -358,7 +536,7 @@ Guitar Tuna v6.16.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163416.jpg" />
 </div>
 
 
@@ -383,7 +561,7 @@ Creeping Death - The Edge Of Existence (2021) [APE|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163417.jpg" />
 </div>
 
 
@@ -410,7 +588,7 @@ CyberLink ColorDirector Ultra 10.1.2406.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163418.jpg" />
 </div>
 
 
@@ -434,7 +612,7 @@ Oasis - The Masterplan (1998) Remastered Edition, 2023, Big Brother Recordings L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163419.jpg" />
 </div>
 
 
@@ -461,7 +639,7 @@ magnet:?xt=urn:btih:8EF77D9943F5736E130153D53119BC50E23004FB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163420.jpg" />
 </div>
 
 
@@ -472,185 +650,6 @@ magnet:?xt=urn:btih:8EF77D9943F5736E130153D53119BC50E23004FB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7B29B0AC5F71BFD23B174504EEE92EC9950186
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517005   (163421) от 14.12.2021
-
-VA - Christmas and New Year music xoxoxoxo (2021) 5CD [MP3|320 Kbps] <Pop, Rock, Christmas>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - Rudolph The Red-Nosed Reindeer
-02. Jackson 5 - I Saw Mommy Kissing Santa Claus
-03. Kurt Elling - Cool Yule
-04. Boyz II Men,Brian McKnight - Let It Snow(   Читать дальше...   )Жанр: Pop, Rock, ChristmasПродолжительность: 22:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA962F1D0E2685C5441F9351C3B1FFCE8CC462FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598211   (163422) от 18.12.2022
-
-Comecon - The Worms Of God (2008) 2CD Reissued-2009 [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pinhole View 03:31
-02. The Whole World 04:05
-03. God Told Me To 02:02
-04. Dipstick 03:58(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92975937625707A9006AFEDB4035416B98EA6EB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432513   (163423) от 17.12.2020
-
-Zombie Army 4: Dead War (2020) [Ru/En] (2.02/dlc) Repack Other s [Super Deluxe Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zombie Army 4: Dead War — орды под предводительством Гитлера возвращаются за добавкой в новом леденящем кровь шутере от создателей Sniper Elite 4! Жуткие демонические враги, эпическое оружие и невероятная новая кампания для 1−4 игроков в духе Европы 1940-х. Сразитесь с нежитью и не дайте человечеству погибнуть!Тип издания: RepackРазработчик: RebellionЖанр: Action (Survival horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C718BDF9A829BD27537486901D5EB14B26C08EB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673807   (163424) от 03.11.2023
-
-Дженн Граннеман, Андре  Соло | Сверхчувствительность как суперсила (2023) [MP3, Мария Ермакова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сверхчувствительные люди переживают всё острее: плачут от счастья, страдают от критики, быстро устают. Вдобавок они часто сталкиваются с непониманием: окружающим кажется, что те просто драматизируют. Но Дженн Граннеман и Андре Соло уверены, что чувствительность – дар сродни суперсиле, ведь сверхчувствительные люди способны проявлять большую эмпатию, обладают развитой (   Читать дальше...   )Жанр: ПсихологияИздательство: Альпина ДиджиталПродолжительность: 07:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28394F8A2A73E19864DCB0EFBC906A3C9130759D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346499   (163425) от 19.12.2019
-
-Максим Керн | Закон Мерфи (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Математик».
-
-Продолжение приключений Ксандра Нолти и его друзей. Академия Таруна встретила его неласково, обучающиеся в ней дети высших аристократов приняли наследника рода Нолти в штыки. Но разве какие-то три смертельные дуэли в первый же вечер смогут остановить математика из нашего мира на пути к его цели?Жанр: Боевое фэнтези, Героическое фэнтези, Магические академии, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC987B859F6AC2CF24DDECA978758A0A9498B893
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517281   (163426) от 14.12.2021
-
-Меган Мак-Катчен | Прокачай самооценку. Как победить неуверенность в себе и жить свободно (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа, друзья, взрослые, соцсети очень часто влияют на то, каким ты себя видишь и что ощущаешь. В этом практическом руководстве представлены интересные творческие задания, которые помогут мыслить позитивно, избавиться от неуверенности и научиться любить себя. Более 50 упражнений (анкеты, тесты, чек-листы и многое другое) помогут научиться ставить цели и понимать, (   Читать дальше...   )Жанр: Педагогика/Воспитание детей/ПсихологияПеревод: Василия ГороховаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86C31CAF8DDBB3ECEBC170FBAB8A2216CD2F8D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598254   (163427) от 18.12.2022
-
-Django Reinhardt - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome (2e partie) [2:21]
-02. I Can't Give You Anything But Love [2:23]
-03. Artillerie lourde [4:18]
-04. How High the Moon [2:21](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769411F72C5AF0CDD620754E01FA59B164B1D03E
 ```
 
 

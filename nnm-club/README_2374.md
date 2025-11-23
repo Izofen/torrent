@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62089.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5DB242FB1021BD9C7E8A09840EABE673779321D2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62090.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:02DB2F8BA9350198BD264677BC49CB356458F8D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62091.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:02DB2F8BA9350198BD264677BC49CB356458F8D5
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62092.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62093.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:232D135D9ABBE5D8554EDE43D15AEDFA83E8C70B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62094.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C6A289183540DA90F5A22BCB3F1EA658628FA991
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62095.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B28D1013F2ED2E49655D6303A9E451D265549113
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62096.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4B9E958FCC5191AF8359CFEB0F1FFF85EDD30088
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62097.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:513EF221A1F52D2D5B757915F5AD62A41B4BB3FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62098.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:C9B108B7EC81658E10DF2F32A0FA4C66C2AAD211
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62099.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:1D1B73B86F1713B13D847D5926E5CEA475D8C48D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62100.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0BE59842C758CB90D36A686869A1B4630537A022
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62101.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0BE59842C758CB90D36A686869A1B4630537A022
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62102.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:8647173F01B3413828EF49FC6EDFFF44EDE2E8D0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62103.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:3AC2684E82F64FA5F6532D70D3DBAF40F2168453
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62104.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:1E00102A50AB03AD3DC98097228B8D41C27F2A43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62105.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:69EA6AB01162900691C68C0E1509686A889CF236
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62106.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:E7A9635C2CE234FB19ADCC11F3E00B8B5DF4AD14
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62107.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:CFAE7777ADC0AD02FA1D23C153961BBE305B5533
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62108.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Genesis - Selling England By The Pound (1973) SACD, Remastered, 2024, Analogue P
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62109.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Valhalla DSP - Valhalla VintageVerb 4.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62110.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Valhalla DSP - Valhalla Room 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62111.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:8BBF7FB22773BFDD96A9055C08764C1859BA31FB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62112.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Steinberg Cubase Pro for Mac 13 v.13.0.30 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62113.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:C6ED9D7FD4039B9E22515334CAAADF8D8B759F3C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62114.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1724538   (109200) от 20.05.2024
+
+Ricky Ford - Manhattan Blues (1989) Candid [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Walked Bud [8:10]
+02. Misty [7:47]
+03. Ode to Crispus Attucks [5:46]
+04. Portrait of Mingus [8:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981CD43EDC0584BC31FFD5F339817E11CF9CBFA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724535   (109201) от 20.05.2024
+
+Bismarck - Vourukasha (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal, stoner, sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Father [00:05:15]
+02. Echoes [00:07:06]
+03. Kigal [00:05:28]
+04. The Tree Of All Seeds [00:01:55](   Читать дальше...   )Жанр: doommetal, stoner, sludgeПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9957F0FEA4462AE88BC1439F57E16C67574F0C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724534   (109202) от 20.05.2024
+
+Alex Sipiagin - Balance 38-58 (2015) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 38-58 [9:28]
+02. Way to Her [8:33]
+03. Momentum [9:37]
+04. Echoes of Thought [12:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C91258379944A7A632284EB78339D420E189037
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724546   (109203) от 20.05.2024
 
 Soul Browser 1.4.21 Mod by AnBo39 [Ru/Multi]
@@ -6,7 +87,7 @@ Soul Browser 1.4.21 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109203.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:FE210966B11A17F9A4041D3B6585F78D7638F008
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109204.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ magnet:?xt=urn:btih:C07EADA22DF5CEE101F48ADBF7DBDF7AECF0DAF2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109205.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ Sensual Lounge Music Universe, Jazz Lounge Zone - Deep Sexy Jazz Lounge (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109206.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ Fort Firewall 3.12.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109207.jpg" />
 </div>
 
 
@@ -129,7 +210,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109208.jpg" />
 </div>
 
 
@@ -153,7 +234,7 @@ VA - Good Morning Best Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109209.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ Togu Audio Line - TAL-Pha 1.2.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109210.jpg" />
 </div>
 
 
@@ -205,7 +286,7 @@ Togu Audio Line - TAL-J-8 1.8.2 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109211.jpg" />
 </div>
 
 
@@ -229,7 +310,7 @@ Karsten Bagge, Claus Waidtløw, Jesper Bodilsen - The Song Remains (A Jazz Tribu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109212.jpg" />
 </div>
 
 
@@ -256,7 +337,7 @@ magnet:?xt=urn:btih:D90CCD034E24CA5AE28A097F3BC03C5E3081E27F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109213.jpg" />
 </div>
 
 
@@ -281,7 +362,7 @@ Togu Audio Line - TAL-U-NO-LX-V2 4.8.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109214.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ magnet:?xt=urn:btih:9CA3AAC5370FFB82B42C3BCE397AC1C906D40EBE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109215.jpg" />
 </div>
 
 
@@ -331,7 +412,7 @@ magnet:?xt=urn:btih:CC030A433B899FF5F1FD9683CDC4B27AE10CC187
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109216.jpg" />
 </div>
 
 
@@ -358,7 +439,7 @@ magnet:?xt=urn:btih:AB2A1FCFC4A4BB628D0F49688AD7CD296DEC5261
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109217.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ The Things - Coloured Heaven (1984) Remastered, 2024, Teen Sound [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109218.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ Boys of Fall - Boys of Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109219.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ Resurrect Tomorrow - The Eagle (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109220.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ Saint Agnes - Bloodsuckers (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109221.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ magnet:?xt=urn:btih:15CDD1A349BFC41236212546B7D96A31FCCA0D70
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109222.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ magnet:?xt=urn:btih:3F7F935298D9AE5D8E5553D6B579583250682F49
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109223.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by d
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109224.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ Glary Utilities Pro 6.10.0.14 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109225.jpg" />
 </div>
 
 
@@ -577,84 +658,6 @@ Glary Utilities - функциональный набор системных т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F321F90280AF02C950F68D521958CDCB360D4FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724586   (109226) от 20.05.2024
-
-VA - Fulltime Production Disco Classic, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Ross - S.O.S of Love (6:39)
-02. Ago - It Will Never Be (5:31)
-03. Kano - I Need Love (6:06)
-04. Selection - On the Ground (4:33)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A0DA4480539935E93586055CE24E85511CBE87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724374   (109227) от 20.05.2024
-
-Хитобои - К деньгам (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. К деньгам [00:03:47]
-02. Не охай [00:03:04]
-03. Звёздочки [00:03:52]
-04. Танец [00:02:31](   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2514FE4E6ED9E5E4A0E2682948A5DFD0C4D63115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724543   (109228) от 20.05.2024
-
-Video Converter Pro 0.2.37 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Converter Pro - стильное и функциональное приложение, что является конвертером видео- аудиоформатов, а так же простым по своим свойствам редактором. При этом есть масса предустановок, готовых проектов и всего прочего, что позволяет получать нужный результат без лишних проблем и выяснения чего же нужно тому или иному устройству, или ресурсу для стабильной работы. (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 14.05.2024Разработчик: VidSoftLabПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61BAD859B195F90115253D9A3D839F72C70C60D
 ```
 
 

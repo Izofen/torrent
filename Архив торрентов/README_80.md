@@ -6,7 +6,7 @@ MassTube Ultra 20.1.2.124 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23113.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IPTV Pro v9.0.13 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23115.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.10.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23121.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23121.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ MediaHuman YouTube Downloader 3.9.9.98 (2603) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23122.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23122.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Youtube Downloader HD 5.9.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23123.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23123.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ WinToUSB Free / Pro / Enterprise / Technician 9.6.0 RePack (& Portable) by Dodak
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23137.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23137.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ MassTube Ultra 20.1.3.126 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23143.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23143.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4689A9E2FB47A25F6C8345BA54B654883F514735
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23150.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23150.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Adobe Photoshop 2025 26.5.0.16 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23155.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23155.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:97450AF6BE95D1DBC85B5ACF745530EE645BA9F6
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23158.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23158.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Topaz Photo AI Pro 3.6.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23162.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23162.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ OBS Studio 31.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23171.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23171.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Adobe Photoshop 2025 26.5.0.16 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23184.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23184.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Adobe Illustrator 2025 29.4.0.152 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23185.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23185.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Activation Program 1.08 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23191.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23191.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:D8DE69441322BC454C6BE85BBD6770464CA0092D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23194.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23194.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mp3tag 3.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23195.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23195.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Calibre 8.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23204.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23204.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ EF Commander 25.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23207.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23207.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Vivaldi 7.3.3635.4 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23212.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23212.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Firefox Browser 136.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23213.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23213.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Free Download Manager 6.26.1.6177 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23235.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23235.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Tor Browser Bundle 14.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23241.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23241.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Topaz Gigapixel AI Pro 8.3.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23261.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ XnView MP 1.8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23300.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23300.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.98 (2603) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23308.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1697591   (118742) от 07.02.2024
+
+Sante DICOM Viewer Pro 14.0.5 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sante DICOM Viewer Pro — это профессиональная программа для просмотра DICOM, анонимайзер, конвертер, клиент PACS, мини-сервер PACS, программа для записи CD/DVD пациента (со средством просмотра) и многое другое.
+Sante DICOM Viewer Pro не является «еще одним средством просмотра DICOM» , созданным с использованием свободно доступных библиотек, таких как dcmtk, itk и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2609643B3C7BA79E9BD37DDCEED8504859D82839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697715   (118743) от 07.02.2024
+
+Ю.И. Якимов,  А.В. Осадчий и др. | Практикум по эксплуатации машинно-тракторного парка (2004) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118743.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии дана общая характеристика машинно-тракторных агрегатов, рассмотрены вопросы их комплектования и кинематики, приведены технико-экономические показатели работы машинно-тракторных агрегатов, описаны основные операционные технологии механизированных работ в полеводстве, овощеводстве, садоводстве, виноградарстве и др. вопросы.
+Для предоставления возможности (   Читать дальше...   )Жанр: Учебное пособиеИздательство: КраснодарФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8665945452D5B39172F6AC72242B1709433012A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697547   (118744) от 07.02.2024
+
+Журнал | Садовод и огородник №3 (518) (февраль 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118744.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76684D450351CF72456174EB1BCB5CCA33F9E70C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697669   (118745) от 07.02.2024
 
 Голубой экспресс (1929) WEBRip [H.264/720p-LQ]
@@ -6,7 +80,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118745.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ Sante DICOM Editor 10.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118746.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ magnet:?xt=urn:btih:66F9A28EFFDEC449B4680C03EBBA9B5EBCF18CE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118747.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Florence Black - Bed Of Nails (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118748.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ Chet Baker - Late Night Chet Baker (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118749.jpg" />
 </div>
 
 
@@ -134,7 +208,7 @@ Background Instrumental Music Collective - Joyful Jazz Session: Swingin' into Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118750.jpg" />
 </div>
 
 
@@ -161,7 +235,7 @@ magnet:?xt=urn:btih:267E98D0937FEF630D7CE62979616B0BDF519613
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118751.jpg" />
 </div>
 
 
@@ -185,7 +259,7 @@ magnet:?xt=urn:btih:6DDC88F8388E32DF30CE05402F62FF69A6591B5B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118752.jpg" />
 </div>
 
 
@@ -211,7 +285,7 @@ magnet:?xt=urn:btih:EE8E056681CA7AA22131CED1637CB615328D55FB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118753.jpg" />
 </div>
 
 
@@ -236,7 +310,7 @@ magnet:?xt=urn:btih:095B8F2E4EC7E9A051A81362581B1B006B622E95
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118754.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ magnet:?xt=urn:btih:C523FD46EA835A62221A14EAE582014EC8F54B15
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118755.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ VA - Best Groovy Smooth Jazz for Traveling and Vacation (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118756.jpg" />
 </div>
 
 
@@ -311,7 +385,7 @@ Opera GX 106.0.4998.76 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118757.jpg" />
 </div>
 
 
@@ -337,7 +411,7 @@ Ungoogled Chromium 121.0.6167.139-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118758.jpg" />
 </div>
 
 
@@ -361,7 +435,7 @@ magnet:?xt=urn:btih:B5B813A1D7DAF169231006F1CDC8567F943FD2B2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118759.jpg" />
 </div>
 
 
@@ -385,7 +459,7 @@ EarthView 7.8.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118760.jpg" />
 </div>
 
 
@@ -409,7 +483,7 @@ Love Music Zone - Sexy Valentine’s Day 2024 (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118761.jpg" />
 </div>
 
 
@@ -436,7 +510,7 @@ Echo Splinter - The Last Stand (2024) [FLAC|Lossless|WEB-DL|tracks] <post-hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118762.jpg" />
 </div>
 
 
@@ -463,7 +537,7 @@ magnet:?xt=urn:btih:30A834A9566087DAADEFD28C1FCD79E73DA12279
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118763.jpg" />
 </div>
 
 
@@ -487,7 +561,7 @@ magnet:?xt=urn:btih:23B9662E74B52A97A1E1CFFB6B5F38D279B39D2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118764.jpg" />
 </div>
 
 
@@ -511,7 +585,7 @@ magnet:?xt=urn:btih:23B9662E74B52A97A1E1CFFB6B5F38D279B39D2E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118765.jpg" />
 </div>
 
 
@@ -535,7 +609,7 @@ magnet:?xt=urn:btih:9C5AC560E681EDB143FA964F0749202BDE9A367F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118766.jpg" />
 </div>
 
 
@@ -559,7 +633,7 @@ Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Sy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118767.jpg" />
 </div>
 
 
@@ -573,81 +647,6 @@ Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C42A44BD66E077A2B7FD920869B2A4EABCD78373
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697584   (118768) от 07.02.2024
-
-Wise Disk Cleaner 11.0.7.821 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7055A36948F1A4512ED70D57BF9F8E9600A45648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697587   (118769) от 07.02.2024
-
-VA, Marco Rinaldo - Saxophonic Haven: Sexy & Smooth Jazzed Up Evening (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Music Lovers Club - Sensual Time for Jazz (3:32)
-02. Jazz Guitar Club - Whispers of Love (3:59)
-03. Jazz Erotic Lounge Collective - Romantic Mindset (3:00)
-04. Jazz Music Lovers Club - Bedroom Midnight Strings (3:42)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668D3A37E6D1ADFB197408B28246199191775483
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697618   (118770) от 07.02.2024
-
-Татьяна  Серганова | Ведьма и инквизитор (Книга 1). Ведьма по соседству (2024) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать законопослушной ведьме, если рядом поселился инквизитор? Сделать всё, чтобы этот субъект съехал как можно быстрее и не мешал бизнесу. И в этом ей помогут смекалка, магия и адский кот! Главное – в процессе изгнания не увлечься. Потому как ведьма и инквизитор, каким бы сексуальным он ни был, точно не пара.Жанр: Любовное фэнтезиИздательство: Литрес, АвторПродолжительность: 11:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69EED1C316F5CF0B55361FA1E518D66A2931B8B
 ```
 
 

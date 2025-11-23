@@ -1,3 +1,77 @@
+###  Публикация: 1706834   (113490) от 14.03.2024
+
+Влада Ольховская | Дверь открыта (2022) [MP3, Алексей Бояджи]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди, никак не связанные между собой, умирают чудовищной смертью. У преступлений нет ничего общего, кроме одного: совершил их, похоже, не человек. И хотя следователю полиции тяжело принять это, он вынужден обратиться к специалисту по демонологии – пока жертв в этой истории не стало намного больше.Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED8FE41FB9638DEDE04A12B32D0DD170A78CB4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707007   (113491) от 14.03.2024
+
+Cronette 1.10.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cronette - это приложение для определения задач, запускаемых Mac без участия оператора.
+Утилиту можно использовать на необслуживаемых серверах Mac или на обычных рабочих станциях Mac для задач, выполняемых в ночное время, или для повторяющихся задач, которые должны выполняться на регулярной основе.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2024Разработчик: © 2012-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929001CD53A4D25EAE8F62DDFAD8E1F52BD24CAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706801   (113492) от 14.03.2024
+
+Upscayl for Mac 2.10.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масштабирование изображений становится все более доступным с каждым днем, и теперь у нас есть приложения, которые упрощают этот процесс до такой степени, что каждый может сделать это за пару кликов.
+Upscayl — это кроссплатформенное приложение с открытым исходным кодом, которое подходит для большинства сценариев. Оно не предлагает много возможностей настройки, но (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.02.2024Разработчик: © 2023  UpscaylПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BF80E3BBFAD40EF15181619EE614ED9D89EB20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706796   (113493) от 14.03.2024
 
 VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
@@ -6,7 +80,7 @@ VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113493.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ FanControl V183 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113494.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ Telegram Desktop 4.15.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113495.jpg" />
 </div>
 
 
@@ -83,7 +157,7 @@ Chromium 122.0.6261.129 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113496.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ magnet:?xt=urn:btih:5BA64A177B8D2243BE38BC45BB104E2C3FEAA2A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113497.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ Topaz Video AI for Mac 4.2.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113498.jpg" />
 </div>
 
 
@@ -156,7 +230,7 @@ magnet:?xt=urn:btih:F1C1DF3EF75E693CBFDAD0C16DB87C85A9AEC461
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113499.jpg" />
 </div>
 
 
@@ -180,7 +254,7 @@ magnet:?xt=urn:btih:A384BAB6A93633909A1B8612C34BD68308BCE723
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113500.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ magnet:?xt=urn:btih:DC9DBADD0324F0B9BFA0E65B7F7A1F830FBE09F3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113501.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [MP3|320 Kbps] <Melodic Heavy, Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113502.jpg" />
 </div>
 
 
@@ -255,7 +329,7 @@ Brave Browser 1.63.174 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113503.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ Rathole - Out Of Phase (2024) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113504.jpg" />
 </div>
 
 
@@ -306,7 +380,7 @@ magnet:?xt=urn:btih:3B045D3141294A6E309020E1360BE7A553B41DD3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113505.jpg" />
 </div>
 
 
@@ -333,7 +407,7 @@ VA - С Новым годом! (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113506.jpg" />
 </div>
 
 
@@ -360,7 +434,7 @@ magnet:?xt=urn:btih:F4C15F270DE47441CE6B5AD50BD71AE2EDF356D3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113507.jpg" />
 </div>
 
 
@@ -384,7 +458,7 @@ magnet:?xt=urn:btih:52B83A52FF3EE50EF4DB195C7E02E0E05F879217
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113508.jpg" />
 </div>
 
 
@@ -408,7 +482,7 @@ System Toolkit 6.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113509.jpg" />
 </div>
 
 
@@ -432,7 +506,7 @@ RSS Guard 4.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113510.jpg" />
 </div>
 
 
@@ -457,7 +531,7 @@ Dragonforce - Warp Speed Warriors (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113511.jpg" />
 </div>
 
 
@@ -484,7 +558,7 @@ magnet:?xt=urn:btih:B16F3CDF2164BE5FC3780F9E6B8FE2DBD754297B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113512.jpg" />
 </div>
 
 
@@ -508,7 +582,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113513.jpg" />
 </div>
 
 
@@ -533,7 +607,7 @@ Ubuntu*Pack 20.04 MATE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113514.jpg" />
 </div>
 
 
@@ -558,7 +632,7 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113515.jpg" />
 </div>
 
 
@@ -570,83 +644,6 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED3771A4D97131FB05B4FE0CC928D25742603647
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706981   (113516) от 14.03.2024
-
-Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB18D8E4F926A75DC4C7C8B9C284A82D09AA188A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706764   (113517) от 14.03.2024
-
-Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate Moments: Sexy Jazz for Erotic Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saxual Healing (Sex Saxophone & Piano) (3:49)
-02. Saxual Jazz Lounge (Sexy Sax & Piano) (3:36)
-03. Now Again (Sensual Instrumental Background) (2:37)
-04. Feel Like Making Love (3:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4460256A49F7C3AFB6AA660160795FB9F0AB825A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706978   (113518) от 14.03.2024
-
-Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8921AB60A3EE7D1351C7AA4AC0F8F7B7EEA38EAA
 ```
 
 

@@ -6,7 +6,7 @@ Windrow - Deus Universi (2024) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38267.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Daylight Robbery - Decree Absolute (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38271.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38272.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Infrared - Reflections (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38279.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Woodscream - Коллекция (2008 - 2024) [MP3|320 Kbps] <Folk, Metal, Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38290.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ HARDY - 3 Альбома (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38491.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ BlackBeer - Trapped In The Sin City (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38492.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Klokwise - Klok in. (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38493.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ The Alan Parsons Project - Ammonia Avenue (Sessions) (1984) Remaster, 2024, Aris
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38588.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:CEF48AA641F2AE4E7138D48FED58E54DB688F420
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38595.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Motörhead - Remorse? No! (2024) 2 x CD, Compilation [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38597.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:689408BC6618C4FC0A979E867A399DAC573D527C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38606.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Cure - Songs of a Lost World (2024) [MP3|320 Kbps] <Gothic rock, Post Punk, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38611.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:7AE537A97BCA627A2378668D45C239926738AECF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38630.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Skillet - Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38679.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Valentin Lezjenda’s Speed Of Darkness - 3 Альбома (2017-2021) [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38687.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Brothers of Metal - Fimbulvinter (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38690.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ The Spirit - Songs Against Humanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38693.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Bombus - Your Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38694.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ The Crown - Crown of Thorns (2024) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38696.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Antipope - Doors of the Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38697.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Haliphron - Anatomy Of Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38698.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Giuffria - Giuffria (1984) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Arena Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38700.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:839E94F7AD0B80A4B775E653A53515E90E9AA86F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38734.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Top 10 Outstanding Rock Songs, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38892.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Rock Hits - As Melhores de 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38894.jpg" />
 </div>
 
 

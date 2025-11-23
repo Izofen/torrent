@@ -6,7 +6,7 @@ VA- Для Юбилея, Дня Рождения Иностранный (2012) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83450.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Romantic Collection - Ballads about love (2012) [MP3|256 kbps]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83494.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA- Для Юбилея, Дня Рождения Русский (2012) [MP3|128 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83595.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Фоновая музыка для дня рождения (2012) [MP3|128-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83608.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - XXXL Популярный 50/50 Весна (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83629.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Лучший Русский Хит (2012) [MP3|128-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83633.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Лучшие Из Лучших Зарубежный №19 (2012) [MP3|256 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83652.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Блатной Хит. Только лучшее (2012) [MP3|192 кб/с]<�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83827.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Убойные весенние хиты (2012) [MP3|256кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83856.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Electro Life 16 (by ZiP) (2012) [MP3|256-320 kbps] <Electro House, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84031.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Лучшие хиты дискотек 2000-х (Vol. 1,2) (2012) Refresh[MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84206.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - 100% Хиты Радио Шансон (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84249.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - I Love ZYX Italo Disco Collection Vol.1-13 (2002-2012) [MP3|320 кб/с]<Di
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84378.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ KeyGen Music (origins) - 3139 треков (2000-2012) [xm, .it, .mod, .mo3, .s3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84415.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - XXXL Братва на воле (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84433.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Здравствуйте, гости! (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84460.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Весенний муз-отрыв радио Record 6 (2012) [MP3|192 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84464.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:1069A43D31680B8B45788170B6973788742DE75A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84531.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - The Complete 90's Music Collection (10CD) (2012) [MP3|128 kbps]<Pop|Rock|Me
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84563.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Двигай попой! Full Collection (1996-2006) [MP3|128 ~ 320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84602.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - XXXL Лучшая музыка для секса (2012) [MP3|224 kbps]<Pop|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84620.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Europa Plus: Бомба хит 2 50/50 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84640.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ VA - Горячая 70-ка в Машину (2012) [MP3|256-320 кб/с]<Electro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84651.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ VA - Gagauz Relax Station I (2012) [MP3|~205-320 кб/с]<Chillout, Ambient, Lou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84654.jpg" />
 </div>
 
 
@@ -793,7 +793,7 @@ VA - Лучшая Клубная Музыка Марта (2012) [MP3|192 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84706.jpg" />
 </div>
 
 
@@ -826,7 +826,7 @@ VA - Жажда Скорости - Полный Драйв (2012) [MP3|192 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84883.jpg" />
 </div>
 
 

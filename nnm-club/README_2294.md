@@ -6,7 +6,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.1 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60009.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DA3EACC94BB323DDCC4D220BB0D5216E4D978BCB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60010.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Arabesque - 40th Anniversary Best (2017) Japan [FLAC|Lossless|tracks + .cue] <Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60011.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ RS Explorer / RS Проводник 2.1.1.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60012.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Topaz Gigapixel AI 7.1.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60013.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ R-Studio Network  9.4 Build 191301 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60014.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Google Chrome 123.0.6312.123 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60015.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Mark Knopfler - One Deep River (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60016.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:E63A1708C568094E0BFBACE037333B5FA8FD41C1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60017.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1D81B3CC8852E51510FFA0538FBBB9D37589BEBA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60018.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ R-Studio Network 9.4 Build 191301 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60019.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ DJ Lava - Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60020.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ RogueKiller Anti-Malware 15.16.0.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60021.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:2DF62A093580497622FB603DEAAAE019968A5BF8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60022.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:2DF62A093580497622FB603DEAAAE019968A5BF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60023.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Topaz Video AI 5.0.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60024.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:7E96BEA640744A875A3669DBE7CE5452BB9D02B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60025.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Topaz Video AI 5.0.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60026.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:553609EA1A4FF85A539589F391F690879CF06336
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60027.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ XviD4PSP 8.1.74 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60028.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Plus Messenger (Telegram+) v 10.10.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60029.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Music News vol.363 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60030.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:73049726F73D2A52ED0DB1196D592CEA64C9EB3A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60031.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:8E44E034141B9F263F3646EFFB449956FD11BC3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60032.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:8E44E034141B9F263F3646EFFB449956FD11BC3C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60033.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Other s [AD]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60034.jpg" />
 </div>
 
 

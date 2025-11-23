@@ -1,3 +1,76 @@
+###  Публикация: 509941   (121056) от 25.01.2024
+
+Е.А.Чудинский | Русские народные сказки, прибаутки и побасенки [Раритет] (1864) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге содержатся сказки : Небесная избушка, Деревянный орел и царевич-летатель, Золотая нога, Циган в монастыре, Русский и жид, Вызывание привидений, Оборотень, Клад, и др., а также прибаутки и побасенки.Жанр: Детская литература, сказкиИздательство: «Москва: тип. Грачева и К°»Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B436644850172DEEB57AE222085A0D458E2A3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693877   (121057) от 25.01.2024
+
+Легендарный Winamp впервые появился на iOS
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_121057.jpg" />
+</div>
+
+
+###  Подробнее
+
+В марте 2023 года в сети представили полностью переосмысленную версию популярного плеера Winamp. Утилита пользовалась наивысшим спросом в 2000-х, а сейчас приложение превратилось в стриминговый сервис для прослушивания музыки.О том, как за десятки лет изменился Winamp, мы писали здесь. Если вкратце: теперь Winamp — это аналог Spotify, где пользователь платит не за (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004848   (121058) от 25.01.2024
+
+Владимир Даль | Пословицы русского народа. Том I и II (Раритет) [2 книги] (1879) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если кто захочет узнать русские пословицы и поговорки - надо идти в народ - всяк об этом знает, потому как в образованном обществе пословиц нет.
+Владимир Даль собрал два тома поговорок не как наставление и не для забавы, а для изучения и розыска. Поэтому и мы все хотим знать что есть на самом деле. Не пугает автора и прямота выражений русского мужика - что есть то (   Читать дальше...   )Жанр: Справочный материал, фольклорИздательство: «книгопродавца-типографа М. О. Вольфа» Санкт Петербург - МоскваФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A8E4E2978C1C240E3324529CD0C8342A89A976
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 267690   (121059) от 25.01.2024
 
 Бегляр Наврузов | 14-я гренадерская дивизия СС «Галиция» [2010] [FB2]
@@ -6,7 +79,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121059.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:CD5EBEAAF855E8DFDBB0E9520FB71428A01E60C9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121060.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ FITLAB (ФИТЛАБ) |  Курс для автомехаников. Школа 
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121061.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ magnet:?xt=urn:btih:F08FDF871E3A5168234DE0559FA6B3D15E38D329
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121062.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:75FB228EA93B585696C37B55D04F8EAF0F61E273
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121063.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Windows 10 22H2 Compact (19045.3803) by Flibustier [Ru]
 >>33
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121064.jpg" />
 </div>
 
 
@@ -156,7 +229,7 @@ magnet:?xt=urn:btih:7450652602A157DEBE1B9C83B720E8CFFC424ABF
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121065.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ Windows 10 Pro 22H2 19045.3930 x64 by SanLex [Lightweight] [Ru/En] (2024.01.19)
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121066.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ magnet:?xt=urn:btih:CAB3B678D624AF7766E1A32253980F171B17399F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121067.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ magnet:?xt=urn:btih:B1E364D9EF81981C4B683156E3DCB90D1804EE93
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121068.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ magnet:?xt=urn:btih:7ABF97231426DB2FB307C5B61381B960BBCCA048
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121069.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ magnet:?xt=urn:btih:5BC729811C0204AD4D91D9B56311B18A675AFB73
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121070.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ magnet:?xt=urn:btih:D6849EBE36162974658C889676E1B0C1340728C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121071.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 24.01.2024) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121072.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ magnet:?xt=urn:btih:976EC1D09B7728B11D670C31987D57162A9A43B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121073.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ magnet:?xt=urn:btih:4719D46AA1FA241A0F7B49C0D97549B676ECC3D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121074.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ magnet:?xt=urn:btih:6D3D20B33F41DCA49A614636F934D360A2C059AF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121075.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ magnet:?xt=urn:btih:809820D4F4BF899D1EB829278018B697BB47825F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121076.jpg" />
 </div>
 
 
@@ -446,7 +519,7 @@ magnet:?xt=urn:btih:86E28F605C889A2FCD78FAB687C7135A3DCF0FD1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121077.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ magnet:?xt=urn:btih:93F34BE9C36A7829702D1B3E23F0B2BD8A626000
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121078.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ magnet:?xt=urn:btih:AEF7738EFEF00C73B92E80831290192D380C2059
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121079.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ magnet:?xt=urn:btih:F957170374E41837D83118FA1D8AE66E2296257A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121080.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ magnet:?xt=urn:btih:1B3FDC10D7EB6621378344EB34DF2C9B477C42C0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121081.jpg" />
 </div>
 
 
@@ -555,82 +628,6 @@ magnet:?xt=urn:btih:1B3FDC10D7EB6621378344EB34DF2C9B477C42C0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8455184B8E909DAC90850058D1641D9A1916392A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327819   (121082) от 25.01.2024
-
-Антуан де Сент-Экзюпери | Цитадель (2006) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Зарубежная проза.
-Антуан де Сент-Экзюпери (1900–1944)  – французский писатель, военный летчик.
-«Все мои предыдущие произведения – лишь проба пера» – говорил Сент-Экзюпери о «Цитадели» о своём самом своеобразном и возможно, самом гениальном произведении.
-В этом незавершенном философском романе причудливо переплелись мотивы притчи и военной прозы, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 21:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90592C022B82BED86184152CB1A8984ECDA8A1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 297599   (121083) от 25.01.2024
-
-Покидая Лас-Вегас / Leaving Las Vegas (1995) BDRip [H.264/720p-LQ] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вся жизнь кажется кошмаром. Если затяжной запой окончательно разрушил карьеру в серьезной фирме. Может быть, есть смысл уничтожить все, что связывало тебя с прошлой жизнью и начать новую? В блестящем и грешном Лас-Вегасе.
-Где среди блеска ночной жизни одинокая «ночная бабочка» может оказаться внимательнее и сердечнее любого психоаналитика. Потому, что она захочет (   Читать дальше...   )Производство: Франция, Великобритания, США / Initial Productions, Lumière PicturesЖанр: Драма, МелодрамаРежиссер: Майк ФиггисАктеры: Николас Кейдж, Элизабет Шу, Джулиан Сэндс, Ричард Льюис, Стивен Уэбер, Валерия Голино, Эмили Проктер, Стюарт Реген, Ким Эдамс, Грэм Беккел...Перевод: Многоголосый закадровыйСубтитры: Русский, Английский, Французский, Итальянский, НемецкийПродолжительность: 01:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E507B3854E67D2002837541A26DAB43B5B3DD75E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694347   (121084) от 24.01.2024
-
-doubleTake 2.6.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121084.jpg" />
-</div>
-
-
-###  Подробнее
-
-DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но какие мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Echo OneПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C930A17A3A5130B68911B72FD68BFF125FEBBEEA
 ```
 
 

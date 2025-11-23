@@ -6,7 +6,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82514.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8AF5777487674BBA9E56B40059180D2570221567
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82584.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A104F19D23F933BCB0608424268A322E89CC2F05
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82937.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2B8533D8905CC5A81FC50A49A7D8364EEEA0DFB8
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85150.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1E5AE027A51A801D32F47904FC3D44321F98A6B1
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85364.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:929E48A8F13AADB3BB98898C1B3F45DECA174426
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85372.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:99E073ADCE9AAC2219E2E9DB8A1D1E71BFE42229
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85379.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A3370073BB4BE72173E7DBC669BAE4CA0F8C6733
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85826.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ EZkeys - революционный инструмент выбранный ро
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86014.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ MIDI Pack - Collection TWO Part 2 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86547.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ MIDI Pack - Collection TWO Part 4 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86549.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ MIDI Pack - Collection TWO Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86580.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ MIDI Pack - Collection ONE Part 5 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86777.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ MIDI Pack - Collection ONE (MIDI) Part 4 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86783.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MIDI Pack - Collection ONE (MIDI) Part 2 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86804.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MIDI Pack - Collection ONE (MIDI) Part 3 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86809.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MIDI Pack - Collection ONE (MIDI) Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86839.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ MIDI Pack - Collection ONE Part 6 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86848.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ MIDI Pack - Collection ONE - это огромнейший сборник Мид
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87032.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Organic Loops - Live Dubstep Strings (Wav|Rex2) by KRock-Studio[английск
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87593.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Organic Loops - Real Strings Vol. 2 Disco Strings by Pete Whitfield (Wav | Rex2 
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87631.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Organic Loops - REAL STRINGS  Vol. 2 Disco Strings - новый набор сэ�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88729.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88933.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90257.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:55696D59D0EFBE2A1FACE3742B51E63F8C89BD9C
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91136.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:DCE1C83D5B5E46CA170C979BAB7309D0A7B0364D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91142.jpg" />
 </div>
 
 

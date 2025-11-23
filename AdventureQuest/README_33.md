@@ -6,7 +6,7 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47890.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47984.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Back (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47988.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48016.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (20240717.09.4260763) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48030.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A67E77AD3FA1413C0715E55794D79B637BD4ABF0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48033.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Backrooms: Survival (2022) [En] (1.28) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48087.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48093.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ It Takes Two (2021) [Ru/Multi] (1.0.0.4) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48135.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Darkside Detective (2017) [Multi] (2.127.4.167d) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48141.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tales from the Borderlands (2014) [Ru/En] (1.0.1) Repack FitGirl [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48199.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48233.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48248.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48407.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Renovator: Origins (2024) [Ru/Multi] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48439.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ THE ORIGIN: Blind Maid (2021) [Multi] (1.3.0) Repack FitGirl [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48491.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Monolith (2023) [Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48524.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Over Islands (2024) [Multi] (2.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48558.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Undying (2021) [Ru/Multi] (1.0.2.41413/dlc) Repack FitGirl [Premium Edition - Se
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48582.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_03) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48605.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48885.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Longing (2020) [Ru/Multi] (1.8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48895.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48908.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48927.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49074.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49093.jpg" />
 </div>
 
 

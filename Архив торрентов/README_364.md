@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86520.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A52AAFC9B6C941CA4EC085551F3AAF31297CF07D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86521.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DB52B3D32DBBABE54094B31792B743906767976C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86522.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1A03E67DBD0D1CE25DF35C49442BD3BC122CA7B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86526.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A432CADDD182E9E10F7B77433D393B11B7566E0B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86528.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:A432CADDD182E9E10F7B77433D393B11B7566E0B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86531.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Warp [Ru] (RePack) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86533.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:EEAA77F2EBD21C523E8287966456B59CEB7934F1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86535.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ MIDI Pack - Collection TWO Part 3 (MIDI) [Английский]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86536.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86538.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:D52AB98CB09D6847984E1898825F7E72450D822B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86546.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:D52AB98CB09D6847984E1898825F7E72450D822B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86551.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:4F8CA26A2B17F6741E324BD6C21E12AE82811552
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86553.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Warp [Ru] (RePack) 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86556.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:B19282F65D095FD26AFA16095F279E06ACE26B69
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86559.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:48EDCA4D868D917413072E4B18E974FD2B0397CF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86560.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:59FCA5F2F830A997D8EA4F1D4B344F410F7BFFBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86561.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:59FCA5F2F830A997D8EA4F1D4B344F410F7BFFBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86563.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:59FCA5F2F830A997D8EA4F1D4B344F410F7BFFBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86565.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:4BDAF5B5A6FFAA0BC912B0BEAD29299BDDE6F75F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86566.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:4BDAF5B5A6FFAA0BC912B0BEAD29299BDDE6F75F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86571.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:A0B1AFC4DEAEEED12477A99638A873BD2A249A14
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86576.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:3B71432F74350CA7D7735F526E34B7B287BEEF3A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86577.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ PrintFolders 2.51 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86578.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ PrintFolders - удобная программа для быстрого соз�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86622.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:75E7EF0AD9D6C3BCE11F7F4FE1ABAFC2B7E7A4B6
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86638.jpg" />
 </div>
 
 

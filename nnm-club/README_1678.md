@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43983.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:3BF0C8AD046523599C5CD9597EDBC449D2B854DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43984.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Massacration - Metal Is My Life (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43985.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Nancy Sinatra - Nancy In London (1995) Definitive Reissue, 2024, Boots Enterpris
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43986.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:0EC6848BAE21F3FB63AB4B327E278628A6D3F7C8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43987.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:5327728886A34C8306B924E75754072C559C7228
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43988.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - DJ Hits Vol. 750 (1997) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43989.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:0A9E3B74CE4335EC91F607956B486BDDB738FCBD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43990.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:0A9E3B74CE4335EC91F607956B486BDDB738FCBD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43991.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:0A9E3B74CE4335EC91F607956B486BDDB738FCBD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43992.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43993.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Speedtest от Ookla 5.4.11 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43994.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:377AC0D1CB5018DFDF77A62ECBFA35039B94965F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43995.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:71FA1BD338729DCE41786AC4374EE6A178021D95
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43996.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:B7496DA96A91A50E3627EB11511799920BEBF0DA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43997.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Marenian Tavern Story: Patty and the Hungry God (2019) [Multi] (1.0.2) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43998.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:B44C61DFD07E5663967A0FB1E21461DF778908B8
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43999.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:060D966DED363DC004D650D3419BDA65BE4DBE03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44000.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:248C542172CC2EAAD4723AE54A0C5BEB0F6CFD83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44001.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:74DE56181C78CA2FE9570C7DDF0A4326D1D4698F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44002.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Новые хитовые песни 2024, Часть 9 (2024) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44003.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ IK Multimedia - MODO BASS 2 2.0.3 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44004.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:297004AE87AE29B6CD1B70F676D70017533EF85F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44005.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:FFEA0A582E2794845E63BE6FAEE27B9EA795CB2A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44006.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:2889E27AE834EA1C743EBE66EAC2CCBAC5EA57EA
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44007.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Relax with Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44008.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1268089   (229441) от 09.12.2018
+
+Квартирник на НТВ у Маргулиса. Владимир Пресняков (12.08.2018) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229441.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске «Квартирника» — советский и российский эстрадный певец, музыкант-клавишник, композитор, аранжировщик, танцор брейк-данса и актер Владимир Пресняков — младший. Евгений Маргулис вспомнил, как долго он уговаривал артиста прийти к нему, и пошутил на тему инициалов своего гостя. Кроме того, хозяин вечера рассказал, что Пресняков-младший пел с группой «Круиз». (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4D5DAFDE1D30F66A939C077DFB5F40276FE442
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964792   (229852) от 12.12.2015
+
+Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_229852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая группа ECHOES к своему двадцатилетнему юбилею презентовала свой новый альбом, посвящённый уникальной музыке группы Pink Floyd! Совершенно новая трактовка известных песен Pink Floyd на полностью аккустических инструментах! ECHOES является одной из наиболее успешных и устойчивых Pink Floyd трибьют-групп в Германии. Начиная с 1995 года и по настоящее время (   Читать дальше...   )1. Shine On You Crazy Diamond
+2. Have A Cigar
+3. Us And Them
+4. High Hopes(   Читать дальше...   )Релиз состоялся: 16.10.2015Производство: GermanyЖанр: Progressive rockПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B34ED98509E56F75702BBE06700DFF21A8B546B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274842   (230250) от 11.06.2022
+
+Deep Purple: Around The World Live (2008) (4 DVD Box Set) 3*DVD9 + DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_230250.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD1 "Bombay Calling"
+ "Bombay Calling" - издаваемый ранее дважды этот альбом имеет различие  в том, что здесь добавлен отрывками концертов в Сеуле.Производство: © 2008 Eagle Rock Entertainment LtdЖанр: Hard rockФормат: DVD VideoПродолжительность: DVD1 - 01:53:00 (+55 мин бонус)
+DVD2 - 02:02:00 (+26 мин бонус)
+DVD3 - 01:48:00 (+25 мин интервью)
+DVD4 - 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA41A15756909FFA239B02B393565BDBF3D35DCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633686   (230391) от 07.06.2023
 
 Дэниэл Слосс: Х / Daniel Sloss: X (2019) WEB-DL
@@ -6,7 +85,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230391.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230391.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:9AB54AC0B572AA9F25C6166EEA41F3EB62397450
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230764.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230764.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230950.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230950.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ Lita Ford-The Complete Video Collection (2003) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230982.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230982.jpg" />
 </div>
 
 
@@ -109,7 +188,7 @@ Joe Bonamassa - An Acoustic Evening At The Vienna Opera House (2013) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231161.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231161.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Joe Bonamassa "Live at rock palast" DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231235.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231235.jpg" />
 </div>
 
 
@@ -160,7 +239,7 @@ magnet:?xt=urn:btih:0D6C01494E6C460DC5203E77871815A6F4FB2751
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231460.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231460.jpg" />
 </div>
 
 
@@ -187,7 +266,7 @@ ZZ TOP - Double Down Live 1980 * 2008 (2009) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231853.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231853.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Joe Bonamassa - Live From The Royal Albert Hall (2009) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231872.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231872.jpg" />
 </div>
 
 
@@ -239,7 +318,7 @@ magnet:?xt=urn:btih:B406996DF955A3CC55D6B7E7DA781BAC480AC735
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232034.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232034.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Depeche Mode: 101 (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232765.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232765.jpg" />
 </div>
 
 
@@ -290,7 +369,7 @@ magnet:?xt=urn:btih:1FF43A074A6AA0A66E1A5133D9FB4D8D9442C0AB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233260.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_233260.jpg" />
 </div>
 
 
@@ -317,7 +396,7 @@ magnet:?xt=urn:btih:517A9D1E70DDE2477827CC60D295C981F514968E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233394.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233394.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ magnet:?xt=urn:btih:B466947691D7736B0E29B3C9628BC7DC0F1268A1
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233471.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233471.jpg" />
 </div>
 
 
@@ -368,7 +447,7 @@ magnet:?xt=urn:btih:3147E247CA854D8708C13FA06E442B53AEB89C3F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233799.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233799.jpg" />
 </div>
 
 
@@ -393,7 +472,7 @@ magnet:?xt=urn:btih:40E7EEA60F42529AB2E42C0141D36E0026CC5D88
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234708.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234708.jpg" />
 </div>
 
 
@@ -417,7 +496,7 @@ magnet:?xt=urn:btih:6F512D55114C2EEB7F0AC2BCA2E7CD0E046402EE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234785.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234785.jpg" />
 </div>
 
 
@@ -444,7 +523,7 @@ magnet:?xt=urn:btih:AC4D50CF3EA03E098AA520BA15DD4B6F3F84F946
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235684.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235684.jpg" />
 </div>
 
 
@@ -471,7 +550,7 @@ magnet:?xt=urn:btih:08D11D68D4F4B5D99446DF6A5F28042676A52E53
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235753.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235753.jpg" />
 </div>
 
 
@@ -498,7 +577,7 @@ magnet:?xt=urn:btih:FD681FA716B256B4D62806FD328AE1391B8C83C5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235764.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235764.jpg" />
 </div>
 
 
@@ -522,7 +601,7 @@ magnet:?xt=urn:btih:88D0F58BF6F5752A0F4EF0F4E263DF2EADCC1067
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236474.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236474.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ magnet:?xt=urn:btih:D8A3AB90470FE27C96C30FAA7C722802FB58E433
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236904.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236904.jpg" />
 </div>
 
 
@@ -571,7 +650,7 @@ magnet:?xt=urn:btih:1C65C0B00116224E3B0F3792234E727C7D242391
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237606.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237606.jpg" />
 </div>
 
 
@@ -585,86 +664,6 @@ magnet:?xt=urn:btih:1C65C0B00116224E3B0F3792234E727C7D242391
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4BBAB2D71DF49DC946EE4C2BF17E7AF1066F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628474   (238924) от 23.04.2023
-
-Квартирник у Маргулиса. Посвящение Николаю Арутюнову (22.04.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт памяти популяризатора блюза и рока Николая Арутюнова, вокалиста групп «Лига блюза», «Четверг Арутюнова», Funky Soul, The Booze Band, «Николай Арутюнов & The Blues Barbarians» и «Арутюнов & Quorum». Легендарный музыкант участвовал в записи саундтреков ко многим популярным рок-операм, неоднократно пел вместе с мировыми звездами, а также написал музыку (   Читать дальше...   )00:00:04  Развяжи мне руки
-00:07:22  Июльский блюз
-00:14:18  Скоро домой
-00:19:37  Рок-н-Ролл Мяу-Мяу(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8971BD904D290ACBD1F3E94DC3C7462E021A467E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626816   (240345) от 16.04.2023
-
-Квартирник у Маргулиса. Юбилей Валерии (15.04.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Народная артистка России Валерия отмечает юбилей — 55 лет!
-Эстрадному мастерству ее обучали Иосиф Кобзон и Гелена Великанова. Каждое выступление артистки сравнимо с настоящим спектаклем: сильный голос, проникновенное исполнение и яркие голубые глаза делают Валерию одной из самых ярких представительниц российской эстрады. Артистка выпускает как сольные композиции, (   Читать дальше...   )00:00:04  Осени дым
-00:07:08  Жаль
-00:14:51  Небеса
-00:21:48  Нежность моя(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D185D39836C7F9CD7553A80CC3EC3B490F8F82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636143   (241178) от 28.05.2023
-
-Delain - Hunter's Moon (2019) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_241178.jpg" />
-</div>
-
-
-###  Подробнее
-
-На диске Blu-Ray концертные треки, записанные 31.10.2017 вживую в Тиволи, Утрехт (Нидерланды).
-Delain - нидерландская группа, исполняющая музыку в стиле «симфонический метал», была основана Мартейном Вестерхольтом, бывшим клавишником Within Temptation. Группа провела в 2016 году свой десятый юбилей - с выпуском своего пятого полноформатного альбома Moonbathers и (   Читать дальше...   )Производство: Австрия / Napalm RecordsЖанр: Heavy Metal, Symphonic RockПеревод: ОтсутствуетПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FCFA7693108E5FF04677AE17089256265D9470
 ```
 
 

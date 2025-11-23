@@ -6,7 +6,7 @@ Champions of Anteria (2016) [En/Ita] (1.7.499537.X) License CPY
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147686.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Space Clash: The last frontier / Космические войны: Послед
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147974.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150886.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151076.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151566.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Imperialism (1997) [Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152279.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06/1.02 RUS) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152345.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152923.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Legions of Ashworld (2014) [En] (1.0.2) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153439.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154585.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155095.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155945.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Age of Empires II HD (2013) [Ru/Multi] (5.0.1/dlc) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157244.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157499.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Desperados III (3) (2020) [Ru/Multi] (1.7/1.5.8/dlc) License GOG [Digital Deluxe
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161498.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162256.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru] (1.2.12) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177541.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177541.jpg" />
 </div>
 
 
@@ -406,6 +406,54 @@ magnet:?xt=urn:btih:B1F2D708AD1DA02954FE0548E5F7AD4CCC2737FC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428290   (179525) от 02.12.2020
+
+Empire of Sin (2020) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Empire of Sin — новая стратегическая игра от Romero Games и Paradox Interactive, которая перенесет вас в сердце преступного мира Чикаго 1920-х годов, когда там царил сухой закон. Станьте одним из четырнадцати криминальных боссов, реальных или созданных на основе реального образа: например, Аль Капоне, Стефани Сент-Клер или Голди Гарно.Тип издания: LicenseРазработчик: Romero GamesЖанр: RPG, StrategyЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03D4800F33B9F8BC7C552B6695897BE457D5EA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065369   (181671) от 30.09.2023
+
+Master of Magic (1994) [Multi] (1.05.02/dlc) License GOG
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что будет, если разработчики Master of Orion задумают скрестить Heroes of Might & Magic с Civilization? И будет ли жить подобный проект? Оказывается, что подобная игра будет не только жить, но и процветать, причем прекрасно, как чрезвычайно оригинальное творение. Ландшафт очень напоминает Civilization. Там вот водичка, вон там олень, тут золотая жила. Если город (   Читать дальше...   )Тип издания: LicenseРазработчик: SimtexЖанр: Strategy (Turn-based, Grand strategy)Язык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3206A5DEF9A8F182377D147C6330FE89277590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592193   (184050) от 21.11.2022
 
 Space Rangers 2: Reboot / Космические рейнджеры 2: Доминаторы. Перезагрузка (2006) [En] (2.0) License GOG
@@ -414,7 +462,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184050.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184050.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184096.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184096.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Warcraft 3 (III) (2002) [Ru] (1.26.0.6401/dlc) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184719.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184719.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187858.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187858.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Stellar Monarch (2016) [En] (1.48/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188175.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188175.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193368.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193368.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195561.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195561.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60B9C3422C76856E5C908A43575741622510DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646904   (195581) от 16.07.2023
-
-Total War: Shogun 2 (2011) [Ru/Multi] (1.1.0.6262.2931569/dlc) Repack dixen18
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total War: Shogun 2 является продолжением первой части внутриигровой серии, посвященной внутренним войнам на Японских островах, во времена феодализма и раздробленности государства на различные кланы. Над данным проектом работала студия The Creative Assembly, а вопросами издательства занималась компания SEGA. Релиз состоялся в марте 2011 года. Временные рамки охватывают (   Читать дальше...   )Тип издания: RepackРазработчик: The Creative AssemblyЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F52623C5FA204EC38688CBF34B5DFDD2F898A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645235   (195939) от 08.07.2023
-
-Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195939.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фоне голода, войны и эпидемий в восточных степях растет новая сила. Выходит новый вождь, и за спиной у него - миллион всадников, а взгляд его устремлен на Рим. Total War: Attila - новая часть прославленной стратегической серии игр, сочетающей сражения в реальном времени и пошаговые бои, переносит игрока в 395 год. Темное время начинается с катастрофы. Как вы будете (   Читать дальше...   )Тип издания: LicenseРазработчик: The Creative AssemblyЖанр: СтратегияЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D01571A18DE2548A562FDE96F871D3A0F2C7792
 ```
 
 

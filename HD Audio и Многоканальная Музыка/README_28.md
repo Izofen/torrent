@@ -6,7 +6,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 13 December 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31898.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 5 November 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31915.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mutagenic Host - The Diseased Machine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31988.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ S.U.P. - Anomaly (1995) Limited Edition, Reissue, 2016, Overpowered Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31990.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Accept - Studio Albums (23 releases) (1979-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32066.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Smoothies - January Cozy Nights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32095.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Patriarkh (ex- Batushka) - Prophet Ilja (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32096.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:134776AD9072BDB422D0ADC1F057C2A212EC878D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32244.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dave Hobbs - Opus One (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32301.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Marvin J. Galaxy - Mean Ways (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32304.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Stranger Vision - FAUST Act I: Prelude To Darkness (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32305.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Matteo Lombardi, Vittorio Iannucci, Marty Zylstra - Warrior Anthems (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32306.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Just Magnetic - Life Electric (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32319.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Robbie Williams - Better Man (Original Motion Picture Soundtrack) (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32428.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Marcus Trummer - From The Start (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32605.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Magician - Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <deep house, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32829.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Wind Blowers - Whiskey & Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33027.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ill Niño (Ill Nino) - Studio Albums (7 releases) (2002-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33037.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Romantica De La Guitarra, Romantic Time - Sensual Jazz (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33232.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Carlita - Sentimental (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33235.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33262.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Instrumental Piano Universe, Marco Rinaldo, Sexual Music Collection, Sexual Pian
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33264.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Romantica De La Guitarra, Academia de Música Sensual - Spa Erótico: Relaxing L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33266.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Erotic Jazz Music Ensemble, Jazz Erotic Lounge Collective, Marco Rinaldo, Sensua
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33267.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Katy Perry - 1432 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33452.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:59513F493F280A67AE83713DE35C95DC92B59441
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33667.jpg" />
 </div>
 
 

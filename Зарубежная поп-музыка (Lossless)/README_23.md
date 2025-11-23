@@ -1,3 +1,84 @@
+###  Публикация: 1425668   (220446) от 21.11.2020
+
+Sarah Brightman - France (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Show Me How To Love You
+02. Nella Fantasia
+03. There For Me
+04. Dans La Nuit(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66676E4E7242052D865328271580366FEEAC0B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084176   (220802) от 18.12.2016
+
+Annie Lennox - Diva (1992) Reissue, 2007, BMG Japan [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why (4:54)
+ 02. Walking On Broken Glass (4:13)
+ 03. Precious (5:09)
+ 04. Legend In My Living Room (3:46)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EFD7C568AF9C2FAB5A20C0E684C84FD348C9B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342552   (221678) от 03.12.2019
+
+VA - NRJ Music Awards 2019 (2019) 3CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_221678.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Taylor Swift - You Need To Calm Down
+02. Billie Eilish - Bad Guy
+03. Sia - Unstoppable(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 03:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514A2A782528577F937A475D891EB5E99B363A8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425395   (222006) от 20.11.2020
 
 Bee Gees - How Can You Mend A Broken Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
@@ -6,7 +87,7 @@ Bee Gees - How Can You Mend A Broken Heart (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222006.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222006.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ A-Ha - True North (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222046.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222046.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Mister Wonderful - New Religion (2023) [FLAC|Lossless|image + .cue] <Pop Rock, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222218.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_222218.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Odds - Crash The Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222273.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_222273.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Bill Wray - Seize The Moment (1983) Reissue, Remastered, 2023, Bad Reputation [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222288.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_222288.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ VA - MNM Party 2019 Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222705.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222705.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ The Beloved - Where It Is (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222768.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222768.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Selena Gomez - For You (2014) /Scene/ [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222982.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222982.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Wilson Phillips - Wilson Phillips (1990) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223526.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223526.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ The Vision Mastermixers - Christmas Party Megamix (2000) [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224011.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224011.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ VA - New Pop Classics (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224326.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224326.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225274.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225274.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ Backstreet Boys - Backstreet's Back (1997) Unofficial Release [FLAC|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225538.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225538.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ Mylene Farmer - Cendres De Lune (1987) [FLAC|Lossless|tracks + .cue] <Chanson, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225574.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225574.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ VA - Rock'n'Roll Christmas (2011) [FLAC|Lossless|image + .cue] <Pop, Oldies>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225733.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225733.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ VA - Rock'n'Roll Christmas (Unknown) [FLAC|Lossless|image + .cue] <Pop, Oldies>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225741.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225741.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ The Beloved - Happiness (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225873.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225873.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ V.A. - Суперхиты дискотеки 90-х - Золотые баллад
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225888.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225888.jpg" />
 </div>
 
 
@@ -496,7 +577,7 @@ Party Poppers - Sing-Along Christmas Party (1997) [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225952.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225952.jpg" />
 </div>
 
 
@@ -523,7 +604,7 @@ Geri Halliwell - Scream If You Wanna Go Faster (2001) [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225964.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225964.jpg" />
 </div>
 
 
@@ -550,7 +631,7 @@ Stars & Belles - Xmax in Harmony (1995) [FLAC|Lossless|image + .cue] <Acapella, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225984.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225984.jpg" />
 </div>
 
 
@@ -577,7 +658,7 @@ Sabrina - Erase/Rewind - Official Remix (2008) 2CD [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226104.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226104.jpg" />
 </div>
 
 
@@ -604,7 +685,7 @@ Savage Garden - Affirmation (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synt
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226242.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226242.jpg" />
 </div>
 
 
@@ -618,87 +699,6 @@ Savage Garden - Affirmation (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:035AE55DC6D8A97471CE0368F5E39425A5D1E878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424260   (228028) от 17.11.2020
-
-Fedez - Paranoia Airlines (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo Pop, Pop-Rap>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prima di ogni cosa (3:08)
- 02. Holding out for You (3:02)
- 03. Amnesia (2:44)
- 04. Che cazzo ridi (3:37)(   Читать дальше...   )Жанр: Italo Pop, Pop-RapПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD915D1A129AC908204052D154B2F36CB401ABC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735119   (228440) от 18.12.2013
-
-VA - Pure...Disco Funk (2010) Box Set, 4 CD [FLAC|Lossless]<Pop, Funk, Disco, Ballad, Vocal, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря усилиям Вашего покорного слуги и камрадов трекера серия Pure... от Sony пополняется. Представляю очередной сборник из 4 CD.01. Wild Cherry - Play That Funky Music (3:06)
-02. Earth, Wind & Fire - September (3:35)
-03. The Jackons - Blame It On The Boogie (3:35)
-04. Odyssey - Use It Up And Wear It Out (4:58)(   Читать дальше...   )Жанр: Pop, Funk, Disco, Ballad, Vocal, SoulПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA34DC9DE1AB50122504F084D4F75C20D2CE9D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341814   (229077) от 29.11.2019
-
-VA - 538 Hitzone 90 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Borsato, Armin Van Buuren & Divina Michelle - Hoe Het Danst  (4:13)
-02. Shawn Mendes - If I Can't Have You  (3:12)
-03. Meduza Featuring Goodboys - Piece Of Your Heart  (2:33)
-04. Imagine Dragons - Birds  (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A71A03D4430E1BD5FBC25F680CC704A448EE0EF
 ```
 
 

@@ -6,7 +6,7 @@ The Algorithm - Polymorphic Code (2012) [MP3|320 кб/с]<Progressive Electronic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151970.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ John Lennon - 23 albums, 3 Box-sets, 87 CD (1969-2021) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151976.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alura - Alura (2020) [MP3|320 Kbps] <Nu Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151996.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Within Nostalgia - Void & Decay (2020) [MP3|320 Kbps] <Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152025.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Hidden Machine - Djeneration II (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152038.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Imperial Triumphant - Spirit Of Ecstasy (2022) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152128.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Orianthi - Violet Journey (2006) Not On Label, Australia [MP3|320 Kbps] <Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152133.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Orianthi - Best Of Orianthi... Vol. 1 (2014) Robo Records, UICO-1273, Japan [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152174.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Queen - A Kind Of Magic (1986) Japanese Edition [FLAC|Lossless|image + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152215.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Gоds Оf Silenсе - Neverlаnd (2017) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152240.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Amorphis - Borderland (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152259.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Nitzinger - One Foot In History (1973) Reissue, 1999, Buy Or Die Records [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152278.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Lit - These Are The Days (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152290.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Cytotoxin - Radiophobia (2012) [MP3|320 кб/с]<Technical Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152306.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Falcon Scream - Falcon Scream (1995) [FLAC|Lossless|image + .cue] <Hard Rock, He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152308.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Emigrate - 3 Albums, 3 Singles (2007-2018) 6CD [FLAC|Lossless|image + .cue|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152323.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Black Rose - Fortune Favours The Brave (1993) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152343.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 1997, Narnia Self-released [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152344.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Cyanide - 21 Gun Salute (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152346.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Black Rose - Fortune Favours The Brave (1993) [FLAC|Lossless|tracks + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152364.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The London Symphony Orchestra - The Power Of Classic Rock (1985) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152379.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152391.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ We Are Stardust - A Dance for the King (2017) EP [FLAC|Lossless|Web-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152397.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Helloween - Better Than Raw (1998) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152405.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Lord of the Lost - Blood & Glitter (2022) [MP3|320 Kbps] <Gothic, Industrial, Sy
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152436.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Brian Connolly`s Sweet - Best Of (2008) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152448.jpg" />
 </div>
 
 

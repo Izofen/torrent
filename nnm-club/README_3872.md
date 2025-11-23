@@ -1,3 +1,75 @@
+###  Публикация: 1695471   (120354) от 29.01.2024
+
+Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.5 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120354.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC70703BFB6039DC98D3410EC621EAFBB42CDE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695569   (120355) от 29.01.2024
+
+Ascold Flow | Божественность вызывает привыкание (Книга 1). Абсолют. Том 1 (2024) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я достиг вершины своего развития, уничтожив рассадник зла на Земле. Дал ей надежду на светлое будущее и был готов построить его своими же руками, вот только Система решила, что таким как я не место на планете и вырвала меня из родного мира в Новый. Она забрала у меня практически всё, лишив и легендарных артефактов и десятков способностей, оставив лишь немногое, что (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 10:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903F5090058B5B7B857C7D09B16AB3C097FC3F62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695514   (120356) от 29.01.2024
+
+DNS Changer 2.1.12 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120356.jpg" />
+</div>
+
+
+###  Подробнее
+
+DNS Changer - это простой и эффективный инструмент для пользователей, которым требуется программа для удобной смены DNS-серверов. Основная цель программы - предложить удобный способ изменения DNS без лишних усилий со стороны пользователя. DNS Changer - это интуитивно понятное и удобное приложение с современным дизайном интерфейса. Его использование не вызывает трудностей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9349662B9012431C832AD4D6655FB3F08AA4F107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695474   (120357) от 29.01.2024
 
 Тор: Любовь и гром / Thor: Love and Thunder (2022) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] [IMAX]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120357.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:7EB2B10E6A17202B3B1B65D066A4FEE06FB7C269
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120358.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:0D52489C915042A14C5A9F2DF23A3868EB4ED22F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120359.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:205C97FAFF64C77530BDC45C948407F1D0068BB5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120360.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:7267F850337CFB6F0AE3FDF226A96CA53600BB4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120361.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120361.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Adobe Photoshop 2024 25.4.0.319 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120362.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:D60488BC1ACCDDCA9CFA3D8F9161ED5483A9FC5B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120363.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:E98DCB217BBFFD98E3F15AE6F19007731A8D4712
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120364.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:1D3E1833F4395BA4CDAA06B39CBC666D657D3825
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120365.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120366.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:4D4D0F2C65EDD2CEC5A2E20142AC0FD7D73187C9
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120367.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ JetBrains Clion 2023.3.3 for Mac Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120368.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:5A642AE5B06F5CC1B018CCFA6479C07B74357C71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120369.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:03548C786D12141D0AC2C857BAC39BE1F9A6B672
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120370.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:973244F62B0B56699BC9E188D58ADA519E05C997
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120371.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ VA - Dream Dance Vol. 95 - The Annual (Extended Versions) (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120372.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:420F895B0F28F680DC88A7AEE6768612344FDC9C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120373.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:103623EE959F579AE41FF91EF50C975E6F1DB150
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120374.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ Boyfriend Dungeon (2021) [Ru/Multi] (1.3.7294S/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120375.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:C2527DC84C58077466DAB852B6840631F5B2A8E0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120376.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:18B48A21162B6E5092156DA4DC82EA232CC1133A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120377.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:B469F102A11A9ABD8805AFFA29548E4D930EAD45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120378.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:465FA69BD48946E1DE17B478D36ED7982BB159AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120379.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120379.jpg" />
 </div>
 
 
@@ -553,79 +625,6 @@ magnet:?xt=urn:btih:465FA69BD48946E1DE17B478D36ED7982BB159AC
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695532   (120380) от 29.01.2024
-
-Серж Винтеркей | Цикл "Эгида" [17 книг] (2019-2022) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженер едет домой к семье, но внезапно погибает в автомобильной аварии. Жизнь после смерти приобретает форму участия в виртуальной игре, в ней ему поставлены строгие ограничения, невыполнение которых приведет к окончательной гибели. Но если герой справится с испытаниями, то получит шанс вернуться к семье. Первичная локация нубятник. Так ли он безопасен, как наивно (   Читать дальше...   )Жанр: ЛитРПГ, Юмористическое фэнтези, Боевая фантастикаИздательство: Самиздат, litresФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E47251B61E3C841E71588C0E5E402442680B92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683735   (120381) от 29.01.2024
-
-Братья Карамазовы (1968) WEBRip [H.264] (серии 1-3 из 3) [Реставрация МФ]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноименному роману Фёдора Достоевского.
-В фильме поднимаются вопросы о корнях зла и источниках добра, о том, как сосуществуют эти начала в душе человека, в мире, в котором он живет.Производство: СССР / МосфильмЖанр: драмаРежиссер: Иван ПырьевАктеры: Михаил Ульянов, Лионелла Пырьева, Кирилл Лавров, Андрей Мягков, Марк Прудкин, Светлана Коркошко, Валентин Никулин, Павел Павленко, Андрей Абрикосов, Геннадий ЮхтинСубтитры: отсутствуютПродолжительность: 01:20:57 + 01:12:39 + 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85338C4EBC7E0EF29AA222728FA7DE941A43F64B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694120   (120382) от 29.01.2024
-
-Half-Life: Alyx (2020) [Ru/Multi] (1.5.4 Build 8694564/dlc) Repack Other s [NoVR Mod]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Half-Life: Alyx — это возвращение Valve во вселенную Half-Life в виртуальной реальности. Это история невозможной борьбы с жестокой расой пришельцев, известной как Альянс. События происходят между Half-Life и Half-Life 2. Вы играете за Аликс Вэнс, и вы — единственный шанс человечества на спасение. Контроль Альянса над планетой после инцидента в Чёрной Мезе только (   Читать дальше...   )Тип издания: RepackРазработчик: Valve CorporationЖанр: Adventure, Action, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4417A374A0E65772E78693B2CF3A2F157AEB8D2
 ```
 
 

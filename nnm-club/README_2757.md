@@ -1,3 +1,76 @@
+###  Публикация: 450540   (75421) от 11.02.2012
+
+Воры в законе (1988) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в СССР в 1980-е годы. Рита, дочь крестьянина из дальнего кавказского села сбежала из дома и прибилась к преступной группировке контролирующей небольшой приморский городок. Она становится любовницей главы местной мафии Артура. Все местные подпольные предприниматели и органы советской власти находятся под его контролем. Вскоре наступают тяжёлые (   Читать дальше...   )Производство: СССР, к/с Максима ГорькогоЖанр: Боевик, Криминал, ТриллерРежиссер: Юрий КараАктеры: Анна Самохина, Валентин Гафт, Владимир Стеклов, Борис Щербаков, Арнис Лицитис, Нурбей Камкиа, Зиновий Гердт, Гиви Лежава, Амаяк Акопян, Станислав Коренев, Константин Кищук, Серкей МаксачевСубтитры: нетПродолжительность: 01:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64051E5CEA634AE44CBCA5CB83E923CA87165E3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450288   (75430) от 11.02.2012
+
+[Wii] Taiko no Tatsujin Wii: Ketteiban [Japan] [NTSC-J] (2011)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайко - означает "барабан" на японском языке. В этой игре вам придется выстукивать в ритм на барабанах и не только это. По мимо стандартного режима тайко, есть ещё целая куча других режимов. Вся игра построена на ритме, эта игра не даст вам заскучать! В игру можно играть как и обычным "Wiimote", так и беспроводными барабанами, соединяющиеся с контролером Wii.2011Жанр: Rhythm/Music gameЯзык интерфейса: JapanФормат: iso, wbfs (на выбор)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F137C70178D2D3845CFD1D80D61539F89CFAC468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450262   (75439) от 11.02.2012
+
+Дарья Форель | Лечебный факультет, или Спасти лягушку (2011) [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пройдя испытания вступительных экзаменов, они радуются. Они еще не знают, что ждет их впереди. Но реальность быстро заставляет их спуститься с небес на землю.
+Каждый день учебы в "меде" полон больших и маленьких трагедий. Преподаватели, требующие взяток, цинизм и халатность руководящих практикой врачей, жестокие шутки сокурсников, смерть пациентов и врачебные (   Читать дальше...   )Жанр: Проза, Юмор и СатираФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EF0FC4330C452CB35F9A46A0B3E359F90EB868
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449998   (75440) от 11.02.2012
 
 Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
@@ -6,7 +79,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75440.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75447.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75455.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ magnet:?xt=urn:btih:97A97A0E385B20DCA5FFA7A86EB23BCC5AE68BB9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75459.jpg" />
 </div>
 
 
@@ -109,7 +182,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75469.jpg" />
 </div>
 
 
@@ -142,7 +215,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75470.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75493.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ Duke Nukem Дилогия [En] (P) 1991-1993
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75497.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:186BA5DCDCB4FCFCD87A1C0A0063CF63ACD0298F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75498.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ Spyware Terminator Premium 2012 v3.0.0.54  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75499.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75502.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75507.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75508.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75510.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ magnet:?xt=urn:btih:E8AE6CA3198CDA4847E4DFCD75F730821DA7C82A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75514.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ magnet:?xt=urn:btih:F30EB266D7E528E83BEEDCC39756C9E5D899A78E
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75516.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ DivX Plus Pro v8.2.2 Build 10.3.2 (1.8.5.28)  Eng/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75522.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ DivX Plus Pro — это совершенно новый пакет кодеко
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75527.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ DivX Plus Pro — это совершенно новый пакет кодеко
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75530.jpg" />
 </div>
 
 
@@ -504,7 +577,7 @@ magnet:?xt=urn:btih:B89249C30FCCF0F8E5B23FE14AF435D539C98176
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75537.jpg" />
 </div>
 
 
@@ -529,7 +602,7 @@ magnet:?xt=urn:btih:D629B3645180FEB7ACBA1A3630FF6E4146AA43A3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75543.jpg" />
 </div>
 
 
@@ -553,7 +626,7 @@ Alice Cooper - 12 Albums (1969 -1978) Mini LP SHM-CD / 2011, Warner Music Japan 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75544.jpg" />
 </div>
 
 
@@ -586,7 +659,7 @@ Alice Cooper - 12 Albums (1969 -1978) Mini LP SHM-CD / 2011, Warner Music Japan 
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75545.jpg" />
 </div>
 
 
@@ -598,78 +671,6 @@ Alice Cooper - 12 Albums (1969 -1978) Mini LP SHM-CD / 2011, Warner Music Japan 
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450802   (75549) от 11.02.2012
-
-VA - Мультконцерт. Антология Детского Шлягера (2006) [MP3|320 kbps]<Детские песни из мультфильмов>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детские песниПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C8E739FEF0ACFBADB283CB8979DBB78D3A3E0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450581   (75552) от 11.02.2012
-
-Графиня де Монсоро (1997) 2хDVD9 (26 серий из 26)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю любви красавицы Дианы и самоотверженного графа де Бюсси. Франция эпохи религиозных войн между католиками и гугенотами. Во главе гугенотов — Генрих Наваррский. Католиков возглавляет воинственная семья герцогов де Гизов. Король Генрих III, изнеженный любитель роскоши и развлечений, не способен управлять страной. Он окружил себя фаворитами (   Читать дальше...   )Производство: РоссияЖанр: Драма, Мелодрама, ИсторияРежиссер: Владимир ПопковАктеры: Александр Домогаров, Габриэла Мариани, Юрий Беляев, Евгений Дворжецкий, Алексей Горбунов, Кирилл Козаков, Екатерина Васильева, Юрий Яковлев, Анна Дубровская, Лев Дуров, Дмитрий Марьянов, Борис Клюев, Борис Иванов, Игорь Ливанов, Дмитрий Певцов, Евгений Стычкин, Екатерина Стриженова, Владимир Долинский, Сергей Виноградов, Сергей Варчук, Тимофей Федоров, Леван Мсхиладзе, (   Читать дальше...   )Продолжительность: 26 х ~ 00:52:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450852   (75556) от 11.02.2012
-
-Алексей Пехов | Крадущийся в тени [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вор и герой – понятия несовместимые? Как бы не так! Когда приходится делать нелегкий выбор между топором палача и Заказом на небольшую прогулку в мрачные могильники эльфийских лесов, трезвомыслящие люди выбирают топор палача, а герои, такие, как Гаррет, решают бросить кости и, надеясь, что выпадут шестерки, рискнуть. Ведь всего-то надо пробраться в заброшенную башню (   Читать дальше...   )Жанр: Фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ECA1AEAD6C119FF4311B748DE127B939D2C4C6
 ```
 
 

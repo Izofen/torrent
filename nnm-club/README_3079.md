@@ -1,3 +1,86 @@
+###  Публикация: 474058   (97811) от 27.03.2012
+
+AOR - The Colors Of L.A. (2012) [FLAC|Lossless]<Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jenny At Midnight
+02.Benedict Canyons
+03.Kimberly
+04.Under Your Spell
+05.Brittany
+06.Halo Of Light
+07.Just One Kiss On Your Heart
+08.Dreams From Silver Lake
+09.You're My Obssession
+10.Teach Me How To Love You Again(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474195   (97812) от 27.03.2012
+
+Рио Гранде (Большая река) / Rio Grande (1950) DVD9
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький отдаленный форт на Рио Гранде. Сердце крутого подполковник Кирби Йорка немного смягчается: среди пополнения новичков, прибывших в его подчинение, единственный и горячо любимый сын Джефф. Однако, послаблений ему не будет: армейская жизнь полна трудностей и страданий, романтикой здесь и не пахнет.
+
+Но Джефф и сам хочет доказать отцу, на что он способен. Вскоре в форт приезжает Кэтлин Йорк — жена Кирби, с которой он расстался. Дама настроена весьма решительно: она хочет добиться ухода сына из армии и вернуть любовь мужа.Жанр: мелодрама, вестернРежиссер: Джон ФордАктеры: Джон Уэйн, Морин О'Хара, Бен Джонсон, Клод Джармэн-мл., Гарри Кэри-мл., Чилл Уиллс, Дж. Кэррол Нэйш, Виктор МакЛаглен, Грант УизерсПеревод: Перевод 1: Профессиональный (многоголосый закадровый) ООО "Светла"Продолжительность: 01:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A6E7FB96A08B66A91071FA6247602FB6F0CC67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473636   (97813) от 27.03.2012
+
+[No / En, Da, Sw, Fi, No Sub] Коряжка в беде / Knerten i knipe (2011) BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам произведения известной норвежской детской писательницы Анне-Катарины Вестли "Коряжка и удивительный ребенок в конверте". В этом трогательном фильме параллельно развиваются две сюжетные линии, главные герои в одной которых-Коряжка, а в другой-найденный ребенок. Мальчик Лилебр (Adrian Smith) друг Коряжки, неожиданно теряет его на рынке при продаже фруктов. При поисках своего друга Коряжки он находит брошенного ребенка. Где Коряжка? Каково происхождение ребенка?Жанр: СемейныйРежиссер: Арилд Эстин ОммандсенАктеры: Адриан Грынневик Смит,  Пернилла Серенсен, Ян Гуннар Рёйсе, Петрус Андреас КристенсенПеревод: ОтсутствуетПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59446CAA2CB4E631DFF3AE33915F0490B7480ABE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473964   (97814) от 27.03.2012
 
 Джеймс Кейн | Двойная страховка [2005] [MP3]
@@ -6,7 +89,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97814.jpg" />
 </div>
 
 
@@ -31,7 +114,7 @@ magnet:?xt=urn:btih:234160187C021330F6ED48A34F9ECDFC21338B40
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97815.jpg" />
 </div>
 
 
@@ -55,7 +138,7 @@ magnet:?xt=urn:btih:234160187C021330F6ED48A34F9ECDFC21338B40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97817.jpg" />
 </div>
 
 
@@ -83,7 +166,7 @@ Vienna Boys Choir - Christmas With The Vienna Boys Choir (1993) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97821.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ magnet:?xt=urn:btih:CD3F12F9339F26EA6C24447D1EEA08C9ADD0B1CC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97824.jpg" />
 </div>
 
 
@@ -140,7 +223,7 @@ magnet:?xt=urn:btih:A58874F1B35A2B0C19E4B5DBFD86EFE3268F7197
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97829.jpg" />
 </div>
 
 
@@ -164,7 +247,7 @@ magnet:?xt=urn:btih:6D99BE7BB4D25E44ABE6A707489F4629EDA34DD1
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97834.jpg" />
 </div>
 
 
@@ -188,7 +271,7 @@ Kinack - Ondas WEB (2012) [FLAC|Lossless]<Chillout, Lounge>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97835.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97835.jpg" />
 </div>
 
 
@@ -219,7 +302,7 @@ Kinack - Ondas WEB (2012)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97837.jpg" />
 </div>
 
 
@@ -246,7 +329,7 @@ magnet:?xt=urn:btih:989B595821FA522B77CCD8C71CE57B9289D91FB2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97838.jpg" />
 </div>
 
 
@@ -271,7 +354,7 @@ magnet:?xt=urn:btih:7E794A9E745EDFD1D983B06A5B8D8C8C942984A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97839.jpg" />
 </div>
 
 
@@ -299,7 +382,7 @@ Steve Turre - Woody's Delight (2012) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97846.jpg" />
 </div>
 
 
@@ -331,7 +414,7 @@ magnet:?xt=urn:btih:517DF82C6503A9EDC89C248A9F08E643F7D05980
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97848.jpg" />
 </div>
 
 
@@ -355,7 +438,7 @@ VA - Музыкальная волна - Версия 6 50/50 (2012) [MP3|256 kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97849.jpg" />
 </div>
 
 
@@ -388,7 +471,7 @@ magnet:?xt=urn:btih:FCB38A994724C294275A412F73F271EE4C35476B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97852.jpg" />
 </div>
 
 
@@ -412,7 +495,7 @@ DJ Kocmoc - Electro Sensation vol.23 (23.03.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97853.jpg" />
 </div>
 
 
@@ -445,7 +528,7 @@ VA - Лучший клубный драйв (2012) [MP3|192-256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97854.jpg" />
 </div>
 
 
@@ -478,7 +561,7 @@ magnet:?xt=urn:btih:6ECE1CBE7F29B29361B00D59E8F53AA805047850
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97855.jpg" />
 </div>
 
 
@@ -506,7 +589,7 @@ VA - 538 Hitzone 60 2CD (2012) [MP3|320 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97857.jpg" />
 </div>
 
 
@@ -539,7 +622,7 @@ magnet:?xt=urn:btih:8724F6E6CD66CA971F4D0FB5B9B913F69406CD52
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97861.jpg" />
 </div>
 
 
@@ -564,7 +647,7 @@ magnet:?xt=urn:btih:E0BC1ECC505D762F5013EFD4451A9CC312F7E6B5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97862.jpg" />
 </div>
 
 
@@ -588,7 +671,7 @@ magnet:?xt=urn:btih:DBCA5105C8AFE94B2585391B1056AFAC3E46114A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97864.jpg" />
 </div>
 
 
@@ -616,7 +699,7 @@ VA - House Vip (20.03.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97865.jpg" />
 </div>
 
 
@@ -634,78 +717,6 @@ VA - House Vip (20.03.2012) [MP3|320 кб/с]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28EC0654B21004658CC60AC9562B0EE3CB8264E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474668   (97867) от 28.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (29.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E7781308A186A1F6BE39BC46F6B9F18C96765E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474672   (97868) от 28.03.2012
-
-[Wallpapers] Films Wallpapers (29.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECFF332AA944BC6F18E3A70955F1F5E78B3A79F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474669   (97870) от 28.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (29.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DB600511D309A954C812150727721573447969
 ```
 
 

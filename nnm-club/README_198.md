@@ -6,7 +6,7 @@ Act&Create, Tasha Lumi | Всё, что тебе нужно знать для с
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5212.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ui Kits - UI8 - Lumine - Minimalistic Brand Guidelines [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5213.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3E0D23FF77C40DE028368EDBBEAAD3A43693E712
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5214.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Totally Accurate Battle Simulator (2019) [Ru/Multi] (1.1.8.7/dlc) Repack Pioneer
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5215.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VueScan Pro 9.8.46.20 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5216.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Kingdom's Deck (2025) [Ru/Multi] (1.1.3) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5217.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ LibreOffice 25.8.1.1 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5218.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:41E8FDEABA75E57EC763E10DD0AAB7EBE8A116CD
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5219.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Download Master 7.1.3.1735 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5220.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ DiskDigger 2.0.11.4091 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5221.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VIMAGE - AI Photo Animation v5.1.10 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5222.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Talisman: Digital 5th Edition (2024) [Ru/Multi] (Build 84407/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5223.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:DA0F22CCB29845E1C303A469DB38B3DA755EAA51
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5224.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5225.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5226.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Treesize professional 9.5.1.2105 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5227.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D674324FB8402C96BF2DB0FE3AB5A50717E48D23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5228.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:E271B33B5553AFEF4173A9FAD759F77B8A67F087
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5229.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:42D530301D6E7A8661622EA75DCF22CEC62566B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5230.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ FacePic - AI Face App v2.8.4 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5231.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Outer Wilds: Archaeologist Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5232.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Chuck Schuldiner (Death; Control Denied; Voodoocult; Naphobia) - Studio Albums (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5233.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Wise ImageX 1.5.1.17 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5234.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:D23CE116D08735F42111218256380C4A8951C5BD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5235.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Prison Escape Simulator: Dig Out (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5236.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ AMS Мой Дом 3D 4.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5237.jpg" />
 </div>
 
 

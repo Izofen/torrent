@@ -1,3 +1,53 @@
+###  Публикация: 1678588   (143819) от 22.11.2023
+
+ProPresenter 7.15 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143819.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
+Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
+Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2023Разработчик: ©️ 2023 Renewed Vision, LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский  и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DE555161213DC1416A06B7E00A7A877A60259C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272290   (143821) от 27.12.2018
+
+Смолфут / Smallfoot (2018) BDRemux [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США / Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигПеревод: Дублированный (iTunes)Субтитры: Русские (full, forced), английские (full, SDH), украинские (forced)Продолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC40D5A8CC9AA582EFD8E6F5D80ABBD7B6046DB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520284   (143835) от 27.12.2021
 
 PhotoBulk: watermark in batch 2.4 [Multi]
@@ -6,7 +56,7 @@ PhotoBulk: watermark in batch 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143835.jpg" />
 </div>
 
 
@@ -31,7 +81,7 @@ magnet:?xt=urn:btih:C771673FE821C7DE97C8CAC2C559142F38F1D238
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143840.jpg" />
 </div>
 
 
@@ -55,7 +105,7 @@ magnet:?xt=urn:btih:CE57BB6C5D6B4DBB79396EC2705EE4B9D59775FE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143858.jpg" />
 </div>
 
 
@@ -79,7 +129,7 @@ VLC Media Player 3.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143872.jpg" />
 </div>
 
 
@@ -103,7 +153,7 @@ MKVToolNix 9.7.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143879.jpg" />
 </div>
 
 
@@ -127,7 +177,7 @@ FreeBSD 9.1 RELEASE [i386] (1xDVD+1xCD+USB IMG+BootOnlyCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143885.jpg" />
 </div>
 
 
@@ -155,7 +205,7 @@ FreeBSD разрабатывается как целостная операци�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143900.jpg" />
 </div>
 
 
@@ -179,7 +229,7 @@ eMail Address Extractor 3.5.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143903.jpg" />
 </div>
 
 
@@ -204,7 +254,7 @@ USBclean 3.6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143909.jpg" />
 </div>
 
 
@@ -228,7 +278,7 @@ magnet:?xt=urn:btih:DAAD2E07E32A82CA90610E5FC211AAC96D5059DF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143916.jpg" />
 </div>
 
 
@@ -252,7 +302,7 @@ VueScan Pro 9.6.24-64 bit [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143918.jpg" />
 </div>
 
 
@@ -277,7 +327,7 @@ Stats 2.6.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143934.jpg" />
 </div>
 
 
@@ -301,7 +351,7 @@ Cent Browser 4.3.9.241 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143937.jpg" />
 </div>
 
 
@@ -325,7 +375,7 @@ Native Instruments Kontakt 7.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143947.jpg" />
 </div>
 
 
@@ -349,7 +399,7 @@ SamDrivers 18.19 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143951.jpg" />
 </div>
 
 
@@ -373,7 +423,7 @@ Vidmore Video Fix for Mac 1.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143954.jpg" />
 </div>
 
 
@@ -397,7 +447,7 @@ TrustViewer 2.5.1.3988 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143957.jpg" />
 </div>
 
 
@@ -421,7 +471,7 @@ Finder Windows 1.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143959.jpg" />
 </div>
 
 
@@ -445,7 +495,7 @@ TweakPower 1.167 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143975.jpg" />
 </div>
 
 
@@ -469,7 +519,7 @@ PullTube 1.8.5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143977.jpg" />
 </div>
 
 
@@ -493,7 +543,7 @@ Hides 5.6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143981.jpg" />
 </div>
 
 
@@ -517,7 +567,7 @@ Adguard 1.5.3 (435) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143983.jpg" />
 </div>
 
 
@@ -542,7 +592,7 @@ Rebel Cops v1.6 + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143988.jpg" />
 </div>
 
 
@@ -566,7 +616,7 @@ Native Instruments Komplete Kontrol 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143995.jpg" />
 </div>
 
 
@@ -577,54 +627,6 @@ KOMPLETE KONTROL — это простой в использовании инс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:641F8E7B0ABB33C507F3B5CBC7F3F660FF44124C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520352   (144010) от 27.12.2021
-
-SyncTime 3.7.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144010.jpg" />
-</div>
-
-
-###  Подробнее
-
-SyncTime - самое простое решение для синхронизации ваших файлов. Вы когда-нибудь думали, чтобы вы могли легко обновлять все свои резервные копии, распределенные по многим устройствам? SyncTime просто сделает это. SyncTime способен на очень много вещей, но так прост в использовании. От ручной, плановой или полностью автоматической синхронизации до фоновой синхронизации, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 DESAIREMПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0469ED26C22C781BCB105D97903D8E0FDE0581D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195302   (144015) от 28.12.2017
-
-Chromium 65.0.3306.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893CEB55590A4A1F45869D0FEE5C5EEA38B8A69A
 ```
 
 

@@ -1,3 +1,149 @@
+###  Публикация: 1087975   (141764) от 29.12.2016
+
+Amnesia: The Dark Descent / Амнезия. Призрак прошлого (2010) [Ru/Multi] (1.3.1/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amnesia: The Dark Descent – приключенческая игра с видом от первого лица в стиле survival horror. Вам предстоит играть за Даниэля, который потерял память. Он просыпается в каком-то замке, и понимает, что за ним кто-то охотится. Он должен спасти свою жизнь, по пути выяснив, что же с ним произошло, как он вообще очутился в замке, и кто его преследует.Тип издания: RepackРазработчик: Frictional GamesЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D47375934E28A3BDFBCC83A4A67B27C1E1ECE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195189   (141766) от 29.12.2017
+
+Tenchi Muyou! Ryououki Dai Yon-ki / Тэнти - лишний! Рё-о-ки 4 [2016, OVA, 4 эп.] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая часть рассказывает о свадьбе отца Тенти и рождении Кэнси.Производство: AICЖанр: приключенияРежиссер: Кадзисима Масаки / Kajishima Masaki / 梶島正樹Перевод: Вадим КузьминЯзык озвучки: ЯпонскийСубтитры: RU ASSФормат: MKV BDRipПродолжительность: 4 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BB62FC42A20AD4C877F5BF38070142E4434072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970410   (141767) от 30.12.2015
+
+Syhunt Sandcat Browser 5.2.0.1 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandcat Browser - это миниатюрный браузер, создаваемый на базе кода Chromium, предназначенный в основном для тестеров безопасности вебсайтов, а также для разработчиков, которым нужен более низкоуровневый контроль над приложением, чем тот, который предлагается разработчиками браузеров и специализированных плагинов.
+Запуск Sandcat более чем прост - нужно распаковать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05934131EFA8C2DC175AFB69C7FFD9FF4EE17001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970331   (141768) от 30.12.2015
+
+А. Ф. Лосев | Эстетика Возрождения (1978) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141768.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии известного ученого А. Ф. Лосева впервые в отечественной литературе дается широко обобщенная и развернутая характеристика эстетических воззрений одной из узловых эпох европейской истории - эпохи Возрождения. Книга, представляющая собой итог многолетних исследований автора, написана на основе огромного эмпирического материала, оригинальных источников, (   Читать дальше...   )Жанр: История, философия, эстетика, искусство, литературоведение, религиоведение, политология, науковедениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63069113B7E2A0C2232C8A107A4AD76A79ACF188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272263   (141769) от 28.12.2018
+
+Garmin: Дороги России Топо 6.29 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141769.jpg" />
+</div>
+
+
+###  Подробнее
+
+На топографических картах отображаются данные, помогающие в определении местоположения на местности, планированию маршрута организации активного и безопасного отдыха на природе.
+В картах дана информация о рельефе, растительности и гидрографии района. Рельеф представлен горизонталями, сечением 20 метров, профилями оврагов и балок, высотами. Приведена информация об (   Читать дальше...   )Тип издания: лицензияРелиз состоялся: декабрь 2018Разработчик: НавикомПоддерживаемая ОС: GarminЯзык интерфейса: РусскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1126DA7786864E80FEA350A49995D47383E84320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087937   (141770) от 29.12.2016
+
+Проекты - VideoHive - Christmas Logo Opener 7 - parking - 19052178 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas Logo Opener 7 - parking - поздравительная открытка с Санта Клаусом, Оленем и мешком с подарками.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B646FD971C33F0231909E833FFDD8B83919EA992
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435971   (141771) от 29.12.2020
 
 Karen Silver - Hold On I'm Comin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -6,7 +152,7 @@ Karen Silver - Hold On I'm Comin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141771.jpg" />
 </div>
 
 
@@ -33,7 +179,7 @@ magnet:?xt=urn:btih:14801F482BFA7603069CDF7DC2B67122813A2351
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141772.jpg" />
 </div>
 
 
@@ -57,7 +203,7 @@ OmniPlan Pro 3 v3.10.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141773.jpg" />
 </div>
 
 
@@ -81,7 +227,7 @@ magnet:?xt=urn:btih:001C950FEEAA1F1A32A3A5E963E2E241037A6985
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141774.jpg" />
 </div>
 
 
@@ -105,7 +251,7 @@ magnet:?xt=urn:btih:DD7A5A3BE018A981F67A853671C26224D6B9BED5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141775.jpg" />
 </div>
 
 
@@ -129,7 +275,7 @@ magnet:?xt=urn:btih:4E20CB15601A27E83D3011AB308D0D156C04EC87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141776.jpg" />
 </div>
 
 
@@ -154,7 +300,7 @@ magnet:?xt=urn:btih:2F90F58B9BD455D2BF849A62CEF4D95B310F8D5F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141777.jpg" />
 </div>
 
 
@@ -178,7 +324,7 @@ magnet:?xt=urn:btih:9B408FBDA403AA97C5DCBB7109B0897BFCF78DD6
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141778.jpg" />
 </div>
 
 
@@ -202,7 +348,7 @@ magnet:?xt=urn:btih:DE7571DC566BD866D93DEA7D91566E8206C96A34
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141780.jpg" />
 </div>
 
 
@@ -226,7 +372,7 @@ Adobe Illustrator CC 2019 23.0.1.540 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141781.jpg" />
 </div>
 
 
@@ -250,7 +396,7 @@ magnet:?xt=urn:btih:C472B7E9DB122FDE048D70BE60E49E1119CB56D0
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141782.jpg" />
 </div>
 
 
@@ -277,7 +423,7 @@ Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового гла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141783.jpg" />
 </div>
 
 
@@ -301,7 +447,7 @@ magnet:?xt=urn:btih:7BE3C18E3357EDEC2C49F6F72EA67A85D74A30C8
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141784.jpg" />
 </div>
 
 
@@ -325,7 +471,7 @@ magnet:?xt=urn:btih:4B8C422EA9304F3066D48559594A02D5E2131FB0
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141788.jpg" />
 </div>
 
 
@@ -349,7 +495,7 @@ magnet:?xt=urn:btih:CB3D620FAF8A619E65EA892927592B726BFCA599
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141789.jpg" />
 </div>
 
 
@@ -373,7 +519,7 @@ Softorino YouTube Converter 2 v2.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141790.jpg" />
 </div>
 
 
@@ -400,7 +546,7 @@ magnet:?xt=urn:btih:9F6E8962C90A479D42CF21E3D3AE1BAEBEDF12EC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141791.jpg" />
 </div>
 
 
@@ -424,7 +570,7 @@ magnet:?xt=urn:btih:D8ED9D53FD53658882736CBB630738089D579B32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141792.jpg" />
 </div>
 
 
@@ -448,7 +594,7 @@ Wondershare UniConverter 13.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141794.jpg" />
 </div>
 
 
@@ -473,7 +619,7 @@ Legal Academy, Вадим Усков | Практическое руководс
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141795.jpg" />
 </div>
 
 
@@ -487,160 +633,6 @@ Legal Academy, Вадим Усков | Практическое руководс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5BE79534CC4140C711898D0ABF0CCCAC3E31225
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195483   (141797) от 29.12.2017
-
-VA - Утомлённое солнце. Песни 30-50-х (2008) [FLAC|Lossless|tracks + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Барон фон дер Пшик - М. Курдин
-02. Джеймс Кеннеди - Джаз-оркестр театра Краснознамённого Балтфлота
-03. Бомбардировщики - Леонид Утёсов, Эдит Утёсова
-04. Осень - Вадим Козин, "Танго-ансамбль" п/у Я. Хаскина(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720B419015C70599667B4E88D727D8B12E7D89AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348842   (141799) от 29.12.2019
-
-Alcest - 6 Albums, 2 EPs (2005-2019) [FLAC|Lossless|image + .cue] <Shoegaze, Blackgaze, Post Rock, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcest — французская группа из города Баньоль-сюр-Сез (фр. Bagnols-sur-Cèze). Её лидером и основателем является Neige (Stéphane Paut). Группа является первооткрывателем жанра Blackgaze, благодаря их мини-альбому Le Secret, выпущенному в 2005.Список альбомов:
-2005 - Le Secret
-2007 - Souvenirs D'un Autre Monde
-2009 - Les Discrets & Alcest(   Читать дальше...   )Жанр: Shoegaze, Blackgaze, Post Rock, Black MetalПродолжительность: 05:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B01B73418DF0173373A243CAEED11D32D37D72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854358   (141800) от 29.12.2014
-
-Русский характер (2014) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141800.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 год, Украина. Военный моряк Максим Фадеев приезжает из Санкт-Петербурга в Крым, получив телеграмму о смерти деда. На полуострове прошло детство Максима, отсюда он уехал поступать в Суворовское училище, здесь живут его друзья и близкие… Максим узнает, что расположенный на берегу моря поселок терроризирует банда некоего Волощука, которого финансирует олигарх Юрий (   Читать дальше...   )Производство: Триикс МедиаЖанр: Драма, криминалРежиссер: Александр ЯкимчукПродолжительность: 01:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11CED47D3EB7137F23CE0B4AF7347C6B4AB8094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252948   (141801) от 28.12.2018
-
-Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream of Bunny Girl Senpai / Эта глупая свинья не понимает мечту девочки-зайки! [2018, TV, 13] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сакута Азусагава — обычный старшеклассник, который в один прекрасный день видит перед собой девушку в костюме кролика. Он узнаёт, что девушка — его сенпай по имени Май Сакурадзима, которая также является известной актрисой, на данный момент прервавшей карьеру. Но это ещё не самое странное, люди просто перестали её видеть из-за некоего загадочного «синдрома полового (   Читать дальше...   )Жанр: комедия, романтика, драма, мистикаРежиссер: Соичи МасуиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9399C0D8A7CF332CC74932B2A5E023D0A3E8D94C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435802   (141802) от 29.12.2020
-
-Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141802.jpg" />
-</div>
-
-
-###  Подробнее
-
-A So Weit So Gut (Maxi-Version)
-Written-By – Jurgen Attig, Michael Reincke
-B Hinein Ins Wilde Pralle Leben
-Written-By – Michael Reincke(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF67F2776AE8044D64831086BCA1C0D993A2DC05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520418   (141803) от 28.12.2021
-
-Александр Бушков | "Сварог" Книга 21. Чудовища в янтаре. Дыхание мороза (2021) [MP3, Вячеслав Задворных]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько ни искали Крепость Королей, так и не нашли… Можно было бы уже допустить, что таковой попросту не существует. Но не сомневался Сварог: существует и смертельную угрозу являет собой исключительно для Талара. Просыпаются чудовища в янтаре. На планету вечного лета опускается белоснежная тайна.
-Ровными алыми буквами в пол-локтя проступает знак Гремилькара, старый, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 14:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570F5D82B82246683B87FA0DF5C297E6BD4D86AC
 ```
 
 

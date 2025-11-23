@@ -1,3 +1,183 @@
+###  Публикация: 1435344   (145531) от 27.12.2020
+
+Не хочу жениться! (1993) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принципиальный холостяк, мастер пластических операций при довольно странных обстоятельствах знакомится с длинноносой милиционершей. Сделав ей операцию, он подобно Пигмалиону, сотворившему Галатею, влюбляется в прекрасное творение рук своих и заявляет: «Я хочу на тебе жениться!»...Производство: Россия / ОФРРоскомкиноЖанр: КомедияРежиссер: Сергей НиконенкоАктеры: Светлана Рябова, Евгений Леонов-Гладышев, Татьяна Догилева, Михаил Евдокимов, Сергей Никоненко, Светлана Суховей, Виктор Ильичев, Татьяна Кравченко, Ольга ВолковаСубтитры: ОтсутствуютПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD568947053BA216485929310356C9FD3415C8A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347938   (145534) от 26.12.2019
+
+Боевик / Action (2019) WEBRip [MVO]
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается вокруг офицера индийской армии Субаша, который оказался вовлечён в расследование, пожалуй, самой громкой террористической атаки в истории страны. Некая подпольная организация подорвала бомбу прямо во время крупного политического выступления. В результате этого теракта погиб лидер нации и ещё один уважаемый политик, которому многие (   Читать дальше...   )Производство: Индия, Trident ArtsЖанр: боевикРежиссер: Сундар С.Актеры: Вишал, Таманна Бхатия, Айшварья Лекшми, Рамки, Йоги Бабу, Аканкша Пури, Шайя Сингх, Кабир, Sha Ra, Арав ЧоудхарриПеревод: Многоголосый любительскийСубтитры: отсутствуютПродолжительность: 02:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDED640FDD411D66D1A2B9F082FE9708F554FB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520027   (145535) от 26.12.2021
+
+VA - Top 100: Most-Read Lyrics (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Rodrigo – drivers license (04:02)
+02. Olivia Rodrigo – good 4 u (02:58)
+03. Yuuri – Dried Flower (04:45)
+04. BTS – Dynamite (03:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9F4032A41F41A67AD1EA2FA90A21A948A53487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087349   (145536) от 27.12.2016
+
+Поезд в Пусан / Busanhaeng (2016) BDRip [H.264] [PR]
+
+>>След.
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145536.jpg" />
+</div>
+
+
+###  Подробнее
+
+У маленькой Су-ан день рождения. Девочка живет с отцом в Сеуле и очень хочет отправиться к маме в Пусан. По дороге случается непредвиденное, и на страну обрушивается загадочный вирус. Пассажирам поезда в Пусан — единственного города, отразившего атаки вируса- придется бороться за выживание. 442 километра в пути. Добро пожаловать на борт и помните — в этой гонке недостаточно (   Читать дальше...   )Производство: Корея Южная / Next Entertainment WorldЖанр: боевик, триллер, ужасыРежиссер: Ён Сан-хоАктеры: Кон Ю, Ма Дон-сок, Чон Ю-ми, Ким Су-ан, Ким И-сон, Чхве У-щик, Ан Со-хи, Ким Чхан-хван, Чан Хёк-чин, Чон Сок-ёнПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7600E65413B481089779671211F279F0FFEE708
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272107   (145537) от 26.12.2018
+
+VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NM - Interstellar Discovery (4:06)
+02. SynthOne - Electric Legend (5:39)
+03. Rama - Organix (5:13)
+04. Galaxy Hunter - Space Ship Two (One) (Instrumental) (5:35)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31774A27BFDC81338726C5686647AF06A4169C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664347   (145538) от 28.12.2015
+
+Before Their Eyes - 5 Альбомов (2007-2015) [FLAC|Lossless|tracks + .cue|WEB-DL|tracks]<Post-Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s Dark Inside With You
+02. The Positive And The Negative Of Being Alone
+03. We Won’t Make The Same Mistake Again
+04. How It Feels To Be Defeated(   Читать дальше...   )Тип издания: ДискографияЖанр: Post-HardcoreПродолжительность: 02:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A73BF95B9FF9A1882905B3ECAA4A1B0769AC0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 722209   (145539) от 27.12.2020
+
+Haruka Nakamura - 6 Albums (2007-2013) [OGG|~320 kbps]<Ambient, Acoustic, Electronic, Folktronica>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamp feat. Nujabes 06:40
+02. AURORA 03:31
+03. soar feat. Substantial 04:37
+04. days 01:53(   Читать дальше...   )Жанр: Modern Classic, AcousticПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA764556F3F059C348FF2B89B69E8AAC9EE7229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087416   (145541) от 27.12.2016
 
 Бегущий по лезвию 2049 / Blade Runner 2049 (2017) WEBRip [H.264/1080p] [Трейлер]
@@ -6,7 +186,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145541.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:C5B43601EE77B8AC9F6F41001F6BA62D763BBB90
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145542.jpg" />
 </div>
 
 
@@ -54,7 +234,7 @@ Duran Duran - The Biggest And The Best (2012) 2CD, Compilation [FLAC|Lossless|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145543.jpg" />
 </div>
 
 
@@ -81,7 +261,7 @@ SimpleMind Pro 1.30.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145544.jpg" />
 </div>
 
 
@@ -106,7 +286,7 @@ magnet:?xt=urn:btih:948D46B377FA3243EE4F43A155979E46FB5241BB
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145545.jpg" />
 </div>
 
 
@@ -132,7 +312,7 @@ Trace - 3 Albums (1974-1976) Reissue, 2009, Arcangelo, Japan [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145546.jpg" />
 </div>
 
 
@@ -159,7 +339,7 @@ VA - Trance In Motion Vol.368 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145547.jpg" />
 </div>
 
 
@@ -186,7 +366,7 @@ magnet:?xt=urn:btih:940D46A13CC389BA1C84B639835318BF18E3C7F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145548.jpg" />
 </div>
 
 
@@ -210,7 +390,7 @@ Bring Me The Horizon - 13 Releases (2004-2019) [MP3|~245-320 кб/с]<Deathcore 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145550.jpg" />
 </div>
 
 
@@ -237,7 +417,7 @@ Armin van Buuren - A State of Trance 1048 XXL (Top 50 of 2021) (2021-12-23) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145551.jpg" />
 </div>
 
 
@@ -264,7 +444,7 @@ magnet:?xt=urn:btih:9710324374C643D94C07743049C3E0EE86CFC216
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145552.jpg" />
 </div>
 
 
@@ -288,7 +468,7 @@ magnet:?xt=urn:btih:792E6EE2BEA9B37FA7990A344FA6C5E3E016CE6C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145553.jpg" />
 </div>
 
 
@@ -313,7 +493,7 @@ magnet:?xt=urn:btih:C3B20296FDC32ADA4D6C148EDBEBA0903CA3795E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145555.jpg" />
 </div>
 
 
@@ -340,7 +520,7 @@ Firefox Browser ESR 115.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145556.jpg" />
 </div>
 
 
@@ -364,7 +544,7 @@ Claudia Cane Sings Bon Scott - CC/DC - A True AC/DC Remake (2011) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145557.jpg" />
 </div>
 
 
@@ -397,7 +577,7 @@ magnet:?xt=urn:btih:617DEF5CB7A1D7FE2FB95BCCB81C2F616315C49C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145558.jpg" />
 </div>
 
 
@@ -422,7 +602,7 @@ VA - Best Of Disco House 2021 [Disco Balls Records] (2021) [MP3|320 Kbps] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145559.jpg" />
 </div>
 
 
@@ -449,7 +629,7 @@ magnet:?xt=urn:btih:568BEB7FCE892D136B07ED3611C8BE8B0D127D02
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145560.jpg" />
 </div>
 
 
@@ -473,7 +653,7 @@ magnet:?xt=urn:btih:7432C48E3A06948C33A43E27E888FCFDA20220ED
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145561.jpg" />
 </div>
 
 
@@ -484,190 +664,6 @@ magnet:?xt=urn:btih:7432C48E3A06948C33A43E27E888FCFDA20220ED
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969680   (145562) от 28.12.2015
-
-Дж. Бейкер | История географических открытий и исследований (1950) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая в русском переводе книга преподавателя исторической географии Оксфордского университета Дж. Бейкера названа им «Историей географических открытий и исследований». Из авторского введения к первой главе видно, что Бейкер под историей географических открытий понимает «эволюцию карты мира от её самых простых, наиболее элементарных зачатков в античной древности (   Читать дальше...   )Жанр: Монография, География, ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2908195B35D72B609C60D603E205BD0E79FC8EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272153   (145564) от 26.12.2018
-
-Елена Киладзе | Грузинская кухня. Вкусные воспоминания (2018) [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда нам просто хочется вспомнить, как мы жили раньше - в уже далекие теперь советские времена. Мы листаем старые альбомы, рассматриваем фотографии и готовим блюда по старым советским рецептам, стараясь воссоздать "тот самый вкус".
-И кулинарная память оказывается намного сильнее всех остальных. Еда "из прошлого" обладает удивительной силой, (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475A47DAFB30A5D7B1E565ED79C4AAFAD33484EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678246   (145565) от 21.11.2023
-
-Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2016) The Complete Narrated Version, 2023, Rhino Atlantic [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, New Age, Christmas Music>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O' Come All Ye Faithful / O Holy Night (Narrated Version) [00:07:02]
-02. Good King Joy (Narrated Version) [00:06:30]
-03. Christmas Dreams (Narrated Version) [00:04:21]
-04. Christmas Eve / Sarajevo 12/24 (Narrated Version) [00:04:18](   Читать дальше...   )Жанр: Prog Rock, New Age, Christmas MusicПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B957D0735DF7676CE2A2D4B02E3DEF4DA3B089B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435365   (145566) от 27.12.2020
-
-Udemy, Clyde Matthew | *NEW* DOM 2020 Build Dynamic Websites with JavaScript Part 1 & 2 (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, меня зовут Клайд, и мы вместе узнаем, как успешные веб-разработчики могут создавать потрясающие веб-сайты, которые будут динамичными и интересными!
-Основа понимания того, как стать профессиональным веб-разработчиком, - это понимание объектной модели документа и ее применение в практических ситуациях. Мы собираемся практиковаться, учиться и становиться уверенными, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: Английский
-
-Ссылки на официальные страницы курсов на сайте  Udemy:Продолжительность: 14:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7630B3F99359CE18EDBE45EEDB12D74D78748C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589762   (145567) от 16.12.2012
-
-Wintersun - Wintersun (Japanese Edition) (2004) [FLAC|Lossless]<Epic Metal, Melodic Death, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Dark Sun 2:39
-02. Winter Madness 5:08
-03. Sleeping Stars 5:42
-04. Battle Against Time 7:03
-05. Death and the Healing 7:13
-06. Starchild 7:55
-07. Beautiful Death 8:16
-08. Sadness and Hate 10:19
-09. Winter Madness (Demo Version) 6:01
-10. Beyond the Dark Sun (Demo Version) 2:44(   Читать дальше...   )Жанр: Epic Metal, Melodic Death, Viking MetalПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057529   (145568) от 27.12.2016
-
-Агенты Щ.И.Т. / Agents of S.H.I.E.L.D. (2016) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-8 из 22) [EN/ EN, RU SUB] ( обновляемая )
-
->>След.
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия сериала разворачиваются после событий фильма «Мстители». Агент Фил Колсон возвращается в правоохранительную организацию под названием Щ. И. Т., собрав небольшую команду профессионалов, он начинает работу над новыми делами, которые порой бывают очень странными.Производство: США / ABC Studios, Marvel Studios, Mutant EnemyЖанр: фантастика, боевик, триллер, драмаРежиссер: Винс Мисиано, Билл Джирхарт, Кевин ТанчароэнАктеры: Кларк Грегг, Минг-На, Бретт Далтон, Хлоя Беннет, Йен де Кестекер, Элизабет Хенстридж, Ник Блад, Эдрианн Палики, Генри Симмонс, Люк Митчелл и др.Перевод: отсутствуетЯзык субтитров: русский (Нотабеноид, 1-7 серии), английскийПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD03BFDEF9CECBD545831F73D09A95F7FCC3A86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519911   (145569) от 26.12.2021
-
-База мертвых людей / Baza ludzi umarlych / The Depot of the Dead (1959) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Польша. 1945-1946 годы. Страна нуждается в сырье, острая нехватка древесины и человеческого ресурса. Далеко в глуши, одинокая база на которой живут несколько водителей грузовиков, занимающихся перевозкой леса. Бывшие заключенные и пьяницы, то и дело разбивающиеся на дряхлых машинах. Дирекция посылает своего механика — Забаву, чтобы он удержал коллектив неблагонадежных (   Читать дальше...   )Производство: Польша, Zespól Filmowy "Studio"Жанр: ДрамаРежиссер: Чеслав ПетельскийАктеры: Жигмунт Кенстович, Эмиль Каревич, Тереза Ижевска, Леон Немчик, Александр Фогель, Тадеуш Ломницкий, Роман Клосовски, Адам Квятковский, Юлиуш Грабовски, Роман ГубченкоПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английскиеПродолжительность: 01:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D7D0A15D75E5B564E4462DCDEFBD7AE9E8D901
 ```
 
 

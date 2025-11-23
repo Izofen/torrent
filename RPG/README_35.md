@@ -6,7 +6,7 @@ Beat Slayer (2024) [Multi] (1.1.14) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59746.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Terra Memoria (2024) [Multi] (2024.3.13a) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59758.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fallout 4 (2015) [Ru/En] (1.10.163.0/dlc) Repack dixen18 [Game of the Year Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59782.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Inkbound (2024) [Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59840.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ NightFeed (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59844.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59847.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fractals of Destiny (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59879.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59882.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Inquisitor (2024) [Ru/Multi] (1.1/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59984.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59986.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60038.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Inkbound (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60146.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Felvidek (2024) [Multi] (20240405) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60197.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60288.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ In Stars and Time (2023) [Multi] (1.0.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60303.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Gothic II: Night of the Raven / Готика 2: Ночь Ворона (2003) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60400.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.25) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60403.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.48412) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60487.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Withering Rooms (2024) [Multi] (1.22) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60490.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Scene DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60503.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Withering Rooms (2024) [Multi] (1.22) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60562.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Go Fight Fantastic (2024) [Multi] (1.11.0001) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60584.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Legend of Heroes: Trails into Reverie (2023) [En] (1.1.4/dlc) License GOG [L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60837.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Geneforge 2 - Infestation (2024) [En] (1.0/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60904.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61001.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61061.jpg" />
 </div>
 
 

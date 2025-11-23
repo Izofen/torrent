@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16955.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:200B609FE5EF2D78A55A83833B00ABA3948D5360
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16956.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:15523E1363D0307939D64C7E77B95F1E79DA5AED
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16957.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ TikTok Private Plus v40.2.2 Mod by TikTok + Plugin Update 2.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16958.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CB87D71619B3CA5D731CF47C2D06444EC2940A99
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16959.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9115529B353142DAD693950A134CED0FBF1377A9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16960.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:932BD202C5B2545389FD09192F2C87DCF7116371
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16961.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Music News For Forum vol.092 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16962.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D1CFA0FCA7BA49F6112AFBD1ECD46C2C2AC0B096
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16963.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16964.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Process Lasso Pro 15.1.1.17 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16965.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ MultiTimer: МультиТаймер v1.7.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16966.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Arabtronic 2025 - The Best Eastern Rhythms, Arabic Electro House, Ethnic Ch
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16967.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:9B8291431616E40FB13507D1194B6C09C35151CE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16968.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Arabtronica 2025 - The Best Eastern Rhythms [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16969.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:A252B344BA217C883D2F8DC190DC66829A422B55
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16970.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:777C5727FE3301F1AFE5BA7A579F6DE4D7B1529A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16971.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:D9F6703F0D9199ECCB8BEB909CB03E8E4B07CE31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16972.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16972.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:E38A70DB7B36870DA0EB01E66B10ACBD27B9A94D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16973.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16973.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:209E5B6763557A28EA3ED5DB6F0B54B251135B19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16974.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16974.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:5BD9841BDD43CD6CBA979C0DA763A557C0CCDF3D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16975.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16975.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:12E7362E20EC4E4AA0A6A469C892D237AF47BDE2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16976.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16976.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:DF286146497AE2B41F3186954DFCBDDFE3FC33EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16977.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16977.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:9E05E81650DE263261E6B03977821C8ADA76FC5D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16978.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16978.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:636B49594396FB4D7360C26CD9CBE2FBDD9E7180
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16979.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16979.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:75ACCEA65E71E58B9C35962606ECD9ED3BF049A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16980.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16980.jpg" />
 </div>
 
 

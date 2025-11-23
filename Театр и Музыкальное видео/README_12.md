@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48340.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C2C365BBC4D836944216E30A40D143419526CB23
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48357.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:978B7EF8F7A5CDB68A4A14606AA824EA59D61963
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48360.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B2367AB631B1B67F9EED242BE00F525D26437170
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48408.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:EA59729A25F6C3FA5F4384C7AAEEA76798D5E4D5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48418.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5CF40B339C2BDD7B831EC0470F8AC0C175C4952D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48425.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CA35796B9427A17F9DD6D7F6646FB19BADC291DC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48431.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:BCAEF19640648CB120E1E3343D9A88CB271160CC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48441.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8BC7F45036E3FB1BEDC675B8A0CDDA9232FE66E0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48443.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:4326F720465934DDD4BF6FE50FDA1E15F23B1335
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48446.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:CC05FFD48B66F90FDBF9EEF8155E87F6A616278D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48452.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:82E85EC334FC1EB38D31606D3B0590D311E56D3F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48526.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:ACDD35201D7EAD392FA288A4110DA80C6F42CA67
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48535.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:1FB3E745B51771A6B3E93D99F10624CBC2F47CD7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48536.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:3523A7CA8382CB642033CE29F065178F43221F61
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48540.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:17A81A34896288873C64C6EE41FECC08A52E590A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48541.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:24F18B4D732C7F934D744B71FF0C6239EC203721
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48570.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:1417D67B83663EC7FCA664BF205178FA7C3D69DC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48577.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:6E11CF556F5410251B035EB4362AA33EB4DA6481
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48587.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:0BE177F49FD3DA56D21363E8C6399640E4066C72
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48602.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:9CA633744574DB651377BC5929BC3AC44A886EAD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48603.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:D026B4B370FE45E46A2CF67FDE976258F888DC7E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48615.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:622FC0878E280BC19C0F1E085535FF6E93470AE8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48648.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:2A917AE98BBAB6C5A73860D07AF6D584F8E92AC4
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48713.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:D4A6257EBA66C8794E51D7257A43B47770DCCAB7
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48727.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:B255BFD054697B02E8D4C9599AD05116BAF96C81
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48741.jpg" />
 </div>
 
 

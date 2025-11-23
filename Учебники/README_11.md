@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106870.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:74F7D4C827619053D558D027300CDE0E00A11720
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107567.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:8E6EC597507A6A8C582BDC8A3BC45CD1F788B16F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107568.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:07E72557700981B153A42D8F0EDB9FCC2DC6A1E4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107572.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Andrew William | ESL Classroom Games: 180 Educational Games and Activities for T
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108762.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108765.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108770.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Diane Larsen-Freeman, Marti Anderson | Techniques and Principles in Language Tea
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108829.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109143.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:83417B2E781CF87AAE941F6CFCE8886C74827C5D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109223.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:23217A817DA2F8BED5980FD5089895F3A3BA7E63
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110315.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:76BFCCEF91FBA7341605771890C64A8A3F4380A3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110901.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C20CF9EBFAFA381646E001B1774A854CAB447BB5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111459.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:090D2BAAC017EEDAB987DFA7113C802DA6CFC977
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111634.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:496339954EE0DD778B537D333F4F814977D0D3A0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111832.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:0AAB7E81052E9CD1087A9A437F255A146631A88C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112301.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F28F5B46F6FD82225B3EE667581DA4A1980F06F6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112979.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:DA790FAA8CF558D098206E784F307F2032638C20
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114881.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A6C0DA7694C65FF955F215ECFBA34E7A2C164EEB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115075.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:360C3C14E59EBFFDCB185F93E10C58A9B078A8AF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115179.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:9C89E4668236F012BFCECB989A48D5A3626920AC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115336.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:AF8E0C1C98929A2587BB407C055499A862629604
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115337.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:AF94BC8727DDADC4160A091A3F4ADB730FE90DE3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115346.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:83EE323BF66D2F7E9F36373F56ADF359263A1D96
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115349.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0FC3716CA35FE1A4298C5D983C3337952CE41C05
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115352.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:B5CEDACB32B6C50156722C607D632EBDAE976113
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115392.jpg" />
 </div>
 
 

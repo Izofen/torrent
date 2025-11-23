@@ -6,7 +6,7 @@ Howl no Ugoku Shiro | Howl's Moving Castle | Ходячий Замок [2004, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18396.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18762.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Berserk: Ougon Jidai Hen II - Doldrey Kouryaku | Berserk Golden Age Arc II: The 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18815.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Berserk: Ougon Jidai Hen I - Haou no Tamago | Berserk Golden Age Arc: The Egg of
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18818.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18926.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] Blu-ra
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19023.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Summer Wars | Летние Войны [2009, Movie] Blu-ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19025.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19029.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19122.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19127.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Summer Wars | Летние Войны [2009, Movie] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19228.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Еванг
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19232.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Momo e no Tegami | A Letter to Momo | Письмо для Момо [2011, Movie]
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19243.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19343.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19346.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20418.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [2019, Movie] BDRemux 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21095.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21100.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21100.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21945.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnation
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23313.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Grand Blue | Grand Blue Dreaming | Необъятный Океан [2018, TV, 12
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23861.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23940.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Jibaku Shounen Hanako-kun | Toilet-bound Hanako-kun | Туалетный мал�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24144.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24144.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVDRem
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_40999.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43657.jpg" />
 </div>
 
 

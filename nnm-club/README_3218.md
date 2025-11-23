@@ -1,3 +1,82 @@
+###  Публикация: 1758687   (103349) от 03.11.2024
+
+Michael Mayo - Fly (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bag of Bones (5:08)
+02. Just Friends (5:15)
+03. I Wish (3:28)
+04. Silence (3:38)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF914B8AE5A09ADDCD20B32F6F904B541412A85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758693   (103350) от 03.11.2024
+
+Randy Hoexter - Tomorrowsville (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosetta Stone (5:41)
+02. Mike Stern - The Dragonfly (6:45)
+03. Argentum (For Horace) (5:39)
+04. Roberta Setzu - The Wine-Dark Sea (6:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AD40454D48C9289AC968B3BBF5C4907125A56F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758644   (103351) от 03.11.2024
+
+НХЛ 2024-2025. Монреаль Канадиенс - Питтсбург Пингвинз (02.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103351.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 ноября 2024, воскресенье. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 362 зрителя (93% при вместимости 18 673)
+Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Эндрю Смит (Китченер, Канада); Линейный: Бен О'Куинн (Вудсток, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8480166AF4DEC05A4E89912E29FBF30C8CA8926F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758638   (103352) от 03.11.2024
 
 НХЛ 2024-2025. Коламбус Блю Джекетс - Вашингтон Кэпиталз (02.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
@@ -6,7 +85,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103352.jpg" />
 </div>
 
 
@@ -31,7 +110,7 @@ magnet:?xt=urn:btih:6BA8DB3DE327EFD6057162CF6568D8034EAA1618
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103353.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Hayla - Dusk (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103354.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Firefox Browser 132.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103355.jpg" />
 </div>
 
 
@@ -109,7 +188,7 @@ Togu Audio Line - TAL-J-8 1.9.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103356.jpg" />
 </div>
 
 
@@ -133,7 +212,7 @@ magnet:?xt=urn:btih:9D5246A21E7BC937C96CDEB7CAE1FD66DD12FD43
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103357.jpg" />
 </div>
 
 
@@ -160,7 +239,7 @@ King Crimson - Red (1974) Expanded & Remastered Original Album Mix, 2014, Discip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103358.jpg" />
 </div>
 
 
@@ -187,7 +266,7 @@ magnet:?xt=urn:btih:3579806C6D6CF1E70152ABCFD5084A4207B62FFE
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103359.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ magnet:?xt=urn:btih:79E48449CCCC0DB1BB382913064F4E5AA8E4DC37
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103360.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ magnet:?xt=urn:btih:46C0EE7CEEDFEB4BB1C1860A69A784E6C2C34E94
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103361.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ Robert Jon & The Wreck - Red Moon Rising (Deluxe Edition) (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103362.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ magnet:?xt=urn:btih:C8F7528EABCEF3AA854FD6EDD0B75546CF0765E9
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103363.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ magnet:?xt=urn:btih:BEA0A0D8F57354499E07524D3B9A80E2BDBD120B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103364.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ Ensiferum - Winter Storm (2024) Special Edition [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103365.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Robert Jon & The Wreck - Red Moon Rising (Deluxe Edition) (2024) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103366.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ magnet:?xt=urn:btih:1F887E74FDE884FA6A41ADC8B466F5B0DC16F2F5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103367.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ magnet:?xt=urn:btih:5E6416AE289A9264672973FC29880566DD2B2F51
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103368.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ magnet:?xt=urn:btih:4BD1C814FA2BEEDB75B6B6B1092B43B5F476BD9E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103369.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ Zephira - Wisdom's Wrath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103370.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ magnet:?xt=urn:btih:D5D1CC500CAFD72BE00B39C867DEFFC52BA1853E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103371.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ magnet:?xt=urn:btih:DF29882B5E639A1614C27E2DE10A39180D5251E6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103372.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ magnet:?xt=urn:btih:FB311A8E42F5CFFEE4E704AFC83AD150AC852995
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103373.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ magnet:?xt=urn:btih:E55EEB44396A3A0561D46D42AD9AE9F83109C876
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103374.jpg" />
 </div>
 
 
@@ -602,82 +681,6 @@ magnet:?xt=urn:btih:E55EEB44396A3A0561D46D42AD9AE9F83109C876
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A161875E72C93F5E846C211419EBB5A8727BAF22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758650   (103375) от 03.11.2024
-
-PdfFactory Std & Pro 9.08 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103375.jpg" />
-</div>
-
-
-###  Подробнее
-
-pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA61C34808EA7F76F53AF41D82F4435FF3C79C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758565   (103376) от 03.11.2024
-
-Олег Сапфир, Дмитрий Ангор | Кракен (Книга 5). Орден Кракена 5 (2024) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я был знаменитым капитаном летающего корабля в своем прежнем мире. У меня была шикарная длинная борода, которой я гордился. Люди, и не только люди, знали, что если появляется Джон Кракен из Ордена Кракена со своей командой, бежать бесполезно, мы никогда не упускаем свою добычу.
-Но во время последней схватки с Роем проклятая временная червоточина засосала меня. Я (   Читать дальше...   )Жанр: Бояръ-аниме, Попаданцы, Юмористическое фэнтезиИздательство: Author TodayПродолжительность: 08:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD88CB47297AC77DF657DAAFE9DD91C30F8F8A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758575   (103377) от 03.11.2024
-
-Квартирник у Маргулиса. Бранимир (26.10.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103377.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — музыкант, автор и исполнитель песен Бранимир. Новый альбом Бранимира «Ждут домой» пропитан духом и магией плацкартных путешествий. Герои этих песен — люди неудивительных, но и непростых судеб. Сам Бранимир регулярно гастролирует по стране на поездах и в дороге общается с огромным количеством разных людей. Помимо Бранимира на огонек (   Читать дальше...   )00:00:05  Вахтовик звонит домой
-00:05:17  Великая жизнь
-00:12:00  Провожал я друга на войну
-00:18:23  Торпедорубин(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Бард-рок, дарк-фолкСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7127E2A5B56E89586DC55F7780BCE316C9EB95B1
 ```
 
 

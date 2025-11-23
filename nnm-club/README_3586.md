@@ -1,3 +1,83 @@
+###  Публикация: 1708999   (112918) от 22.03.2024
+
+Soultrace - Born Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes of World (5:00)
+02. Blood Red Rain (4:14)
+03. In a World Where the Angels Died (4:58)
+04. Memories of Love (4:48)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FD0159A25E543503869E6049857CDECA215374
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708894   (112919) от 22.03.2024
+
+Stress Reducing Music Zone, Instrumental Jazz Music Guys, Positive Music Universe - Boogie Wonderland: Amazing Electric Guitar Jazz for Emotional Release (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]  ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emo Grooves (3:55)
+02. Positive Music Universe - Posi-Jazz Express (4:01)
+03. Instrumental Jazz Music Guys - Soulful Therapy (3:45)
+04. Feel-Good Beats (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F690E040EEBD4CE149E69438FF0359D9291B3F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708971   (112920) от 22.03.2024
+
+О. Генри | Вождь краснокожих (2007) [MP3, Сергей Рост]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Волшебный мир приключений.
+О. Генри (Уильям Сидни Портер) (1862-1910) – американский писатель, признанный мастер короткого рассказа.
+Трогательные, добрые, ироничные произведения О. Генри непременно вызывают улыбку. Иногда уморительно смешные, а иногда бесконечно грустные. Каждый раз поражает неожиданная, поразительная развязка сюжета. Автор играет на (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, рассказИздательство: ВимбоПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6463E3D5BA418B3A323CB180556ACD3053183CF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708917   (112921) от 22.03.2024
 
 Nightblaze - Nightblaze (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
@@ -6,7 +86,7 @@ Nightblaze - Nightblaze (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112921.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ magnet:?xt=urn:btih:9BE7AC05E040BAF349CEAB4DBCED4C8A0BB1550B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112922.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ magnet:?xt=urn:btih:17EED893AF0EDE0E2F20186E73479E29BF6A8D44
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112923.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ magnet:?xt=urn:btih:8323C5AB783D3E0AC68EA3905896AD7F6DCA35B8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112924.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ Alligator Cats - Whiskeyland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112925.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ Eddie Zeeman - Detours and Treasures (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112926.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ Bruce Dickinson - Balls to Picasso (1994) [FLAC|24/96|tracks|Vinyl-Rip] <Rock, H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112927.jpg" />
 </div>
 
 
@@ -195,7 +275,7 @@ Relaxing Piano Man - Heading South (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112928.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ Deej - Blue Sky Mama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112929.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ Magic Disk Cleaner 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112930.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ Samson - Live at Reading`81 (1990) [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112931.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ magnet:?xt=urn:btih:2B167F93C1506393414E24B4126D7AE601D80630
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112932.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ Inner Axis - Midnight Forces (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112933.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ VA - Miami Hits 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112934.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ Firefox Browser 124.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112935.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112936.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ VA - Gym Beast Mode Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112937.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ Gossip - Real Power (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112938.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ magnet:?xt=urn:btih:BD90E37DCEE003E899660282B06BB8780036B2D2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112939.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ Romantic Love Songs Academy - Rendezvous at Dawn: Sultry Jazz and Romantic Mood 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112940.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ RAW Power 3.4.20 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112941.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ QOwnNotes 24.3.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112942.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ magnet:?xt=urn:btih:AC2B24C0ABC322E197A371C59D134D72331019E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112943.jpg" />
 </div>
 
 
@@ -596,87 +676,6 @@ magnet:?xt=urn:btih:AC2B24C0ABC322E197A371C59D134D72331019E6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:993C46E84417029010018DD24BE490F8CCBFA64F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708833   (112944) от 22.03.2024
-
-VA - Любимые песенки малышей (1971) [FLAC 24/192|Lossless|tracks] <Детская музыка>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эх, хорошо! (И.Дунаевский – В.Шмидтгоф) – Детский хор радио п/у В.Попова
-02. Наш край (Д.Кабалевский – А.Пришелец) – Хор п/у Г.Струве
-03. Веселое звено (М.Блантер – С.Михалков) – Детский хор радио п/у В.Попова
-04. У дороги чибис (М.Иорданский – А.Пришелец) – Детский хор радио п/у В.Попова(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFF9647A6148DB11D36A25C1D57B06629F0F7CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708782   (112945) от 22.03.2024
-
-Elbow - Audio Vertigo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things I've Been Telling Myself for Years (3:34)
-02. Lovers' Leap (4:35)
-03. (Where Is It?) (0:27)
-04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E05456E16320CC12192FAC2558EBFADF6BB15BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708815   (112946) от 22.03.2024
-
-Игорь Николаев - Королевство кривых зеркал (1989) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Спасибо, Москва (И. Николаев)
-02. Садовник (С. Белявская)
-03. Розы для папы (П. Жагун)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
 ```
 
 

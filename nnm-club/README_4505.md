@@ -1,3 +1,154 @@
+###  Публикация: 1436084   (139412) от 30.12.2020
+
+Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий джазовый музыкант, саксофонист, руководитель оркестра и дирижер. Родился 2 апреля 1926 года в Мюнхене-Гизинге, Германия, умер 15 августа 2015 года в Мюнхене, Германия. Отец Макса Грегера-младшего.Seite 1:
+A1 Girls, Girls, Girls
+A2 Save Your Kisses For Me
+A3 The Song Is You(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679272   (139414) от 24.11.2023
+
+DxO PhotoLab Elite 7.1.0 build 94 RePack by KpoJIuK [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A71F23FEBF0D12FF5BD1A6EC8301D72A714011
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195438   (139415) от 30.12.2017
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США / Twentieth Century Fox, Marv FilmsЖанр: Боевик, Приключения, Криминал, КомедияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8EA0ABD956E070C80AAFCA3E6A7BD66216BFE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970609   (139417) от 31.12.2015
+
+Мераб Мамардашвили | Картезианские размышления (1993) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа М.Мамардашвили «Картезианские размышления» открывает «золотую серию», которая будет составлена из трудов российских и зарубежных авторов, естественным образом вошедших в мировую гуманитарную культуру.
+Издание «золотой серии» позволит широкому кругу читателей познакомиться с классическими работами в области гуманитарного знания и будет способствовать восстановлению (   Читать дальше...   )Жанр: История философииФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456750C237D29CCBED528ABD877052BB5A380E79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088406   (139418) от 31.12.2016
+
+VA - Finding Around Happiness (Energy Tech Trance) 012 (2016) [MP3|320 Kbps] <Trance, Stadium Trance, Melodic, Energy, Tech-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - I Live for That Energy (ASOT 800 Anthem) (Extended Mix) 6:40
+02. DRYM & Abstract Vision - Shark (Original Mix) 5:07
+03. Feel & Natalie Gioia - Madwoman (Attila Syah Remix) 5:32
+04. Dennis Sheperd & Liuck Ft. Lady V - Glass House (Original Mix) 5:34(   Читать дальше...   )Жанр: Trance, Stadium Trance, Melodic, Energy, Tech-TranceПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BC3FC25B0F7C9CD946BC2E5376DE703192146F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195488   (139420) от 30.12.2017
+
+RaceTime: Undercover (2017) [Ru/En] (1.0.2) License
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139420.jpg" />
+</div>
+
+
+###  Подробнее
+
+RaceTime: Undercover – это увлекательная гоночная история. Вас ждут интереснейшие гонки, захватывающие погони на огромных скоростях. Сможете ли добраться до финиша? Никто не обещает, что будет легко.Тип издания: LicenseРазработчик: NoNameDevЖанр: Arcade, RacingЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C23F404F929E2CC2EE268B2506711AADE6D31B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590810   (139421) от 18.12.2012
 
 Aerosmith - Music from Another Dimension! (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Rock>
@@ -6,7 +157,7 @@ Aerosmith - Music from Another Dimension! (2012) [FLAC 2.0 24/192|image (Vinyl-R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139421.jpg" />
 </div>
 
 
@@ -33,7 +184,7 @@ KMPlayer 2023.11.24.16 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139422.jpg" />
 </div>
 
 
@@ -57,7 +208,7 @@ magnet:?xt=urn:btih:94C249BDB8A2E1B9F32A3516BBEDE4FF3AB7DE63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139423.jpg" />
 </div>
 
 
@@ -81,7 +232,7 @@ VA - December Rock Party (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139424.jpg" />
 </div>
 
 
@@ -108,7 +259,7 @@ magnet:?xt=urn:btih:5B4CA80D688F16C1E2EC9E1258EF70BECC79D665
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139426.jpg" />
 </div>
 
 
@@ -134,7 +285,7 @@ magnet:?xt=urn:btih:F2186E585FD4D8804A391698112C547DB0557087
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139427.jpg" />
 </div>
 
 
@@ -161,7 +312,7 @@ magnet:?xt=urn:btih:483A9F9DD4FC52B24807A70124FE157606BC1A75
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139429.jpg" />
 </div>
 
 
@@ -185,7 +336,7 @@ Outside 3.1.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139430.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ magnet:?xt=urn:btih:658649BF55D38FD12C34634DA7B4FFBD1A93B618
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139431.jpg" />
 </div>
 
 
@@ -233,7 +384,7 @@ The Miles Davis All-Stars featuring John Coltrane - Broadcast Sessions (1958-59)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139433.jpg" />
 </div>
 
 
@@ -260,7 +411,7 @@ Joseph Jarman & Anthony Braxton - Together Alone (1971) 1994, Delmark[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139434.jpg" />
 </div>
 
 
@@ -287,7 +438,7 @@ ClipGrab 3.8.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139435.jpg" />
 </div>
 
 
@@ -311,7 +462,7 @@ magnet:?xt=urn:btih:E64DF1063477EFC86D2252088FED32E9E126C70E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139437.jpg" />
 </div>
 
 
@@ -335,7 +486,7 @@ magnet:?xt=urn:btih:CCCD56BC521D6AF81214F54758F1F30BB43DAB97
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139438.jpg" />
 </div>
 
 
@@ -362,7 +513,7 @@ magnet:?xt=urn:btih:8571FC88523A87F0BC6100C60A49331F47705FAD
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139439.jpg" />
 </div>
 
 
@@ -387,7 +538,7 @@ magnet:?xt=urn:btih:D720F0F741DE5A8E4F2288721BBE096A80E14B08
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139440.jpg" />
 </div>
 
 
@@ -411,7 +562,7 @@ magnet:?xt=urn:btih:ABB81E29D1784C19D2BD6BE995051399AD2CCB81
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139441.jpg" />
 </div>
 
 
@@ -435,7 +586,7 @@ The Brothers Candoli Sextet - 2 For The Money (1959) Remaster, 2002, Universal[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139444.jpg" />
 </div>
 
 
@@ -462,7 +613,7 @@ magnet:?xt=urn:btih:4D3860B1EBAC1F1E9DC64CB1135008F0B93B90E6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139445.jpg" />
 </div>
 
 
@@ -486,7 +637,7 @@ magnet:?xt=urn:btih:5BAE97C5EE3B1520327DF24EB4807EF2083FBFB5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139447.jpg" />
 </div>
 
 
@@ -497,157 +648,6 @@ magnet:?xt=urn:btih:5BAE97C5EE3B1520327DF24EB4807EF2083FBFB5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:212429DDA0F3312A7A947379F6EB3296E6747D3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520798   (139448) от 30.12.2021
-
-Настоящий разговор (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм «Настоящий разговор» сломает стереотипы о России как исключительно сырьевой державе. Компания друзей, через которых будет рассказана история, покажет: если человек "не видит двигатель" за вертолетом, электростанцией или судном, значит, не видит и целый кластер высокопрофессиональных людей, которые двигают страну вперед. А ведь России (   Читать дальше...   )Производство: Россия | "FreeMotion"Телекомпания: НТВЖанр: ДокументальныйРежиссер: Наталья ФефеловаСубтитры: ОтсутствуютПродолжительность: 00:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10ACBB5C890FE9081A9C7F06B259153264C7A27F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436152   (139450) от 30.12.2020
-
-Свято-Елисаветинский женский монастырь (изд.) | Ангелы [Что нам известно об ангельском мире] (2019) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139450.jpg" />
-</div>
-
-
-###  Подробнее
-
-О мире ангелов нам известно далеко не всё, но необходимые знания в этой области (цель сотворения ангельского мира, его иерархия, разделение ангелов на светлых и отступивших от Истинного Света, отношения между ангелами и человеком), безусловно, помогут православному христианину в его воцерковлении, которое по сути своей заключается в устремлении сердца и ума к горнему (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA48E8F23FC2BA62CB62CAF8A15FD6299144194
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273019   (139451) от 30.12.2018
-
-Ольга Гусейнова | Сумеречный мир (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один мир разделенный на две части. Один нечаянный взгляд на "ту" сторону. Одна невинная жертва с судьбой: до и после. Одна нечаянная встреча.
-И, понимаешь, смерть - это лишь начало новой жизни, где все возможно и зависит только от тебя.Жанр: Pомантическое фэнтезиПродолжительность: 13:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332106E73BAF0AFE1B880ACED9228228F57E7D8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970586   (139452) от 31.12.2015
-
-Herbie Hancock - Dedication (1974) Remaster, 2014, Sony Music[FLAC|tracks+.cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Maiden Voyage [07:45]
- 02.Dolphin Dance [11:19]
- 03.Nobu [07:40]
- 04.Cantaloupe Island [13:58]Жанр: Jazz Fusion, Post-BopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5EAC2817F3D17328E19601898BDE26DDA3B60E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349105   (139453) от 30.12.2019
-
-100ЯНОВ (30.12.2019) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139453.jpg" />
-</div>
-
-
-###  Подробнее
-
-До зимних праздников осталось совсем чуть-чуть, и теперь главная задача каждого россиянина, несомненно, одна – весело встретить Новый год. Повысить градус настроения поможет мастер пародий и перевоплощений Юрий Стоянов. Блестящие импровизации, скетчи и пародии – вот что ждет зрителя в предпраздничный вечер.Телекомпания: Россия / ВГТРК, М-Продакшн МедиаЖанр: Комедия, юмор, скетч-шоуРежиссер: Юрий СтояновАктеры: Юрий Стоянов, Виктор Сухоруков, Владимир Меньшов, Мария Аронова, Михаил Ефремов, Игорь Золотовицкий, Сергей Шнуров, Григорий Сиятвинда, Андрей Мерзликин, Ян Цапник и др.Субтитры: ОтсутствуютПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B10A93F060ADB0B367E6D956232B5B6CE945F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520927   (139454) от 30.12.2021
-
-VA - Beatport Trance: Sound Pack #386 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно, кто-то в этом треклисте увидел своего любимого продюсера или диджея. Но музыка транса разнообразна и не заканчивается только этими музыкантами. За то мы и любим эту музыку - музыку прогрессии и обворожительных мелодий. А кто-то наоборот любит мощный басс и агрессивный ритм. Любой может найти в этом направлении электронной музыки что-то свое. Trance разнообразен, (   Читать дальше...   )001. Gayax - Bliss
-002. Mental Luke - I Will Fly
-003. Gianmarco Fabbretti - Together
-004. Micro Out - Tidal Wave(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 09:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5FA6CDCDB1C714251C5B738E48CCBFD5F8EBE7
 ```
 
 

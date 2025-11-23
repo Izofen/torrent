@@ -6,7 +6,7 @@ Adobe Media Encoder 2025 25.5.0.13 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3219.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MAGIX Vegas Pro 23.0 Build 278 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3237.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Premiere Pro 2025 25.5.0.13 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3263.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Win Movie Maker 2025 10.0.0.1 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3361.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Topaz Photo AI Pro 4.1.0 RC Portable by 7997 + Models [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3369.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Capture One 23 Enterprise 16.6.6.3111 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3495.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PotPlayer 250909 (1.7.22611) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3497.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ PotPlayer 250909 (1.7.22613) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3501.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Xfer Records - Serum 2 2.0.21 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3601.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ AIMP 5.40.2694 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3614.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ FxSound 1.1.36.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3615.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ EZ CD Audio Converter 12.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3621.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AIMP 5.40 Build 2694 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3649.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Illustrator 2025 29.8.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3670.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ iZotope - Neutron 5 5.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3738.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ EZ CD Audio Converter 12.2.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3754.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ AIMP 5.40.2694 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3762.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ HandBrake 1.10.2 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3764.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dashcam Viewer 4.0.7 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3765.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:02E680B823BE5E355A455A5E17CF0E8596ED674F
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3775.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ PhotoFiltre Studio X 11.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3902.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Steinberg - SpectraLayers Pro 12 12.0.20.426 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3906.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Franzis FOTO projects 3D #1 Pro 1.12.04285 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3923.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ AMS ФотоМОНТАЖ 4.5 Portable by 7997 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3937.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:10C3D47605AF5F2A5F9C0E354F0CC2D13CA0C7DE
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3947.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Subtitle Edit 4.0.13 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4143.jpg" />
 </div>
 
 

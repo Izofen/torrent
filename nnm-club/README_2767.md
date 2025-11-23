@@ -1,3 +1,76 @@
+###  Публикация: 452124   (76573) от 16.02.2012
+
+Цыпленок Цыпа / Chicken Little (2005) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76573.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе фильма лежит старая басня про цыпленка, который вопил о том, что небеса падают на землю каждый раз, когда ему на голову падал желудь. Вот уже год, как Цыпленок пытается преодолеть позор своей ошибки (про падающие небеса) и жить как ни в чем не бывало. Но — увы! — желающих дружить с неудачником немного, и поэтому в товарищах у него ходят такие же изгои, как (   Читать дальше...   )Жанр: Фантастика, комедия, приключения, мультфильмРежиссер: Марк ДиндалПеревод: ДублированныйПродолжительность: 01:20:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D64920B9F141374559CDCE19DA72506CF3E0CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453485   (76578) от 16.02.2012
+
+Катя Самбука - Сказка (Uncensored) (2010) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453400   (76581) от 16.02.2012
+
+Борис Акунин | Приключения Эраста Фандорина (Книга 5. Том 2). Особые поручения. Пиковый валет. Декоратор (2011) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Григорий Шалвович Чхартишвили (род. 20 мая 1956, Зестафони, Грузинская ССР, СССР) — российский писатель, литературовед, переводчик, японист. Свои художественные литературные произведения публикует под псевдонимами Борис Акунин, Анна Борисова и Анатолий Брусникин.
+В аудиокнигу «Особые поручения» вошли два детектива из серии «Приключения Эраста Фандорина».Жанр: ДетективПродолжительность: 10:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CCDF08150F2B2910D1CBCF30D98852B4BEBC73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 452260   (76582) от 16.02.2012
 
 [PS2] Dead or Alive 2 / Мертвый или Живой 2 [PAL] [RUS+Multi5]
@@ -6,7 +79,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76582.jpg" />
 </div>
 
 
@@ -34,7 +107,7 @@ Code Geass Hangyaku no Lelouch R2 Special Edition: Zero Requiem / Code Geass: Le
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76584.jpg" />
 </div>
 
 
@@ -58,7 +131,7 @@ magnet:?xt=urn:btih:55A806BF40D1BF63C3EA9CD6564F2CDB650EFD53
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76600.jpg" />
 </div>
 
 
@@ -85,7 +158,7 @@ magnet:?xt=urn:btih:BB84BB88619CAE7C45B22C0F881F86321596DA4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76602.jpg" />
 </div>
 
 
@@ -110,7 +183,7 @@ magnet:?xt=urn:btih:BB84BB88619CAE7C45B22C0F881F86321596DA4E
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76605.jpg" />
 </div>
 
 
@@ -134,7 +207,7 @@ magnet:?xt=urn:btih:C61A4C459182FD7E16F7CF938A18353E066CD8AF
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76608.jpg" />
 </div>
 
 
@@ -158,7 +231,7 @@ magnet:?xt=urn:btih:4B5C61A3CB6B07DAF72A9E0F466AF01BE1AB35A8
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76618.jpg" />
 </div>
 
 
@@ -183,7 +256,7 @@ magnet:?xt=urn:btih:D8BF4908D22DF0A9611DB1A5C2CD536F13634A4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76625.jpg" />
 </div>
 
 
@@ -207,7 +280,7 @@ magnet:?xt=urn:btih:D8BF4908D22DF0A9611DB1A5C2CD536F13634A4B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76627.jpg" />
 </div>
 
 
@@ -232,7 +305,7 @@ magnet:?xt=urn:btih:872B8E70E918E19FD8116C31CA0B96AF2F5CE228
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76628.jpg" />
 </div>
 
 
@@ -259,7 +332,7 @@ magnet:?xt=urn:btih:872B8E70E918E19FD8116C31CA0B96AF2F5CE228
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76637.jpg" />
 </div>
 
 
@@ -283,7 +356,7 @@ magnet:?xt=urn:btih:3154DC6E83EBAD099E8F78F42CC0FAB228EF8522
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76638.jpg" />
 </div>
 
 
@@ -307,7 +380,7 @@ Deep Purple - Deep Purple (1969) Remastered /2000, EMI Records/ [FLAC|Lossless]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76642.jpg" />
 </div>
 
 
@@ -340,7 +413,7 @@ Scientific Linux 6.2 (DVD&NetInstall) [i386 + x86_64] (2xCD + 2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76655.jpg" />
 </div>
 
 
@@ -364,7 +437,7 @@ Volbeat - Live From Beyond Hell - About Heaven (2011) [FLAC|Lossless]<Heavy / Gr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76659.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ Volbeat - Live From Beyond Hell - About Heaven (2011) [FLAC|Lossless]<Heavy / Gr
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76663.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ Kubuntu 10.04.4 LTS [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76669.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ magnet:?xt=urn:btih:6712D98B0782A760AC12BDDCB926D15A49C540DD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76670.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ magnet:?xt=urn:btih:957AAC141EF05BA6001B090687568BCD32132784
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76672.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ magnet:?xt=urn:btih:957AAC141EF05BA6001B090687568BCD32132784
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76686.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ magnet:?xt=urn:btih:AB3DF7667E23B6472C93D7062E3990C9EFF9FB91
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76690.jpg" />
 </div>
 
 
@@ -551,7 +624,7 @@ magnet:?xt=urn:btih:9165A9F53AF6FEC3D4DC10CFBF18FB1713945B5F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76696.jpg" />
 </div>
 
 
@@ -584,7 +657,7 @@ magnet:?xt=urn:btih:580FCC33068B8FB2C04ADF51B256290C648F9DBC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76705.jpg" />
 </div>
 
 
@@ -595,88 +668,6 @@ magnet:?xt=urn:btih:580FCC33068B8FB2C04ADF51B256290C648F9DBC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0C973F0881222963F5A7689EADD8A826DB88A5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453875   (76708) от 17.02.2012
-
-Сергей Москвин | Увидеть солнце [Сергей Кузнецов] [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Новосибирске 2033 года каждый шаг за кордоны родной станции метро может обернуться рискованным приключением и даже смертью. Любой его житель вынужден превратиться в героя, чтобы сражаться или умереть. Именно такой выбор стоит перед юным Сергеем Касариным, когда ужасный призрак прошлого вырывается на свободу, грозя уничтожить не только привычный ему мир, но и все (   Читать дальше...   )Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581FE231A2D243C4A81AF316D40FAC35D8D6F0CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453827   (76709) от 17.02.2012
-
-Декабрь - Вопреки (2012) [MP3|320 kbps]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Живой (00:03:41)
-02. Мы не одни (00:03:35)
-03. Волна (00:03:58)
-04. Сердце мира (00:03:18)
-05. Морская (00:03:52)
-06. Вернется вера (00:03:43)
-07. На братских могилах (00:02:12)
-08. Рядом буду (00:04:21)
-09. Волки (00:03:49)
-10. Вопрос (00:04:44)(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8EDD15BABB19FA64316B9D531ECE7ECEA2902B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453946   (76712) от 17.02.2012
-
-Отель / Hotel (2004) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят  в стиле "а ля Дэвид Линч".
-Ирэн, новый администратор отеля в Альпах, узнает, что ее предшественница исчезла при загадочных обстоятельствах. Все ее попытки что-то разузнать наталкиваются на холодность и равнодушие сотрудников. Постепенно Ирэн начинает понимать - ей грозит участь ее предшественницы. Но бежать она не спешит, неведомое словно притягивает ее.Жанр: Триллер, мистикаРежиссер: Джессика Хаушнер / Jessica HausnerАктеры: Франциска Уэйс / Franziska Weiss, Роза Вайсникс / Rosa Waissnix, Риджина Финтч / Regina Fritsch, Биргит Минихмайр / Birgit Minichmayr, Кристофер Шерф / Christopher, Питер Штраус / Piter ShtrausПеревод: Многоголосый закадровыйПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48136865F39309076603733173382E8F616D3244
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133601.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B4D783008AAF6B2782492A8918DA15DB845B096
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133602.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Photo DataBase 4.0 build 575 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133604.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.4 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133617.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ uTorrent Pro 3.6.0 Build 46944 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133619.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6AABA5BFAEA27DBCA06BAFC7382DC94ACC0844D0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133622.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - New Age Style - Greatest New Age Hits, Vol. 9 (2012) [MP3|320 кб/с]<New 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133636.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:BC59B22ADC56237BEB359804CDADB30672896336
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133638.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Spotify 1.2.25.1011 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133647.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Wynardtage - Sleepless in Heaven (2012) [MP3|320 kbps] <EBM / Dark Electro>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133654.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Adobe Photoshop 2024 25.2.0.196 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133657.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Psiphon 3 build 180 (29.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133667.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Inkscape 1.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133668.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Capture One 23 Enterprise 16.3.2.1789 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133669.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Wise Care 365 Pro 6.6.3.633 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133683.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Miss Li - Singles and Selected (2012) [MP3|320 кб/с]<Soul \ Vocal Jazz \ Indi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133686.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Teorex Inpaint 10.2.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133689.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:E78C496707B80CFBE3D3FC415151ECB496B3F876
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133690.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Capture One 23 Pro 16.3.2.32 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133693.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Serif Affinity Photo 2.3.0.2165 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133701.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ simplewall 3.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133707.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Teorex Inpaint 10.2.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133708.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Topaz Video AI 4.0.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133714.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Christmas Chillout: 20 Smooth & Holy Lounge Tunes (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133715.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:54677BA1E36683ED84CF3FEAFF4859221895C6C6
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133719.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ WinToUSB Technician 8.4 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133731.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PDF-XChange Viewer 2.5.201 PRO RePack by elchupacabra [Английский, Р�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76107.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PDF XChange Viewer - отличная программа для чтения и 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76115.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0BC305FF48310D846F07117A790114D0B573B8E3
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76145.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0BC305FF48310D846F07117A790114D0B573B8E3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76161.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Need Soft 2012 (от 08.01.2012) 2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76174.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ The Ball / The Ball: Оружие мертвых [Multi10/+] (L/1.0.6698.0) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_76176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_76176.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The Ball / The Ball: Оружие мертвых [Multi10/+] (L/1.0.6698.0) 2010
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76177.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ The Ball / The Ball: Оружие мертвых [Multi10/+] (L/1.0.6698.0) 2010
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76187.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Autodesk AutoCAD Map 3D Enterprise 2012  [Rus Eng] [x32 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76193.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Autodesk AutoCAD Civil 3D 2012 sp1 [RU EN DE] [x32 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76220.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ AutoCAD® Civil 3D®, решение на основе технологии ин
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76221.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AutoCAD® Civil 3D®, решение на основе технологии ин
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76236.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Freemake Video Converter 3.0.1.13 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76244.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ BatWithParameters 1.0.0.17 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76247.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ PcBoost 4.2.13.2012 + portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76251.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PcBoost 4.2.13.2012 + portable [Английский]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76253.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:3FA0907C536D89D6D7028AA1AAB1DA827C6649A9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76256.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B92D96577FE2B3EF560F04A0B25F02A3171D1453
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76259.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:5B25B99AC45D643745B8C3DF9CE8B775CD1153C2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76261.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ STDU Viewer 1.6.2 Rus - Тихая установка by moRaLIst [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76262.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ FB2, TXT, Comic Book Archive (CBR или CBZ), TCR, PalmDoc(PDB), DCX и фор�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76276.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Glastonbury Festival 2011- Featuring Beyonce (Day 3) (2011) HDTV [H.264]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76286.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Vegas Movie Studio HD Platinum 11.0.295 + Portable by BALISTA  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76289.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Vegas Movie Studio HD Platinum – видеоредактор, включающ�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76293.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:61663526F6CF7417A7195A49E64666D50A72125C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76298.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:61663526F6CF7417A7195A49E64666D50A72125C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76327.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1836958   (255947) от 13.11.2025
+
+Process Lasso Pro 17.0.0.13 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FE3340F623EBEA543A62805A11ACDC98EB5365
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498639   (256220) от 20.05.2012
+
+Paragon Drive Copy 11 Pro 10.0.16.12846 Portable [Русский]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_256220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Drive Copy 11 Professional - это оптимальное решение для любого вида миграции! Перенести систему на новый жесткий диск или раздел, чтобы использовать привычный набор программ на обновленном компьютере - задача, которая требует много времени , терпения и внимания. Единственный на рынке продукт, созданный специально для решения этой проблемы - Paragon Drive Copy 11 Pro.
+Paragon Drive Copy - Вам больше не придется тратить кучу времени на повторную установку программ и приложений, после модернизации вашего компьютера. Выбирайте все лучшее с вашей старой системы и просто перенесите все это на новый жесткий диск. Вам не придется перезагружать систему, а операция полностью безопасна для всех ваших данных. Вы можете продолжать работать на старом компьютере, пока идет процесс миграции. В итоге вы получите новый жесткий диск, который будет точной копией старого, а все программы будут готовы к работе! В программу входит удобный мастер, который поможет быстро и надежно мигрировать вашу ОС Windows на новый твердотельный (   Читать дальше...   )Название программы: Paragon Drive Copy 11 ProЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837210   (256577) от 17.11.2025
+
+Activation Program 1.15 Portable by Ratiborus [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_256577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа предназначена для off-line "активации" лицензий продуктов M$, в том числе и лицензий ESU/OCUR на Windows 7. Программа НЕ "активирует" Office 2010-2019 на Windows 7.
+В программе использован код от группы MASSGRAVE "TSforge (c) MASSGRAVE 2025".Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C03648688D8E1178395AFB035825CF7D92619D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837166   (256620) от 15.11.2025
 
 4K Downloader 5.19.2 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +80,7 @@
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256620.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256620.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ O&O Defrag Professional 30.5 Build 1211 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256673.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256673.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ WinCatalog 2024.15.0.1114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256693.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256693.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ MyLanViewer 6.6.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256764.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256764.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Any Video Downloader Pro 9.7.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256765.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256765.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ VueScan Pro 9.8.49.02 RePack (& Portable) by elchupacabra (DC 12.11.2025) [Multi
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256782.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256782.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ R-Wipe & Clean 20.0.2535 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256783.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256783.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ YT Downloader 9.18.7 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256784.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256784.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ Vivaldi 7.7.3851.48 (x32-x64) Portable by IDE`a [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256834.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256834.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ PIDKey Lite 1.64.4 b52 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257493.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257493.jpg" />
 </div>
 
 
@@ -250,7 +324,7 @@ InnoExtractor Ultra 11.2.0.157 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257508.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257508.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ SIV (System Information Viewer) 5.84 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257539.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257539.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ YT Downloader 9.18.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257540.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257540.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ Kalmuri 4.1.4 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257548.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257548.jpg" />
 </div>
 
 
@@ -349,7 +423,7 @@ Microsoft PowerToys 0.96.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257604.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257604.jpg" />
 </div>
 
 
@@ -373,7 +447,7 @@ Microsoft Activation Scripts (MAS) 3.9 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257627.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257627.jpg" />
 </div>
 
 
@@ -397,7 +471,7 @@ RustDesk 1.4.4 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257634.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257634.jpg" />
 </div>
 
 
@@ -423,7 +497,7 @@ Chromium 142.0.7444.176 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257638.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257638.jpg" />
 </div>
 
 
@@ -447,7 +521,7 @@ Notepad++ 8.8.8 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257640.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257640.jpg" />
 </div>
 
 
@@ -471,7 +545,7 @@ StartAllBack 3.9.18 build 5338 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257641.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257641.jpg" />
 </div>
 
 
@@ -495,7 +569,7 @@ StartAllBack 3.9.18 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257644.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257644.jpg" />
 </div>
 
 
@@ -519,7 +593,7 @@ MassTube Ultra 21.2.1.179 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257653.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257653.jpg" />
 </div>
 
 
@@ -543,7 +617,7 @@ Allavsoft Video Downloader Converter 3.28.5.9439 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257654.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257654.jpg" />
 </div>
 
 
@@ -554,81 +628,6 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD49B6BF36B2A44BA3AE4F03F8D6FFB34DC13F4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837780   (257673) от 18.11.2025
-
-InnoExtractor Ultra 11.2.0.157 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257673.jpg" />
-</div>
-
-
-###  Подробнее
-
-InnoExtractor - это приложение, которое поможет вам распаковать инсталляторы Inno Setup, используя технологию InnoUnp.
-С помощью InnoExtractor вы можете изучить внутреннюю структуру и содержимое программы установки, а также извлечь их в локальную папку или на портативные устройства без необходимости запуска программы установки.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5976DD7E23A158FAC325E4092205D4EF21A5AFEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837779   (257674) от 18.11.2025
-
-DVDFab 13.0.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257674.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVDFab – мощный, многофункциональный программный продукт для копирования DVD дисков с возможностями гибкой обработки видеопотока.
-Программа является одной из лучших на сегодняшний день, из инструментов для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами.
-Снимает все защиты и ограничения с диска и при желании пережмет диск большой емкости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BAFB1DBD64A0C73A309FA7CA5388F48155D342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837764   (257680) от 18.11.2025
-
-YT Downloader 9.18.8 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257680.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F5336F49FF54506D41D966AB5BBC5E74613CAC
 ```
 
 

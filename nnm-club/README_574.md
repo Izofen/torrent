@@ -6,7 +6,7 @@ Epica: Live at The Symphonic Synergy (2024) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15233.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Food.ru: пошаговые рецепты v02.04.01 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15234.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Organic Chill House (2025) [MP3|320 Kbps] <Deep, Chill, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15235.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:08C108FA40D334DB944E3F7728A10153E1ECA2D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15236.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:174025AD9F1B8B2D9BFB9B68366FA8D197DDECE3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15237.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C986D0789833863E568901BEBE60EF9B6ED0B53C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15238.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:6AC14136536E31B03DCF14483E316D81B4D77A85
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15239.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2DD9DA43688C1BEC093C6B0D23132CE0C2F5D982
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15240.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:A13DA5BDEF5C7950790D079E880AD6D25C090224
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15241.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ QBoard (2025) [En] (0.9.9.3) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15242.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:EC72CA4DC92CF493745E61D37C7CD47E0231929D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15243.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:A363A301C6EF632F6DAEF53066E1D9D7896662DB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15244.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:86EE808399C72A66D24B29E931C9B5B8A4044E80
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15245.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ RollerCoaster Tycoon 3 (2006) [Ru/Multi] (1.0) License GOG [Complete Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15246.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Hypnotic Hologram (2025) [MP3|320 Kbps] <Psy, Goa, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15247.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C1C1228F2FEEA0D1AC0736D767337E8372CF9EEB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15248.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C233213FA62C27EC7BE153525CD180C68DDD7E49
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15249.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wavesequencer - Hyperion 1.65 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15250.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Knif Audio & Plugin Alliance - Knifonium 1.4.1 VSTi, VSTi 3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15251.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:57DAC320E4E69FBC1B647E4D6869B226F882A198
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15252.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ LiveClasses, Артур Орлов | Создание музыки с помощ
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15253.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:100231C12EF0E1DD3CD446141F8E9021135B2E8D
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15254.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:FB7D54BA73EE90BD115243D66D6A39EDEC001B86
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15255.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.36) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15256.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C42D21D687C6D4E95BCAD30B82C75DA96929C4E8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15257.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:3F54FD7152417DBB8C1F0D2CBC96CCC52A48E520
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15258.jpg" />
 </div>
 
 

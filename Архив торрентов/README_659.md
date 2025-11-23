@@ -1,3 +1,52 @@
+###  Публикация: 1349067   (139917) от 30.12.2019
+
+Wondershare Recoverit 8 v8.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5712B41C7FB996645D1013A1F1730CB768DB79F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195732   (139926) от 30.12.2017
+
+Сказ о Петре и Февронии (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Славным городом Муромом правил князь Павел. И вот однажды злой змей искуситель, принявший облик Павла, стал являться его жене. Одолеть змея смог только брат Петра - Павел чудесным агриковым мечом. Однако кровь поганого попала на тело Петра и он покрылся смертельными язвами, от которых даже самые лучшие врачеватели избавить его не могли. Излечить Петра было под силу (   Читать дальше...   )Производство: РоссияЖанр: Мультфильм, Детский, РазвивающийРежиссер: Юрий Рязанов, Юрий КулаковАктеры: Владислав Юдин, Юлия Горохова, Иван Охлобыстин, Владимир Антоник, Константин Карасик, Виктор Вержбицкий, Диомид Виноградов, Вадим Медведев, Арзу Сулейманова, Сергей УсковСубтитры: ОтсутствуютПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F9B6DEA2FE2752AD3208A9E79C5B7AC0CA0D5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679235   (139936) от 24.11.2023
 
 CudaText 1.202.1.0 Portable + addons [Ru/En]
@@ -6,7 +55,7 @@ CudaText 1.202.1.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139936.jpg" />
 </div>
 
 
@@ -31,7 +80,7 @@ Sabiwa - Discography 3 Releases (2018-2019) Chinabot [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139959.jpg" />
 </div>
 
 
@@ -58,7 +107,7 @@ magnet:?xt=urn:btih:217F9DAAC4E5B09CDD911B53E0C88A591315CD40
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139965.jpg" />
 </div>
 
 
@@ -82,7 +131,7 @@ Universal Media Creation Tool 22.12.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139974.jpg" />
 </div>
 
 
@@ -106,7 +155,7 @@ magnet:?xt=urn:btih:D29278A2E4DA2C0905E9CAB6C2537B90A44C0F52
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139982.jpg" />
 </div>
 
 
@@ -139,7 +188,7 @@ magnet:?xt=urn:btih:D29278A2E4DA2C0905E9CAB6C2537B90A44C0F52
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139983.jpg" />
 </div>
 
 
@@ -163,7 +212,7 @@ Cx Проводник 1.6.7 Mod by cergor [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139991.jpg" />
 </div>
 
 
@@ -187,7 +236,7 @@ UnHackMe 13.20.2021.1207 Giveaway Edition RePack by Umbrella Corporation [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140008.jpg" />
 </div>
 
 
@@ -211,7 +260,7 @@ CaliBattery v3.71 Full [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140012.jpg" />
 </div>
 
 
@@ -235,7 +284,7 @@ magnet:?xt=urn:btih:319BAA4E0163C9A1F88F238A225FFD738E3737E8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140025.jpg" />
 </div>
 
 
@@ -259,7 +308,7 @@ magnet:?xt=urn:btih:A0C5A736A1B3D139E2C7F775ED3B5D6B949EF62E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140030.jpg" />
 </div>
 
 
@@ -283,7 +332,7 @@ VA - Best Of Central Stage Of Music (2017) [MP3|320 Kbps] <Jumpstyle, Dancecore,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140035.jpg" />
 </div>
 
 
@@ -310,7 +359,7 @@ Ultra GPS Logger Pro v3.175e [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140039.jpg" />
 </div>
 
 
@@ -334,7 +383,7 @@ NeoOffice 2017.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140041.jpg" />
 </div>
 
 
@@ -360,7 +409,7 @@ Acronis Disk Director 12 Build 12.0.3270 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140043.jpg" />
 </div>
 
 
@@ -384,7 +433,7 @@ magnet:?xt=urn:btih:AF16959AB9B6F9568D9B1504628E58216D5BBF71
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140048.jpg" />
 </div>
 
 
@@ -408,7 +457,7 @@ Realtek Ethernet Driver 11.3.1022 / 10.054 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140050.jpg" />
 </div>
 
 
@@ -432,7 +481,7 @@ Rumpus PRO 8 v8.2.10 + Tether Client 1.0.6  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140062.jpg" />
 </div>
 
 
@@ -457,7 +506,7 @@ magnet:?xt=urn:btih:C80E8542B320FC95D11FF15587C5D4B8B2E1EA4C
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140072.jpg" />
 </div>
 
 
@@ -481,7 +530,7 @@ PullTube 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140077.jpg" />
 </div>
 
 
@@ -505,7 +554,7 @@ Win7codecs 3.9.2 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140090.jpg" />
 </div>
 
 
@@ -531,7 +580,7 @@ Download Master 6.15.1.1585 RePack (&Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140092.jpg" />
 </div>
 
 
@@ -555,7 +604,7 @@ magnet:?xt=urn:btih:A63B656896636277A72B203D89B39F53EA487E58
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140095.jpg" />
 </div>
 
 
@@ -579,7 +628,7 @@ Scanner - The Signal Of A Signal Of A Signal (2019) Touched Music [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140099.jpg" />
 </div>
 
 
@@ -593,57 +642,6 @@ Scanner - The Signal Of A Signal Of A Signal (2019) Touched Music [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:674EA64AA45D2463612B97D932E8AC0AFFCD7148
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435184   (140109) от 29.12.2020
-
-Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.264/1080p] [MVO] [IMAX Edition]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DC Comics, DC Entertainment, The Stone Quarry, Warner Bros.Жанр: Фэнтези, боевик, приключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль, Робин Райт, Конни Нильсен, Лилли Аспелл, Амр Вакед, Кристоффер Полаха, Наташа РотуэллПеревод: Многоголосый любительский (DuoWave)Субтитры: Русские, английскиеПродолжительность: 02:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740DC97192474B46804D87AFDF583D1A63ED91C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349071   (140115) от 30.12.2019
-
-Yate 5 v5.0.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686E5C3CF65D13B657ED17DEEA566E471A310FD9
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18419.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jigsawscapes® - Пазлы v3.8.11 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18429.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:789CFD1D79FF1EF266FA420347AA726F20ACEF07
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18431.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18433.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Vanced Tube v5.3.81.191 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18435.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Fort Firewall 3.17.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18440.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F5A5F264F9A67F62BC06251266AE15052FAE757C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18450.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ v2rayN 7.12.1 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18455.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ HWiNFO 8.26 Build 5730 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18462.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ RustDesk 1.4.0 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18467.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Image Uploader 1.4.2 Build 5314 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18469.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ IObit Driver Booster Pro 12.4.0.585 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18470.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:3584807622357DE2FA822D4C6E5A9DFC203D3AF3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18471.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Microsoft Activation Scripts (MAS) 3.2 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18481.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Corona Renderer 12 update 2 for 3ds Max 2016-2026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18492.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Smart AudioBook Player Pro v11.2.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18516.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Cockos REAPER 7.38 RePack (& Portable) by elchupacabra (12.05.2025) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18520.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ DLNow Video Downloader 1.54.2025.05.11 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18528.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ IObit Driver Booster Pro 12.4.0.585 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18532.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ YT Downloader 9.12.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18536.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.27.7 Mod by baalajimaestro  [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18544.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 09.05.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18551.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ TweakPower 2.073 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18554.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ HDRezka TV v1.3.1 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18558.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:2FC1B4ECE699C5E058FF48A297ADD970BCBE8657
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18603.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ SoundHound ∞ - Music Discovery v10.4.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18605.jpg" />
 </div>
 
 

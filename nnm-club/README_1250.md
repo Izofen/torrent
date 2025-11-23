@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32853.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F4BF72C76D59BD11130E9E8E3624360F76B0913B
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32854.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F4BF72C76D59BD11130E9E8E3624360F76B0913B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32855.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Armin Van Buuren - A State of Trance, Ibiza 2024 (Mixed by Armin van Buuren) (20
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32856.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:320E0293EF760B0A98CCDD815BADFD608E571B52
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32857.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D55A43E79BFABE08F2415749C8FDB826D69F185E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32858.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6B5D24C2AF6EE832A9BCB81E9A3C72F50F51CAB3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32859.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:1AF9D8582CAA3B6272C19A8BD3DE6CB99200E8BF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32860.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:EBB9917D3F624BBA386D5EFA765E149E97351E09
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32861.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:6564D0D2C32B08AC359D814D7BEA471321312164
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32862.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:BABF62B92EB8A5704CFCB25D34E5A4AF6FB570EE
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32863.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Glary Utilities Pro 6.20.0.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32864.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:BD4CEE6842301E4E9F49B2F21C56EDBB9C5037D8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32865.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:622FD3825CDF06098EAB465B9D813732297F59DE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32866.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:1EE6A01B8697D33964852F11FC7EAF00CB071098
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32867.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:5555A55435FEAD9DFF2494B244F382E02D7049F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32868.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711.b1327bd4.0) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32869.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ AIMP 5.40 Build 2652 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32870.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:50232125A9C1CE66A7967E6CA6A7A34EF2AA3DE0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32871.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ v2rayN 7.4.2 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32872.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ SPRAWL (2023) [Multi] (1.7) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32873.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:81F19EB82D16319745BB502BEBBB2F24E7777707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32874.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:81F19EB82D16319745BB502BEBBB2F24E7777707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32875.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Bat! Professional 11.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32876.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:6A1BBCAAA576EE1DF6BF9A80555C2EC9D74A7A97
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32877.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:EA730EF499E9AC1ECB1D2DBC754667AEA6987002
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32878.jpg" />
 </div>
 
 

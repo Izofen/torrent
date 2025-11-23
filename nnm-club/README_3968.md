@@ -1,3 +1,77 @@
+###  Публикация: 320664   (122850) от 15.01.2024
+
+М.Н. Загоскин | Рославлев, или Русские в 1812 году (2009) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Исторический авантюрный роман.
+Михаил Николаевич Загоскин (1789–1852) – исторический романист и комедиограф.
+Действие романа М.Н. Загоскина «Рославлев» (1830) происходит во времена Отечественной войны 1812 г. В основе его лежит трагическая история отношений русского офицера Владимира Рославлева и его невесты Полины.Жанр: Русская литература, классика, исторический романИздательство: Вира-М (аудио)Продолжительность: 16:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68310BD507D71545D0AC221F44DCB38C4C522838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688253   (122851) от 15.01.2024
+
+Приходи на меня посмотреть (2000) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122851.jpg" />
+</div>
+
+
+###  Подробнее
+
+По пьесе Надежды Птушкиной "Пока она умирала". Софья Ивановна давно не встает со своего кресла. А ее единственная дочь Таня, похоже, смирилась с положением старой девы. Вся ее жизнь - это заботы о больной матери. Но в один из предновогодних вечеров Софья Ивановна собралась умирать. В отчаянии она трижды стучит костяшками пальцев по столу. И с этого момента (   Читать дальше...   )Производство: Россия / Киностудия им. М. Горького, НТВ-ПрофитЖанр: мелодрама, комедияРежиссер: Михаил Агранович, Олег ЯнковскийАктеры: Олег Янковский, Ирина Купченко, Екатерина Васильева, Наталья Щукина, Марк Рудинштейн, Иван ЯнковскийСубтитры: отсутствуютПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79921028B44BA210D2528024F870E7F1E8A47875
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320662   (122852) от 15.01.2024
+
+М.Н. Загоскин | Москва и москвичи (2009) [MP3, Галина Самойлова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122852.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Москва и москвичи» (1848) русский романист XVIII века рассказывает о современной ему Москве. Записки Богдана Ильича Бельского, издаваемые М. Н. Загоскиным. Наблюдая его точно и особенно интересны сейчас, во времена интенсивного развития города.Жанр: Русская литература, классика, исторический романИздательство: Вира-МПродолжительность: 02:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276B4D72D1EE5967C7F7953B84EC17D132F40F49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077793   (122853) от 15.01.2024
 
 Transport Fever (2016) [Ru/Multi] (19002) License GOG
@@ -6,7 +80,7 @@ Transport Fever (2016) [Ru/Multi] (19002) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122853.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ KMSAuto++ Portable 1.8.7 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122854.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.8) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122855.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ Heroes of Might and Magic III: Horn of the Abyss / Герои меча и маг
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122856.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ magnet:?xt=urn:btih:3D6B5DEF408C60A74F248C3B16233F1DAE87D782
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122857.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ magnet:?xt=urn:btih:BFCB77B126EBCB33BE2A0D77F2F87AC0047DCA61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122858.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ magnet:?xt=urn:btih:3A46CB268E431413C6AF2ED31AF686074250C17A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122859.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ magnet:?xt=urn:btih:D09B4BD07DCAF2AD7FBBA365C4BE853733DF7F31
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122860.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ magnet:?xt=urn:btih:3FCD7E601C2E2978761AB5347F3B5258549E8F00
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122861.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ magnet:?xt=urn:btih:48F2D3C81163CD0EE8B3396302BF9B951E32AA12
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122862.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122863.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ magnet:?xt=urn:btih:0EFB9207953563EB62B06B502231034334D91154
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122864.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ magnet:?xt=urn:btih:DDECBC89A85479950694861DD662346A65B65987
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122865.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ magnet:?xt=urn:btih:DDECBC89A85479950694861DD662346A65B65987
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122866.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ magnet:?xt=urn:btih:4D067914CA960649ACD65AD34C55C249892C1680
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122867.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ tishbyme, Кристина Дмитриева | Mастер класс по ди
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122868.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ X-59: Первый взгляд на будущее сверхзвуковых �
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122869.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ R-Studio Network 9.3 Build 191269 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122870.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ Little Snitch 5.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122871.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ magnet:?xt=urn:btih:1AC4A7123109E8E54B15CC5153C1E7D16DF1033F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122872.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ Navagon - Prepare To Meet Thy God (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122873.jpg" />
 </div>
 
 
@@ -520,7 +594,7 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122874.jpg" />
 </div>
 
 
@@ -547,7 +621,7 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122875.jpg" />
 </div>
 
 
@@ -561,82 +635,6 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCC93E86C554D095C525E7FCACF312E62DC5CEFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691992   (122876) от 14.01.2024
-
-Stan Getz - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penny [2:52]
-02. Split Kick [2:55]
-03. It Might as Well Be Spring [2:54]
-04. The Best Thing for You [2:44](   Читать дальше...   )Жанр: West Coast Jazz, BopПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA17A464DA040E79EBAC1B825FAF1C84E20BF78D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692011   (122877) от 14.01.2024
-
-Navicat for Redis on Mac 16.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для Redis — это простой в использовании визуальный интерфейс для визуализации и оптимизации данных Redis. Он предоставляет надежный набор функций, которые упрощают, упрощают и повышают эффективность рутинных задач управления по сравнению с использованием только текстовых команд.
-Подключайтесь к любым локальным и удаленным серверам Redis и совместим с облачными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83A93C485D98F67268D701834D6666247CCDBFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692012   (122878) от 14.01.2024
-
-Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клиент Navicat для SQLite от PremiumSoft — это интегрированный инструмент с графическим пользовательским интерфейсом, позволяющий упростить администрирование SQLite и разработку баз данных. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF47E6C9EE29C8C9FB55B8198F97543847F5299
 ```
 
 

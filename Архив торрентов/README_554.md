@@ -6,7 +6,7 @@ HitPaw Video Converter for Mac 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120110.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Skype 8.112.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120113.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ QOwnNotes 24.1.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120117.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Skype 8.112.0.203 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120120.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Monkey's Audio 10.47 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120121.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.2.3 VST 3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120127.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Music Collection 3.6.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120135.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Sante DICOM Viewer Pro 14.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120140.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Native Instruments - Kontakt 7.8.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120145.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Maxthon Browser 7.1.8.6001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120146.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ simplewall 3.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120150.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Moog Music - Mariana 1.1.0 Standalone, VSTi 3, AAX (x64) RePack by TCD (Rev.1) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120159.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ GoldWave 6.80 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120161.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Windows 11 Debloater 2.0.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120162.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AOMEI Partition Assistant Standard Edition 10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120163.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Total Commander 11.02 (26.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120165.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ WinTools.net Premium 24.1.1 (29.01.2024) RePack (& portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120168.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:16308B878080D86389D7E7CC75B6471E86242ECD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120169.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ TechSmith Camtasia 23.4.2 (Build 51146) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120176.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Total Commander 11.03 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120178.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Malwarebytes AdwCleaner 8.4.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120187.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ AOMEI Partition Assistant Technician Edition 10.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120194.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Adobe Illustrator 2024 28.2.0.532 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120195.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Windows 10 Debloater 2.6.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120200.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Adobe Illustrator 2024 28.2.0.532 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120205.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ AnyDesk 8.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120210.jpg" />
 </div>
 
 

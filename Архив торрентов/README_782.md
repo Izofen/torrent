@@ -1,3 +1,77 @@
+###  Публикация: 1675285   (160380) от 08.11.2023
+
+Android Studio Giraffe | 2022.3.1 Patch 3 Build #AI-223.8836.35.2231.11005911 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Android Studio предоставляет быстрые инструменты для создания приложений на все типы Android устройств.
+Редактирование кода, отладка, инструменты оптимизации мирового уровня, гибкая система сборки, и система мгновенной сборки/развёртывания позволят вам сфокусироваться на построении уникальных и высококачественных приложений.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D37BAB585E8BF3DBE6E04EF989424A37CD1B4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675317   (160381) от 08.11.2023
+
+Antivirus Removal Tool 2023.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antivirus Removal Tool - портативный набор официальных утилит для удаления антивирусных программ. Сборник включает удобную графическую оболочку, которая автоматически определяет установленный антивирус и предлагает запустить соответствующую утилиту удаления.
+С помощью графической оболочки можно выбрать и запустить нужную утилиту удаления или просканировать систему (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EA8018B5EACBC0538A980F6AA38F7EEE4922A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675222   (160383) от 08.11.2023
+
+Paste 4 v.4.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая утилита, которая незаметно работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2015-2022 Paste TeamПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8790D0EF152D1823B3634051886875E0A1ABDD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675296   (160384) от 08.11.2023
 
 Google Chrome 119.0.6045.124 Stable + Enterprise [Multi/Ru]
@@ -6,7 +80,7 @@ Google Chrome 119.0.6045.124 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160384.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ DxO FilmPack 7.1.0 Build 481 Elite x64 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160385.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ Shazam 14.1.0-231103 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160395.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ NetLimiter 5.3.5.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160396.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.43
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160397.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160399.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ HDCleaner 2.061 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160408.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ magnet:?xt=urn:btih:0A66C548F96D3FC957CC81227B3F3140240ACB1C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160409.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ Google Chrome 119.0.6045.124 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160410.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ Firefox Browser 119.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160413.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ RegCool 1.347 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160414.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ Path Finder 2163 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160417.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ Mozilla Thunderbird 115.4.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160420.jpg" />
 </div>
 
 
@@ -320,7 +394,7 @@ DxO PureRAW 3 for Mac v.3.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160422.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ Sketch 99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160423.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ Light Image Resizer 6.1.9 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160424.jpg" />
 </div>
 
 
@@ -393,7 +467,7 @@ Radiant Photo 1.1.2.334 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160425.jpg" />
 </div>
 
 
@@ -417,7 +491,7 @@ TweakNow WinSecret Plus! 4.9.13 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160434.jpg" />
 </div>
 
 
@@ -442,7 +516,7 @@ Speedtest от Ookla 5.2.1 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160436.jpg" />
 </div>
 
 
@@ -466,7 +540,7 @@ Topaz Video AI for Mac 4.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160440.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ Eassiy Data Recovery for Mac 5.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160442.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ BBEdit 14.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160444.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ Sublime Text 4.0 Build 4164 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160458.jpg" />
 </div>
 
 
@@ -551,80 +625,6 @@ Sublime Text не является свободным или открытым п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F3FDE68D5A7F2D3AA9CE1448BC4469E4E177A93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675192   (160460) от 08.11.2023
-
-DxO FilmPack 7 for Mac v.7.1.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160460.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO FilmPack — это подключаемый модуль для Adobe Photoshop, Adobe Lightroom, Apple Aperture и DxO Optics Pro. Кроме того, доступен как автономное приложение. DxO FilmPack придает цифровым изображениям стиль самых известных фотопленок: цвета – и зернистость, включая Kodachrome, Tri-X, Velvia, были проанализированы и воспроизводятся так, чтобы они могли быть применены (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 12.6.8 +Язык интерфейса: Английский, Французский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62575EA6BABFA152A02F334A0D9DB4107177A3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675262   (160463) от 08.11.2023
-
-JixiPix Artista Impresso Pro 1.8.22 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте Импрессионистом и превратите свой снимок в написанное мазками произведение искусства.
-Импрессионизм - направление в искусстве последней трети девятнадцатого — начала двадцатого века, мастера которого, фиксируя свои мимолетные впечатления, стремились наиболее естественно и непредвзято запечатлеть реальный мир в его подвижности и изменчивости. Импрессионизм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 JixiPix Software, LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C083562DE60342077D3D0F819185D260CC327999
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675199   (160470) от 08.11.2023
-
-DxO ViewPoint 4 for Mac v.4.11.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160470.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO ViewPoint — окончательная победа над геометрическими искажениями.
-DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский , Французский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB5539A6FF338E9793920AE614B269B1E8E8F7C
 ```
 
 

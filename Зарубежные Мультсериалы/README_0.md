@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8918.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:70913A4157D3395ACAF968CD6972399B50BCB7F8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9471.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:318915C6A9170194E36718C718F30B1D7B180B04
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9755.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1B98081575115E276CA30DDCCD9DD1C0221ADC49
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9921.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:96AF0465BF60A88A8C9F4E9ABF98D4CC84E81DBF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10342.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:03A72859BD446427ADE6E3C31257E00A3B9C5C70
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10453.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D67AB19601EF44A3135746FD7838303BB997756F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10486.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:B47A3E6241D425EFBB67E50272F125FCCDAC02AB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10686.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B8723910CC1BE6709248A33F148E648157B92F69
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10781.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:5AE5E5B6A3FB61C7A8A107CC250DE50E22D45F17
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10786.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:9F9C1C71D5077CFE1A3F4940CF7BE90BD6350045
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10914.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:2BC9BC071FE6A58A962C575A0F11857EDA4EF2AD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11091.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:A211D124B87807572824CF81DDB64FDB6E5906FD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11707.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:772612DA52045D9203492AFB7A0247174F41C59B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11743.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:8D5F1C7D4465173D0A058AD360154E7C9201B2BC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11755.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C221806C0C96047311EDEFE491AEEB32048BA7BD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11796.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:8A1D22B359DEC4EF1CA9F1719E441B880C490EF4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11838.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:12EDB52E313E47D486D17E730EB7201029AC043B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12178.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F628451CD922C53C64E25FE46D00512C6F81E117
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12440.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:D6EE4478B9FF0C31423FB5559E45E3EDEE924EA3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12461.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:B6DFE190740523A317B80B3FDBBFD12B3F24397F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12583.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:E81C2C5F2C2B60120552FB054E6342B8EF308D2C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12810.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:A6B48F5D10DFE3B5F34DB5B89F5E1A8C62C10422
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12973.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:08D70074EB0D70C15F4BD171F7625EB3967D528F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12975.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:29EF869BEBE75BAF6928082A918F668F032D90E0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12994.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:92BD525C146F8996C376955AAF2506D836303382
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13005.jpg" />
 </div>
 
 

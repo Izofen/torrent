@@ -1,3 +1,82 @@
+###  Публикация: 1730505   (107848) от 16.06.2024
+
+Fred P - As We Journey On (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Future Jazz, House>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Endings (Unreleased Arthouse Version) [00:11:12]
+02. Mystical Sunrise [00:08:02]
+03. Made Me Say [00:06:30]
+04. Motivated Inspiration [00:09:58](   Читать дальше...   )Жанр: Deep Techno, Future Jazz, HouseПродолжительность: 01:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55555D78DD731C310BEAABD2947B401AF313693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730572   (107849) от 16.06.2024
+
+Чудо техники с Сергеем Малозёмовым (16.06.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прохлада на колесиках! Чем мобильные кондиционеры лучше сплит-систем, а в чем проигрывают стационарным устройствам, и как сделать так, чтобы мошки, пыль и пух не летели сквозь открытое окно, которое нужно для работы передвижных охладительных приборов? Проверка мобильных кондиционеров не только дома, но даже в бане.
+ В Швейцарии создали кофейную пасту для приготовления (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6025BAD1AD7925D0B9D8F06EC7140BB487247C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730534   (107850) от 16.06.2024
+
+Toxikk Deception - License To Murder (2022) [MP3|320 Kbps] <EBM, Dark Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vile Fuck [00:04:53]
+02. Visceral [00:05:00]
+03. Sikk Joke [00:04:05]
+04. Gore Machine [00:03:15](   Читать дальше...   )Жанр: EBM, Dark Electro, IndustrialПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F9B99364DEC9957B914409D1C6A1796BF86D7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730618   (107851) от 16.06.2024
 
 Speedtest от Ookla 5.4.2 Mod by Balatan [Ru/Multi]
@@ -6,7 +85,7 @@ Speedtest от Ookla 5.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107851.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:DD8356FA405695F61CB39AA6F3E2EC2AEB94CF58
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107852.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:CEA18839B020C2CD5AF6CBD7CC06B801B17836AE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107853.jpg" />
 </div>
 
 
@@ -82,7 +161,7 @@ magnet:?xt=urn:btih:1888F68221E0B326B808D36088457D5B4B03CD82
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107854.jpg" />
 </div>
 
 
@@ -107,7 +186,7 @@ Mantus - Mantus (1980) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107855.jpg" />
 </div>
 
 
@@ -134,7 +213,7 @@ magnet:?xt=urn:btih:214C222152DDB506ED59FCB9B3F74D7741A43CE3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107856.jpg" />
 </div>
 
 
@@ -161,7 +240,7 @@ magnet:?xt=urn:btih:ADFCCD53D74C44D6D6234B7A5B2F6C26D67C1267
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107857.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107858.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ magnet:?xt=urn:btih:8B71312888D786CF75616463A890529BC01D0324
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107859.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ magnet:?xt=urn:btih:3C93B5DFDF48C7C42C942D81C2A1CBF80C7DD572
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107860.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ Speedtest от Ookla 5.4.2 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107861.jpg" />
 </div>
 
 
@@ -291,7 +370,7 @@ Andre Camilleri - Top Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt-Country, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107862.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ magnet:?xt=urn:btih:42CFFF612CB886E3AC94AA7922EC4D26F6FDD7F9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107863.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ Rascal - Rascal (1990) [MP3|192 Kbps] <AOR>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107864.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ VA - Ibiza Summer Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107865.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ Storm Inside - Серый человек (2024) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107866.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ The Iron Bees - Ржавый Тромбон (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107867.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107868.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ Aythis - Lost Lighthouse (2024) [FLAC|Lossless|WEB-DL|tracks] <neoclassical, eth
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107869.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ VA - Gothic Music Orgy, Vol. 6 (2020) [MP3|320 Kbps] <Dark Electro, EBM, Industr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107870.jpg" />
 </div>
 
 
@@ -534,7 +613,7 @@ Brave Browser 1.67.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107871.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ Lonely Fire - The Last Ride (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107872.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ VA - Ibiza (Deep House Sensations) (2024) [MP3|320 Kbps] <House, Deep House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107873.jpg" />
 </div>
 
 
@@ -599,85 +678,6 @@ VA - Ibiza (Deep House Sensations) (2024) [MP3|320 Kbps] <House, Deep House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57B03F9A5D0A82A7DB056059E7CF451543476497
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730563   (107874) от 16.06.2024
-
-Moog Music - Mariana 1.2.0 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mariana - это новый программный синтезатор басов от Moog Music, способный достигать самых глубоких уровней низких частот.
-Рожденная из глубин наследия Moog Music в области синтеза басов, Mariana вдыхает новую жизнь в методы электронного саунд-дизайна для современного музыканта или продюсера.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA3C7C0BF00812E3E4411E98A19853324D2398E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730504   (107875) от 16.06.2024
-
-Black Country Communion - V (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enlighten (5:20)
-02. Stay Free (4:30)
-03. Red Sun (6:33)
-04. Restless (5:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BCA5BC5CBB48D4B567980B30C5FBCF733CC88F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730486   (107876) от 16.06.2024
-
-The Jive Aces - Keeping The Show On The Road (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесспорные короли джайва и свинга The Jive Aces вернулись со своим новым альбомом Keeping the Show on the Road, 14 треков которого охватывают захватывающие живые выступления и непоколебимую страсть к музыке. The Jive Aces очаровывал публику по всему миру на протяжении десятилетий – от восхищения судей конкурса Britain's Got Talent до аншлага на первом в истории the (   Читать дальше...   )01. Rockin' Is Our Bizness (2:36)
-02. Clementine (3:07)
-03. It Don't Mean A Thing (If It Ain't Got That Swing) (3:18)
-04. The Pink Panther Theme (3:04)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC08A87764250C6B90DA8511F4E69C5770051E58
 ```
 
 

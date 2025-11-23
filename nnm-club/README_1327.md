@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34855.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34856.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4A30D06930EBC4E29EB6E33EFB44734DE8D184DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34857.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4A30D06930EBC4E29EB6E33EFB44734DE8D184DC
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34858.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34859.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:309E5B2DC9E32F810ED36E4C52BE7942ECF106B1
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34860.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BC01EE140C498E975D1A8AD26650BBAEFAB38D41
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34861.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:10B9D764F0C6C9602246CCF6A18E010EAE43D770
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34862.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:10B9D764F0C6C9602246CCF6A18E010EAE43D770
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34863.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:10B9D764F0C6C9602246CCF6A18E010EAE43D770
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34864.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:DB37573505A884F6BEDD14EFFEDC8E09A347F6D9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34865.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:28FBEAA6A783065BBB76BDAF250A24CAA2BB3E4E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34866.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:3C027D9F188C06AD6A622811FBED354843A3DB1F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34867.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D749DD8223C068CA696FD09C168DF45AC11D3D41
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34868.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D749DD8223C068CA696FD09C168DF45AC11D3D41
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34869.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ KMS Tools Lite Portable  by Ratiborus 05.12.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34870.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F28FEF06FB9BC301CDD80C8C6EEF02D1B3EE7DC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34871.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:F28FEF06FB9BC301CDD80C8C6EEF02D1B3EE7DC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34872.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34873.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:28BE3C9E589FCC026178248BEC2109169D3DF922
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34874.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:28BE3C9E589FCC026178248BEC2109169D3DF922
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34875.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:B49ACF4A7C3BF24B0D6A2018E8ED0EA65A719AEB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34876.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ CyberLink PowerDVD Ultra 23.0.2319.62 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34877.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34878.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Railbound (2022) [Multi] (3.06) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34879.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:221E8FE42CE63EDD06D06DE08869B36531AA1EB8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34880.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97201.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Whisky Bar - Дура... (2008) [MP3|320 кб/с]<Funk, Punk, R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97202.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Braincell - Psychedelicious EP (2012) [MP3|320 кб/с]<Psy / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97203.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ magnet:?xt=urn:btih:D13BFF22A39680593AF72CC620A264C31A5FF82F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97206.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dancing Astronaut Radio presents Axis - Episode 01-04 (2012) [MP3|320 кб/с]<E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97207.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:54451919754A8AE4510522E4153998D3282FE746
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97208.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97210.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97213.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97214.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97215.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97219.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97220.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97222.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97223.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Dj DIESEL{BG} - Hangover (2012) [MP3|320 кб/с]<Club House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97225.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Nation Of Trance Vol 1 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97226.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Ночная Авто Дискотека (2012) [MP3|192 кб/с]<Dance, Cl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97227.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97229.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97230.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97233.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97236.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97238.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97250.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97251.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97252.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97253.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Nuno Mindelis - Brazilian Blues (2013) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103960.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sonny Stitt & Don Patterson - The Boss Men (1965) 2001, Prestige [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103973.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fred Hersch - Silent, Listening (2024) ECM Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103974.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Van Morrison - New Arrangements And Duets (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103994.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Frank Sinatra - Frank Sinatra: Legend (1998) Hey Presto! [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103998.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104054.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sonny Stitt - & The Top Brass (1962) 1998, Atlantic [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104058.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Frank Sinatra - Sinatra 80th: Live In Concert (1995) Capitol Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104119.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alastair Greene, Eric Johanson & Katarina Pejak - Blues Caravan 2024 (Blues Cara
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104147.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Stan Getz - The Complete Quintet Sessions (1948 - 1952) 1994, Blue Moon [WavPack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104195.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jim Hall - Jazzpar Quartet + 4 (1999) Storyville [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104259.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Joey DeFrancesco, Robi Botos, Vito Rezza, Phil Dwyer - One Take, Vol. 4 (2010) A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104280.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jim Hall Trio featuring Tom Harrell - These Rooms (1988) Denon [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104345.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ V.A. - The Best Smooth Jazz Ever (2002) 2CD [FLAC|Lossless|WEB-DL|tracks] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104355.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - На вершине блюза #3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104367.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - На вершине блюза #2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104368.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - На вершине блюза #1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104369.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104454.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Soulful Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104521.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Jim Hall And Friends - Live At Town Hall, Vol. 2 (1990) MusicMasters [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104538.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jim Hall And Friends - Live At Town Hall, Vol. 1 (1991) MusicMasters [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104539.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ruby Braff & Scott Hamilton - A Sailboat In The Moonlight (1986) Concord Jazz [A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104549.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ruby Braff And Scott Hamilton - A First (1985) Concord Jazz [APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104570.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Cool & Groovy (Blues, Jazz, Funk) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104572.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Urban Nightlife Sounds (Downtempo Funk Soul Jazz) (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104574.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Seductive Divine Easy Listening Relaxation Chilly Playlist (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104576.jpg" />
 </div>
 
 

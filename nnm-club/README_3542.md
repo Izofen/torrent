@@ -1,3 +1,78 @@
+###  Публикация: 1713402   (111774) от 08.04.2024
+
+Axel Rudi Pell - Guardian Angel (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard 'n' Heavy>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardian Angel (5:27)Жанр: Melodic Hard 'n' HeavyПродолжительность: 00:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402AFE9B4B87CD0494FD2A7F3EC6EFC272E97D3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714304   (111775) от 08.04.2024
+
+Melody Gardot - Sayonara Meu Amor (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Chanson de vieux amants
+02. Once I Was Loved
+03. Get Out Of Town (Acoustic Version)
+04. Se Voce Me Ama(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C537867C09735C3668F6DD3D8AC25C2C8BE0EC79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714229   (111776) от 08.04.2024
+
+Гордон Диксон | Повелитель (2022) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111776.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Человечество расселилось на сотню планет. Но Земля осталась нетронутым островком самобытной человеческой культуры, музеем-заповедником, призванным хранить старый дух человеческой расы. Именно поэтому каждый Император Галактики перед вступлением на престол прибывает на землю, чтобы провести какое-то время вместе с представителем древнего рода телохранителей (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67CB42E04E36ABA8673C858C19CAD063F0ED8FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713961   (111777) от 07.04.2024
 
 The Absence - The Absence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -6,7 +81,7 @@ The Absence - The Absence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111777.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111778.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ The Papriks - Kiss'ЛЯ'тина (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111779.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111780.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ magnet:?xt=urn:btih:E8775A5EE8070D237F8540F61CAA65FA524A4253
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111781.jpg" />
 </div>
 
 
@@ -139,7 +214,7 @@ Saracen - Heroes, Saints & Fools (1981) Reissue, 1992, TRC Records [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111782.jpg" />
 </div>
 
 
@@ -166,7 +241,7 @@ magnet:?xt=urn:btih:6AB8DDB1D6A175AADF1EA753F7F045908386BC43
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111783.jpg" />
 </div>
 
 
@@ -191,7 +266,7 @@ magnet:?xt=urn:btih:599EA8C7E43604983C9DB91D8EA3AF0A488DC744
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111784.jpg" />
 </div>
 
 
@@ -215,7 +290,7 @@ magnet:?xt=urn:btih:C9CC0792B2A829665FAF8C75CC91143654FCB67E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111785.jpg" />
 </div>
 
 
@@ -239,7 +314,7 @@ Red Dragon Cartel - Patina (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111786.jpg" />
 </div>
 
 
@@ -266,7 +341,7 @@ magnet:?xt=urn:btih:F1637CAD33CCC95888093CE323C5D9D149E6CA3F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111787.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ magnet:?xt=urn:btih:039E7E94EEED5E34F481390D812BE51AB12B1019
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111788.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ magnet:?xt=urn:btih:F38B7679133DD20E06CC2853EECF2B9F21C612A5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111789.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ magnet:?xt=urn:btih:401DCAFBE3DA156527B66582DFF2FEBA0E0AABE4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111790.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ magnet:?xt=urn:btih:2DE958491C15EEB35B00B717598865927C74D528
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111791.jpg" />
 </div>
 
 
@@ -392,7 +467,7 @@ The Papriks - Хиты на лопате (2020) [MP3|320 Kbps] <Ska, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111792.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:5C28CC6BF23253E343D84FCF0851C671C0A38AA1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111793.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:111F87DF2212C93DA4F820C8E754256D7AC91B14
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111794.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ St.Vagina Dentata - Скотобаза (2019) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111795.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ Paul Butterfield - North South (1980) Reissue, 2006, Wounded Bird Records [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111796.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ Symakya - Project 11: The Landing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111797.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ magnet:?xt=urn:btih:3D29EBB5E4FAF3243DCBBC586861CD33CB75FF03
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111798.jpg" />
 </div>
 
 
@@ -575,7 +650,7 @@ Eunuchs - Harbour Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Art Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111799.jpg" />
 </div>
 
 
@@ -589,86 +664,6 @@ Eunuchs - Harbour Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Art Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1758C22ED882FCD71236E6AB90ED2F51BE0DE855
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713888   (111800) от 07.04.2024
-
-Dave Brubeck - All The Things We Are (1973, 1974) 2007, Atlantic [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone in Love [6:23]
-02. In Your Own Sweet Way [7:40]
-03. All the Things You Are [7:29]
-04. Jimmy van Heusen Medley: Deep in a Dream / Like Someone in Love / Here's That... [20:49](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F713995C64D28D4394969D48A0B83F63138D97A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713904   (111801) от 07.04.2024
-
-VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jakub Szybiak - Unveiled Light (2:55)
-02. William Thomson - Waiting for the Dawn (2:59)
-03. Joaqino Bianco - A New Morning (2:45)
-04. Dario Crisman - If We Could (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3940EB7C6670C311C731316EFBA54C964103A009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714000   (111802) от 07.04.2024
-
-Telegram Desktop 4.16.4 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A0AEADB92A859AF8D86277449E7C5F2CEE4AE8
 ```
 
 

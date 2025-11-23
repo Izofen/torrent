@@ -6,7 +6,7 @@ Wondershare PDFelement 11.4.5.3307 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29941.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29942.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BDA25BCA37FFA566FD9C5672B4213F4334B9A00E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29943.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BDA25BCA37FFA566FD9C5672B4213F4334B9A00E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29944.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29944.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A1B778835E653DC8EE7C511B0765F376CA49234A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29945.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tixati 3.32 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29946.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29946.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6E06B6EC48059BAB33304A05A6587086A1CBD8A9
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29947.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29947.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5DDADA952E6A7087AE6B8F7BB027C43AE3AEA212
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29948.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29948.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6A54F6CE5C9AEB038BC3A1E96EE588CF159F69A1
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29949.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29949.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:97FF59E0E485CCE83E9DF65E419E6913B85D13DA
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29950.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29950.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29951.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:0B005D286C5720046C1E8745C4D652BCD5A7C6D1
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29952.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29952.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0B005D286C5720046C1E8745C4D652BCD5A7C6D1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29953.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29953.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:71D7D009AD7EF18408B5407457E0A4F525C18CC2
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29954.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29954.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:FD28C6F4BAD2B0C0051A592835063E77B97E7697
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29955.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29955.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:922354399E9AA0B8F4B6D462E7D5F2D3E6BAB93E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29956.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29956.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:1BA501C4A704A51E1FE30E6D812CB2160FE1D0B4
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29957.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29957.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:B89B4D4645039F27C11EFF605922B1616453CD2D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29958.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Internet Download Manager 6.42 Build 27 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29959.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29959.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:CBAC982CDC85841ED0CF747093E175B4D2580066
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29960.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:55D94811B9B77AC715E2E0A3547F35EE5CA5015A
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29961.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29961.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8A07204D208D80354FC6515EDCB3AC522842D471
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29962.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29962.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:407909B8E2D4F363DFDF78D6E90DE4063D2A5E67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29963.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29963.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Coll
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29964.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29964.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:120CC6B50EF55668E22A29A40CA25FEFC2B2D2F3
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29965.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29965.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29966.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29966.jpg" />
 </div>
 
 

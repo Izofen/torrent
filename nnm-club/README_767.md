@@ -6,7 +6,7 @@ Arturia - Jup-8000 V 1.0.0 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20267.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Fan Control V221 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20268.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20268.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Arturia - Pure LoFi 1.0.0 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20269.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7F294DAA863A644734CB49AA582612BBC92A15D9
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20270.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Arturia - Pigments 6.0.3 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20271.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2ED963D42F9C96F78D2F2A6FC656B2F2F60BA111
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20272.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20272.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:31D731F6461DD58DC4A9AAF76FCBBF86B97CC8F7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20273.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Alfa eBooks Manager 9.2.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20274.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20274.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ T. Rex - Bolan B-Sides (2025) [MP3|320 Kbps] <Rock, Classic Rock, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20275.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Light Image Resizer 7.2.0.100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20276.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:A3301226F77247F8C84D536DDCD43094C4B2C409
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20277.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20277.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Italian Restaurant Chill Music Vol. 2 (Beats to relax) (2022) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20278.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - The Finest 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20279.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20279.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20280.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Acker Bilk - Compilation (2025) [MP3|320 Kbps] <Jazz, Instrumental, Clarnet>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20281.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20281.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:1E7070996F192957ACA19D6FFE2FD30E4B35D498
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20282.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20282.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:8FDBBB3EE14B7EAE6E626DCE5BC9610F4F57B768
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20283.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20283.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:07E7269A6F41CF260E004F5292AE1DC83CF68C59
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20284.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20284.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ MediaHuman YouTube Downloader 3.9.10 (2404) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20285.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20285.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Patricia Kaas - 1987 - 2025 Une vie (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20286.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20286.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:DA1E7FB5BE2EBF7CA051A53DFC54662375CA732D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20287.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20287.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:B6A2CD8AAC99319085275956E6473A3E241B4A92
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20288.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20288.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:E2B098E59FCE02026DEED94D5002AB3B6DF475DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20289.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ O&O DiskImage Professional 20.2 Build 363 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20290.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20290.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ V.A. - Iconic 80s Pop Rock (2025) [FLAC|Lossless|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20291.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ MediaHuman YouTube to MP3 Converter 3.9.10 (2404) RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20292.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20292.jpg" />
 </div>
 
 

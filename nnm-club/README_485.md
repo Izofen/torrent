@@ -6,7 +6,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12867.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:93BB94D81B27EA9962B59E7355CB8523A6A524DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12868.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7E06D1EB5DB962C6244CE84FB8AAC23F9C80D696
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12869.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C32306470687416ED012ACC346409B095F4496A5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12870.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tobacco Shop Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12871.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8F4551C9B9FCEBECA30414532A794D61754074EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12872.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:503ACB3CC5B0EC1A17F88F2094D35876A63CF074
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12873.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:EE650E2266EF20CBE3C6084466D2DE119F2CB548
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12874.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8BB4ACEC6FF85FB37266036B2DACE302F392C238
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12875.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.0 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12876.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:17F94B4268985AD912E5F5812B7E3E83CB177877
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12877.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ owlsova | Авитолог 2025 (2025) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12878.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:20DD1B863F03CE4F7013349BA994AFB1C46B39DC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12879.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:6466E89FF0AAB43F6E61C0DC2BECAE6B113F0AD2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12880.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.5.1.23830) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12881.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:77CC67299D38B5B39B45C6A541854A43662E4DA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12882.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:77CC67299D38B5B39B45C6A541854A43662E4DA4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12883.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Blood West (2023) [Ru/Multi] (4.4.1/dlc) Repack FitGirl [Dead Man's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12884.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:78123609B54DA32922C41672F10B099D78907B81
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12885.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:8766C9E82CCF26A76EC5FB981965DED7CB579AF0
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12886.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:8766C9E82CCF26A76EC5FB981965DED7CB579AF0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12887.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:2AC6099C2600D60F5C98C757C1E51E71003DEDC1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12888.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:8F85BA3F67CA554560E3878E6492720448400F27
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12889.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:551367EAE03A85CAE7938256789F4794B9604DD5
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12890.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:449BC0B9D8852B3FC8C74B38B3CC70B7DB340EDA
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12891.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:DCF8DD9BC7C0B478F814A9794AA6FF3484F6DDE9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12892.jpg" />
 </div>
 
 

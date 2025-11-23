@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74148.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74178.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74728.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75187.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75761.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76018.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76383.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76963.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76966.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79665.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79789.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80066.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80067.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80086.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80100.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80104.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80328.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80513.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80703.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81266.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81864.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83760.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83976.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84185.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84343.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:E7D8F96E5081BD25904E954F6A0F33CC46C78707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85248.jpg" />
 </div>
 
 

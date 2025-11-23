@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27284.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27284.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27285.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27285.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:62A013707EA6403CA7D12B0BB588A53C3015465C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27286.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:960D69C29EB4F6DAD80AA371531A3082A94B2960
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27287.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27287.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:904F9019EBF5247B74BF1E5B3E845D334F25044F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27288.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27288.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:52AF38CEA89D79645263FE209B0A104B91D0BE1D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27289.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27289.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27290.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27290.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:97FEB8D60DC3F02E5DD7946C3E158640CF88B549
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27291.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27292.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27292.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4D62B68094D7F6B4888E701D551E55F410429FC5
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27293.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27293.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:2CADC7E9A83082E3406FC405B66D0E4EC55C7190
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27294.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27294.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:330906EEF846C43E7DE9F8C4009C3419D25CFF6C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27295.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27295.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6143D0B43C04CCD1D613299C5C6A856CC1C3BC22
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27296.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27296.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:93DCA25FBC01826EAA54C1BD784F85597632B285
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27297.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27297.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ RegCool 2.030 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27298.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:13F55144465BB3C19633C434E8A49E110441849F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27299.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27299.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:67791AF73E8F8413108623A1D35D5C5669952B02
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27300.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27300.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27301.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27301.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27302.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27302.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27303.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27303.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:747F8E58E6ACBDE28E7D2C62B464E77B04EC95E4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27304.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27304.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:B877B75FC139832030B55AEBA208DF98A43887F3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27305.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27305.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Blond:ish - Never Walk Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27306.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27306.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:3E4BDA5699778D916CEB88B7EA9E42774046F878
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27307.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27307.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Remixes Revisited, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27308.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Torul - Superposition (2025) [FLAC|Lossless|WEB-DL|tracks] <Synth Pop>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27309.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27309.jpg" />
 </div>
 
 

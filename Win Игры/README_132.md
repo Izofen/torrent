@@ -6,7 +6,7 @@ Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37806.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (1.37.15252.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37811.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ City Car Driving (2016) [Ru/Multi] (1.5.9.2/dlc) Repack Other s [Home Edition] [
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37822.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37832.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37833.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Repack Other s [Deluxe Edition] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37845.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Techtonica (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37918.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37928.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37958.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37962.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SOS OPS! (2023) [Ru/Multi] (05.11.2024/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37969.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38006.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38007.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38020.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38033.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Quake Classic (1996) [Ru/En] (1.09) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38041.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38060.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38063.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38116.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38137.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38147.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack FitGirl [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38219.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Atlas Fallen: Reign Of Sand (2023) [Ru/Multi] (1.119040/dlc) Repack LetsPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38221.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack LetsPlay [Game of the Year Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38232.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294_40/dlc) License GOG [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38240.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38247.jpg" />
 </div>
 
 

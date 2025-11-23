@@ -6,7 +6,7 @@ David Newman - Newmanism (1974) Remaster, 2015, Warner[FLAC|tracks+.cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139740.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Elvin Jones - Poly-Currents (1969) Remaster, 2014, Universal[FLAC|tracks+.cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139759.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sir Roland Hanna Plays The Music Of Alec Wilder (1998) Gitanes Jazz Productions 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139770.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Catherine Russell - Harlem On My Mind (2016) Jazz Village [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139795.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chris Connor - Sings Lullabys For Lovers (1954) 2013, Bethlehem [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139814.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Clifford Jordan - These Are My Roots: Clifford Jordan Plays Leadbelly (1965) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139819.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dizzy Gillespie - Concert of the Century: A Tribute to Charlie Parker (1980) 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139838.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Harry Allen & Mike Renzi - Rhode Island Is Famous For You (2019) GAC Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139862.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Steve Hunter - Before The Lights Go Out (2017) [FLAC|Lossless|image + .cue] <Ins
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139902.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Jazz Funk Instrumentals Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139999.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Fusion Jazz Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140036.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Instrumental Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140111.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Laurence Jones - Thunder In The Sky (2012) [FLAC|Lossless]<Blues/Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140125.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Michael Feinstein & Maynard Ferguson - Big City Rhythms (1999) Concord Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140126.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Barbara Cook & Michael Feinstein - Cheek To Cheek (2011) DuckHole Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140134.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Michael Feinstein - An Intimate Holiday with Michael Feinstein (2001) 2СD, Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140143.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Gov't Mule - Time Of The Signs (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140306.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Jazz Brunch Easy Chilly Atmosphere Instrumentals (2023) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140439.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140536.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Phil Woods, Tommy Flanagan, Red Mitchell - Three For All (1981) 1989, Enja Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140624.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ella Fitzgerald - Les Jazz RTL: La voix du swing (2012) 2CD [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140786.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Jimi Hendrix - Blues (1994) Remaster 2010 [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140844.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140881.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ George Shearing - Walkin' (1995) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140895.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ J.R. Monterose - The Message (1959) 1997, Venus Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140965.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Gilberto Gil - Refavela (1977) 1994, Warner Music[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141251.jpg" />
 </div>
 
 

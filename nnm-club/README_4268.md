@@ -1,3 +1,82 @@
+###  Публикация: 596375   (131227) от 30.12.2012
+
+Щеколда / Le Déclic (1985) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: ФранцияЖанр: Эротика, Комедия, ТриллерРежиссер: Жан-Луи РишарАктеры: Флоранс Герен, Жан-Пьер Кальфон, Берни Каби, Жерар-Антуан Юар, Фабрис Джоссо, Крофтон Хардестер, Жасмин Маймоне, Лиза Маркс, Джордж «Бак» Флауэр, Мария Форд, Дебра Ламб, Тони НэплсПеревод: Одноголосый закадровыйПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35139229EC18B239694BF38AEA7C3BB23E9A6800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582720   (131228) от 07.12.2023
+
+Повседневная жизнь бессмертного короля 3 | Xian Wang de Richang Shenghuo 3 | The Daily Life of the Immortal King 3 [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон приключений Ван Лина в Академии Культивирования. На этот раз нас сразу познакомят с новой героиней, приехавшей прямо с Солнечного острова (Японии) и решившей захватить власть во всём Хуасю (Китае). И первой своей целью она ставит для себя становления самой популярной крутышкой 60-ой Академии. Посмотрим, сможет ли она одолеть Сунь Жун или же в процессе (   Читать дальше...   )Производство: Китай / Студия Pb Animation Co. Ltd.Жанр: Комедия, школа, приключения, романтикаРежиссер: Чжу Бэнин, Ли ХаолинЯзык озвучки: Русский многоголосый, закадровый; Китайский
+- Viki, Paragon, Veda, Skyfinger (SHIZA Project)
+- Morgan, Dagor, Mariarti (Freedub Studio)Субтитры: Русские
+- (софтсаб на надписи)  (1-10) (SHIZA Project)
+- (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 20 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F6CD4A037DED84695922FBC03CBFC876D2A10D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680260   (131229) от 07.12.2023
+
+Яндекс.Практикум | Курс «Системный аналитик» (2022) WEB-DL [AD] [RU] [Части 8 из 8]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поможем освоить новую профессию с нуля за 9 месяцев.
+Что именно вы будете делать, когда станете системным аналитиком:
+✅ Собирать требования к программному продукту, обеспечивать их полноту и непротиворечивость
+✅ Разрабатывать прототипы пользовательских интерфейсов(   Читать дальше...   )Производство: Яндекс.ПрактикумЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 32:39:10Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC36FE6E92005229FB970F5E6D89B166E7364AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959725   (131230) от 07.12.2023
 
 Cinderella (Tom Keifer) - 14 Albums, 1 Box Set  (1986 - 2019) 25 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock, Blues Rock, Glam>
@@ -6,7 +85,7 @@ Cinderella (Tom Keifer) - 14 Albums, 1 Box Set  (1986 - 2019) 25 CD [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131230.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ CG Boost, Martin Klekner |  Substance Painter Launch Pad (2020) PCRec [EN, RU / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131231.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ OTUS, Евгений Аристов, Виталий Попов, Владимир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131232.jpg" />
 </div>
 
 
@@ -83,7 +162,7 @@ magnet:?xt=urn:btih:96724668521D852E59981CDC43B7ABCA67126BF0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131233.jpg" />
 </div>
 
 
@@ -107,7 +186,7 @@ magnet:?xt=urn:btih:96724668521D852E59981CDC43B7ABCA67126BF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131235.jpg" />
 </div>
 
 
@@ -131,7 +210,7 @@ SpeedFan 4.48 beta 6 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131236.jpg" />
 </div>
 
 
@@ -155,7 +234,7 @@ Abelssoft SSD Fresh Plus 2024 13.0.51115 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131237.jpg" />
 </div>
 
 
@@ -179,7 +258,7 @@ magnet:?xt=urn:btih:017F5AB1CA4CCFD98A7174983BDB0A5D27AD82CD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131238.jpg" />
 </div>
 
 
@@ -203,7 +282,7 @@ Gary Moore & Projects: Skid Row, Colosseum II, Greg Lake, BBM -54 Albums, 2EP, 1
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131239.jpg" />
 </div>
 
 
@@ -230,7 +309,7 @@ magnet:?xt=urn:btih:E32B45526850893D90ECA558AB69201B7921319C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131240.jpg" />
 </div>
 
 
@@ -254,7 +333,7 @@ magnet:?xt=urn:btih:1A7A0C4B59366D3F6F264A5B31D924EE9552B008
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131241.jpg" />
 </div>
 
 
@@ -278,7 +357,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131242.jpg" />
 </div>
 
 
@@ -302,7 +381,7 @@ Stereoscopic Player 1.9.6 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131243.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ Stereoscopic Player - многоцелевой проигрыватель для
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131244.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ Stereoscopic Player - многоцелевой проигрыватель для
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131245.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ magnet:?xt=urn:btih:87F1DB4B5FF2D8764B449062CBFA4109D85893EB
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131246.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ magnet:?xt=urn:btih:698922B09499DF8EDB7D3FC69A4B87CAC1A56A83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131247.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ onOne Perfect Effects 4.0.1 Premium Edition [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131248.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ Perfect Effects — включает в себя полную библиотек
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131249.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131250.jpg" />
 </div>
 
 
@@ -498,7 +577,7 @@ magnet:?xt=urn:btih:A9F4B0635D860995D9CFEE15418D3906DC40D376
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131251.jpg" />
 </div>
 
 
@@ -525,7 +604,7 @@ magnet:?xt=urn:btih:1556C63217E17F486DF5016B405418195D665A87
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131253.jpg" />
 </div>
 
 
@@ -549,7 +628,7 @@ magnet:?xt=urn:btih:2A6AE49069973BBF686426CA4FB90B089BF977E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131255.jpg" />
 </div>
 
 
@@ -560,86 +639,6 @@ magnet:?xt=urn:btih:2A6AE49069973BBF686426CA4FB90B089BF977E3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EBF5D890AE13521CF702F187531DECEFBB0CD66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596377   (131256) от 30.12.2012
-
-John Woo Presents Stranglehold [Ru/En] (Repack/1.1) 2007 | R.G. Origami
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Stranglehold (другое название - John Woo Presents Stranglehold) — масштабный проект голливудского режиссера Джона Ву («Без лица», «Миссия невыполнима – 2» и др.).
-
-Stranglehold — высокотехнологичный компьютерный боевик с невероятным уровнем кинематографичности и реалистичности. Созданный на графическом движке Unreal Engine 3.0, он предлагает игрокам оценить невероятную интерактивность нового поколения. Внешность главного героя игры, инспектора Текилы, с фотографической точностью повторяет внешность актера Чоу Юн-Фата, исполнявшего главную роль в культовом фильме «Круто сваренные», который превратил Джона Ву в звезду мирового масштаба. Игроков ждут эффектные акробатические трюки, жаркие перестрелки, полностью разрушаемое окружение и море чистого экшена.
-
-(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E916028BBC1B0F0488AF0510F4C0A83B8FC79BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676511   (131257) от 07.12.2023
-
-Судья Дредд / Judge Dredd (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131257.jpg" />
-</div>
-
-
-###  Подробнее
-
-В третьем тысячелетии мир переменился. Климат, народы - всё перевернулось… Земля превратилась в ядовитую, выжженную пустыню, которую стали называть «Проклятая земля». Миллионы людей сосредоточились в нескольких огромных городах, на улицах которых царили хаос и преступники. Система правосудия не смогла справиться с анархией, и был создан новый порядок - элитные подразделения, (   Читать дальше...   )Производство: США, Нидерланды, Великобритания / Cinergi Pictures Entertainment Inc., Edward R. Pressman Productions, Hollywood PicturesЖанр: фантастика, боевик, триллер, криминалРежиссер: Дэнни КэннонАктеры: Сильвестр Сталлоне, Арманд Ассанте, Роб Шнайдер, Юрген Прохнов, Макс фон Сюдов, Дайан Лэйн, Джоэнна Майлз, Джоан Чэнь, Бальтазар Гетти, Морис РоевзПеревод: Многоголосый профессиональный (Twister, Киномания, Екатеринбург Арт Home Video)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFFDB92CECC8292D39F0E95213A2B082FFF003F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595417   (131258) от 30.12.2012
-
-King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
-
->>Консольные Игры
->>PS2
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как может показаться, в The Ancient City судьба вселенной никоим образом не зависит от ваших действий. Ведь все решено уже без вас - в королевство был завезен мистический символ печали, вследствие чего все население пострадало от страшной чумы. Так как спасать уже попросту некого, все, что остается - вернуть проклятую статуэтку ее законным обладателям.
-
-Сюжет ограничивается одной лишь завязкой. Спустя пару-тройку часов вы наверняка забудете, кто ваш герой и какими судьбами он оказался в очередном пропахшем сыростью подземелье. И не даже не найдетесь, что вам кто-нибудь напомнит. Город опустошен, NPC можно пересчитать по пальцам, а разговоры сводятся к никчемным замечаниям.
-
-Главное, что сюжетная линия не сдерживает вас в действиях. Вы вольны следовать, куда угодно, и развлекаться, как угодно. Если желаете, порешите топором продавца в магазине, которому до этого сбывали найденные предметы. Никто вам не скажет ни слова упрека. Некому. Отсюда и доминирующие чувства одиночества, безысходности, неопределенности. Как (   Читать дальше...   )Жанр: RPGЯзык интерфейса: Multi-5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5A530B23B6D2CE000722571C9E27BB2D765417
 ```
 
 

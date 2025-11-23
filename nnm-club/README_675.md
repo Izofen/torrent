@@ -6,7 +6,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [AV1/2160p] [4K, HDR, 1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17870.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:82F072EA37D71B018184D45A88B826FC38744054
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17871.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ John Beltran - Serendipia, Serendipia Remixed (2023, 2024) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17872.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C66C103D846929450CECBF53B50E8C2ADA0B875A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17873.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ aCalendar+ Calendar & Tasks v2.9.0-2b Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17874.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F398EFE65BCF39067EAB0CA3BF9142B3DE744E38
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17875.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:7EF13E367F40199748349BDE12F8CF6161D510AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17876.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Cynthia Nims | Французская домашняя кухня: Основн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17877.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ FBReader Premium v3.8.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17878.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ TapScanner v3.0.71 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17879.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:49D546681ACBB41E3AD6BF08C34DBDADE0C594CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17880.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:2D27942D078C27005AADA433CA65CDE4DDF30D4B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17881.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Firefox Browser 138.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17882.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:903EF0E60CDD4E90C2B1AC02AE859575359F5195
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17883.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17884.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:353938B9021BEE1AE0784D3786936E30FAFFF37F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17885.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:8E43D63374AFE4FFA18647E7A3CB4F84872ABC96
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17886.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:32EFF3A7BC7F4CC275E0F8A9372BCF047D0CD928
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17887.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:5C62BAD5CB73A7A9CF8E9EE36DE965B684D93A74
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17888.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Scene Rune [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17889.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:A6A680BDA33221CC82B53420E294A284235EBAC2
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17890.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRemux [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17891.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:DC7234F29C6E80258DED7BF9148C8CFE1F1D12C9
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17892.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Omega Crafter (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17893.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.10.31 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17894.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:8FD66520E71E20A1EE122720647C14ADA76F1315
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17895.jpg" />
 </div>
 
 

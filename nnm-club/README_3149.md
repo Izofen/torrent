@@ -1,3 +1,76 @@
+###  Публикация: 1822582   (100979) от 07.10.2025
+
+Floorp Browser 12.2.1 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Floorp Browser – это модифицированная версия Firefox, созданная с акцентом на гибкость и настраиваемость. Браузер предлагает уникальные функции, такие как изменение интерфейса для имитации других браузеров, несколько рядов вкладок и оптимизацию памяти. Floorp Browser также исключает все функции телеметрии Firefox, обеспечивая уважение к приватности пользователей. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A87D34567E6E3118FFD93D0D78BC05C6087FCA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822531   (100980) от 07.10.2025
+
+Soft Organizer Pro 10.32 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EA4441BD1898643F981D5D2FE4042F2A8E3B88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822581   (100981) от 07.10.2025
+
+Жизнь в военное время / Life During Wartime (2009) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм является вольным продолжением фильмов Тодда Солондза «Счастье» (1998) и «Добро пожаловать в кукольный дом» (1995).
+Сюжет разворачивается вокруг сестёр Джордан: Триш, Джой и Хелен. Джой вышла замуж за бывшего соседа Хелен, Аллена Мелленкампа. Триш по-настоящему мечтает лишь о том, чтобы её новый муж стал хорошим приемным отцом её детей. Ведь настоящий отец мальчиков (   Читать дальше...   )Производство: США / Werc Werk WorksЖанр: драма, комедияРежиссер: Тодд СолондзАктеры: Ширли Хендерсон, Майкл Кеннет Уильямс, Рослин Рафф, Эллисон Джэнни, Майкл Лернер, Дилан Райли Снайдер, Киаран Хайндс, Рене Тейлор, Ребекка Чайлз, Пол Рубенс, Эмма Хинз, Шарлотта Рэмплинг, Элли Шиди, Рич Печчи, Гэби ХоффманнПеревод: профессиональный многоголосый (R5)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3C976E473FAE771677EDE80AB9C13E6618D191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822508   (100982) от 07.10.2025
 
 Книжная серия | Смешные детективы [258 книг] (2009-2024) [FB2]
@@ -6,7 +79,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100982.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ AIMP 5.40 Build 2696 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100983.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:22DD72AEA46958895CC3AAD2A4C31EADCABC905C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100984.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:69A00C4A8017F29392A62B21BC6E29C6CDC5997F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100985.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:00B29645D0B36A3B0E50FF4C481C5576C0B6335B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100986.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:CBD01FFC9B4D77621065CC9FF434DBB6E8C6FC58
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100987.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ Minimal Firewall 2.4.2 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100988.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ magnet:?xt=urn:btih:99A664D5553A37C2EF7326FA6CCFA005C9D097E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100989.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:5C267EB68E1B187642D84AFB1F6C1983A2640F0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100990.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:20ACBA5B939D9BC6BBB71BBB2117C88193687040
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100991.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ magnet:?xt=urn:btih:119B7507551A0858AF1E285B920297A9E63D719E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100992.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ magnet:?xt=urn:btih:E0D20FA89DA4BB84828931655756C464D044C112
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100993.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ MAX Desktop 25.12.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100994.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ magnet:?xt=urn:btih:E87ABE00E19E818DFF5CE8C8CFD2250FF7C9B7F0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100995.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:E87ABE00E19E818DFF5CE8C8CFD2250FF7C9B7F0
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100996.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ magnet:?xt=urn:btih:50FC5FDA456889C9875F0B6CEF8B0E42D959E88D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100997.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ magnet:?xt=urn:btih:B75E37C23CCE65B87C9CB4CEBE76BD1EFF9B5F75
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100998.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ magnet:?xt=urn:btih:E21369C7B40EEC18A2C1B1909B5D33BBA542D477
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100999.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ magnet:?xt=urn:btih:B23C679EC4DC6D87B33039F88DC2CA4083A6D66D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101000.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ PotPlayer 251002 (1.7.22623) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101001.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ magnet:?xt=urn:btih:AEB1EC351137F8A68C11D6CFC309913C6774F2F5
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101002.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ Reg Organizer 9.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101003.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ AIMP 5.40.2696 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101004.jpg" />
 </div>
 
 
@@ -551,78 +624,6 @@ AIMP – проигрыватель, включающий в себя множе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0423977E448EDF293756F905FFA953092C06246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822550   (101005) от 07.10.2025
-
-Reg Organizer 9.87 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60F861C093828757AD500295A46F609DCFD4724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822520   (101006) от 07.10.2025
-
-Книжная серия | Нескучный детектив [25 книг] (2004-2007) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101006.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Нескучный детектив" - серия детективов, которые ни в коем случае не скучные. В других сериях - всяко-разно, а в этой - гарантия. И если вдруг вам станет скучно - мы вернем вам... время!Жанр: ДетективИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD0AEF669F1478A02BCA467FE7A04E774CA6E0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822549   (101007) от 07.10.2025
-
-Internet Download Manager 6.42 Build 49 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2BE50DD7661956D1D1B13B9114BDDBCE85ACD9
 ```
 
 

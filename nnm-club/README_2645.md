@@ -6,7 +6,7 @@ VA - Black Hole House Music 03-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69518.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:246B8D0D098FC36470E63429E0BEEBC6E22318A5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69519.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Wily Bo Walker - The Rattlin Bone Theatre Show Volume 1 (2025) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69520.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C9DD74C251E4570A8B7A49C558625EAB1C334E10
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69521.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:EA3E80FCE413DDF12B565FE3A09CF5727EF774DE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69522.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Narrow Cold - Burning Tears (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69523.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ All Empires Fall - Chronicles of the Unseen (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69524.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:8E6C14197F81B540AC0FD4BC334A3008BE959FC7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69525.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Rainbows Are Free - Silver And Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69526.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:3B589041A53489AEA6C6302AFC321926D9611E87
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69527.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ HolyName - Rock Against Traffic (Live In Pomona) (2025) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69528.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:C193A55014F23FBBC4A5B8412A8C0D589F5EE3A1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69529.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Bud Powell - Jazz Giant (1949, 1950) 2001, Verve Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69530.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Bud Powell - Bud's Bubble (1944 - 1947) 2000, EPM Musique [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69531.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Art Pepper - The Way It Was! (1956 - 1960) 1989, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69532.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Art Pepper - The Trip (1976) 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69533.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E25E6EC71A36FBACB6915EF76166B84479D5CED5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69534.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:8B2C69BFB129A7DB27FC9E63C6165692D5E8AA60
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69535.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Smooth Moods Chill Out, Vol. 3 (2023) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69536.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69537.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69538.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69539.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69540.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:7989613652ABF4F1DD01024486792258AA8AC3AE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69541.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:D1249819F8371F194E6242E7009B7AB031681F6E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69542.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:BB96535D0A7CD8F69B7082581ABCDB50D669A54D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69543.jpg" />
 </div>
 
 

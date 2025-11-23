@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100290.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100291.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:636A19A0F60F8A1DDD7312AFAFA9B30E53CB986B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100292.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:63355C8F1500072A50E36F2A17831DDF7E753A28
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100293.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hatebeak - Дискография из 3х альбомов (2004-2007) [MP3|224
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100303.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2FD81ABDF278DC02C457509EBA42BCBAFBD9A716
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100305.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:09F5EA940645BF5640474BD1549A48DBFA23995B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100309.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B33FCDB8D99FB5C530EFD764B11280157F258762
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100316.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Ilkan Gunuc ft. JJ - Rain (Vdj Rossonero) (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100322.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:EE3E08ADFAB1E5EBC6AB1FB3C63127AC0D3376B1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100325.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:7E9FFE8BFE701708ADD0AB833F0D61899128B761
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100332.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Sexy Anime Girls
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100340.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:4F0ED9F2930E65E596BB9FBDD26C2717C311967A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100342.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Cattle Decapitation - The Harvest Floor (2009) [FLAC|Lossless]<Brutal Technical 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100350.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100350.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Cattle Decapitation - The Harvest Floor (2009) [FLAC|Lossless]<Brutal Technical 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100358.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100358.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cattle Decapitation - The Harvest Floor (2009) [FLAC|Lossless]<Brutal Technical 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100362.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:40817D6BC54C79B2A96598E7B6B49A7752FB7CE1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100371.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:97D3A03450511D62CFCFC5F2F7C38B545248FD70
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100372.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:F99ADA6D1EC04000253166705794F0DAB452DFF4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100374.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:69F9E9928EB7B9560A2E0121E117311D9E747147
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100376.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8800818E4E0144A71F35D0ABEA9C5F17C3293E5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100380.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:2CAB754ED72FDE41831B53764AAC5091E112957C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100382.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:0B1550822D08BABD236F4D0146CB74763DF1C1A5
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100383.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:FD656588E966367AA7F94A50433485084E12F18F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100384.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:3F7B93109E36089C3C05EAAB8CBE157CAF2A490F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100387.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:6DA97D392E5D2478D42C17EF86B42B90ED9D1DE4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100388.jpg" />
 </div>
 
 

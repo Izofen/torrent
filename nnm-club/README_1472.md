@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38625.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CF9167F3E9350C95BF8479563C3879622EAF3098
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38626.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.105/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38627.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A0FB2D8691C49B06C53F0C6EB36EFC05C9EF43C2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38628.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Karing 1.0.31.429 + Portable [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38629.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C6100DC2390CD475A1B91F429AC17CE80AF2456B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38630.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F8B31619F29A559DBF782F77A03D7CADBBD0F073
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38631.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:D0F14DB30DD7072F96DBEE70BCC27629E380ED0E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38632.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:85E97775EC7E5B8D193E130CDBAD36AFCA7C9548
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38633.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:DF7A4EDC490069181A5A6D401F6DE0BD4BEDF0A9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38634.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:523BC4B7E2D3279512E465871060D8FAD69D1C6B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38635.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ BiglyBT 3.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38636.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:AEF652679D0FA944AB88B0A799756B22E71D715A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38637.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Boeing  выходит из битвы за космос
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38638.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Boeing  выходит из битвы за космос
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38639.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:512F3246A7C4111C04BAF2EF35742FA3BAD4DC63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38640.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A6F48B16C85135DE34B736779A71364B079AFD6D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38641.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38642.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:0795988FFCB5BB9EF16AAC4B3123FDFAAC3AA67D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38643.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:CE9E61856B2467DB986F56ED744CA962BA7423BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38644.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:2AAB70552072DE4FB1A0DD5647F8B82426080FDF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38645.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.11.4 Mod by Balatan  [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38646.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:B129F391EC4E70ACC5CF91AF4570863CC248FBBC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38647.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Shadows of the Damned: Hella Remastered (2024) [Multi] (Build 15991776) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38648.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38649.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38650.jpg" />
 </div>
 
 

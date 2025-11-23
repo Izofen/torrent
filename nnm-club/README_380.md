@@ -6,7 +6,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10035.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop 2025 26.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10036.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4D94CB060EA25EBDEDA4F470C52938CE680713BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10037.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ABFD46D1D941D08B14ADB868E6B9FFD391104CC7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10038.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:928A0E5C961EA10F14F74153880632CB7A828CAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10039.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:417819F0CEDD1ED68B950BE60B4F197444ABAA17
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10040.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EBE0D0440144035266A1F464B60FB4AA72AFCE58
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10041.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:007103A58E40F59D3202D989195FB1B69AF640D3
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10042.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6C99358C1B4C912511CFCF4CB672E3D807E94EA6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10043.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:5802D3E8C98E0725FF7C746DBE13A592D06C0FCD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10044.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:63928449B6FF9D39B279D3F3D08154063476DF91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10045.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:C4367679BFC1905A54237DEA7BF0D7C844417372
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10046.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:4B8046FC64EAD4BB42E0248E5CD8C18E3A49314B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10047.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8148581FA1A61ED85BB3C385C7940C47BDD52D0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10048.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Bikini Machines, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10049.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:460265E9BC047BFFBAE4FBFF7CE5694AE6BF6C33
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10050.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:3D2D799E0DB45D24FC545FB973DEEE72BD2448B6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10051.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:E605BDFCCE5B84699723401AF67940D9273D21A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10052.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:929BE1B9069E3545AEAED90D78B7B0287B7A9155
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10053.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:F5559C80BE5B9D756C22C35A27BB10CC7AFCA06D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10054.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:142851CCFA8BAF91BBA391F59012ECCBF8BF6506
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10055.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:1EEB574B0169307B81691C0F34177463B5DC4B2F
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10056.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:5BB0CFF976C3797513550F3F6F5312880D0502C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10057.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Pretty Maids - Original Album Classics (2015) Japanese Edition, Box Set, 5XCD, C
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10058.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:FF2DDBC63E1C4607F2E194C03F3D679B8518E367
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10059.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10060.jpg" />
 </div>
 
 

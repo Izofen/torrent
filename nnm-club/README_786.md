@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20762.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.2-CL30128/dlc) Repack Other s [Deluxe Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20763.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:772FCFCC4D53BF1F84EE4836DC053D2475E160D2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20764.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20764.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ProScalping, Игорь Максимов | Обучение скальпингу
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20765.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AECCAA472FE498720EAFF8B7225AE90B6766CEFF
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20766.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3722B4A604C39E02A15AB2DB5B014DDF28B565AE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20767.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20767.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6A84FAE56A815C16904B5D299C5A2C5A17A73883
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20768.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20768.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8CCC378F95B39261EC7D5D9CA4ED6225A1C8E709
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20769.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:566199810BAF8737A1FD522DCB350DA95A248E1D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20770.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20770.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:6E95BF7C446FC3C0F0E03EE15CEB25F838E8C27F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20771.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20771.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:24079E1513AB29D0FA0B365B424781AC1F899512
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20772.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:DF05448DEFDCF514BFBA3C6E1BA2A30FCDF54E73
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20773.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:DC46EB7D340F2CB8D7A4A9F0C0EBBF5C6D17032B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20774.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:7D2E0212E6FF38110F0616F6EA4C747EC033D421
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20775.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:6E6849AC533D894EFC2A595773AF41701CCC97F1
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20776.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v24 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20777.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:C393F5ADC7A12108463D42F89C4B70FA0DAD8007
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20778.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:00480B083A4EFB94636BD673D67A71DD743EC841
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20779.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:00480B083A4EFB94636BD673D67A71DD743EC841
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20780.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:D66382E5CD34BE233D3FAE99DA90B58413E6757A
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20781.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4578960EECACDB855A687D92B0DC120A36782D2E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20782.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B26FCC0594F00CDB7C92F4D403763BA09AE1AB7F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20783.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20783.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Rappi Rangai | Ninja Girls | Девушки-ниндзя (2005) [9 томов, 4
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20784.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Music News For Forum vol.076 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20785.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Fan Control V220 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20786.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:49B719788F0F3C69B9BE5368B361A3A5C8E68BEC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20787.jpg" />
 </div>
 
 

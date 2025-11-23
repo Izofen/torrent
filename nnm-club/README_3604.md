@@ -1,3 +1,78 @@
+###  Публикация: 1707214   (113386) от 15.03.2024
+
+Индрик | Велий еси Господи… Жизнь и проповедь святого Гавриила Ургебадзе, исповедника и юродивого (2016) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113386.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге воспроизводятся рассказы о святом подвижнике и юродивом XX в. Гаврииле (Ургебадзе), переданные специально для данного издания людьми, близко знавшими о. Гавриила при его жизни. Составитель уделил особое внимание тому, чтобы повествование об о. Гаврииле сохранило дух живого, искреннего рассказа очевидцев, оставаясь именно свидетельством подвигов святого, способным (   Читать дальше...   )Жанр: ПравославиеИздательство: ИндрикФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BAA5F450421822AB97FC47123930D5F2AB8207
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707053   (113387) от 15.03.2024
+
+Журнал | Психология и Я №03 (156) (март 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – взаимоотношения между мужчиной и женщиной, родителями и детьми. С помощью профессиональных психологов и жизненного опыта самих читателей Вы найдете ответы на сложные жизненные вопросы. В каждом номере Вас ждут советы и рекомендации, которые помогут (   Читать дальше...   )Жанр: ПсихологияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E908877F2A90F1D5242BA404C148B5B9FB9B901F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706968   (113388) от 15.03.2024
+
+James Carter - Axtone House Party (2024-03-11) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supermode - Tell Me Why (James Carter Remix)
+02. ID - You're Not Alone (James Carter Remix)
+03. Piero Pirupa - Change Your Mind (Korolova Remix)
+04. Emmit Fenn - The Chase (Rebūke Remix))(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1518E45FD42468D77A900933E20B43E6D57A34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707036   (113389) от 15.03.2024
 
 Bike Outliner for Mac 1.18.1 [En]
@@ -6,7 +81,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113389.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:C1EF92DD1AEB714453EECA832B43DD2B63DC5CC6
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113390.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:D537ACCC02B78A11B7E4129EF3BCEF6ECE9CF631
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113391.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ Autopilot - It Might Be Gone Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113392.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ Cave - Out Of The Cave (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113393.jpg" />
 </div>
 
 
@@ -134,7 +209,7 @@ Lutharo - Chasing Euphoria (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113394.jpg" />
 </div>
 
 
@@ -161,7 +236,7 @@ Vltimas - Epic (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113395.jpg" />
 </div>
 
 
@@ -188,7 +263,7 @@ Devastator - Conjurers of Cruelty (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113396.jpg" />
 </div>
 
 
@@ -215,7 +290,7 @@ After Infinity - After Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113397.jpg" />
 </div>
 
 
@@ -242,7 +317,7 @@ RAW Power 3.4.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113398.jpg" />
 </div>
 
 
@@ -267,7 +342,7 @@ magnet:?xt=urn:btih:3E38DC59673429EEEB7AD3275B6D77BE734FA19E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113399.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ Fred Chapellier - Live In Paris (2024) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113400.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ KCNcrew Pack 03-15-24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113401.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ Topaz Photo AI 2 for Mac 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113402.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ magnet:?xt=urn:btih:170277AF266AF52E014A0A12F48B368EAE1CB4DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113403.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ Skype 8.114.0.214 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113404.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ magnet:?xt=urn:btih:B3E140CBFDD51B7C4A0AF47D24DD6CE396C55BCE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113405.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ Dato 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113406.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ Desktop Stickers 2.72 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113407.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|WEB-DL|tracks] <Sout
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113408.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ Topaz Gigapixel AI for Mac 7.0.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113409.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ VA - 10 Years Of Suanda Music - Alex M.O.R.P.H. (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113410.jpg" />
 </div>
 
 
@@ -567,7 +642,7 @@ Labels and Databases 1.7.11 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113411.jpg" />
 </div>
 
 
@@ -579,81 +654,6 @@ The Labels and Databases — это приложение для создания
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4206F88E51ECCA7C3E819692FC2BA2E06C9AB82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707175   (113412) от 15.03.2024
-
-Gotus - Gotus (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To The Mountain (3:49)
-02. Beware Of The Fire (3:57)
-03. Love Will Find Its Way (5:51)
-04. Undercover (3:30)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F0FF903D78C38CAD0AEB20B0D3215ACCCE6319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707223   (113413) от 15.03.2024
-
-Телепат / Stir (1980) BDRemux [H.264/1080p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о восстании заключенных, произошедшем в тюрьме Батерст в 1974 году. Сценарист этого фильма был заключенным в тюрьме Батерста, когда бунтующие заключенные разорили тюрьму и при написании сценария он опирался на свой собственный тюремный опыт и результаты расследований беспорядков в Аттике и Батерсте.Производство: Австралия / New South Wales Film Corp., Smiley ProductionsЖанр: Боевик, триллер, драмаРежиссер: Стивен УоллесАктеры: Брайан Браун, Макс Фиппс, Дэннис Миллер, Гарри Уоддэлл, Фил Мазервелл, Майкл Гоу, Edward Robshaw, Текс Мортон, Рэй Маршалл, Сид ХейленПеревод: Авторский (Андрей Дольский)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72899473F4B1DC3E5E40C2EBEBFD589A5B033CA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707230   (113414) от 15.03.2024
-
-Белый город | О любви, о браке, о детях. Священное Писание и церковный опыт (2016) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113414.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны цитаты из Священного Писания и высказывания святых отцов и священников о любви к Богу, к ближнему, о любви между мужчиной и женщиной, о сути брака, о семье, детях – то, из чего во многом складывается жизнь обычного человека.Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A753DE8994A79E5E9C9B7AAF35D846124057F9C2
 ```
 
 

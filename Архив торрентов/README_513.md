@@ -6,7 +6,7 @@ PullTube 1.8.5.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Allavsoft Video Downloader Converter 3.26.2.8837  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113546.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FCCF4DFAA60A14BE2D392FC886A6EB1FD5D69915
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113557.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0B18515AA1D828C6B5365C48652A00F66C035BD4
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113558.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113565.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ CudaText 1.210.5.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113568.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Alfred PowerPack 5.5 Release Candidate [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113570.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Microsoft .NET 6.0.28 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113578.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Perfectly Clear WorkBench 4.6.0.2642 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113581.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Things 3 v.3.20.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113585.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Vivaldi 6.6.3271.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113589.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Google Chrome 122.0.6261.129 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113598.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ OBS Studio 30.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113599.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5B77F03D4427732ACFF2C2694648B1F1173B120D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113601.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Google Chrome 122.0.6261.129 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113606.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Microsoft .NET 7.0.17 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113611.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ TechSmith Snagit 2024.2.1 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113614.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ TechSmith Camtasia 2023 Studio 2023.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113618.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113625.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Notebooks – Write and Organize 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113626.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ EazyDraw 11.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113627.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Piezo 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113628.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Keep It 2.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113630.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113643.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ QOwnNotes 24.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113657.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Wondershare UniConverter for Mac 15.5.2 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113673.jpg" />
 </div>
 
 

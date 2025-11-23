@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67698.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0411DCF707816291DBCDB7DD7E19C39C1EA66945
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67699.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pixel Music AI - Electro Swing, but in Japanese (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67700.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E34BD715212B5B3B40C365F119739950B7180631
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67701.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6FF5FF94A652D99EC25F5A2FE2B8C8BF781860A3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67702.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A3DA150A689045A3AD9D07C2276637192A647584
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67703.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:D14D81CFA3BC9F3949D705CC7792DAE77FF04A8A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67704.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ InnoExtractor Ultra 10.2.1.134 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67705.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3292C135C07C987BF30C2CF269F0F461E02794BB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67706.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:1304491322E15433AA28569C1514C0162FDE4B97
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67707.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Smart AudioBook Player Pro v11.2.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67708.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:053863DC29A36DBDD8E1AE89528A68B05B48430C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67709.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Compilation Part 157 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67710.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:725541ACE99A47A7BBD616068BA9D0AFF76CAB03
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67711.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Music News For Forum vol.075 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67712.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Sonic Space (2024) [MP3|320 Kbps] <Space Music, Ambient>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67713.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Shazam v15.18.0-250410 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67714.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:C62556ED19E61B1BFE4D2BF9B9795CBA30EAE0EB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67715.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:C83A94FF4A84680B95F7E53A9CD2F1B5C3FB3C48
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67716.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:C6839DC9248E44551D3CC8BD9697D07F28977CA0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67717.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:64B86C72E11AA4FE4F774EF0BADB9C7A2055CD67
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67718.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ OCCT 14.0.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67719.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Photo Studio PRO v2.8.1.4152 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67720.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:90698FA6FB0FECEB5ED15DAE0935AF4F081E1DB8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67721.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.9.5 Mod by youarefinished 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67722.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:E44AA8FD72E9902560E23B6FE182E1DF8E8B3FAD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67723.jpg" />
 </div>
 
 

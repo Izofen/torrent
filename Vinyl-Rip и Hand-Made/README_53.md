@@ -1,3 +1,110 @@
+###  Публикация: 1524571   (193069) от 29.10.2022
+
+A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Synth-pop, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_193069.jpg" />
+</div>
+
+
+###  Подробнее
+
+A-ha  -  норвежская музыкальная группа, созданная в 1982 году в Осло и работающая в стиле электро-поп, появившемся на излёте «новой волны». Музыке a-ha присущи графичный, холодноватый («скандинавский») стиль, синтезаторно-гитарное звучание, выразительная балладная мелодика.1985 - Hunting High And Low
+1986 - Scoundrel Days
+1988 - Stay On These RoadsЖанр: Synth-pop, Pop-RockПродолжительность: 15:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6E87A8C13DF60FD4F9A6F402FE1684CDF4C819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657298   (193101) от 02.09.2023
+
+Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
+2002 - Dreamtower
+2004 - Lapse Of Reality
+2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313506   (193138) от 29.10.2022
+
+Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_193138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Whole Lotta Shakin' Goin' On
+A2 Great Balls Of Fire
+A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657087   (193139) от 02.09.2023
+
+Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193139.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A-me-ri-ca
+A2 If I Had A Hammer
+A3 Bye Bye Blackbird
+A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657185   (193142) от 02.09.2023
 
 Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Metal>
@@ -6,7 +113,7 @@ Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193142.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193142.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193169.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193169.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193218.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193218.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193257.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193257.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Amorphis - Дискография (26 releases) (1991-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193411.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193427.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193427.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193512.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193512.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194449.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194449.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ Frank Sinatra - 16LP Box Set Mobile Fidelity 'Sinatra Silver Box' VinylRip 24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194900.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_194900.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196226.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197851.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197851.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198016.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_198016.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ magnet:?xt=urn:btih:142276DB4C98E42D32D55206876FF2255603C103
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198325.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198325.jpg" />
 </div>
 
 
@@ -357,7 +464,7 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198677.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198677.jpg" />
 </div>
 
 
@@ -384,7 +491,7 @@ Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофи
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199452.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199452.jpg" />
 </div>
 
 
@@ -411,7 +518,7 @@ Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199581.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199581.jpg" />
 </div>
 
 
@@ -438,7 +545,7 @@ Overkill - Studio Albums (21 releases) (1985 - 2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199804.jpg" />
 </div>
 
 
@@ -465,7 +572,7 @@ Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199887.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199887.jpg" />
 </div>
 
 
@@ -492,7 +599,7 @@ Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200228.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200228.jpg" />
 </div>
 
 
@@ -519,7 +626,7 @@ Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ital
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200378.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200378.jpg" />
 </div>
 
 
@@ -546,7 +653,7 @@ Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200488.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200488.jpg" />
 </div>
 
 
@@ -570,7 +677,7 @@ VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Ch
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201399.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201399.jpg" />
 </div>
 
 
@@ -584,119 +691,6 @@ VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E59F93A57D00DBF3E160F82898F2EDB6649956B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599189   (201512) от 09.03.2023
-
-In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal, Melodic Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201512.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Flames — шведская музыкальная группа, играющая в жанре мелодичный дэт-метал.
-Группа была основана в 1990 году ударником и гитаристом Йеспером Стрёмбладом как сайд-проект его основной группы Ceremonial Oath.
-В 1993 году Стрёмблад покинул группу и сосредоточился на In Flames. К нему присоединились гитарист Гленн Люнгстрём и басист Йохан Ларссен, сформировав первый (   Читать дальше...   )1994 - Lunar Strain + Subterranean (EP)
-1996 - The Jester Race
-1997 - Whoracle
-1999 - ColonyЖанр: Melodic Death Metal, Melodic Groove Metal/MetalcoreПродолжительность: 13:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E212FBF43AC8B9EA9521815678762830BA9F98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617270   (201677) от 07.03.2023
-
-Оркестр Поля Мориа - Бабье Лето (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201677.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Бразильский Карнавал · Brasilia Carnaval
-A2 Бабье Лето · L'ete Indien «Africa»
-A3 Мелиза · Melisa
-A4 Так Лучше · C'est Mieux Comme Ca(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCFFDA9286168ECDA880FD6ABE74EA3A11A2871
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829272   (202040) от 25.10.2025
-
-Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vinyl Rip] <Electronic, Ambient, New Age, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Gate (2:05)
-02-Push The Limits (6:35)
-03-Gravity Of Love (4:02)
-04-Smell Of Desire (4:49)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age, DowntempoПродолжительность: 02:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510172   (202566) от 19.02.2023
-
-Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Folk Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One:
-01. Lay, Lady, Lay
-02. Baby, Let Me Follow You Down
-03. If Not For You(   Читать дальше...   )Side One:
-01. Romance In Durango (Live)
-02. Señor (Tales Of Yankee Power)
-03. Gotta Serve Somebody(   Читать дальше...   )Жанр: Rock, Folk Rock, Blues RockПродолжительность: 03:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4837B27E6E20DF1EAA4CDD7435D9AAA3AED3CEAB
 ```
 
 

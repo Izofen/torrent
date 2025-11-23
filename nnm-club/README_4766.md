@@ -1,3 +1,180 @@
+###  Публикация: 969533   (147730) от 27.12.2015
+
+Журнал | Дачный совет №26 (декабрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147730.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачный совет» - верный помощник для садоводов и огородников в самый разгар дачных работ. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации адвоката, а также календарь дачных работ.Жанр: Дача, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C089AA394923FD7AD5975E7606920FB0AF901C5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086879   (147731) от 26.12.2016
+
+Холодное сердце (2016) HDTVRip (серии 1-2 из 2)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна и Михаил - счастливые родители, их дочке Юле уже десять лет. Девочка родилась с пороком сердца и едва не умерла сразу после рождения. Родители окружили Юлю заботой, любовью и привыкли исполнять любые ее пожелания. После трагической гибели мужа Аня полностью посвящает себя дочери, работает сиделкой и даже не помышляет о личной жизни. Тем временем из капризного (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Екатерина ДвигубскаяАктеры: Ксения Алферова, Мария Лисовая, Андрей Фролов, Виталий Кудрявцев, Екатерина Соломатина, Сергей Греков, Светлана Виноградова, Наталия АринбасароваПродолжительность: ~01:29:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03EB5CCEDD929C67E7830C0787C5DF5232EDD45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418824   (147732) от 24.12.2021
+
+Ричард Докинз | Собрание сочинений [15 книг] (2008-2022) [FB2, EPUB, PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ричард Докинз (Clinton Richard Dawkins) – английский этолог, эволюционный биолог, доктор философии, учёный и популяризатор науки, член Королевского литературного общества.
+Родился 26 марта 1941 в Найроби. Учился в Баллиол-колледже, Оксфорде.
+
+С 1995 по 2008 годы работал профессором Оксфордского университета. Всю жизнь посвятил изучению зоологии, исследованию поведения (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Научно-популярная литература, Генетика, Естествознание, Общая биология, Палеонтология, Биографии и Мемуары, Публицистика, Религиоведение / история религийФормат: FB2, EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437B1D218D9C8B4C4FF3E957E84CA2C276385B45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 244726   (147733) от 24.12.2019
+
+Half-Life 2: The Orange Box (2007) [Ru] (1.0) Repack R.G. ReCoding
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Half-Life 2: Orange Box - новый продукт от компании Valve, включающий в себя не только долгожданный Episode Two, но и две не менее интересных и увлекательных игры. Half-Life 2: Episode Two - долгожданное продолжение культовой части «Half-Life 2», получившей более 35 наград «Игра года» от множества изданий по всему миру. Episode Two - продолжение знаменитой саги, (   Читать дальше...   )Тип издания: RepackРазработчик: Valve CorporationЖанр: FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8814090FA63B897333C1F62A235BE1C87117B20F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271931   (147734) от 25.12.2018
+
+Cowboys & Frenchmen - Bluer Than You Think (2018) Outside in Music [FLAC|Lossless|WEB-DL|tracks] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayfarer 08:04
+02. Beasts 08:58
+03. Companion Plan 07:04
+04. Lilies Beneath the Bridge 06:00(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4155A1C63FAF406F7967F25F726147DABD144E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678051   (147735) от 20.11.2023
+
+Johan Kihlberg's Impera - Spirit Of Alchemy (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Will Last
+02. Read It And Weep
+03. All About You
+04. When Souls Collide(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209970410A42D44F2037D0ED22F8C8D002BEEC1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434850   (147737) от 26.12.2020
+
+Экшены - GraphicRiver - Art Mix Photoshop Action - 28178955 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147737.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Art Mix» - действие фотошоп превратит ваши обычные фотографии в художественное полотно с эффектом стиля современной графики. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8C82BCEC0B349C50168D3802A1C3389AFEA556
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347604   (147739) от 24.12.2019
 
 Маяк / The Lighthouse (2019) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +183,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147739.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ Ummy Video Downloader 1.7.2.4 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147740.jpg" />
 </div>
 
 
@@ -55,7 +232,7 @@ magnet:?xt=urn:btih:B78C913600C9B08DA61AC58963C1A1FFCE225075
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147741.jpg" />
 </div>
 
 
@@ -81,7 +258,7 @@ magnet:?xt=urn:btih:22BEDAD9AF20BB1B8348D74487EB1F1ECB6C7255
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147742.jpg" />
 </div>
 
 
@@ -107,7 +284,7 @@ Embryo - Embryo (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147743.jpg" />
 </div>
 
 
@@ -134,7 +311,7 @@ Avkeys 1.3 [Русский, английский ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147744.jpg" />
 </div>
 
 
@@ -158,7 +335,7 @@ Avkeys - данное приложение служит для сброса пр
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147745.jpg" />
 </div>
 
 
@@ -183,7 +360,7 @@ Udemy, Clyde Matthew | Секреты веб-разработки 2020 - CRP, HT
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147746.jpg" />
 </div>
 
 
@@ -208,7 +385,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147747.jpg" />
 </div>
 
 
@@ -235,7 +412,7 @@ Woodtekr - Best In Me EP (2015) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147748.jpg" />
 </div>
 
 
@@ -262,7 +439,7 @@ VA - Sound Check No. 99 (2009) [FLAC|Lossless|tracks + .cue] <Punk, Pop Rock, He
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147749.jpg" />
 </div>
 
 
@@ -289,7 +466,7 @@ Selection Project / Отборочный проект [2021, TV, 13] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147750.jpg" />
 </div>
 
 
@@ -313,7 +490,7 @@ Windows 10 PRO VL 1909 x64 Rus by OneSmiLe [18363.535] (24.12.2019)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147751.jpg" />
 </div>
 
 
@@ -340,7 +517,7 @@ Light Alloy 4.9.0 Build 2318 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147752.jpg" />
 </div>
 
 
@@ -364,7 +541,7 @@ JixiPix Rip Studio Pro 1.1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147753.jpg" />
 </div>
 
 
@@ -388,7 +565,7 @@ magnet:?xt=urn:btih:980B10016E0ED40972636626BA7F2EFB90D02475
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147755.jpg" />
 </div>
 
 
@@ -412,7 +589,7 @@ magnet:?xt=urn:btih:6FDCF2ABD3F84E21399069315F8DC28CECF77A57
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147756.jpg" />
 </div>
 
 
@@ -436,7 +613,7 @@ magnet:?xt=urn:btih:9637E4E36C141D54D84B16339719BE7181A78A19
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147757.jpg" />
 </div>
 
 
@@ -460,7 +637,7 @@ P.J. Perry And The Edmonton Symphony Orchestra (1999) Justin Time [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147758.jpg" />
 </div>
 
 
@@ -474,177 +651,6 @@ P.J. Perry And The Edmonton Symphony Orchestra (1999) Justin Time [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EF60798A1414E2AF5F25A1960F266B044D6FEDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339379   (147759) от 24.12.2019
-
-Темные начала / His Dark Materials (2019) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8) HDRezka Studio
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лира Белаква живёт в мире, где существуют ведьмы и бронированные медведи, а у людей есть деймоны — существа, составляющие неотъемлемую часть их личностей. Опекун девочки, исследователь лорд Азриэл, находит способ передвигаться между параллельными землями, благодаря чему Лира знакомится с мальчиком Уиллом, который живёт в мире, лишённом магии.Производство: Великобритания, США / Bad Wolf, British Broadcasting Corporation (BBC), New Line CinemaЖанр: фэнтези, драма, приключения, семейныйРежиссер: Джейми Чайлдс, Уильям МакГрегор, Отто БатхёрстАктеры: Дафни Кин, Джеймс МакЭвой, Рут Уилсон, Лин-Мануэль Миранда, Кларк Питерс, Дэвид Суше, Иэн Гелдер, Уилл Кин, Эрион Бакаре, Рута Гедминтас, Энн-Мэри Дафф и др.Перевод: Многоголосый профессиональный, закадровый - HDRezka StudioПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDD91CF27F87C187294343E6D58A358C044FF6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519425   (147760) от 24.12.2021
-
-Красивый, плохой, злой: Начало / Ted Bundy: American Boogeyman (2021) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вновь рассказанная история печально известного убийцы Теда Банди. В поисках своей следующей жертвы, он призраком бродит по шоссе суровой декадентской Америки 1970-х годов. Его выслеживают бесстрашный детектив Кэтлин Макчесни, работающая в полицейском управлении Сиэтла, и профайлер Роберт Ресслер из отдела поведенческой науки ФБР. Вместе они организуют крупнейшую (   Читать дальше...   )Производство: США / 1428 Films, Green Light PicturesЖанр: КриминалРежиссер: Дэниэл ФаррандсАктеры: Чад Майкл Мюррэй, Холлэнд Роден, Джейк Хэйс, Лин Шэй, Грир Грэммер, Оливия ДеЛаурентис, Джулианна Коллинз, Джианна Адамс, Дешил Коннери, Энтони Де ЛонгисПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C462ADB169B050B822ECA16E811D5F3ABC2A5C2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271731   (147761) от 25.12.2018
-
-Abnormal Thought Patterns - Altered States Of Consciousness (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distortions of Perception (4:33)
-02. Nocturnal Haven (9:52)
-03. Blindsight (4:06)
-04. Synesthesia (6:03)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACB9CC2CD97EE94742B9E0034EC66CDBF6AA34C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347661   (147762) от 24.12.2019
-
-Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Наши Воины [2015-2016, TV, 24 эп.] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Август 20XX-го. В Гинзе — самом фешенебельном районе Токио — появляется загадочный портал, ведущий в параллельный мир. В ту же минуту самобытные «Врата» начинают изрыгать орды монстров и прочих отвратительных созданий, превращая торговый район города в бродячий цирк уродов, жаждущих разрушений. Японские Силы Самообороны не заставляют себя долго ждать. Оперативно (   Читать дальше...   )Производство: A-1 PicturesЖанр: Приключения, ФэнтезиРежиссер: Кёгоку ТакахикоПеревод: Надписи/Полные |Субтитры: РусскиеПродолжительность: ~ 25 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0642B0B72A1B253A6397AFB83733A785D0CEDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434886   (147763) от 26.12.2020
-
-State of Survival v1.9.90 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147763.jpg" />
-</div>
-
-
-###  Подробнее
-
-State of Survival - постапокалиптическая стратегия, действие которой разворачивается спустя шесть месяцев после распространения зомби-вируса. Пользователь отправится в пустоши, чтобы основать свое убежище для оставшихся выживших.Тип издания: Пиратка (Мод)Релиз состоялся: 23 декабря 2020 г.Разработчик: KingsGroup HoldingsПоддерживаемая ОС: Android 4.1 и вышеЖанр: СтратегияЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB1E22871CE3C5486937F20DD4D8964B71AB8DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086954   (147764) от 26.12.2016
-
-Light Alloy 4.9.0 Build 2318 Final + Portable [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light Alloy - компактный мультимедийный плеер. Поддерживает все распространённые мультимедийные форматы. Основная особенность - простота использования и в то же время многообразие настроек. Проигрыватель оптимизирован для быстрого запуска и минимальной загрузки системы. Быстро перематывает видео, умеет загружать субтитры, может сворачиваться в трей, умеет регулировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5DEC2D13B7B2639360E63A0C57F94286D16E58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739243   (147765) от 27.12.2013
-
-QuickTime 7.7.4.80.86 Pro RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147765.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuickTime - это мощная, надежная, гибкая платформа с широчайшими возможностями для работы с мультимедийными технологиями, дающая широчайшие возможности. При помощи QuickTime Pro вы можете преобразовать файлы в формат, оптимизированный для iPhone, iPad, iPod, Apple TV и других устройств.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC510F2D040B4E8A675450ACB645AC1A74E346D
 ```
 
 

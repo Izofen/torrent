@@ -6,7 +6,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5874.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:986CCCF5959B86ED8C91CE182F9991E46E83AE5E
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5881.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5884.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Let'sРlay [Pre
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5910.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6009.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6018.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enha
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6030.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6037.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Forgotten but Unbroken (2024) [Multi] (1.2.2) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6041.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6042.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Witch Way (2025) [Multi] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6043.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6046.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,547) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6050.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1674/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6052.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6055.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.3/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6064.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack Let'sРlay [Director's Gut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6067.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Detective Club 2: Gallery of Shadows (2025) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6112.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6145.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6159.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Wanterlude [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6164.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6167.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6169.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.7) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6170.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ To the Eden (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6177.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lost Twins II (2) (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6183.jpg" />
 </div>
 
 

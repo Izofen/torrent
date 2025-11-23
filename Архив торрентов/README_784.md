@@ -1,3 +1,76 @@
+###  Публикация: 1674913   (160556) от 07.11.2023
+
+Quick CPU 4.8.0.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quick CPU — это приложение, разработанное для точной настройки и мониторинга производительности процессора, параметров питания и напряжения, таких как: парковка ядер, масштабирование частоты, Turbo Boost, C-States, Speed ​​Shift и FIVR Контроль, а также некоторые другие возможности.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891715066FE0C87004BCC05BD18A0B121ACD5DCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674890   (160561) от 07.11.2023
+
+ProfiCAD 12.3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160561.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProfiCAD - программа, которая будет очень полезна работникам технических профессий и учащимся технических ВУЗов. Она представляет собой простой редактор, предназначенный для создания электрических схем и прочей похожей документации. Библиотека данного приложения включает в себя практически все существующие элементы для схем, которые разбиты на группы для обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DED246C7C5E2CAAC4A79C64D3142A56EA0126D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674935   (160564) от 07.11.2023
+
+Ashampoo UnInstaller 14.00.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo UnInstaller 14 поможет вам установить, протестировать и удалить программы без следа (и без забот). Вамрешать, что останется, а что должно исчезнуть с вашего ПК!
+Программа тщательно контролирует каждый процесс установки, что позволяет выполнить полное удаление, при желании. Можно удалить даже те установки, которые не были проконтролированы – всё благодаря (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26AD0902ADF8D576862CD6A5F22354FD88ADFEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674982   (160565) от 07.11.2023
 
 VPN Russia - VPN сервера в России 1.181 [Ru/En]
@@ -6,7 +79,7 @@ VPN Russia - VPN сервера в России 1.181 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160565.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Total Commander 11.02 RC6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160566.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Ashampoo WinOptimizer 26.0.0.19 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160567.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ NoMachine 8.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160569.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Tiny Scan: PDF Document Scanner 6.0.3 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160570.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Firefox Browser 119.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160573.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ Topaz Photo AI 2.1.0 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160574.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ TweakPower 2.046 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160575.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:A662DDC4C309F30E3A34D1DA5B6E3FED9A346450
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160579.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ Viber 21.3.0.2 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160580.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ Ashampoo UnInstaller 14.00.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160581.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ MAGIX Samplitude Music Studio X8 19.0.3.23131 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160582.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ XYplorer 25.10.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160583.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ DxO PhotoLab Elite  7.1.0 build 94 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160588.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ PIDKey Lite 1.64.4 b35 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160589.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ CareUEyes 2.2.9.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160590.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ Telegram Desktop 4.11.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160592.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ PortableApps.com Platform 26.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160593.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ Logic Pro X 10.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160597.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ Topaz Video AI 4.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160599.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ PDFsam Basic 5.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160603.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ Ungoogled Chromium 119.0.6045.105-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160605.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Photo Lab 3.12.74 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160611.jpg" />
 </div>
 
 
@@ -556,79 +629,6 @@ Photo Lab - лаборатория фотоприколов у тебя в ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C11C16B7B12F8DDAA3C9BC9E48AC7DC2FD27D9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675006   (160616) от 07.11.2023
-
-dict.cc+ Wörterbuch 12.0.4 [Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Словарь для 51 языковой пары, пригодный для использования с подключением к Интернету или без него (автономный словарь). Словарь можно бесплатно скачать и обновить в приложении.Тип издания: Plus (Paid)Релиз состоялся: 07.10.2023Разработчик: Paul HemetsbergerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BEB24D2D716D386F596A8AA58A44E0F33F3359
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674988   (160618) от 07.11.2023
-
-NetLimiter 5.3.5.0 (x64) RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160618.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E4B82082D61604CA894EC86948D9DA6AABAC07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675023   (160620) от 07.11.2023
-
-doPDF 11.9.434 Free [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160620.jpg" />
-</div>
-
-
-###  Подробнее
-
-doPDF — программа для преобразования документов в формат PDF. Поддерживается работа со многими форматами файлов, включая Microsoft Excel, документы Word или PowerPoint, сообщения почты и веб-страницы.
-После установки doPDF в папке "Принтеры" появится новый виртуальный принтер, через который и будет происходить процесс преобразования. Таким образом, для (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC37EEF87C7052D83319E430E5A87C64EECC3064
 ```
 
 

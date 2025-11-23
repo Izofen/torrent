@@ -6,7 +6,7 @@ Broken Fate - Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65612.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Avkrvst - Waving At The Sky (2025) [FLAC|Lossless|image + .cue] <Prog Rock, Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65615.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Creeping Fear - Realm Of The Impaled (2025) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65616.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ HateSphere - Hatred Reborn (2023) [FLAC|Lossless|image + .cue] <Death Metal, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65617.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Styx - Circling From Above (2025) [MP3|320 Kbps] <AOR, Progressive Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65622.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Paralyzed - Rumble & Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65631.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:F5282C273E4D7B1A5B22DBA77DB85AF4F6E328BC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65633.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Last Bastion - Who We Are (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65635.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nemra - The End of the Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie, Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65639.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rod Stewart - Ultimate Hits (2025) 2CD [FLAC|Lossless|WEB-DL|tracks] <Rock, Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65665.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Vhäldemar - XX Anniversary - Live At BEC Barakaldo (2025) 2XCD, Recorded 19.04.
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65676.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Slime - Crab-Walk to Oblivion (2025) [MP3|320 Kbps] <Thrash Metal, Crossover
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65679.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Black Adder - Hellraiser (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65689.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tiffany Kills - World On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65690.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Thundertale - Pranašystė (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65700.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Howling Void - The Glow of a Distant Fire (2025) [MP3|320 Kbps] <Symphonic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65732.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Sodom - The Arsonist (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65760.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:07DE6F35547CE443B11764E06849EAEE3B349523
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65766.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Summoning Torments - In Fine Omnium Religionum (2025) [MP3|320 Kbps] <Black, Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65769.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Starved of Light - Into Early Mourning (2025) [MP3|320 Kbps] <Death Metal, Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65770.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:E0C2B446ADC0C2FF3AB005C8FE9605FDDEA1DD1B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65784.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Daniel Martin & The Infamous - Gone Days of Silence (2025) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65831.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Russell Morris - The Very Best of Russell Morris (2013) CD, Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65837.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Spanish Gold - South Of Nowhere (2014) CD, Album [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65839.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Drum Nation (Volume 3) (2006) CD, Album, Enhanced [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65842.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Soliloquium - Famine (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65844.jpg" />
 </div>
 
 

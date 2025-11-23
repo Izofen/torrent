@@ -1,3 +1,78 @@
+###  Публикация: 1345746   (165909) от 16.12.2019
+
+Scrutiny 9 v9.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528328EB5DF5B199D26AFEADCA2F19C4B2E74623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345774   (165913) от 16.12.2019
+
+CheckBook Pro 2.6.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165913.jpg" />
+</div>
+
+
+###  Подробнее
+
+CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Splasm Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F213B02F89208D6F783081D3F756795701DAC6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345750   (165916) от 16.12.2019
+
+Xliff Editor 2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff!
+
+Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2019Разработчик: SweetP ProductionsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39553922D8EB134818FA9941AE35B5290C2D33BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673116   (165920) от 31.10.2023
 
 Display Driver Uninstaller 18.0.6.9 + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ Display Driver Uninstaller 18.0.6.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165920.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Whale Browser 2.8.108.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165921.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Macrorit Data Wiper 6.6.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165923.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (1412) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165927.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ XnConvert 1.90.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165940.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ Compressor 4.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165943.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ Vectorworks 2021 v26.0.1 SP1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165948.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ SamDrivers 23.11 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165953.jpg" />
 </div>
 
 
@@ -200,7 +275,7 @@ Kingston SSD Manager 1.5.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165958.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ LosslessCut 3.30.0 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165967.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ CrystalDiskInfo 8.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165975.jpg" />
 </div>
 
 
@@ -272,7 +347,7 @@ FileZilla 3.57.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165977.jpg" />
 </div>
 
 
@@ -296,7 +371,7 @@ magnet:?xt=urn:btih:7441767354F8D2694A5275A13ED3771CBA320AA3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165985.jpg" />
 </div>
 
 
@@ -320,7 +395,7 @@ Psiphon 3 build 180 (31.10.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165999.jpg" />
 </div>
 
 
@@ -344,7 +419,7 @@ MKVToolNix 80.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166009.jpg" />
 </div>
 
 
@@ -368,7 +443,7 @@ WinRAR 5.80 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166026.jpg" />
 </div>
 
 
@@ -392,7 +467,7 @@ XtraTools Professional 23.10.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166028.jpg" />
 </div>
 
 
@@ -416,7 +491,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166031.jpg" />
 </div>
 
 
@@ -440,7 +515,7 @@ Mozilla Thunderbird 78.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166041.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ magnet:?xt=urn:btih:17FA31AF89E1DA96ADD607994D91B2D941D1CD86
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166045.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ Movavi Screen Recorder 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166049.jpg" />
 </div>
 
 
@@ -512,7 +587,7 @@ RogueKiller Anti-Malware 14.8.1 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166051.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ PDF24 Creator 10.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166058.jpg" />
 </div>
 
 
@@ -548,78 +623,6 @@ PDF24 Creator - бесплатная программа, которая позв
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E86EDCDE53EACB9CD783E1DF7FFFBA28E47E3CA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673047   (166063) от 31.10.2023
-
-Microsoft PowerToys 0.75.0 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft PowerToys – это набор утилит, позволяющих опытным пользователям настраивать и оптимизировать работу оболочки Windows 10 для повышения производительности труда.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0686041FFAA45F079F2F6B6986DF50A708485482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673125   (166067) от 31.10.2023
-
-Pepakura Designer 5.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет программ, адресованных моделистам, которые изготавливают свои модели из бумаги. Программы предназначены для просмотра, создания и редактирования выкроек (разверток) бумажных моделей. Выкройки генерируются на основе готовых моделей, ранее созданных в программах трехмерного моделирования. Поддерживаются многие популярные форматы: 3DS, DXF, MQO, LWO, OBJ, STL, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1593055F293518DC0B0C2067E0AAB52E31972E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516503   (166072) от 11.12.2021
-
-Martinic - AX73 1.0.3 VSTi (x86/x64) RePack by R2R [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166072.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1986 году поле синтезаторов было усеяно цифровыми технологиями. Вот почему оригинальный AX73 с его полностью аналоговым сигнальным трактом остался в гордом одиночестве незамеченным. Martinic взяли все, что было ценно в оригинальном AX73, и превратили его в мощный, гибкий программный инструмент, который отлично вписывается в модельный ряд современных синтезаторов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE532A53234F72517692C5B09C215594763C4F8
 ```
 
 

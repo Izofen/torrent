@@ -1,3 +1,76 @@
+###  Публикация: 1684367   (127821) от 15.12.2023
+
+KMPlayer 4.2.3.7 Plus (x86) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127821.jpg" />
+</div>
+
+
+###  Подробнее
+
+The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A69933C79C8FBF7846B9F0E70F15782B4CD0C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684369   (127822) от 15.12.2023
+
+Topaz Video AI 4.0.8 (x64) Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E466913377AAE9951735224B48F372F2697CBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684307   (127823) от 15.12.2023
+
+Керим Пыгамов | Простатит. Современный подход к диагностике и лечению (2023) [MP3, Денис Белых]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127823.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей книге врач-уролог Керим Пыгамов предлагает взглянуть на простатит с точки зрения доказательной медицины и разобраться в его причинах, симптомах, диагностике и современных методах лечения.
+Книга поможет вам лучше понять поставленный диагноз и найти подходящего врача, избежать ненужных процедур и препаратов. Доктор Пыгамов включил в нее разбор клинических случаев, (   Читать дальше...   )Жанр: Урология и нефрологияИздательство: ЭксмоПродолжительность: 03:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E88BEAB73D0B962350DABEE163DFB1D2E27C97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684442   (127824) от 15.12.2023
 
 Google Chrome 120.0.6099.110 Stable + Enterprise [Multi/Ru]
@@ -6,7 +79,7 @@ Google Chrome 120.0.6099.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127824.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:04F9359759612BEFF01E590960636CEFBB7EDCFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127825.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:B27395F469DDB77AB17011C1CC42AEF3BFB4D00E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127826.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ VA - Музыка для машины Vol.53 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127827.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Google Chrome 120.0.6099.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127828.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:FA5DD67254EB903E342051A03406C79CA728D7E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127829.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ Christmas Fables 2: The Magic Snowflake (2023) [Multi] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127830.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Ungoogled Chromium 120.0.6099.71-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127831.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:699BEC8F4A81F0DE85EB4BE91F78EF49BE6A722D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127832.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ magnet:?xt=urn:btih:6F64BF4463741C73DB6125142A1390AD2A1366A7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127833.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ VA - Best Jazz Songs of 2023 (2023) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127834.jpg" />
 </div>
 
 
@@ -279,7 +352,7 @@ Opera One 105.0.4970.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127835.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ magnet:?xt=urn:btih:9766A7ECE6217B3EE5D42D3CAD921C9451530D9F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127836.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ Wondershare PDFelement 10.2.0.2576 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127837.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ magnet:?xt=urn:btih:F16955364A8EC65F495C94DF1C7EF77FD5BC2690
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127838.jpg" />
 </div>
 
 
@@ -375,7 +448,7 @@ magnet:?xt=urn:btih:DD3927258EAC3B3AE2BCBA837A80D323EB2F193E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127839.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ Topaz Photo AI 2.2.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127840.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ magnet:?xt=urn:btih:1188D9BD2F410DA39A1C9FD8AFC8B8ABF07E7AC5
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127841.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ magnet:?xt=urn:btih:03FD2F3247DDC696D6B68C9FC800EB60EEDF0C2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127842.jpg" />
 </div>
 
 
@@ -474,7 +547,7 @@ Cockos REAPER 7.07 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127843.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127844.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ magnet:?xt=urn:btih:E5750465C12E648F15BEF8CED0A5C9387E0CFE0A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127845.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ Teorex Inpaint 10.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127846.jpg" />
 </div>
 
 
@@ -558,79 +631,6 @@ Inpaint позволяет умно удалять нежелательные э
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0321258F2F204F275E321A900B71E84A321EBBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684203   (127847) от 15.12.2023
-
-007: Дорога к миллиону / 007: Road to a Million (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соревновательное реалити – шоу, ведущий Брайан Кокс, в шоу участвует девять команд, по два человека в каждой, соревнуются в гонке за 1 миллион фунтов стерлингов. Участникам предстоит выполнить перечень сложных заданий, вдохновлённых фильмами о Джеймсе Бонде.
-Сериал был разработан компанией 72 Films совместно с Eon Productions и MGM Television для выпуска на Amazon (   Читать дальше...   )Производство: Великобритания, США / 72 Films, EON Productions, MGM TelevisionЖанр: игра, реальное ТВ, приключенияРежиссер: Джулиан Джонс, Tom Dumican, Джэми ГулдАктеры: Брайан Кокс, Josh Ali, Nick Ashton-Jones, Colin Barnes, James Bone, Joey Bone, Keith Curtis, Kamara Davis, Jenny Dorward, Daniel Fenner и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA402809DF4B184BDDEB302E980049856DEF221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684374   (127848) от 15.12.2023
-
-MassTube Ultra 17.1.0.513 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127848.jpg" />
-</div>
-
-
-###  Подробнее
-
-MassTube Plus — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3734CC9007E5EC20616A93980187468F6CE8D416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684389   (127849) от 15.12.2023
-
-Крупный улов / Finestkind (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два брата оказываются втянуты в сделку с преступным синдикатом Бостона.Производство: США / 101 Studios, Bosque Ranch ProductionsЖанр: триллер, драма, криминалРежиссер: Брайан ХелгелендАктеры: Бен Фостер, Тоби Уоллес, Дженна Ортега, Томми Ли Джонс, Тим Дейли, Клейн Кроуфорд, Лолита Давидович, Исмаэль Крус Кордова, Аарон Стэнфорд, Меган ЛитерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 02:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FF1CAC1F145596BC634F62563C921D35991AB4
 ```
 
 

@@ -6,7 +6,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (Build 20147338/dlc) Re
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29083.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ashampoo Music Studio 12.0.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29084.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:95D20D44C7408DE9E73A731D613337A2B117FC17
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29085.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Windows 11 24H2 + LTSC (x64) 28in1 +/- Office 2024 by Eagle123 (01.2025) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29086.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack West4it
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29087.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F96722F5818944952F831F3337A0168E133D7893
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29088.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Grand Theft Auto: Vice City Nextgen Edition (2025) [Ru/Multi] (1.1) Mod Revoluti
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29089.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2A47A69716038E04BA611230142E4A8DDF230B03
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29090.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:73ACE34285E8469D4B6AFB41493324C2844BB925
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29091.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E502857B6B498ED047DD90A112E691C9C6F5A802
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29092.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9F487DA2024271E2A6A1EF8D3E6DFA806D4CA68C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29093.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:1ADFA29226CB0C66AC12EF36BC7E2DD4C8FFB8CD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29094.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:B2755B931C59E117DC2A6669F45DB318D5626477
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29095.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:24DF64D094EB578C0F77A065817FB959019E2950
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29096.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29096.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E88991E804BBF138493DD83CF1B3316973EA091C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29097.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29097.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:16B0A8BA5F2FD7B10D4B9A472B61DEE2C016F557
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29098.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Foghat - 23 Albums, 2 Box Set (1972 - 2023) 56 CD [FLAC|Lossless|image + .cue|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29099.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D0AFE4518FA6669DB8CDE9BBE040FA6D13F6E98A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29100.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29100.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:269FBE6C6DEA8B72EE488C8DE1D988EF4DE3AA4A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29101.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29101.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29102.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:18E75950BAC588CA40957F2208432F6FF3AAC421
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29103.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:18E75950BAC588CA40957F2208432F6FF3AAC421
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29104.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:1CD29589E13BD274405C53DFD4CFA832727CBF5F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29105.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29105.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:1CD29589E13BD274405C53DFD4CFA832727CBF5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29106.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29106.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:0A9E0D38A6B7632E9C7F4E70A087C05F009910CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29107.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:D53E1199181CFC630F563588D296B7E9085F0EFD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29108.jpg" />
 </div>
 
 

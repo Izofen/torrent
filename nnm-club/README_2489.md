@@ -6,7 +6,7 @@ Trigger - Second Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65462.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ceremony - Solitary Bleed (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65463.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ashes Of Reason - Crisis Catalyst (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65464.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:99EBBCE9CD81DE3B846E56DF5DCA371BAFB34715
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65465.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:D57F7302FF612B00B4F7E4DD9D2BC048E679BED5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65466.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Fly! - ...or Die! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65467.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:1B8E85830B5B46AD166AC5B4AC47F798CAA4AFB2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65468.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Alkonost - Дар Саламандры (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Pa
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65469.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:C20A9B4E4E7092AB3BEE62DFCF87C588D62167BB
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65470.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ The Tee - The Tower and The Star (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65471.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Nosłeep - Trauma (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Blackened Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65472.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:904A170A067861FDA44F93A8008A03808AA20734
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65473.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Marc De Loutchek - Chansons russes et Tsiganes russes. Vol 2 (2007) [MP3|320 Kbp
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65474.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:FE86FBB1E3B5A4FAC0D484F2EF84B52214B9875B
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65475.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:6710D04E963D3E615FA7ACC9CF6BAE78A1CDAFF5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65476.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:5DF075E19857380BEE2E4A560DF2A0A0C1DAD330
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65477.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:C4EB505C1D4BB97C7164B819EC0AB6C1B93D85A3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65478.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F7EB0C8873470423689EF294E1C7B245C9915F17
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65479.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:A7CCD29847C8C32DF212E7732DAEEB47F1E57302
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65480.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:0AB6C2890EB4EEE87F002F9C0309F082DFF6E10E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65481.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Moonshine XXX - Frelate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65482.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:5C717D932C9493D53A07AEB1F6502827087953F3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65483.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:ADF72CC759EA92AD86EBEDC0E2D1E9A1E98B91D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65484.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:FBDDCCB4C6BB7117F195D31744DFAADEAD5E4896
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65485.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65486.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Nothing But... Trancetopia, Vol. 27 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65487.jpg" />
 </div>
 
 

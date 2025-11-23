@@ -6,7 +6,7 @@ Uneven Structure - Februus (Limited Edition) (2011) [MP3|320 кб/с]<Experiment
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100004.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The LTD Chronicles mixed by 6th Borough Project (2012) [MP3|~245 кб/с (V
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100010.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Spectral - Gateway To Death (2012) [MP3|320 кб/с]<Black/Viking/Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100011.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ magnet:?xt=urn:btih:4CAA3A447726A40C83DF82F0C1134C3140C179E2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100015.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6C4CD3B5507D3798A7CA14350F109793ED0EE90B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100016.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:EF033FA400A44FA5BBB8B2C393448C69429D8921
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100022.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:041862CC662F6048FE1F51675F106E26C0121A11
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100025.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:6B38CB723E9DA8DAB9A8CC81844C12738E59E4F8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100029.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Pandora (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100033.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100039.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Kenny Garrett Quartet feat. Kenny Kirkland Live At Jazz Baltica (1997) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100043.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100043.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Wise Registry Cleaner v7.15 build 453 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100048.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100048.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Wallpaper Sexy Girls 0.9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100050.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Mozilla Thunderbird 12.0 Beta 5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100052.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100052.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100055.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Mendozza - Mendozza (2012) [MP3|192 кб/с]<Sludge Stoner Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100056.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:9DD6F0F9E46987ECF1C14A6836FD946DF5040562
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100059.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:A9DDD5770FBF356E11803097FA8B5639F45C9C1D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100062.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Lions Breed - Damn The Night (1985) [MP3|320 кб/с]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100064.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:EC1A2C39E942C163CC77703A0375B2A592C95143
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100065.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Mozilla SeaMonkey 2.9 Beta 4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100068.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100068.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100069.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:9AE6CED25FC37C5F3A0D31142E85EF236886343D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100071.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Bongripper - Satan Worshipping Doom (2010) [FLAC|Lossless]<Instrumental Doom Slu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100075.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Silana - Мы стали ветром (2012) [H.264/720р] WEBRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100077.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Elegy - Optics EP (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100081.jpg" />
 </div>
 
 

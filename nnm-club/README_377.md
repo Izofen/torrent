@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9957.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - National Pop Dance Music Vol.115 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9958.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Cat Scanner / Сканер породы кошек v19.9.0-G Mod by vadj [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9959.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AED17B37A50291055E81A4FAC217804397399B1A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9960.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Compilation Part 178 Electronic (2025) [MP3|320 Kbps] <Electronic, Easy lis
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9961.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:F9B5A29140A5F6A24C0B62ABAD0AB40460D40F41
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9962.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:BA3C0DE49295A3550421F5D2822C14BE8B8795BC
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9963.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:66BAAF2F4E1F700EFDCE458C0E94438EDE91FF87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9964.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:DB7394CABB935F027C6E4167F4473D9554D9F36E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9965.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:F4CA7F527A4F84D9873DE0DB0D820CCB32CBBB2B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9966.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.2_2 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9967.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:8EA5F3A485561B114E8FE09F45C5C066997D74A1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9968.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:F0E2C8B8B5DCADFCFE1D9C21708E2DBF8A7AE4A0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9969.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ XMedia Recode 3.6.1.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9970.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:34D4880A1BD93B1372ABBBA5234C24D8B4F5D5D4
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9971.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:149532D589341A567F965B1653488F05045811F9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9972.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:72E31EFFAD8C2C8146750C1A5019D9C37F0494DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9973.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Synapse Audio - DUNE 3 3.6.4 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9974.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:21976A65EE4088A0EFF911954EC0108892857993
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9975.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:8176DF61E5AC5A9CDDD48CB5330AB5791FA80894
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9976.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:B596B566B67BCDE5152903AB4BF111093E7D01E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9977.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:C0DC4347B41A56BE41C715AF873F6E782F63E095
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9978.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9979.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Auslogics BoostSpeed 14.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9980.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:A707D6EC83936C55CEB19A4AF59982A949E1A9F4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9981.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:5FD01773FCDDD95F20A85CADC19D6BF7E506889A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9982.jpg" />
 </div>
 
 

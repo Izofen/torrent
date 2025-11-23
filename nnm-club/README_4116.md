@@ -1,3 +1,75 @@
+###  Публикация: 1667062   (126703) от 22.12.2023
+
+Under Ninja | Иные ниндзя [2023, TV, 12 эп.] WebRip 720p raw
+
+>>След.
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пocлe Bтopoй миpoвoй кoмaндoвaниe coюзникoв в Япoнии coздaлo нoвoe aгeнтcтвo для пpoтивocтoяния тeppopизмy в тиxooкeaнcкoм peгиoнe. Пepcoнaл aгeнтcтвa cocтoял из ниндзя, кoтopыe зaнимaлиcь изнaчaльнo тoлькo внyтpeнними дeлaми. Ho co вpeмeнeм пpoгpaммa paзвивaлacь и дopocлa дo нынeшниx мacштaбoв: 20 тыc. ниндзя, кoтopыe peшaют внyтpeнниe и внeшниe пpoблeмы. Один из (   Читать дальше...   )Производство: студия Tezuka Productions / 手塚プロダクションЖанр: приключенияРежиссер: Кувабара СатосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22057166577CD3408369FD6440D110AFF08EBFC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667060   (126704) от 22.12.2023
+
+Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | Восхождение Героя щита [ТВ-3] [2023, TV, 12 эп.] WebRip 720p raw
+
+>>След.
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ивaтaни Haoфyми вмecтe c тpeмя дpyгими людьми пpизвaн в пapaллeльный миp, чтoбы cтaть eгo Гepoeм. Пoлyчив в pyки лeгeндapный щит, oн oтпpaвляeтcя в пyтeшecтвиe, нo нe имeя ни oпытa, ни xapизмы, ocтaётcя лишь c oднoй пpeкpacнoй cпyтницeй, кoтopaя пpeдaёт eгo нa тpeтий дeнь. B peзyльтaтe Ивaтaни oкaзывaeтcя oгpaблeнным и oбвинённым в изнacилoвaнии, cильныe миpa ceгo (   Читать дальше...   )Производство: студия Kinema Citrus / キネマシトラスЖанр: приключения, фэнтезиРежиссер: Хага ХитосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6B691B73B27EF173C14A874AD32063BF1DC30E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634090   (126705) от 22.12.2023
+
+WebStorm 2023.3.2 [x64] (tar.gz)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126705.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebStorm - Легкий, но мощный IDE, прекрасно оборудованный для комплексной разработки на стороне клиента и на стороне сервера разработки с Node.js. WebStorm поможет вам писать код лучше благодаря умному завершению кода, на лету обнаружения ошибок, мощной навигации и рефакторингу. Поддержка новейших технологий IDE обеспечивает поддержку первого класса для JavaScript, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165725   (126706) от 22.12.2023
 
 Книжная серия | Электроника [50 книг + 27 CD,DVD,файлы] (2004-2023) [PDF, DJVU] [Обновляемая]
@@ -6,7 +78,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126706.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:4F34C30B9A10FCAEAB2B8E1062CE1A06FA3A12C1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126707.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:2E4602226F365EF3DDCFE87405EB05EF3229EDAC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126708.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:0023DAC3696299E9F961C4BD16370929239A2D97
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126709.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:526C4952633EC6C6CA788FA99916F78879FACA03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126710.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:BC8D8A4F5EA9ECFB97B4EB91CE57A4BE4D481420
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126711.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:B62C5D6A077BBEB15DAFCD9AB6A101FF156E9C96
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126712.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:C94AB20B1A899DF3B9DD29DE54686CEF44BD738E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126713.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:FD93DE917609FB212D93A5A28499619339289D15
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126714.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:1F12DD62039F9B56EE6E2DC77D53BCA70DD41622
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126715.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Hametsu no Oukoku | The Kingdoms of Ruin | Королевство руин [2023
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126716.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:6A234CD6F695E758E0A62828BB60CF6A6C37BBB3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126717.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:33F4F2DCBC86FC82D56B5D8E1BA003FD3A12B69F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126718.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:33F4F2DCBC86FC82D56B5D8E1BA003FD3A12B69F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126719.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack Decepticon [Lim
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126720.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:26C4CEB4778A8D511FF6F48D1868F37CFD44450A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126721.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ magnet:?xt=urn:btih:FA9B560FDC41EFEB4897BD49B3187BB3360B49F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126722.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ magnet:?xt=urn:btih:61E619570338341CB1969F457E0A6E17625FF8C0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126723.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:0081DE307DF4585351DE18BE86C498907BE8E599
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126724.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:F6643E69662A61E919369A0CB4760A2B2B94B7CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126725.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:B8A833D48B7FD4CAC35AF06C93359BD26638C169
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126726.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ Frank Morgan - Reflections (1988) 2000, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126727.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ The Bud Shank Sextet - New Gold! (1994) Candid [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126728.jpg" />
 </div>
 
 
@@ -557,87 +629,6 @@ The Bud Shank Sextet - New Gold! (1994) Candid [FLAC|Lossless|tracks + .cue] <Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B362C2DDE591CE51AAF7E1A0DB43FED1DB2DEA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686181   (126729) от 21.12.2023
-
-Horrifier - Horrid Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126729.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chainsaw Death 03:00
-2. Injected Corpse 05:31
-3. Hooks in Flesh 03:50
-4. Assimilated Life 06:39(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEB001DD4F5C9633827770F8C76DB36EA756D1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685976   (126730) от 21.12.2023
-
-Apostasy - Accuser of Brethren (1993) Reissue, 2020, Pathologically Explicit Recordings [FLAC|Lossless|image + .cue] <Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suffer In Silence
-02. Sacraments Of Retribution
-03. Johnny Law Die
-04. Accuser Of Brethren(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E8A5DFBFB26DB72171E0BA8883BD4377A839D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685906   (126731) от 21.12.2023
-
-Uncircle - Via Dolorosa (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Via Dolorosa [00:03:26]
-02. Social Death Works [00:03:43]
-03. #JeSuis [00:03:07]
-04. Behind The Smile [00:03:47](   Читать дальше...   )Жанр: Metalcore, Modern MetalПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EB81EF82611DA44024AE0B2B440EFBD68DED2D
 ```
 
 

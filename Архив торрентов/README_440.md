@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98688.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ E-Clip - Shuma (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98689.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98689.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Egorythmia - Remixes 2011 EP (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98691.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98691.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Egorythmia - Remixes 2011 EP (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98694.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Ix Lam At - Kin Ethics (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98695.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Танцевальный клубный поп хит vol.5 (2012) [MP3|256
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98697.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Топ 100 3айцев.нет (04.04.2012) [MP3|128-320 кб/с]<Alternativ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98699.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:DCC035A67D1B3694EACA02982703A459AA2863F8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98702.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tetuna - Crazy Trips (2012) [MP3|320 кб/с]<Psy Trance,  Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98703.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:AB8CE0831575645A2EB32A20C765072E33C79573
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98704.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98705.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98705.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98706.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:B421A45D44DA87FFF31AC9FAC1F3D4A537D41E8A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98709.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98709.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:B421A45D44DA87FFF31AC9FAC1F3D4A537D41E8A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98717.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:7E08D4EF4D9B3705377841953B79C325DFE977D2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98719.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98719.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7E08D4EF4D9B3705377841953B79C325DFE977D2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98723.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:1DF806C10D5E1473ADB5558372340AA889DDE1DA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98725.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:9837A0A62FF6F8CC5DC7EFDBF2B0E7EB78ECF9F1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98726.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:8C3E95AD62C9EF63DBDE59A8F1233B598F324464
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98728.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - MAXI. Русские ДиДжеи Зажигают (2012) [MP3|224 kbps]<Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98730.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:47A04E4540EE5CB1B53D2AD8823117F812A480A9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98733.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:4E66BDA7166C659DAC7D2896344C190342143186
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98735.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Somnesia - Mystic Moon (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98739.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98740.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Mozilla Thunderbird 12.0 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98743.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98743.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Wise Registry Cleaner 7.13 build 449 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98744.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98744.jpg" />
 </div>
 
 

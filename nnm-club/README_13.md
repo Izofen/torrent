@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_367.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:96891A7B1D6313E6247FEAF9A717EBA1D9FB691E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_368.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4A2D5B2F4F69BBF6D06B53FAAFF9DDC8F27F9525
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_369.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F462D34111CF33EBD6E733FB1F303FD4E8E076AE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_370.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1C0C8DE85D3008612FA239F6A0A5074D2952043E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_371.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Internet Download Manager 6.42 Build 48 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_372.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7B3E55CDCAC95F1B1EE43B7C0B56815DC76597CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_373.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A00A5C1F2615F53B4B5037A956D42FCD2D433D19
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_374.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Open AI врет и изворачивается
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_375.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DISMTools 0.7.0.25092 (Update 1) + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_376.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.1.7) Repack Let'sPlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_377.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Seishun Buta Yarou wa Santa Claus no Yume o Minai / Этот глупый сви
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_378.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:651882BDEE403DF28CB0D85F2F7B7D7745A41B66
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_379.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:1BB1040B26964D4BC012D9345DDFBFADCFEA6985
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_380.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:01A160D9918E33EE6C1609385019593F63BF54F1
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_381.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:697545CC2AE74910B7DE1FC4D7B695973280E0CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_382.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7634959C26357A8408E37152AE1A72293479BB27
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_383.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:F61F30211CAD87ED63F74725B148E99A848C8569
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_384.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Game Center Shoujo to Ibunka Kouryuu / Cultural Exchange with Game Center Girl /
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_385.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:3D5C6F8B0E97B4687FBAA8DB7DA3B280B4253394
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_386.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:B902F22EBECC7F1CF187B2A030F49D8203E9D3E8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_387.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:649E8917F0C601D17C352FCBE092338DB7784197
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_388.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:37A30CC38102653C11E8711498A1C673E6FB5C6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_389.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:CE6C3161BE17B507862DF5A2C734E4359CB7F2EB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_390.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:FC38E513F540D3598208E41D571CED708A659FD6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_391.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:ED32A3E4A284A1AE8F6996D54112E4DE1E74C2F6
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_392.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Midori Browser 11.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131323.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:949243444EC49328D4D2080C43173D3D5224BAEB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131330.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ StartAllBack 3.7.1 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131331.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ LibreOffice 7.6.4.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131339.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Wondershare UniConverter Ultimate 15.0.7.20 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131355.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:649671814BA61D303BA94C59A9DEC41B427C950D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131360.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chromium-Gost 120.0.6099.62 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131367.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ mp3DirectCut 2.17 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131376.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Google Chrome 120.0.6099.71 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131379.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Slimjet 42.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131390.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ RogueKiller Anti-Malware 15.13.1.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131392.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ ScreenToGif 2.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131393.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Opera One 105.0.4970.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131396.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Process Lasso Pro 12.4.3.14 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131399.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Emurasoft EmEditor Professional 23.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131405.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:EB7AC615E5424F3DBC9211344D9D9B160B623FA3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131406.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ EarthView 7.7.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131409.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Google Chrome 120.0.6099.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131411.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Comodo Dragon 119.0.6045.200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131413.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Macrorit Partition Expert 8.1.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131417.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:60CEE082AA773D4BB213D59C40BA56EF728E6DF5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131418.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Windows 8 Codecs 1.36 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131420.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Opera GX 105.0.4970.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131448.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:F07B2F0CEE3D0C91421E2CD9BA7CA198DAC0C160
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131462.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:9BC3E691DFDD367031ACD0897075634005B0B74B
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131480.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ FastPictureViewer Pro 1.9.287 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131490.jpg" />
 </div>
 
 

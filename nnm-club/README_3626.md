@@ -1,3 +1,79 @@
+###  Публикация: 1705087   (113958) от 07.03.2024
+
+Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Думаю до понедельника) (1990) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Modern Age Rock'N'Roll
+01.Сегодняшний рок-н-ролл (муз. и сл. Дж. Стингрэй и Б. Гребенщикова)
+Give Me Some More Of Your Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D277D22A0677288779972C0B5462A169EC6B728
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705070   (113959) от 07.03.2024
+
+PopChar for Mac 10.0 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш Mac включает более чем 700 шрифтов, каждый из которых содержит тысячи знаков - Почему бы не сделать их максимально доступными?Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 Ergonis SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705191   (113960) от 07.03.2024
+
+Очарование Флориды / A Florida Enchantment (1914) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот своеобразный и веселый фильм основан на романе 1891 года и пьесе 1896 года (не сохранившейся) с тем же названием, написанных Фергюсом Редмонтом и Арчибальдом Гюнтером.
+В фильме Лилиан Трэверс, богатая женщина с севера, собирающаяся выйти замуж, получает волшебные семечки, которые способны превращать своего владельца в человека противоположного пола. И не столько (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: комедия, немое киноРежиссер: Сидни ДрюАктеры: Сидни Дрю, Эдит Стори, Чарльз Кент, миссис Сидни Дрю, Ада Гиффорд, Этель Ллойд, Лиллиэн Барнс, Грэйс Стивенс, Аллан Кэмпбелл, Cortland Van DeusenПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61C3127AEDAF3875712D99EBFA36DCD0214C971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705079   (113961) от 07.03.2024
 
 The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Blues>
@@ -6,7 +82,7 @@ The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113961.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Dario Margeli - Smooth Jazz Electric Guitar (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113962.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113963.jpg" />
 </div>
 
 
@@ -87,7 +163,7 @@ Folder Icons 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113964.jpg" />
 </div>
 
 
@@ -111,7 +187,7 @@ VA - Classy Hotel - Jazz & Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113965.jpg" />
 </div>
 
 
@@ -138,7 +214,7 @@ Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113966.jpg" />
 </div>
 
 
@@ -165,7 +241,7 @@ magnet:?xt=urn:btih:CA06812183508FD80B71C3C6037FFF546F7BD75D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113967.jpg" />
 </div>
 
 
@@ -189,7 +265,7 @@ AutoCrypt 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113968.jpg" />
 </div>
 
 
@@ -214,7 +290,7 @@ Skeletal Remains - Fragments Of The Ageless (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113969.jpg" />
 </div>
 
 
@@ -241,7 +317,7 @@ magnet:?xt=urn:btih:72E42A01C41B0B7488AB684940FE98AF52BA884D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113970.jpg" />
 </div>
 
 
@@ -265,7 +341,7 @@ Chromium 122.0.6261.112 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113971.jpg" />
 </div>
 
 
@@ -289,7 +365,7 @@ magnet:?xt=urn:btih:E586C024980A487F1AAE45C880C48CDA9A4524B9
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113972.jpg" />
 </div>
 
 
@@ -313,7 +389,7 @@ VA - With love to children (С любовью к детям) (1991) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113973.jpg" />
 </div>
 
 
@@ -340,7 +416,7 @@ magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113974.jpg" />
 </div>
 
 
@@ -364,7 +440,7 @@ IObit Uninstaller Free 13.4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113975.jpg" />
 </div>
 
 
@@ -388,7 +464,7 @@ Calendar 366 II 2.15.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113976.jpg" />
 </div>
 
 
@@ -413,7 +489,7 @@ magnet:?xt=urn:btih:A03109C1E7D6162EF2E00DB7184BB87F2215C5DA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113977.jpg" />
 </div>
 
 
@@ -440,7 +516,7 @@ NextChat for Mac 2.11.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113978.jpg" />
 </div>
 
 
@@ -464,7 +540,7 @@ Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113979.jpg" />
 </div>
 
 
@@ -491,7 +567,7 @@ Mark Maxwell, Dr. SaxLove - Lofi Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113980.jpg" />
 </div>
 
 
@@ -518,7 +594,7 @@ VA - Smooth Jazz Essence (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113981.jpg" />
 </div>
 
 
@@ -545,7 +621,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113982.jpg" />
 </div>
 
 
@@ -570,7 +646,7 @@ One Switch 1.34.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113983.jpg" />
 </div>
 
 
@@ -581,80 +657,6 @@ One Switch - это крошечное приложение, разработа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D1E242D0C23F99C2330692CCDFA7A188C69FECC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705193   (113984) от 07.03.2024
-
-Судьба человека с Борисом Корчевниковым. Юрий Беляев и Татьяна Абрамова (26.01.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113984.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-Гостями (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Юрий Беляев и Татьяна АбрамоваЯзык озвучки: РусскийПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E337553D9C3EC8405D098E042A530FA2E9C59EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705037   (113985) от 07.03.2024
-
-Николай Непомнящий | 100 кошачьих «Почему». Вопросы и ответы (2014) [MP3, Светлана Репина]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113985.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном популярном издании излагаются вопросы, касающиеся содержания, питания, физиологических особенностей, ухода и оказания первой медицинской помощи кошкам при ранениях, ожогах, химическом и электрическом воздействии и др. Особое внимание уделяется повадкам и объяснению поведения кошек в различных ситуациях. Даются конкретные советы по воспитанию кошек с различным (   Читать дальше...   )Жанр: Познавательная литератураИздательство: Нигде не купишьПродолжительность: 08:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24043C8BF535E89DC39AE3F18104D68A0143F815
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705224   (113986) от 07.03.2024
-
-Navicat for SQL Server on Mac 16.3.7 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для SQL Server предоставляет вам полностью графический подход к управлению и разработке баз данных. Быстро и легко создавайте, редактируйте и удаляйте все объекты базы данных или выполняйте SQL-запросы и сценарии. Подключайтесь к любому локальному или удаленному SQL-серверу и совместимо с облачными базами данных, такими как Amazon RDS и Microsoft Azure.Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57617B01C8C8EBDF88A892CFC862E48BB456038D
 ```
 
 

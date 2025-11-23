@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 16 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49001.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - part 100 velvet saxophone compilation (2024) [MP3|320 Kbps] <Easy Listening
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49002.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Guitar Pro 8.1.3 Build 73 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49003.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Google Chrome 127.0.6533.73 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49004.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ IsMyHdOK 3.99 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49005.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:6C207E12968B4D6B14ADBC540E54C3E9170FD405
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49006.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Succubus (2021) [Ru/Multi] (15112813/dlc) Scene Rune [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49007.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A4E336690C2D72553BF01829244C559F6D87E05B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49008.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Allavsoft Video Downloader Converter 3.27.3.8957 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49009.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (build 14716072/dlc) Re
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49010.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (1.5.3.0/dlc) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49011.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.35.7000 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49012.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:FBADA229B3A6A3FEBC127A7B1007DCB43AE88A57
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49013.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:591460B0E3900C96685089DC5845C24577993E61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49014.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:591460B0E3900C96685089DC5845C24577993E61
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49015.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:591460B0E3900C96685089DC5845C24577993E61
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49016.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F0A7FFAD237BC6676A5C2C4A7BCC6B8B2E8963FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49017.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4D13F82B7DB48922074303CDA81611D18C896220
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49018.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ R-Studio Network 9.4 Build 191346 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49019.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Adobe Acrobat Pro 2024.002.20965 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49020.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:29DFC0C61127953189CD72F44A816DCC69222DAC
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49021.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:2698FA541D5A1C9F76768F31FD4D0D641C4A712D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49022.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ IObit Driver Booster Pro 11.6.0.128 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49023.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:E4992A6B75CE649BF7EA676737204524D4BB9B62
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49024.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AA194164EC4D414DFD54BC6F0BDB94E301744E47
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49025.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:4BFE13C57BC453581C110BC310D170C8784DA320
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49026.jpg" />
 </div>
 
 

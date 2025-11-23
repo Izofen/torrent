@@ -6,7 +6,7 @@ Fatima - Eerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104629.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Black Sun - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104637.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Abyss Evolution - Первый (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104639.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ashwind - Холодные Камни (2024) [MP3|320 Kbps] <Melodic Doom, Death
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104640.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wolfhorde - Bloodmoon Symphonies (2024) [FLAC|Lossless|WEB-DL|tracks] <black met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104699.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mr. Big - The BIG Finish Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104705.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Dead Daisies - Light 'Em Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104711.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ God Is An Astronaut - Embers (2024) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Sp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104712.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104716.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Saga - The Works (1991) 2CD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104717.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Blitzkrieg - Blitzkrieg (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBH
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104718.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Infrared - Manifestation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104719.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Alcest - Les Chants de l'Aurore (2024) [FLAC|Lossless|Web-DL|tracks] <Blackgaze,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104720.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:EED5255B4732DB27AFDF2652514C9B58AFB43E91
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104729.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:4D3E855FCD21B447070DEF7685F90744E9DA90CA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104731.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lyran Lions - Chronicles of the Traveler (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104738.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Boguslaw Balcerak's Crylord - Endless Life (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104742.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Powerdong - The Divine Phallusy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104746.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lyran Lions - Star Rider (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power, Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104750.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Abyss Gazes - 3 Albums (2018-2024) [MP3|320 Kbps] <Symphonic, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104766.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Amorphis - Rarities 1991 - 2001 (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104767.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ploho - Почва (2024) [MP3|320 Kbps] <Post Punk, New Wave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104768.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Foxx - Sittin' Pretty (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104769.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Saint - Immortalizer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104771.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:A7949C8762B128CFA0E6785A3F67182468ED6903
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104779.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Marianas Trench - Haven (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104791.jpg" />
 </div>
 
 

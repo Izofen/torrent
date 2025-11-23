@@ -1,3 +1,155 @@
+###  Публикация: 1195316   (144089) от 28.12.2017
+
+А.Б. Ковельман, У. Гершович | Сокрытое и явленное в Талмуде. Очерк нефилософского мышления на исходе античности (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вавилонский талмуд был создан в Южном Ираке в III–VII вв. за пестрой тканью Tалмуда, за анекдотами, изречениями, диалогами скрывается глубокий смысл. Этот смысл зашифрован в кольцевой композиции трактатов, в метафорах и аллегориях. В основе его — «нефилософское мышление», соединяющее логику с мифом и поэзией. расшифровка Tалмуда на фоне греческой философии, Нового (   Читать дальше...   )Жанр: Иудаизм, религоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69733CDB8E2E87AE9B1BBD95C00633FD58879DFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963178   (144090) от 27.12.2018
+
+МЧС России. 25 лет во имя спасения! (06.12.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда цена человеческой жизни исчисляется уже минутами, когда беда совсем близко и ситуация кажется безвыходной, на помощь смогут прийти только они — спасатели МЧС России.
+За 25 лет эмблема МЧС стала хорошо узнаваемой не только в нашей стране, но и во многих уголках мира. Там, куда российские спасатели прилетали одними из первых.
+На счету российских спасателей — (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E91444F048AFCE728F1421FE5E6F780680F2E28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678636   (144091) от 22.11.2023
+
+Dogma (CL) - Superfix (Live) (2000) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steppin' Stoned [00:03:44]
+02. Trust Cancer [00:03:34]
+03. Blue Eyes [00:03:36]
+04. Mental Breakdown [00:06:14](   Читать дальше...   )Жанр: Groove-MetalПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082FFF44C784EC3E34A528402C4FB5C63554CB2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969977   (144093) от 28.12.2015
+
+PROMT Freelance 11 Build 9.0.556 [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144093.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMT Freelance 11 – надежный и эффективный инструмент для профессионального перевода. Идеально подходит для работы с типовой документацией большого объема. Имеет широкие возможности для настройки на терминологию и стиль, требуемые заказчиком.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD72EC7808772E2B865DEFB8E986A7EC5D068E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195286   (144094) от 28.12.2017
+
+Е.В. Афонасин, А.С. Афонасина | IATPIKH TEXNH. Очерки истории античной медицины (2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть книги представляет собой серию очерков по истории античной медицины. Подробно рассматривается связь античной традиции врачевания с культом Асклепия, а также эволюция медицинской науки с древнейших времен до периода поздней античности. Во второй части публикуются переводы двух трактатов Галена (О толках, для начинающих и О моих воззрениях) и трактат Порфирия (   Читать дальше...   )Жанр: История медициныФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9D1048D81BFFB5B83ACA235B41B371EFD153AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678648   (144095) от 22.11.2023
+
+Sutratma - Realms of Eternal Immolation (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amongst the Ruins [00:09:17]
+02. Retinue of Shadows [00:06:25]
+03. Night Eater [00:08:31]
+04. Floating World [00:08:33](   Читать дальше...   )Жанр: Funeral Doom, Death MetalПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233D838895DEFB92AA0BC9B3CCC551F87B5A751E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272345   (144096) от 27.12.2018
 
 The Legacy 3: The Tree of Might / Наследие 3: Дерево Силы (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +158,7 @@ The Legacy 3: The Tree of Might / Наследие 3: Дерево Силы (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144096.jpg" />
 </div>
 
 
@@ -30,7 +182,7 @@ Party of Sin [Ru/En/Multi6] (L) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144097.jpg" />
 </div>
 
 
@@ -54,7 +206,7 @@ WindowsPlayer 3.1.1.0 RePack (& Portable) by AlekseyPopovv [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144098.jpg" />
 </div>
 
 
@@ -78,7 +230,7 @@ magnet:?xt=urn:btih:FB65E94D3D2011D36B5C3B2E0A34F3FE7A7CE478
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144099.jpg" />
 </div>
 
 
@@ -102,7 +254,7 @@ magnet:?xt=urn:btih:71AA18B6F74A0FE30DEF774CDDCB2BD1DA556FDF
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144100.jpg" />
 </div>
 
 
@@ -126,7 +278,7 @@ magnet:?xt=urn:btih:BC5CC6EAD8942EFB2D1C900E78DC115C4E75BB9C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144101.jpg" />
 </div>
 
 
@@ -150,7 +302,7 @@ WinHex 16.8 [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144102.jpg" />
 </div>
 
 
@@ -174,7 +326,7 @@ Walk The Moon - The Liftaway (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144103.jpg" />
 </div>
 
 
@@ -201,7 +353,7 @@ magnet:?xt=urn:btih:FFB13E5ACA80CB1A2F050EFD3721014CBC3E89EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144104.jpg" />
 </div>
 
 
@@ -225,7 +377,7 @@ FL Studio Producer Edition 20.6.0.1458 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144106.jpg" />
 </div>
 
 
@@ -249,7 +401,7 @@ Warframe: The New War (2013) [Ru/Multi] (31.0.5) License (обновляемая
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144107.jpg" />
 </div>
 
 
@@ -273,7 +425,7 @@ Poseydon - Through The Gate Of Hatred And Aversion (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144108.jpg" />
 </div>
 
 
@@ -300,7 +452,7 @@ VA - Aly & Fila - Future Sound Of Egypt 528 (Top 30) (2017) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144109.jpg" />
 </div>
 
 
@@ -327,7 +479,7 @@ magnet:?xt=urn:btih:568A25F2084E69E484D942E119F6EC7190AA1851
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144111.jpg" />
 </div>
 
 
@@ -351,7 +503,7 @@ Metallica - 30 Years of Justice (2018) Live [MP3|320 kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144112.jpg" />
 </div>
 
 
@@ -378,7 +530,7 @@ magnet:?xt=urn:btih:19E3EDDBE7F6DFC5456D38A5637F540EC2FB4CE3
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144114.jpg" />
 </div>
 
 
@@ -402,7 +554,7 @@ magnet:?xt=urn:btih:87FD1EDC998948CF959159FF4F897D78BE34D356
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144115.jpg" />
 </div>
 
 
@@ -426,7 +578,7 @@ magnet:?xt=urn:btih:E19676933DE6BBA558BC67B81CE86D4DF376F3D0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144116.jpg" />
 </div>
 
 
@@ -451,7 +603,7 @@ magnet:?xt=urn:btih:ED2E0D01E58EC346BF7A1DF5DDC9EE441B6193EE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144117.jpg" />
 </div>
 
 
@@ -475,7 +627,7 @@ magnet:?xt=urn:btih:4235165345267D924847F18F4B84EB34816BF52B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144118.jpg" />
 </div>
 
 
@@ -488,154 +640,6 @@ magnet:?xt=urn:btih:4235165345267D924847F18F4B84EB34816BF52B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB3B4391CB0FE59975BF11866C8E7057FA0DFFCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678583   (144119) от 22.11.2023
-
-Марина Бондаренко | Вызывающая дождь и другие грани женской души (2023) [MP3, Марина Бондаренко]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марина Бондаренко - Вызывающая дождь и другие грани женской души. Авторская методика работы с архетипами. Современные женщины вынуждены думать и действовать в парадигме «либо-либо». Либо семья, либо работа. Либо материальные блага, либо духовное развитие. Либо удовольствие, либо жизнь для других. Можно ли сбалансировать все сферы жизни и не выбирать что-то одно, (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 08:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB586376F3671376337141722AB00F90F5DDB0A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590311   (144120) от 16.12.2012
-
-В.Репин | Бизнес-процессы. Моделирование, внедрение, управление [2012] [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деятельность любой эффективной компании строится на процессах. Как определить ключевые процессы, как согласовать их и добиться улучшений? Обо всем этом в новой книге ведущего эксперта по бизнес-процессам Владимира Репина.
- У вас в руках – не легкое чтение, а книга, требующая проработки и осмысления. В ней десятки рисунков, таблиц, блок-схем и шаблонов документов, которых не найти в других открытых источниках.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C87284AA53D1D4D595D10692356D51B96CFA40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272291   (144121) от 27.12.2018
-
-Смолфут / Smallfoot (2018) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: СШАЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигАктеры: Ченнинг Татум, Джеймс Корден, Зендея, Коммон, Леброн Джеймс, Дэнни ДеВито, Джина Родригез, Яра Шахиди, Эли Генри, Джимми ТатроПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  АнглийскиеПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82D8CAE941F163FB779B82A2A2C4E91B873A64E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589787   (144122) от 16.12.2012
-
-Петля времени / Looper (2012) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144122.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем, где стали возможны путешествия во времени, некая корпорация убирает нежелательных людей, отправляя их в прошлое в пластиковых пакетах. Задача принимающей стороны — убить жертву, стерев тем самым несчастного из истории. Все идет гладко до тех пор, пока главный герой не распаковывает очередной пакет, обнаруживая в нем… самого себя из будущего.Жанр: фантастика, боевик, триллерРежиссер: Райан ДжонсонАктеры: Брюс Уиллис, Джозеф Гордон-Левитт, Эмили Блант, Пайпер Перабо, Пол Дано, Гаррет Диллахант, Джефф Дэниелс, Трейси Томс, Пирс Гэнон, Ан Нуу НгуйенПеревод: ДублированныйФормат: MP4 (контейнер m4v)Продолжительность: 01:58:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519438   (144123) от 26.12.2021
-
-Летчик (2021) WEBRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декабрь 1941 года. Летчик Николай Комлев успешно выполняет приказ и уничтожает немецкую танковую колонну, движущуюся к Москве. Но самолет Комлева подбит вражескими истребителями, и летчик чудом сажает свой Ил-2 на глухую лесную поляну. Кажется, самое страшное позади — он выжил в воздушном бою. Однако испытания только начинаются: раненому Комлеву предстоит проделать (   Читать дальше...   )Производство: Россия, ДАПродакшн, Интерфест, Star MediaЖанр: военный, биография, драма, историяРежиссер: Ренат ДавлетьяровАктеры: Пётр Фёдоров, Анна Пескова, Павел Осадчий, Максим Емельянов, Елена Дробышева, Евгений Михеев, Гела Месхи, Роман Книжка, Марчин Стец, Николоз ПаикридзеПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5194F138BE047B76CAD552131ABAF5F4862C4D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435287   (144124) от 28.12.2020
-
-Fantastique - Fantastique (1982) 2006 [FLAC|Lossless|image + .cue] <Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Told Me 5:37
-02. Your Hand In My Hand 3:55
-03. Moi Et Toi 6:04
-04. Costa Blanca 5:26(   Читать дальше...   )Жанр: Disco, Hi-NRGПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3CD9A773846849AA0ADDBED417B22AF8CC36B6
 ```
 
 

@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12071.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:0DC68BDFF3770332A755210221BF5E3B22BF4F79
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12072.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:BD004F94FF930D6FF7EEDC51A49F1B75802D1EE9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12073.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:936F10CBE2128BAEBA165ED4FDADFEF643E0E642
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12074.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - A State Of Trance Year Mix 2014 (Mixed By Armin Van Buuren) (2014) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12075.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.29 [Nightly] Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12076.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E39B5524788AAC0F978D7FBC513661A77E35C031
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12077.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EEF161D6E83CBA504802B4D1AFDB2B124876FC02
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12078.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:B6736E66E90BD93E3A337C0AFB303D76B30FABD7
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12079.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:0178EF26EA9F9A89EEE13E37E50B75DB04943835
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12080.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:18F03E6B729053A742BFF6F1E64D4D327E68205C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12081.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12082.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:7240577BF30595343280B862EBA45CFA589830C1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12083.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Nik Collection by DxO 8.1.2 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12084.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:43BA7434B22E8C4D95D15E7D13B2CB484634A1D6
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12085.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:43BA7434B22E8C4D95D15E7D13B2CB484634A1D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12086.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:30152C1989774541F40391351FA9D37E77AB8DEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12087.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ IPTV Pro v9.0.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12088.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D226EBDED64D9C1C7280E041C7B3CE2BC9DD6204
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12089.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:8E81F6DD910E557B8A4B533EB248DE802C50459C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12090.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:20676F0B193A54BAA8024D61A7041431FF74AFEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12091.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Membran Music’s Jazz Ballads Series (2004) 20 x 2CD boxset [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12092.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:838DCB9AB5586B99148952FFA3163D3A83159BF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12093.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - The Perfect Jazz Collection: 25 Original Albums (2010) Box Set, 25 CD [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12094.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ MInstAll v.03.07.2025 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12095.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ HEU KMS Activator 63.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12096.jpg" />
 </div>
 
 

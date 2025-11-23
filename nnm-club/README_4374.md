@@ -1,3 +1,78 @@
+###  Публикация: 1679899   (134823) от 27.11.2023
+
+VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omer Bukulmezoglu - ROE (4:33)
+02. Oliver Koletzki Felix Lorusso - Bones (Deep Control MashUp) (4:29)
+03. Mzade - Come On Over (4:18)
+04. JAVAD - I am alone (7:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E025311AEBBB00DB9F139CE4037981ED631971C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592814   (134824) от 24.12.2012
+
+Коровёнка / La vaquilla (1985) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в конце гражданской войны в Испании. Несмотря на военное присутствие, конфликт окончен, и солдаты в основном занимаются тем, что пишут письма домой. Однако шаткий мир и покой нарушен в тот момент, когда пятеро солдат со стороны Республики воруют телку (в буквальном смысле, с рогами) с тем чтобы съесть ее на грядущем общенациональном празднике.Жанр: Комедия, ВоенныйРежиссер: Луис Гарсия Берланга / Luis García BerlangaАктеры: Альфредо Ланда, Гильермо Монтесинос, Сантьяго Рамос, Хосе Сакристан, Карлес Велат, Эдуардо Кальво, Виолета Села, Агустин Гонсалес, Мария Луиза Понте, Хуанхо ПуигкорбеПеревод: Одноголосый закадровыйПродолжительность: 1:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBFE182B646F398F8A950FAC7023A72BEB85D3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679991   (134825) от 27.11.2023
+
+Mickael Maison, Kate Stanley | Kafka Connect (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134825.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом практическом руководстве авторы показывают инженерам по обработке данных, инженерам по надежности сайтов и разработчикам приложений, как создавать конвейеры данных между кластерами Kafka и различными источниками и поглотителями данных. Kafka Connect позволяет быстро внедрить Kafka, используя существующие данные и обеспечивая множество расширенных вариантов (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724F450A881E9CAFD984BDC49EFE81926C01BEF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593753   (134826) от 24.12.2012
 
 Контрольная закупка - Майонез Провансаль (24/12/2012) SATRip
@@ -6,7 +81,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134826.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:EAF99EB2A018C4537D4839E28467AB670F64F57D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134827.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134827.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Sandra Hall - 2 альбома (1997, 2001) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134828.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ Sandra Hall - 2 альбома (1997, 2001) [MP3|320 кб/с]<Blues>
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134829.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134831.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134832.jpg" />
 </div>
 
 
@@ -166,7 +241,7 @@ magnet:?xt=urn:btih:4EDFBEECE40E94E7CDADFFBBE636678B3EEE54CF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134833.jpg" />
 </div>
 
 
@@ -190,7 +265,7 @@ magnet:?xt=urn:btih:E5702A5DBDD7B2B6DDEBEE9EE2700830F3AE12FC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134835.jpg" />
 </div>
 
 
@@ -214,7 +289,7 @@ magnet:?xt=urn:btih:F2EB7D2423D9EC3CF30A1D1200A161390CB2168B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134836.jpg" />
 </div>
 
 
@@ -239,7 +314,7 @@ magnet:?xt=urn:btih:3C34D3BCAA252D2F8F32F781FCAF42675EF674DF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134837.jpg" />
 </div>
 
 
@@ -263,7 +338,7 @@ Slice The Cake - The Man With No Face (2012) [FLAC|Lossless]<Progressive Deathco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134838.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134838.jpg" />
 </div>
 
 
@@ -296,7 +371,7 @@ FileOptimizer 16.40.2781 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134839.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ City Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134840.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ magnet:?xt=urn:btih:7192D5FC278AA33FBAE75F43A06F3D99F626E494
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134841.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ VA - Новогодняя феерия (2012) [MP3|320 кб/с]<Рор>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134842.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ magnet:?xt=urn:btih:16BC83B85C68B1189C59EA30E5E8CF6A728188DC
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134843.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ magnet:?xt=urn:btih:AC93630B1DC098027A7F39EA72A041EAFF6163F2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134844.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ Wise Care 365 Pro 6.6.3.633 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134845.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ magnet:?xt=urn:btih:64230FF31194330B4DF6B7EDBD45EC74AAB14CFA
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134846.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ magnet:?xt=urn:btih:71F35AC13F920EC85C29F4E1F46B64B6ECA36C15
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134847.jpg" />
 </div>
 
 
@@ -522,7 +597,7 @@ Udemy, Chris Sivewright | Strokes disable. Heart attacks/strokes also kill - tho
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134848.jpg" />
 </div>
 
 
@@ -549,7 +624,7 @@ magnet:?xt=urn:btih:850F30BE0FDC903CC5659FC3AF2166154148D894
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134849.jpg" />
 </div>
 
 
@@ -574,7 +649,7 @@ K-Lite Codec Pack Update 17.9.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134850.jpg" />
 </div>
 
 
@@ -585,90 +660,6 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:981D27BD532DC6DC1D45A5436FDD9F37B7D2A8F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593637   (134851) от 24.12.2012
-
-Winter Wallpapers (22.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43ED80142151B427D79871C18213C90AB40E942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679702   (134852) от 27.11.2023
-
-Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic Hip-Hop, Dubstep, Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King (feat. Busta Rhymes) [00:02:47]
-02. Catch Me [00:04:03]
-03. Devil May Cry [00:04:11]
-04. Human [00:04:00](   Читать дальше...   )Жанр: Alternative, Simphonic Hip-Hop, Dubstep, TrapПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F4CB9AA89146D4A284E0266200889B7584E28C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592721   (134853) от 24.12.2012
-
-VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Since Yesterday
-02. Lazy Hammock - Was I Anyone to You
-03. Lemongrass - Ton Parfum
-04. Michiko - Fly Away With You
-05. Viv de la Rosa - Andalucia - Sunny Del Mar Mix
-06. Albert St.Barth - Cafe Au Lait - Gigolo Edition
-07. Claude Chagall - Balearic Waves - Christmas Attack
-08. Martinique le Souffleur - ST.Tropez - 100% Deluxe Edit
-09. Marga Sol - Tocca Me
-10. DJ MNX - Chill Out Rock N Rolla(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
 ```
 
 

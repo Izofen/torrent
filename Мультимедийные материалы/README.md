@@ -6,7 +6,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2065.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:096AC658CCBA5B4F2ED078E6D5EF79636C838BA5
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9367.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C9D478FF48A3874191599536BA86A2283DA08457
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9445.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ HTML Academy | Доступность веб-интерфейсов (2025) [unpa
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10010.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:112781BC94FF47172A8A162615B4D15897E4902F
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13501.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:AE1845209A0EA7146B89C334794B1256075BC905
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16934.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:52ABE06AAC2A928C528F036BC1E78B51B87E9335
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16936.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:93F43E5E50FFE3E0E79D7D9B5E3EF50A26BA54D4
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19218.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Judaica Multimedia (Israel) Ltd | Encyclopaedia Judaica CD-ROM Edition v1.0 / Е
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20937.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20937.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:46234CA0D5D6E9E774AD299B27237E99ECB14F56
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22307.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22307.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:B4D4776F0938940E23C9488CC0B315B21307EEFB
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23880.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23880.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:BAF6B1751A6F22858B2E460745E8F22F85AB0ACA
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24194.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24194.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Nezabudka  cake | Трайфлы  (2020) [PDF]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24366.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24366.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:0035451B30690176BCB2B5B5B8C120EF629A1D29
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25349.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25349.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:C07903DD8D70F117F2AC216C536577E72AAD82BD
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25780.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:DF7590D9766EB7B3496EF966DEEAC598612EAE1C
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26183.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26183.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:745E10D6F8BE736D1B936AADA1307B4583ABAE70
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26192.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26192.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E2F2169C884FD8FAC31E2691102977A7638E1372
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26312.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26312.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:1350384CA6C434074F526105838E7E25C179C9AC
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27384.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27384.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Oxford Educational | Журнал по изучению английского �
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28609.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28609.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ HTML Academy | Профессия «Javascript-разработчик». Тар�
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30295.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30295.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1CB1D93F0D7B9F291158708F3F8EAEFF6677DBBE
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31436.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:F918DFBAD7032E0EFC4511448CF8E4F751BC6B07
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32897.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ HTML Academy | Курс «введение в react» [Demo] (2024) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34555.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ HTML Academy | HTML и CSS. Профессиональная вёрстка са
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37347.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:6DD364E49C45D6AC4081B78C95FF773EDD685E5A
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43597.jpg" />
 </div>
 
 

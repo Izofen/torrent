@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50769.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CF61986019266D48E6BA011DC6B8A744211955D8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50770.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Black Sabbath - Anno Domini (1989-1995) Reissue, Remastered, 2024, Warner Record
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50771.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:FA17E1455EB6BCD9ADB51A3686D307319ED09A3A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50772.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Deep Purple - Lazy Sod (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50773.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:987B5AD43DD671732FBE4CF9CEB8B2900F53B671
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50774.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:CA78E2DAD17AB80CE26AFE64D27EA55CA128723B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50775.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:289626737EE1FF7F88C8C583716D26BDEE3B4351
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50776.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:BD563FE9459951F81BF57776271BD26013281774
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50777.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A44DD963A90C6CA5F3D1584910F16874AAB1A5EF
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50778.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:66472E81A15B1222010F824DAFA678C26803F5EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50779.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:B7FBF04DFFBA472CF1E48A1F45DF8A0F89882D4E
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50780.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ RAM Saver Professional 24.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50781.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3D48537B27CFFCBF0CF25F10EF31F5135B5B87A5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50782.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:C9120F41E9047365054CB98EAFC1016A694FC437
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50783.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:91073C1A84C9A3798932D1059B6F216CF0848559
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50784.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ eM Client Pro 10.0.3117.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50785.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Music News vol.397 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50786.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:677DBA3ED727F562B914E206BC0C4BCF190C4C16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50787.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:CBFF13B7695D0F0D289D623661FE5A967850CD51
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50788.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:56712FD7009E2FBC1A16510E885DD85622C96964
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50789.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Corona Renderer 12 for Cinema 4D R17-2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50790.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:E0A21256E53A98D05283C1A25136FA361A45B9D0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50791.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ AOMEI Partition Assistant Technician Edition 10.4.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50792.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:0C899BEBADBD296812A484A5486EFDCBE4D4CBF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50793.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:F1C184018E418A7B384E2A47333E98DC1D176DEE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50794.jpg" />
 </div>
 
 

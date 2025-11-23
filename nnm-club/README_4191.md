@@ -1,3 +1,78 @@
+###  Публикация: 1824021   (128653) от 13.10.2025
+
+Дмитрий Дубов, М. Борзых | Восхождение Примарха (Книга 5) (2025) [MP3, Константин Загацкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда казалось, что враги уже повержены, и можно, наконец, отдохнуть и заняться насущными проблемами, выяснилось, что настоящие противники ещё даже не показывали своё лицо. А кто говорил, что будет легко? Я – Примарх, и это моё восхождение!Жанр: фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 09:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CC0F6767E34996F2639EF082AD7CC7F9987E4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824020   (128654) от 13.10.2025
+
+Дмитрий Дубов, М. Борзых | Восхождение Примарха (Книга 4) (2025) [MP3, Константин Загацкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда казалось, что враги уже повержены, и можно, наконец, отдохнуть и заняться насущными проблемами, выяснилось, что настоящие противники ещё даже не показывали своё лицо. А кто говорил, что будет легко? Я – Примарх, и это моё восхождение!Жанр: фэнтези, боевик, попаданцыИздательство: ЛитРесПродолжительность: 09:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E14FF99FEE3776F24BA7A9149BAA60A43411CF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824028   (128655) от 13.10.2025
+
+Аркадиас - Звёздный май. Песни Николая Кокшарова (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Звёздный май [00:03:59]
+02 - Наташа [00:04:01]
+03 - Диско-лето [00:03:26]
+04 - Розовый вечер смотрит в окно [00:03:58](   Читать дальше...   )Жанр: PopПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D062C248DEF20A18D91B8EA97503A19CD03D1BA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823995   (128656) от 13.10.2025
 
 Лев Жуковский | Утопающий во лжи (Книги 1-8) (2024-2025) [MP3, Юрий Мироненко]
@@ -6,7 +81,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128656.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128657.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:4EC60E1FAE67F71BA57759AC50A105335792E781
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128658.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:0F65263350B8611F7B2AAB6695FF9D8A1C7AD7F5
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128659.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:1DBF095C1AB861831993D88735D37ADFD5F0BFE1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128660.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Crowne - Wonderland (2025) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128661.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:FBECBDA1FEA0FA714CC20479D9BA76D64821F1ED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128662.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ Catfish John Tisdell - Win or Lose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128663.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ magnet:?xt=urn:btih:69B937350418321385CE7E7EE44D3D7031CF0867
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128664.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ Black Barrel & The Bad Men - Bad Men, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128665.jpg" />
 </div>
 
 
@@ -260,7 +335,7 @@ Bidu Sous - On the Blues Road (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128666.jpg" />
 </div>
 
 
@@ -287,7 +362,7 @@ Ben Hemming - The Meaning Of All Things (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128667.jpg" />
 </div>
 
 
@@ -314,7 +389,7 @@ BB & the Bullets - High Tide (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128668.jpg" />
 </div>
 
 
@@ -341,7 +416,7 @@ magnet:?xt=urn:btih:FEFCF7316072C627843A6DB622A18A75BF9B31E0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128669.jpg" />
 </div>
 
 
@@ -365,7 +440,7 @@ magnet:?xt=urn:btih:10138635D28DFDC789DB1E1498743EA90DF6C983
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128670.jpg" />
 </div>
 
 
@@ -389,7 +464,7 @@ magnet:?xt=urn:btih:D872FE1418BBF583EDC52951F96798DCFE640F68
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128671.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ magnet:?xt=urn:btih:93C0EFB159B8A27FF6EDAD85C91E439CABF7204B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128672.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ magnet:?xt=urn:btih:5350D2B6213D9FA50BB536845E8E84D7D16ED01D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128673.jpg" />
 </div>
 
 
@@ -461,7 +536,7 @@ magnet:?xt=urn:btih:A5CEA7D303C2628DF3827ACA6A0AE0232D143470
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128674.jpg" />
 </div>
 
 
@@ -485,7 +560,7 @@ magnet:?xt=urn:btih:18A83952E2FAD3378459F1DEB42030455AB91C87
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128675.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128675.jpg" />
 </div>
 
 
@@ -509,7 +584,7 @@ magnet:?xt=urn:btih:18A83952E2FAD3378459F1DEB42030455AB91C87
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_128676.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_128676.jpg" />
 </div>
 
 
@@ -533,7 +608,7 @@ Soul Browser 1.3.92 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128677.jpg" />
 </div>
 
 
@@ -557,7 +632,7 @@ VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128678.jpg" />
 </div>
 
 
@@ -571,82 +646,6 @@ VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF0D213E6152B4DDDABDE7BB2BC91BA0BDC7753B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683352   (128679) от 10.12.2023
-
-Газета | Невыдуманные истории №42 (395) (октябрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128679.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярный журналИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAB250009AAE9A3105994D5707EA737BE791D8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683170   (128680) от 10.12.2023
-
-Газета | Загадки истории №15 (539) (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128680.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2EC5535D8198D171AE68BB27392B212A18FD59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683106   (128681) от 10.12.2023
-
-VA - Sister Bossa Vol. 11 (Cool Jazzy Cuts With A Brazilian Flavour) (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance - Light Size (Turnaround Version) (6:33)
-02. Papik - Passos De Esperança (3:15)
-03. Cafe Safado - A Mil Por Hora (3:15)
-04. Duzzy - Dino Ferrari (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth Jazz, Easy ListeningПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5261E1667D1C49C2095681BEC480288AA24BF7
 ```
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16875.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stepik, Сергей Бубович | Искусство чтения челов
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16876.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FileMenu Tools 8.5 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16877.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mental Room, Сергей Бубович | Face Hunter. Чтение эмоци�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16878.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:82B93FB187DF422F75B164C1033E3E5DE3051378
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16879.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AF57380E796C1091D8000723FF4CC22E1D9713CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16880.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mental Room, Сергей Бубович | Стрессовая коммуник
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16881.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A51CC05BA4B1F8836783263BF776EC322C7BF6B8
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16882.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:59FEB1B3B96071F6718A636F633E4670ACAC165F
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16883.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:591D03D419AEEF274AE5340C936F8E3AB88ADE10
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16884.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Stepik, Артур Бобров | Психология убийц (2023) [PDF, D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16885.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F581887189E5B88BAFE9D3E7E63F846136586787
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16886.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.80) Scene Razor 1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16887.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8E5C235E381438308D10AB7CB2FDB28CF676DAD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16888.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Allavsoft Video Downloader Converter 3.28.1.9274 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16889.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:139A591A0ACFB025C853BF2FE93B26213C43DC89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16890.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16891.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Maude Hirst | "Путь к Любви к Себе": Медитационный �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16892.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Grave Intentions - Call of the Void (2025) [MP3|320 Kbps] <Melodic Death, Thrash
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16893.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lude - Eternal Womb of Celestial Decay (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16894.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16895.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Olive - The Awaking (2005) [MP3|320 Kbps] <Atmospheric Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16896.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Rudy's Midnight Machine - The Reception (2008) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16897.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16897.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Elysia - Numinous (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16898.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:75E9E1004AEA83F3AFF021C784758BAC1BAECB3B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16899.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:75E9E1004AEA83F3AFF021C784758BAC1BAECB3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16900.jpg" />
 </div>
 
 

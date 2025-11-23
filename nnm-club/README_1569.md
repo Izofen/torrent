@@ -6,7 +6,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41149.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:263D90C4C6150B15326070D087916EA73CD3C858
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41150.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - The Orient Collective - Blossoms (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41151.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Soror Dolorosa - Mond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth Rock, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41152.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Guitar Jack Wargo - Blues Therapy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41153.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Vern Daysel & The Burning Breeze - Round Up the Wagons (2024) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41154.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Gohobo - Open Door (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41155.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Eric Turner Band - Midnight Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41156.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Greyhound's Washboard Band - Don't Ditch It (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41157.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Art Tatum - Jewels In The Treasure Box (1953) 3CD, 2024, Resonance Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41158.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:339D8DCE343813D64F33077EE9F936D06580A453
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41159.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Gavin Harper - Mixed Emotions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41160.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F6E02F3619B84F24219F80ECCAFADA9FADFB799F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41161.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Самые душевные песни русского шансона 3 (2
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41162.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Plexim Plecs 4.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41163.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:121C2B5B50E995725CC9CDA6797D21EC8A6DB532
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41164.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:10F268356857FD81C936B60E3A7D8A5059D22565
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41165.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Moby - quiet home: remixes (DJ Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41166.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:E6FFA49EC598ECBE54FF2C292F49797AFAA8E918
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41167.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Opera One 114.0.5282.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41168.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ RegCool 2.014 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41169.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C9286B22C52CA9827F7DB1A0176FC48F8DDFDCE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41170.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:A347E7AB286A94282710BDD4A9257EFC130A662F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41171.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:D6D11CA99A71A723DE3D61D2857885C2E5EAE5F1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41172.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Trance In Motion Vol.381 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41173.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Romantic Piano Music Masters - Jazz Music for Sex & Romance (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41174.jpg" />
 </div>
 
 

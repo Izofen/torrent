@@ -1,3 +1,30 @@
+###  Публикация: 1427055   (184218) от 27.11.2020
+
+Слава КПСС - ЧУДОВИЩЕ ПОГУБИВШЕЕ МИР (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_184218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чудовище погубившее мир [02:49]
+02. Чучело [03:26]
+03. В хрущевских и брежневских домах [03:18]
+04. Мертвый игрок [03:49](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCCD8B8BAADA9C46704A9AA120CC53173E79187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427057   (184362) от 27.11.2020
 
 STED.D - МЫ ДАВНО В АДУ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -6,7 +33,7 @@ STED.D - МЫ ДАВНО В АДУ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184362.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184362.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ magnet:?xt=urn:btih:BA6FCC8C3951C2FF89DB37FF4E9F50F6879B61E5
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185099.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_185099.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ VA - The Secret Garden (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185809.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_185809.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ VA - Поколение Брат (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189644.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189644.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ VA - Chillhop Essentials Fall (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189712.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189712.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ magnet:?xt=urn:btih:6EE3580F42454BB26FB2751EE0E1E10D21ECEFA2
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189751.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189751.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ magnet:?xt=urn:btih:D0484EB86EF2AECAA1AEC8E0D0E47544DD30AA46
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190509.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190509.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ VA - Chillhop Essentials Summer (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197259.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197259.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Noize MC - Кооператив «Лебединое озеро» (2023) Single 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199754.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199754.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ magnet:?xt=urn:btih:47BEC50BBA610630B16D92AFBB538334FBFF9CC8
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200328.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200328.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ Sam Smith - Gloria (2023) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Vocal
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200981.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_200981.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ magnet:?xt=urn:btih:0F4216BA4CF3787BDF69B0C20DFC25B6A0F4FAE5
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201673.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201673.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ VA - Chillhop Essentials Fall (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206311.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206311.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ Skindred - Smile (2023) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Reggae>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206987.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206987.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ magnet:?xt=urn:btih:27DA187EEC24CD1567BBF742F9F4135D7FAA1B9C
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208680.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208680.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ Coolio - Gangsta's Paradise (1995) 2020, 25th Anniversary, Remastered [FLAC|24/9
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208829.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208829.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ magnet:?xt=urn:btih:15789D7BD0A1E0FE0A8FA760E8821A3089586627
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209435.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209435.jpg" />
 </div>
 
 
@@ -462,7 +489,7 @@ Alicia Keys - Songs In A Minor (2001) Deluxe Edition, 2023, J Records/Legacy [MP
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211800.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211800.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ magnet:?xt=urn:btih:E6949345B01FEE55A0C51626CDA3845F55EF021C
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211988.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_211988.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ magnet:?xt=urn:btih:6B567EBC91060E251405A12D7EDDBACB35697EFB
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213603.jpg" />
 </div>
 
 
@@ -543,7 +570,7 @@ Oxxxymiron - Красота и Уродство (2021) Kultizdat [FLAC 2.0|48/24
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217211.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217211.jpg" />
 </div>
 
 
@@ -570,7 +597,7 @@ Big Russian Boss, Young P&H - MODNA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217541.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217541.jpg" />
 </div>
 
 
@@ -597,7 +624,7 @@ Big Russian Boss - G.O.L.D. (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218515.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218515.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ Oxxxymiron - Красота и Уродство (2021) [FLAC|Lossless|WEB-DL|tra
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218641.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218641.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ Oxxxymiron - Красота и Уродство (2021) [MP3|320 Kbps] <Rap, Hip-
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218652.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218652.jpg" />
 </div>
 
 
@@ -665,33 +692,6 @@ Oxxxymiron - Красота и Уродство (2021) [MP3|320 Kbps] <Rap, Hip-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71EEA875681DADFD97003EFAB2DC27A904C77E9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425513   (218930) от 22.11.2020
-
-ЗАМАЙ - Андрей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218930.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Черный [03:47]
-02. Одинокое пламя [02:36]
-03. Алкоголь [02:58](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC06DB3ADAF2076BDDCB1659DD1A810B820BE23
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 484612   (89507) от 19.04.2012
+
+Другой мир: Пробуждение / Underworld: Awakening (2012) [H.264/1080p-LQ] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через 12 лет в состоянии, близком к коматозному, Селин узнает о существовании родной дочери Евы - гибрида вампира и ликана. И Селин необходимо помешать БиоКом создать суперликанов, которые убьют их всех.Производство: СШАЖанр: ужасы, боевик, фэнтезиРежиссер: Монс Морлинд, Бьёрн СтейнАктеры: Кейт Бекинсейл, Стивен Ри, Майкл Или, Тео Джеймс, Индия Айли, Чарльз Дэнс, Сандрин Холт, Кристен Холден-Рид, Джейкоб Блэр, Адам РейдПеревод: ДублированныйСубтитры: Английские,Русские (Комментарии), Английские (Форсированные), Английские, Английские (Комментарии)Продолжительность: 01:28:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484685   (89509) от 19.04.2012
+
+Разделитель / The Divide (2011) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89509.jpg" />
+</div>
+
+
+###  Подробнее
+
+События фильма разворачиваются в подвале одного из зданий в Нью-Йорке, который стал своего рода спасательным бункером для восьмерых людей, когда город был разрушен в результате мощного взрыва неизвестного происхождения. Где-то в глубине подвала они видят человека в ОЗК и с оружием, который, похоже, объявил на них охоту.Жанр: ужасы, фантастика, триллерРежиссер: Ксавьер ГенсАктеры: Лорен Джерман, Майкл Бьен, Майло Вентимилья, Кортни Б. Вэнс, Эштон Холмс, Розанна Аркетт, Иван Гонзалез, Майкл Эклунд, Дженнифер БланкПеревод: Профессиональный (многоголосый закадровый)Продолжительность: 02:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C44D00B2838E1CC9DE04B7027EF008D5412D291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484888   (89511) от 19.04.2012
+
+[RePack] Insanely Twisted Shadow Planet [En] 2012 l R.G. ReCoding
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухмерный «мультинаправленный шутер», посвященный полетам на летающей тарелке и изучению титульной «Теневой планеты», заполоненной недружелюбной живностью.Тип издания: RePackРазработчик: Shadow Planet ProductionsЖанр: АrcadeЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB6476BE68D55E34A865879BF40D948D5C91DB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484917   (89513) от 19.04.2012
 
 Эйс Вентура: Дилогия / Ace Ventura: Dilogy (1994 - 1995) HDRip
@@ -6,7 +78,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89513.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:B3F38B2741D195469DD73C2935EAE3529DA25AD0
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89518.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:8006A4F4A134DCF49E3BD9C769291511F3FF0F9D
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89519.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:4D99493F04DF5B96CAFFE80B2808DCDCE76EBD39
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89525.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:EC91D74E41E333D29BAA7A7FAAB4DCE5D93D4DB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89527.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:A9F489880CE662F8BA70B295140600564738734F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89528.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ Sniper Elite [Ru/En] (RePack) 2005 | Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89530.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:1E2374E0A360D0BC5165AE284C50B118BCA567B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89532.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:1E2374E0A360D0BC5165AE284C50B118BCA567B7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89535.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Gran Turismo 4 [Multi5\-] (RePack/Emulator) 2005/2012 | MarkusEVO
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89536.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Gran Turismo 4 [Multi5\-] (RePack/Emulator) 2005/2012 | MarkusEVO
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89537.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ ACDSee Pro 5.2 Build 157 Final RUS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89542.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ ACDSee Pro - профессиональная программа для рабо
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89543.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:3BB9C7B3E91E1CA62E0492BFD7997E90B5236F35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89545.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ StatSoft STATISTICA 8.0.725 [Eng]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89550.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ Autodesk AutoCAD Mechanical 2013 (x86, x64) (Русский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89552.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ AutoCAD® Mechanical – это AutoCAD® для машиностроитель�
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89554.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ VA - Весенний заряд. Треки то,что надо! (2012) [MP3|2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89556.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ magnet:?xt=urn:btih:6751F41C483360BEF566AF5F885C88BAB2ECCD05
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89558.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ VA - Включи меня снова (2012) [MP3|175-241 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89560.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:53ABEF5108915DA4F6C10BFB82577FD4F139BBB6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89565.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:3AA42618E458DB735ED0E2A463BEBE5E3C3565F0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89571.jpg" />
 </div>
 
 
@@ -568,7 +640,7 @@ Lovelock - Burning Sound (2012) [MP3|320 кб/с]<Tech House, Electronic, Nu Dis
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89574.jpg" />
 </div>
 
 
@@ -586,96 +658,6 @@ Lovelock - Burning Sound (2012) [MP3|320 кб/с]<Tech House, Electronic, Nu Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFA6FC5EA9072BB0C221301DD188C90E7853C43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485473   (89575) от 20.04.2012
-
-VA - Клубные новинки Vol.67 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix)
-02. Betsie Larkin and Sied Van Riel - The Offering (Extended Mix)
-03. Biokinetix - sextime (Polypheme remix)
-04. Cassie - King Of Hearts (Sam Young remix)
-05. D-Mad feat. Emma Lock - Counting On Love (Original Mix)
-06. Daddys Groove and Little Nancy - Its Not Right, But Its Okay (Extended Mix)
-07. Desusino Boys - Xerox
-08. Digital Mass - Episode Se7en (Original Blue Mix)
-09. DJ Kiriloff feat. Gloria House - La Isla Blanca (Extended Vocal Mix)
-10. Dj Viduta - Coming Back For More(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2DEDA54781CAC9DCEA34D081CDBE65A6147EF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485694   (89580) от 20.04.2012
-
-Кто получит ананас? (1978) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тигренок шел в гости к слоненку и нес в подарок ананас, но хитрая обезъяна выманила и съела угощение.Жанр: Детский, Рисованная анимацияРежиссер: Елена БариноваПерсонажи: Андрей Игнатенко, Л. ДзюбПродолжительность: 00:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76402FF340461B9DE8310774CEED79ADEF68B3B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485283   (89583) от 20.04.2012
-
-VA - Танцевальный Русский Хит часть 2 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ваня Романов Feat. Jordan - Я Для Тебя Живу
-02. Andi Vax Sound Stuff - 8 Марта
-03. Ксения - Разукрасить Мечты
-04. Gaponoff & Саша Ветер - Melted Stars (Radio Edit)
-05. Наталья Бучинская И Елена Яловик - Лучшая Подруга
-06. Dna Family - Когда Любовь Живет
-07. Горячие Головы - Возвращайся
-08. Reflex - Первый Раз (Версия 2012)
-09. Пропаганда - Нет-Да
-10. Валентина - Между Нами(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291727B35DC8C3E74BD031742AA14409CAF99601
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1699809   (117598) от 14.02.2024
+
+XYplorer 25.50.0200 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117598.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4231E7F65E5D5B3771D3B5B33368C186D17D8C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823138   (117599) от 10.10.2025
+
+Как приручить лису (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-2 из 8) (обновляемая)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зоопсихолог, изучающий лис, спасает жизнь странной замкнутой девушки Дины, но в результате сам становится подозреваемым в убийстве. Он вынужден начать самостоятельное расследование, а для этого ему приходится наладить контакт с дикаркой Диной, далекой от социальных норм и ограничений. Постепенно он выясняет, что в округе уже больше 15 лет пропадают юные девушки, (   Читать дальше...   )Производство: Россия, Место силыЖанр: Детектив, триллер, криминалРежиссер: Юлиана ЗакревскаяАктеры: Кирилл Кяро, Максим Стоянов, Таисья Калинина, Ксения Кутепова, Наталья Фенкина, Андрей Кочинов, Федор Федосеев, Сергей Медведев, Юрий Межевич, Егор Борисов и др.Продолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF987858C044A8247FB062E3933770E1AE345BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699715   (117600) от 14.02.2024
+
+Italian Romantic Piano Jazz Academy, Sexy Lovers Music Collection, Romantic Evening Jazz Club - Love's Reflections: Reliving the Fire of Romance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Language of Love (3:46)
+02. Sentimental Memories (5:10)
+03. Still Want to Hold You in My Arms (3:56)
+04. Reflections (5:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0606F7DD8C44920EE81AA928AED78B0F984CDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823137   (117601) от 10.10.2025
 
 Звуковые библиотеки - Slooply - Cxrker - Currency [WAV]
@@ -6,7 +81,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117601.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:17190B8EFC746B9591F05AC6B2B95BFF34353763
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117602.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Money Pro - Personal Finance 2.10.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117603.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:03D4766F97604CD820C8923690DA5A045B426F05
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117604.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ Triangle Sun - Wake Me Up (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117605.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ Cafe Chill Jazz Background, Jazz Music Lovers Club, Jazz Erotic Lounge Collectiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117606.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ magnet:?xt=urn:btih:1EF93AB33F9876255449244121D6BADF4946A119
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117607.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:442E69B025830DA3B672C5B733C7BFFD5AF5C669
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117608.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:63977D231D63211AE969D740E6EC6E21AF1FAD92
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117609.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ Ui Kits - UI8 - The Folio - Portfolio, Blog, and Personal Website Template [FIG,
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117610.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:BAFB731324251B6678D23D6E77D931425AF2EC1E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117611.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ magnet:?xt=urn:btih:8C71D0041130CE15793C69E416C2293F08AF2B41
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117612.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ magnet:?xt=urn:btih:F3F92D7CF1CE5045EC15B1A017DDEB10FA5EFF19
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117613.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ magnet:?xt=urn:btih:98A99F023483C10C32A436E2CAFDDE145FA2F38F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117614.jpg" />
 </div>
 
 
@@ -349,7 +424,7 @@ Mellel 6 v.6.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117615.jpg" />
 </div>
 
 
@@ -374,7 +449,7 @@ magnet:?xt=urn:btih:BECB93AB49DBDC13C9021EF966506EEEC4C88CE0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117616.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ magnet:?xt=urn:btih:48172DC8D05B25C46A716D36C952718F99281176
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117617.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117618.jpg" />
 </div>
 
 
@@ -449,7 +524,7 @@ Edge of Reality 10: Island of Shadows (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117619.jpg" />
 </div>
 
 
@@ -473,7 +548,7 @@ Trivax - Eloah Burns Out (2023) [MP3|320 Kbps] <Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117620.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ magnet:?xt=urn:btih:8B119E0ED360C1CC93BE6B2B172530131E095719
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117621.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ Smooth Jazz Music Ensemble, Background Instrumental Music Collective - A Cup of 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117622.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117623.jpg" />
 </div>
 
 
@@ -562,82 +637,6 @@ Yooka-Replaylee - это усовершенствованная версия и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A48406EB46B9A2B7B99DE9BE123291B5012F6140
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699627   (117624) от 14.02.2024
-
-VA - The Atlantic New Orleans Jazz Sessions (1955 - 1962) 4CD, 1998, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punch Miller's Bunch - Hindustan (4:00)
-02. Punch Miller's Bunch - Casey Jones (3:07)
-03. Punch Miller's Bunch - Sugar Blues (4:03)
-04. Punch Miller's Bunch - Corrine Corrina (3:57)(   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 04:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23827259E34B53D75BBD8D3854C463C2E81B643
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823119   (117625) от 10.10.2025
-
-Взлом кодов / Cracking the Code (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117625.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Взлом кодов» — это документальный сериал, посвящённый одной из самых увлекательных и одновременно незаметных битв в истории человечества: битве умов. От древних тайн исчезнувших цивилизаций до современных технологий преступного мира — этот сериал погружает зрителей в захватывающие истории людей, которые смогли разгадать то, что казалось неразрешимым.
-Каждый эпизод (   Читать дальше...   )Производство: США | «Blink Films»Жанр: ДокументальныйУчастники: Деметри Горицас, Саша Ауэрбах, Onyeka Nubia, Clare Mulley, Пол Гэннон, Klaus SchmehПеревод: ОдноголосыйЯзык озвучки: РусскийСубтитры: Русские (отдельно)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7D59371A54996E601B406452B0CEA64EEBFE95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823059   (117626) от 10.10.2025
-
-Мушкетеры 20 лет спустя (1992) DVDRip [H.264] (серии 1-4 из 4) [Hand made]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117626.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа А. Дюма "Двадцать лет спустя". Продолжение удивительных приключений смелых мушкетеров. С момента описываемых в предыдущей части событий прошло 20 лет. Время много изменило в жизни наших героев: Атос получил наследство, поселился в замке Бражелон и вырастил сына, Портос разбогател благодаря выгодной женитьбе на стареющей прокурорше, Арамис (   Читать дальше...   )Производство: Россия, Студия Москва, Союзтелефильм, Одесская киностудияЖанр: приключения, экранизацияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Михаил Боярский, Вениамин Смехов, Валентин Смирнитский, Игорь Старыгин, Виктор Авилов, Ольга Кабо, Анатолий Равикович, Алиса Фрейндлих, Юрий Дубровин, Екатерина Стриженова и др.Субтитры: отсутствуютПродолжительность: 01:02:17 + 01:12:16 + 01:14:08 + 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1994F225E68A8EBDA47CC17D1E80CEEF4A8D4CAF
 ```
 
 

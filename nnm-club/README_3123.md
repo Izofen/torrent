@@ -1,3 +1,84 @@
+###  Публикация: 485212   (99974) от 19.04.2012
+
+[Wallpapers] Girls Wallpapers Mix (20.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1440х900 - 3145х2040
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12994C838F98ECDAE5AC6B9633F4ABC581B4DF07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484981   (99976) от 19.04.2012
+
+Величайшие автомобили: Jaguar / Great Cars: Jaguar (2004) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jaguar - одна из знаменитых марок в мире, которая известна своими стильными, быстрыми и грациозными автомобилями. Она гремела по всему миру благодаря гоночным успехам 50-тых годов и машинам, сочетавшим уникальные технологии и выдающуюся скорость. Jaguar оставил неизгладимый след на автомобильном ландшафте.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FC8CC5D9143C75061778EB824EE9FBA945CE25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484792   (99979) от 19.04.2012
+
+Bobina - Russia Goes Clubbing #188 (2012) [MP3|320 кб/с]<Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hour 1:
+01. Daniel Wanrooy feat. Blake Lewis - Stay In The Moment
+02. Ex-Driver & Satelite - See The Light (D-Mad remix)
+03. The Blizzard - Piercing the Fog
+04. Tomas Heredia - Silent Nights
+05. Chris Schweizer - Xeon
+06. Bobina - Diamond Hell (Wezz Devall remix)
+07. Sied van Riel - Tunnel Vision
+08. Andrew Rayel - Exponential
+09. RAM - RAMplify(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4792333634E693AF7863D00AB0299E15E412D737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484979   (99981) от 19.04.2012
 
 Величайшие автомобили: GT 40 / Great Cars: GT 40 (2004) SATRip
@@ -6,7 +87,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99981.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Psychotic Homicidal Dismemberment - Displaying Her Decapitated Corpse (2011) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99984.jpg" />
 </div>
 
 
@@ -56,7 +137,7 @@ magnet:?xt=urn:btih:52ADB6587A6A0AF02563AA0DD3F8ABED8FB20A7A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99985.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:60E87049D4EEEC29E3C573DE6B32DD9785D2180B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99987.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ magnet:?xt=urn:btih:F34220884BAE50665924801DA56562058C6B6B35
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99989.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ magnet:?xt=urn:btih:F68D6422484E47CB06574F8347EF1267654FC43E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99991.jpg" />
 </div>
 
 
@@ -160,7 +241,7 @@ magnet:?xt=urn:btih:8E56DB19EFDCC26AC9BBAE5B523917724291A0B2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99996.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ magnet:?xt=urn:btih:744E148B2DFDA3B17AA7ADA1E56EED5280D20229
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99999.jpg" />
 </div>
 
 
@@ -208,7 +289,7 @@ magnet:?xt=urn:btih:0A2F7FE753111E52D6D84E3EE5660278E897B1B3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100000.jpg" />
 </div>
 
 
@@ -232,7 +313,7 @@ K-Lapso - Deadly Transformations (2012) [MP3|320 кб/с]<Psychedelic / Dark>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100001.jpg" />
 </div>
 
 
@@ -264,7 +345,7 @@ Mari! Mari! - Flamboyant Flares [EP] (2012) [MP3|320 кб/с]<Indie Rock/Brit-Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100003.jpg" />
 </div>
 
 
@@ -290,7 +371,7 @@ Uneven Structure - Februus (Limited Edition) (2011) [MP3|320 кб/с]<Experiment
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100004.jpg" />
 </div>
 
 
@@ -317,7 +398,7 @@ VA - The LTD Chronicles mixed by 6th Borough Project (2012) [MP3|~245 кб/с (V
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100010.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ Spectral - Gateway To Death (2012) [MP3|320 кб/с]<Black/Viking/Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100011.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ Dotma - Sleep Paralyses (2011) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100013.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ magnet:?xt=urn:btih:73A977D28EC2933D51BB5FCCF2E9F7FE5C977960
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100015.jpg" />
 </div>
 
 
@@ -444,7 +525,7 @@ magnet:?xt=urn:btih:6C4CD3B5507D3798A7CA14350F109793ED0EE90B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100016.jpg" />
 </div>
 
 
@@ -468,7 +549,7 @@ VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100018.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100022.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100024.jpg" />
 </div>
 
 
@@ -550,7 +631,7 @@ magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100025.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ Weapons Wallpapers
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100027.jpg" />
 </div>
 
 
@@ -602,7 +683,7 @@ magnet:?xt=urn:btih:229E857A9F8954966B2CE1AEC0E377DD1CC53B3C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100029.jpg" />
 </div>
 
 
@@ -617,101 +698,6 @@ magnet:?xt=urn:btih:229E857A9F8954966B2CE1AEC0E377DD1CC53B3C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8843BFB0F6B9EAFB0CDC301A26B1F0E1F7FBE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485113   (100031) от 19.04.2012
-
-VA - NRJ: Мы Эксперты По Молодому Поколению 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100031.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Каникулы В Мексике - Мексикана-Мама (Radio Version)
-002 Christopher S Feat. Flava & Stevenson - Poison (Re-Work 2012)
-003 Елена Терлеева - Я За Тобой (Radio Rip)
-004 Alex Kenji And Starkillers Feat. Nadia Ali - Pressure (Alesso Remix)
-005 Вероника Агапова - Baby By By!
-006 Alexis - Keep On Falling (Gordon & Doyle Remix)
-007 А.р.м.и.я - Львица
-008 Wisin & Yandel feat. Jennifer Lopez - Follow The Leader
-009 Шима - Океан
-010 Inna Feat. Flo Rida - Club Rocker (Radio Version)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CFBD313B95FB35269F3E11B6C39359B0901203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484652   (100033) от 19.04.2012
-
-VA - Pandora (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Diagnostik - Fear & Loathing [08:02]
- 02. Sci Lab - Pandoras Box [07:22]
- 03. EMP - Renegade [07:19]
- 04. Night Wolf - Scientology [06:18]
- 05. Algorhythm - Reborn [07:54]
- 06. Iron Lotus - Inferno [07:04]2012Жанр: Psychedelic / Night Full OnПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484951   (100036) от 19.04.2012
-
-Серия "Giants of Jazz - Immortal Concerts" / Kid Ory and The Creole Jazz Band - Echoes From New Orleans (1956/1996) [APE|Lossless]<Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, T ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Me Blues (T.Delaney) (3:51)
-02. Careless Love (traditional) (5:33)
-03. High Society (P.Sleeve) (4:07)
-04. Oh, Didn't He Ramble (W.C.Handy) (4:57)
-05. Eh, La Bas (K.Ory) (6:01)
-06. Toot, Toot, Tootsie! (T.Fiorito - E.Erdman - G.Kahn) (6:37)
-07. Maryland, My Maryland (tradirional) (2:44)
-08. Bugle Call Rag (W.C.Sweatman) (3:18)
-09. 1919 Rag (traditional) (5:32)
-10. Down Home Rag (W.C.Sweatman) (3:23)(   Читать дальше...   )1956 / 1996Жанр: Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, Trombone JazzПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 

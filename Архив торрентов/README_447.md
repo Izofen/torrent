@@ -6,7 +6,7 @@ Marc O' Tool - Serious (2012) [MP3|320 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99176.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99177.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99179.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99181.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99182.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99182.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99184.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99185.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99186.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99196.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99197.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FeedDemon 4.0.0.22 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99208.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99208.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ FeedDemon - Одна из наиболее достойных программ �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99212.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6D53ABD6E78C9B2A184884DE9120E7A651473993
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99218.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99218.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:6D53ABD6E78C9B2A184884DE9120E7A651473993
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99230.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Dis
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99231.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99231.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Dis
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99234.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:73EF3F74FC638BA6761C9305FAC4275D5B1F073F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99243.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99244.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99247.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99247.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99254.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Sunny Crimea & Physical Illusion - Soulful Nights LP (2012) [MP3|320 кб/с]<Dr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99255.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #81 (10.04.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99269.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Hugh Coltman - Stories From The Safe House (2008) [FLAC|Lossless]<Acoustic, Pop 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99271.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99271.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Hugh Coltman - Stories From The Safe House (2008) [FLAC|Lossless]<Acoustic, Pop 
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99275.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:E6267521005DE107F1D8F12E55A7E34D3D842A28
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99277.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:3F316618C859C78AE6D55E4B5FD2BBC9E35131DC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99278.jpg" />
 </div>
 
 

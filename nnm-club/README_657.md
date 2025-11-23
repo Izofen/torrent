@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17399.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DDD0E91DBC8FC2438FF3ED60A189352FC35FB0D1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17400.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0CDF749E0DF47129883A3C9DF7950397711C46C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17401.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EA46B15D1914351B9A5BBDDB44BEE07846C00399
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17402.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:49D1DC048C36289AE08817600F9233278CDDE90F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17403.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ FANTASIAN Neo Dimension (2024) [Multi] (29100132/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17404.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ iDownerGo Video Downloader 10.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17405.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BF3963FEBB43FE664AAE2F1FDF38A0A4DF57514D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17406.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C5C9FCFACFE9571887A46529DF6A54DE0DEEB0BB
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17407.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Susan Rubin | Основы работы с цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17408.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E94361A847446A425CAA79AE1A98FF73DDADBF99
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17409.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:4048A82178A239F779788492B2CCA121B6FFB0B3
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17410.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:DF5E682E05F04EF0F9A93C9DB0CE91E154454129
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17411.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Glary Utilities Pro 6.26.0.30 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17412.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:0AD41935BDFEBCC36BB351EB46D319E87DBC731D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17413.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:597951B81124373B3F9C390A970D2CF0F0AEF7BF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17414.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:67869FF026CAE3BA65CE32DED65B866F346EA338
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17415.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:28F793A44CB5EF0EF60E88248BF879F8F9C7A7A3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17416.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D616AAE20931FBEE0E9C8E5AEFD563AD67C92299
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17417.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:4212CFBCCB49F4E73D17109307F795EDC70B5AB2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17418.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ AIR Music Technology - Hybrid 3.1.1 STANDALONE, VSTi, VSTi 3 (x64) RePack by R2R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17419.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17419.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Cronos Compulsion - Lawgiver (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17420.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Thaddeus Moss - Strip Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17421.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Tenkiller - Burn the Boats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17422.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17422.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Lisa Price - Priceless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17423.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Sepultura - Roots (1996) 2 x CD, Compilation, Reissue, Remastered, 2017, Roadrun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17424.jpg" />
 </div>
 
 

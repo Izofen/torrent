@@ -1,3 +1,78 @@
+###  Публикация: 1690806   (123682) от 09.01.2024
+
+Сергей Карелин, Виталий Останин | Мастер Порталов (Книга 2) (2024) [MP3, Вадим Ерофеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кого-то сбивает автобус, и после смерти он попадает в фентези с гаремом и эльфийками. Кого-то богиня призывает, чтобы спасти всех от Темного Властелина. А у меня «просто» пробудилось древнее наследие и я научился открывать порталы. Да, в другой мир.
+
+Вроде бы и этого достаточно, чтобы с ума сойти, так еще и планетка после какого-то Армагеддца, мутанты со всех сторон, (   Читать дальше...   )Жанр: LitRPG, Боевое фэнтезиИздательство: ЛитРес, АвторПродолжительность: 08:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA282769C4AE037D3B6D8D2CD3BA8950E2B6E083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690803   (123683) от 09.01.2024
+
+Патрик Кинг | Негласные правила общения и этикета (2023) [MP3, Дмитрий Шабров]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорите «спасибо» и «пожалуйста». Не стойте как столб у двери. Поздоровайтесь и улыбнитесь. Не спрашивайте про зарплату. Это негласные социальные нормы, и соблюдать их не так уж и сложно, правда? Если вы их знаете, конечно.
+Хотите узнать, какие социальные ошибки вы совершали и как их исправить? Тогда эта книга для вас. Перед вами справочник для жизни в современном (   Читать дальше...   )Жанр: ПсихологияИздательство: БиблосПродолжительность: 04:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD24BDEF29D4A5EBEF7DCE067BF2FA0F7398030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690868   (123684) от 09.01.2024
+
+Firefox Browser 121.0.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18405D7E81D81D4AF661C001CA75ABB1784CBA52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690852   (123685) от 09.01.2024
 
 Праздник / Rapa (2022) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +81,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123685.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:FC320F83E101F578F54A989E7DDD9BDB914AFC41
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123686.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Slade - 12 of Slade (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123687.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Telegram Desktop 4.14.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123688.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ magnet:?xt=urn:btih:E1BB9ED58B6206592947D3BE3C52E911436C7D2B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123689.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123690.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ NewFileTime 7.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123691.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ magnet:?xt=urn:btih:0235F84B8CEA4CBB28AF56D9E77C8094DB683D5F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123692.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ Symphonic Landscapes - Works By Mozart, Brahms, Schubert & Mendelssohn (2023) [F
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123693.jpg" />
 </div>
 
 
@@ -235,7 +310,7 @@ magnet:?xt=urn:btih:EAB27734A62AABE5A4FC3C1D91E715D675FDFD72
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123694.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ Total Commander 11.02 MAX-Pack 2024.01.08.1 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123695.jpg" />
 </div>
 
 
@@ -283,7 +358,7 @@ magnet:?xt=urn:btih:0AA5451006F0FF972037159D644C80CE5503EC6A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123696.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ magnet:?xt=urn:btih:DAD0DAA11A2981E2CAA81470728976C02BBAA2FA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123697.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ Psiphon 3 build 181 (09.01.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123698.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ Udemy, Dekker Fraser | SaaS Marketing: SaaS Startup Lead Generation with Dekker 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123699.jpg" />
 </div>
 
 
@@ -382,7 +457,7 @@ ASUS GPU Tweak III 1.7.2.3 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123700.jpg" />
 </div>
 
 
@@ -407,7 +482,7 @@ Maze of Realities 3: Ride in the Sky / Лабиринт реальностей 3
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123701.jpg" />
 </div>
 
 
@@ -431,7 +506,7 @@ magnet:?xt=urn:btih:267F4E6E8B245D4B3C64FF4724898083B5B4EE7D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123702.jpg" />
 </div>
 
 
@@ -455,7 +530,7 @@ magnet:?xt=urn:btih:50BD3AFF3D44547169991CCC0CC445E9B204793F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123703.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ magnet:?xt=urn:btih:BE5329233105008173611AD23DE5B76DBB2FC6AC
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123704.jpg" />
 </div>
 
 
@@ -505,7 +580,7 @@ magnet:?xt=urn:btih:788CD1E9C0A7559321060FA8B9EAA3C8E5F79B97
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123705.jpg" />
 </div>
 
 
@@ -529,7 +604,7 @@ magnet:?xt=urn:btih:7561021F3B714AF3D7E8005C30B2A65333C09C46
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123706.jpg" />
 </div>
 
 
@@ -553,7 +628,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123707.jpg" />
 </div>
 
 
@@ -567,78 +642,6 @@ Bazanova Art, Ольга Базанова | Практика художника 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C4191BFD66C2B6202301CA4F99D06D68189BEB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690798   (123708) от 09.01.2024
-
-Вкус счастья / Umami (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий шеф-повар Франции решает все бросить и отправиться в Японию, чтобы раз и навсегда разобраться в загадочном вкусе Умами. Он надеется, что в этом ему поможет друг его молодости, который сам стал мастером японской кухни.Производство: Франция, Япония / Oliver-Frost Films, Slony Pictures, Sunny Side Up Never, Umami-no TabiЖанр: драма, комедияРежиссер: Слони СоуАктеры: Жерар Депардье, Кёдзо Нагацука, Пьер Ришар, Род Парадо, Сандрин Боннэр, Эрико Такэда, Акира Эмото, Бастьен Буйон, Зинедин Суалем, СумирэПеревод: Дублированный (Leff Sound)Язык озвучки: русскийСубтитры: русские (forced - hardsub)Продолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F2DB78F7DECD8770F1F124BFBA7D089B29B9C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690846   (123709) от 09.01.2024
-
-RadioMaximus 2.32.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FAB778FA16B4521A56DD8029D14F25CD535DB05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690860   (123710) от 09.01.2024
-
-NirLauncher Package 1.30.9 Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123710.jpg" />
-</div>
-
-
-###  Подробнее
-
-NirLauncher Package - универсальный пакет из более чем 200 портативных, небольших утилит, которые можно использовать ежедневно для различных целей на компьютере. Данное приложение предложит вам инструменты для редактирования контекстного меню проводника (к примеру удалять ненужные Вам пункты или добавлять какие-нибудь новые), инструменты для работы с сетью, поможет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0378D391D6798538E2A10FB590B7F3389397B4F8
 ```
 
 

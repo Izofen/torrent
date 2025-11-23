@@ -1,3 +1,28 @@
+###  Публикация: 1644814   (209553) от 07.07.2023
+
+Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7A5C7C629EDE6FF5253A5E10B9417203ECCF78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644968   (209558) от 07.07.2023
 
 Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
@@ -6,7 +31,7 @@ Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209558.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209558.jpg" />
 </div>
 
 
@@ -31,7 +56,7 @@ Slax 15.0 [amd64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211179.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211179.jpg" />
 </div>
 
 
@@ -55,7 +80,7 @@ Kubuntu 22.04 LTS (Jammy Jellyfish) [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212267.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212267.jpg" />
 </div>
 
 
@@ -80,7 +105,7 @@ MiniOS Maximum 11.4.0
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212486.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212486.jpg" />
 </div>
 
 
@@ -105,7 +130,7 @@ MiniOS Ultra 11.4.0
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212498.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212498.jpg" />
 </div>
 
 
@@ -130,7 +155,7 @@ Debian Edu - Skolelinux 11.4.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212719.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212719.jpg" />
 </div>
 
 
@@ -154,7 +179,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.4
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212758.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212758.jpg" />
 </div>
 
 
@@ -178,7 +203,7 @@ Kali Linux 2022.2 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213178.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213178.jpg" />
 </div>
 
 
@@ -202,7 +227,7 @@ openSUSE Leap 15.4 [x86_64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213377.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213377.jpg" />
 </div>
 
 
@@ -227,7 +252,7 @@ Tor Browser 5.0.6 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217729.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217729.jpg" />
 </div>
 
 
@@ -251,7 +276,7 @@ Sabayon 14.01 [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218181.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218181.jpg" />
 </div>
 
 
@@ -277,7 +302,7 @@ Sabayon 14.01 [x86] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218257.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218257.jpg" />
 </div>
 
 
@@ -303,7 +328,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218393.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218393.jpg" />
 </div>
 
 
@@ -328,7 +353,7 @@ Ubuntu*Pack 20.04 Unity (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218665.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218665.jpg" />
 </div>
 
 
@@ -353,7 +378,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218746.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218746.jpg" />
 </div>
 
 
@@ -378,7 +403,7 @@ Ubuntu*Pack 20.04 MATE (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218776.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218776.jpg" />
 </div>
 
 
@@ -403,7 +428,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218965.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218965.jpg" />
 </div>
 
 
@@ -428,7 +453,7 @@ Ubuntu*Pack 20.04 GNOME Flashback (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219188.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219188.jpg" />
 </div>
 
 
@@ -453,7 +478,7 @@ Ubuntu*Pack 20.04 DDE (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219199.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219199.jpg" />
 </div>
 
 
@@ -478,7 +503,7 @@ Ubuntu*Pack 20.04 GNOME Classic (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219211.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219211.jpg" />
 </div>
 
 
@@ -503,7 +528,7 @@ Ubuntu*Pack 20.04 Cinnamon (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219260.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219260.jpg" />
 </div>
 
 
@@ -528,7 +553,7 @@ Ubuntu*Pack 20.04 (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219311.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219311.jpg" />
 </div>
 
 
@@ -553,7 +578,7 @@ Ubuntu*Pack 20.04 Budgie (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219317.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219317.jpg" />
 </div>
 
 
@@ -578,7 +603,7 @@ Ubuntu*Pack 20.04 GNOME (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219342.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219342.jpg" />
 </div>
 
 
@@ -603,7 +628,7 @@ Tor Browser 5.0.5 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222223.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222223.jpg" />
 </div>
 
 
@@ -614,30 +639,6 @@ Tor Browser for Linux - удобная и простая модификация 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AEE4337C7EB0A46017E81E645B375F835F5A935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736561   (223895) от 20.12.2013
-
-Kubuntu 14.04 Alpha I [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый альфа релиз следующей версии Kubuntu Trusty. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 14.04 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667E8F1C1CBD5174F0063875A8C5D2483356C1EE
 ```
 
 

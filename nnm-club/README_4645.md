@@ -1,3 +1,155 @@
+###  Публикация: 1678700   (143971) от 22.11.2023
+
+Ohmwork - In Hindsight (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trial Of The Witch, Pt. II (04:20)
+ 02. 17 Years (04:25)
+ 03. Welcome To My Insanity (04:10)
+ 04. Turmoil (05:13)(   Читать дальше...   )Жанр: Hard 'n' Heavy Metal, StonerПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E3FFEE7200D2E396A93631DD0C553D98CC83FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943887   (143972) от 28.12.2015
+
+Доктор Кто / Doctor Who (2015) WEB-DL [H.264/1080p-LQ] (сезон 9, серии 0-12 из 12 + Рождественская серия) BaibaKo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор оказался в ловушке в зловещем городе далеков, самом сердце империи зла без звуковой отвёртки, без ТАРДИС, и помощи ждать неоткуда. Сможет ли он устоять перед величайшим искушением, и будет ли проявлено милосердие?Производство: Великобритания / British Broadcasting Corporation (BBC), Canadian Broadcasting Corporation (CBC)Жанр: фантастика, драма, комедия, приключенияРежиссер: Дуглас Маккиннон, Кит Боак, Хетти МакдональдАктеры: Дэвид Теннант, Дженна Коулман, Питер Капальди, Николас Бриггс, Барнеби Эдвардс, Алекс Кингстон, Николас Пегг и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Светлана Доманова, Татьяна Оболевич, Алексей Кузнецов, Александр Фурман и Владимир КурдовПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1093ED3463179352074AD90BC8CC90E1F659D51D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087472   (143973) от 28.12.2016
+
+VA - Deep House Collection Vol.102 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143973.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Alex Spite, Olga Shilova - My Heart Is For You  (Original Mix) 5:42
+002.Alex Spite - Crazy  (Original Mix) 6:04
+003.Alex Spite - I Want You  (Original Mix) 5:28
+004.Alex Spite - One Life, One Love  (Original Mix) 6:02(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 12:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00818BF92B33018222C4D652F335C0C020F7C31E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589246   (143974) от 16.12.2012
+
+zBookr [PSP] [Ru/Eng] [Homebrew] (2009)
+
+>>Консольные Игры
+>>PSP
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Bookr - универсальная программа для чтения книг на PSP. В ней присутствуют функции изменения шрифтов, разворота страниц, изменение размера текста и т.п.
+
+Данный релиз - модификация программы Bookr (Жанр: Homebrew, ПОЯзык интерфейса: Ru/Eng
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C5609B87B940C4CB6F04F8196DB3BAA99D168D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435516   (143975) от 28.12.2020
+
+TweakPower 1.167 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143975.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakPower представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D87ADF95B27A8628B1D85C9F870640E6C22A723
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340384   (143976) от 27.12.2019
+
+F-Secure Freedome VPN 2.30.6180 RePack by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143976.jpg" />
+</div>
+
+
+###  Подробнее
+
+F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B534B67068144DA96B57EE151DF2D77C1263D57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678757   (143977) от 22.11.2023
 
 PullTube 1.8.5.20 [Multi/Ru]
@@ -6,7 +158,7 @@ PullTube 1.8.5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143977.jpg" />
 </div>
 
 
@@ -30,7 +182,7 @@ magnet:?xt=urn:btih:6333DAC9DC9AFACAC97F0E7DE9B5A84DDFCEF8FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143979.jpg" />
 </div>
 
 
@@ -54,7 +206,7 @@ magnet:?xt=urn:btih:247AF79B5D42CF083CE9EC5EE8D511C3B3C54610
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143980.jpg" />
 </div>
 
 
@@ -78,7 +230,7 @@ Hides 5.6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143981.jpg" />
 </div>
 
 
@@ -102,7 +254,7 @@ Adguard 1.5.3 (435) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143983.jpg" />
 </div>
 
 
@@ -127,7 +279,7 @@ Aurora View - SHMR (2022) Deluxe, 2023, Aurora View [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143984.jpg" />
 </div>
 
 
@@ -154,7 +306,7 @@ magnet:?xt=urn:btih:32F4F2A9F3B123D0A3E2BED392BE7EFD3242F29F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143985.jpg" />
 </div>
 
 
@@ -178,7 +330,7 @@ magnet:?xt=urn:btih:E902D7665056C911C6B6D1AB8253DF0F893DECBE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143986.jpg" />
 </div>
 
 
@@ -202,7 +354,7 @@ magnet:?xt=urn:btih:D75138DD04E481D61749DE1A9BB238E87E2607F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143987.jpg" />
 </div>
 
 
@@ -226,7 +378,7 @@ Rebel Cops v1.6 + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143988.jpg" />
 </div>
 
 
@@ -250,7 +402,7 @@ magnet:?xt=urn:btih:B2D2712DF77454C1647F6C6BB9FFEF9EBB920E26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143990.jpg" />
 </div>
 
 
@@ -274,7 +426,7 @@ Explaindio Platinum 4 v4.011 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143991.jpg" />
 </div>
 
 
@@ -298,7 +450,7 @@ magnet:?xt=urn:btih:1049D90BB84333D84EDD868B0AF22DA0FEB84FFD
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143992.jpg" />
 </div>
 
 
@@ -322,7 +474,7 @@ magnet:?xt=urn:btih:3430DF856C8D4A2A48AD2F5061198AF2BC05A90A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143993.jpg" />
 </div>
 
 
@@ -346,7 +498,7 @@ magnet:?xt=urn:btih:68F870D142EF5D97ECBE9B831562065DC4F22C2A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143994.jpg" />
 </div>
 
 
@@ -370,7 +522,7 @@ Native Instruments Komplete Kontrol 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143995.jpg" />
 </div>
 
 
@@ -394,7 +546,7 @@ magnet:?xt=urn:btih:641F8E7B0ABB33C507F3B5CBC7F3F660FF44124C
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143996.jpg" />
 </div>
 
 
@@ -418,7 +570,7 @@ KYPCK - Ниже (2011) [FLAC|Lossless|tracks + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143997.jpg" />
 </div>
 
 
@@ -445,7 +597,7 @@ magnet:?xt=urn:btih:91E37B1A13B6069AAED42E7808B19AABDCD2B625
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143999.jpg" />
 </div>
 
 
@@ -470,7 +622,7 @@ magnet:?xt=urn:btih:BF13F83F0A83F752B9388C23115DD022B1992DE2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144000.jpg" />
 </div>
 
 
@@ -482,153 +634,6 @@ magnet:?xt=urn:btih:BF13F83F0A83F752B9388C23115DD022B1992DE2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114D3D9C9D6B3D880007E9BB034758ED4EF7397A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435587   (144001) от 28.12.2020
-
-Redream Premium 1.5.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Redream - это эмулятор Dreamcast, позволяющий играть в ваши любимые игры Dreamcast в высоком разрешении.Тип издания: macOS SoftwareРелиз состоялся: 01.02.2020Разработчик: redreamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B65C941E8F8E4CB3B5A3791BCAD18067B589E30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272459   (144002) от 27.12.2018
-
-Смолфут / Smallfoot (2018) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара] [handmade 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США / Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигАктеры: Ченнинг Татум, Джеймс Корден, Зендая Колеман, Коммон, Леброн Джеймс, Дэнни ДеВито, Джина Родригез, Яра Шахиди, Эли Генри, Джимми ТатроПеревод: Дублированный (iTunes)Субтитры: Русские (full, forced), английские (full)Продолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F309C2D81861D4C2E35E7C2D272BB5BAD1F059E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969837   (144003) от 28.12.2015
-
-Александр Медведев | Онлайн мастер-класс Александра Медведева по фотографии. Часть 2. Пакет VIP (2015) PCRec [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый вебинар Александра Медведева состоящий из 4 уроков, включающих в себя полное описание фото-продакшена:Жанр: фотографияПродолжительность: 22:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5475DD5E4F10A723CBCF092A226EBDFD16EA427B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678737   (144004) от 22.11.2023
-
-PasteNow Pro 2.15.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144004.jpg" />
-</div>
-
-
-###  Подробнее
-
-PasteNow - это приложение для управления буфером обмена, которое упрощает и ускоряет вашу повседневную работу. Вы можете использовать его для хранения всех видов временных данных: текста, ссылки, изображения и даже кода.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2023 Ding ZhouПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Упрощенный китайский и Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D3948DE6607F6DF1CBA47D8FD0208908E0E451
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348331   (144005) от 27.12.2019
-
-Джокер / Joker (2019) BDRip [H.264/720p-LQ]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: Канада, США / Warner Bros., Village Roadshow Pictures, ...Жанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Джоли Чань, Марк Мэрон, Фрэнсис Конрой, Мэри Кейт Малат, Ши Уигхэм, Брайан Коллен, Бретт Каллен, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (iTunes)Субтитры: Русские (Форс., полные)Продолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B9401FA8D076A5F2C11E443D69437A570C05C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520310   (144006) от 27.12.2021
-
-Nostalgica - Nostalgica (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispers of Death (01:21)
-02. Suicidal Gathering (03:51)
-03. Battles to Win (03:58)
-04. Melissa (03:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B71D575EC7DFFAFAAFFE1C8DF7844156521E9E
 ```
 
 

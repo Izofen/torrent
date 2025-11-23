@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55693.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:7F8ECE4355572A97B220BF238C10882080308783
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55694.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1285FA2A7DC119EA62CEF9DBE2EDBB39C34EF4D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55695.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:61CD9B1F0BDB8CF84E6BC421DC1717FE0441E62D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55696.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:BD94B26D4B55AAA81F8E38A0AB2C22967D909782
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55697.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:97629D35D7C355AB2A9149773409764AF8D061AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55698.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:54C655D180AE51BA54EB715E267B96EEB26A5C3C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55699.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.1.361/dlc) Repack Decepticon [Ju
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55700.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BC5E9BB8901FECBD4BEC01D2CCB7F393EB977BB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55701.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:AE83A6F8D52732CC424141FB240D1B825C5F1AEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55702.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Adobe Photoshop 2024 25.9.0.573 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55703.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Microsoft Visual Studio 2022 Professional 17.10.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55704.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Atlantis Word Processor 4.3.10.1 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55705.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:DBB4EBC019E69337E9509D5C209C0D89B2492480
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55706.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:9C5873522D92B92257E7164ECBAAE758272CA512
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55707.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:922512FC009A85B702E5F77C714036205A4C8B8E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55708.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Blender 3.6.12 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55709.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Music News vol.379 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55710.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:CF3944C5DA73185DED267CFDBA07BEF5B95BF7E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55711.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Adobe DNG Converter 16.3.0.1866 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55712.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Google Chrome 125.0.6422.77 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55713.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 1 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55714.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C321C0BC234021B340D60F61C3270E405B6E0816
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55715.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F3C0212E9E00F34DF519288E2931D3CACB81D89A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55716.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Glary Utilities Pro 6.10.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55717.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Spotify 1.2.36.959 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55718.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41730.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:08975A76654C2522999A88FA9E7FBB44EBD5ADCE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41739.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Grendizer U | Грендайзер U [2024, TV, 13 из 13] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41754.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 из 12] WEBRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41944.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42028.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F585D453884310F379015884D5C0472BFF4A9F82
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42039.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:75437D0298A1F7406B51AF3173C2BAAFB6353948
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42041.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnat
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42425.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42551.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42672.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Madougushi Dahlia wa Utsumukanai | Dahlia in Bloom | Maгичecкaя peмecлeн
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42674.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42698.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Isekai Yururi Kikou: Kosodate Shinagara Boukensha Shimasu | Iseyuru | Прикл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42776.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:798332A3B5171C4C7FA7B37AD91712D336919CAC
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42780.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D02019ACDD1F50E990898000EAC0FE91EC3C5CFF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42911.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Date A Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 из 12] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43337.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:7B7877982D2F2149BA9380CA7008CCAF5C1B214C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43436.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D32D6213CA6A89D62F981B27DA36E24AC354EDE0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43536.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Danball Senki W | Little Battlers eXperience W | LBX – Битвы малень
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43667.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Беззабот
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43707.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43747.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Maou Gun Saikyou no Majutsushi wa Ningen Datta | Сильнейшим магом
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43845.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1631EA62F4F9C8366DBA1B04A2BDAF8CCB01B60B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44220.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Danball Senki | Little Battlers Experience | LBX - Битвы маленьких
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44827.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44970.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Terminator Zero | Терминатор Зеро [2024, Web, 08 из 08] WEBRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45009.jpg" />
 </div>
 
 

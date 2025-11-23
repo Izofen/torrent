@@ -1,3 +1,82 @@
+###  Публикация: 495314   (251276) от 11.05.2012
+
+На-На, эй! Юбилейное шоу (2012.05.11) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный концерт группы "На-На" в честь 65-летия легендарного деятеля шоу-бизнеса, продюсера Бари Алибасова.
+Группа "На-На" на протяжении всей своей творческой деятельности удостоилась массы наград и премий – так, в 2010 году коллектив в 12-й раз получил премию "Овация"! Известно, что своей огромнейшей славой группа обязана Барии Алибасову, (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46042CDAB92600A0107349E358B7119FAA12A112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334360   (252049) от 25.05.2023
+
+Тина Тернер - лучшее / Tina Turner - ALL THE BEST - The Live Collection (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_252049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее от Королевы рока за 15-летний период с 1985 по 2000 год.01. Steamy Windows
+02. Show Some Respect
+03. I Can't Stand the Rain
+04. River Deep Mountain High(   Читать дальше...   )Жанр: RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 02:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E4710E8089F3FE572E07E4B28332EFC83F1542
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489281   (252159) от 19.05.2023
+
+Песни военных лет. Караоке (2006) DVD5
+
+>>Театр и Музыкальное видео
+>>Караоке
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_252159.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вставай, Страна Огромная (Кр. Апп Са)
+002. Три Танкиста (Из К/Ф "Трактористы")
+003. Товарищ Песня (Из К/Ф "Как Закалялась Сталь")
+004. Темная Ночь (Из Кф "Два Бойца")(   Читать дальше...   )Жанр: КараокеПеревод: ОтсутствуетПродолжительность: 05:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D710091AFB256F6A68771F7F4D8A0CF3C9BAF4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836192   (252466) от 
 
 Квартирник у Маргулиса. Родион Газманов (01.11.2025) WEBRip [H.264/1080p]
@@ -6,7 +85,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252466.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252466.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:47D0BBE35F8084BC5CC672F3F3663A203F43E640
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252488.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252488.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ The Australian Pink Floyd Show Live at Hammersmith Apollo (2011/2012) BDRip [720
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253277.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253277.jpg" />
 </div>
 
 
@@ -93,7 +172,7 @@ Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253405.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253405.jpg" />
 </div>
 
 
@@ -117,7 +196,7 @@ Inna. Caliente (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253449.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253449.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ Alizee - En concert (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254175.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254175.jpg" />
 </div>
 
 
@@ -169,7 +248,7 @@ magnet:?xt=urn:btih:F98942FBA20A9C54B9F01EE8663E4AB36EAD887A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254645.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ magnet:?xt=urn:btih:BCC91DAC01B05167590417EC37D16F70E1E5C4B8
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255052.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255052.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ magnet:?xt=urn:btih:3A7877633C458404C4CED3117F5B0F321965F43F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255055.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255055.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ AC/DC: Live at Donington (1991/2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255843.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255843.jpg" />
 </div>
 
 
@@ -280,7 +359,7 @@ Queen feat. Adam Lambert — MTV EMA 2011. LIVE (2011) [H.264/720p-LQ] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256139.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256139.jpg" />
 </div>
 
 
@@ -306,7 +385,7 @@ magnet:?xt=urn:btih:05D7602484F36FD6C99456E3C7F640195B5D3EAA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256731.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256731.jpg" />
 </div>
 
 
@@ -332,7 +411,7 @@ magnet:?xt=urn:btih:FA76265D29266D425696092332ABDF7469819ECB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256756.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256756.jpg" />
 </div>
 
 
@@ -346,6 +425,30 @@ magnet:?xt=urn:btih:FA76265D29266D425696092332ABDF7469819ECB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D8372886877DCFAAC0E57BFC7C704321543FA60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503126   (259360) от 29.05.2012
+
+Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra / Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свой 40-летний трудовой стаж анличане Bee Gees прошли чрезвычайно бурно, испытав головокружение от успехов и периоды невезения. Они начинали в середине 60-х с подражания Beatles и, пройдя через свой фирменный прогрессив-поп и соул, превратились в один из самых успешных проектов эпохи диско. Все трое братьев Гибб (Gibb) обладали прекрасными голосами, которые заражали обаянием и удивительно гармонировали друг с другом. Робин Гибб родился 22 декабря 1949 года, за сорок пять минут до появления на свет своего младшего брата близница Морриса Гибба. За всю свою успешную пятидесятилетнюю карьеру, имевшую как взлеты так и падения, его голос остается, таким же блистательным и неизменным, каким он был в начале его карьеры, будучи в составе всемирно известного коллектива Bee Gees. Покинув группу, Робин Гибб начал свою сольную карьеру, выпустив первый альбом "Robin''s Reign", первым синглом с которого стала композиция "Saved By the Bell", ставшая большим хитом в Европе. Затем последовали альбомы "How (   Читать дальше...   )Жанр: рокРежиссер: James ChankinАктеры: Robin Gibb & Frankfurt Neue Philharmonic OrchestraПеревод: ОтсутствуетЯзык субтитров: English, Spanish, FrenchПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+нет
 ```
 
 

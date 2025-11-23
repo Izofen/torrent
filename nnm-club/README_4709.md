@@ -1,3 +1,182 @@
+###  Публикация: 1678320   (145970) от 21.11.2023
+
+Smooth Jazz Band - Raggae Rhythm of The Night 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Café (3:52)
+02. Never too Sweet (3:29)
+03. Chill for You (3:23)
+04. Pure Gold Reggae Jazz (2:55)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF790FB6AFFFFD2358DFCE663611A27AABC903C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969621   (145972) от 28.12.2015
+
+Виктор Полторацкий | След человеческий [сборник] (1977) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145972.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей книге Виктор Полторацкий живописно, с любовью и нежностью рассказывает о красоте мещерской природы и добрых людях, которые живут и трудятся, оставляя добрый след на этой земле.Жанр: Советская классическая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9B2ED853E4A8BD4969CCC37D7BE0614EEF0BBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589994   (145973) от 16.12.2012
+
+Humor Wallpapers (14.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130D0EA081DB4153EC14FD6A434F69B9EEFECC72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087456   (145974) от 27.12.2016
+
+Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торопитесь! Вас ждет прогулка по виртуальному парку отдыха Nintendo и множество развлечений! Откройте для себя более 12 веселых аттракционов, которые оформлены в стиле игр Nintendo. Играть в одиночку или в компании с друзьями — выбор за вами! Это очаровательно, развлекательно и неповторимо, это Nintendo Land!
+
+В Nintendo Land используются широкие возможности консоли (   Читать дальше...   )Тип издания: LicenseРазработчик: NintendoЖанр: Party, Arcade, Mini-gamesЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA76EFB410814B86D33D612943E3EF9BCC3CB2E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519476   (145975) от 25.12.2021
+
+Нормальный только я (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в детском лагере «Красный сокол», который по корыстной договорённости директора Игоря Новожилова и местного мэра Виктора Рюриковича признают аварийным. Но их амбициозным планам не суждено сбыться, в лагерь, неожиданно, приезжает отряд детей с особенностями здоровья. Угрозы, подкуп, поджог — Игорь идёт на всё, чтобы выставить детей из лагеря. (   Читать дальше...   )Производство: Россия / Проспект МираЖанр: комедияРежиссер: Антон БогдановАктеры: Антон Богданов, Ольга Лерман, Константин Хабенский, Максим Виторган, Сергей Кутергин, Егор Гуськов, Софи Витаута, Игорь Гаспарян, Артур Новгородцев, Егор ЕговцевПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70289BF39DCFFD08D2AAA0141684B73FEDBD9B1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434518   (145976) от 27.12.2020
+
+Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Trailer>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Heart (02:15)
+02. Consternation (03:40)
+03. Paradox (04:45)
+04. Disclosure (04:23)(   Читать дальше...   )Жанр: Soundtrack, Instrumental, TrailerПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6B8D4A34A3E7B730D1DBA7F550A4C3E0F66E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678110   (145977) от 21.11.2023
+
+VA - Balatonica Chillout: Autumn Edition 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake and True - Seas of Passion (5:04)
+02. Hölderlin - Lullaby (4:55)
+03. Dellasollounge - Come with Me (3:18)
+04. Lazygrooves - Walk with Me (5:19)(   Читать дальше...   )Жанр: Chillout, Smooth JazzПродолжительность: 01:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C2FB4188951D22D042171C04798AF06DF9FF5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678238   (145978) от 21.11.2023
 
 VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -6,7 +185,7 @@ VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145978.jpg" />
 </div>
 
 
@@ -33,7 +212,7 @@ magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145979.jpg" />
 </div>
 
 
@@ -58,7 +237,7 @@ Kampfar - Profan (2015) [FLAC|Lossless|image + .cue] <Pagan Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145980.jpg" />
 </div>
 
 
@@ -85,7 +264,7 @@ magnet:?xt=urn:btih:6ADBCB88303FADBC278235C330ED1605BB14728B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145981.jpg" />
 </div>
 
 
@@ -109,7 +288,7 @@ magnet:?xt=urn:btih:E7CE6BF1F4AD4A1391D4213D1A78EBD58FBD0D3F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145984.jpg" />
 </div>
 
 
@@ -133,7 +312,7 @@ magnet:?xt=urn:btih:AE35DB914967F07BFC38F63C08AEBDBC9D0407E2
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145985.jpg" />
 </div>
 
 
@@ -157,7 +336,7 @@ Planet Rain - The Fundamental Principles (2014) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145986.jpg" />
 </div>
 
 
@@ -184,7 +363,7 @@ Kirk Hunter Studios - Spotlight Strings 4D - RePack Андрей650071 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145987.jpg" />
 </div>
 
 
@@ -211,7 +390,7 @@ magnet:?xt=urn:btih:7869FDC045122F2E51E131899EFDC7965BAC5F25
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145988.jpg" />
 </div>
 
 
@@ -238,7 +417,7 @@ ESET NOD32 Antivirus 15.0.21.0 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145989.jpg" />
 </div>
 
 
@@ -262,7 +441,7 @@ magnet:?xt=urn:btih:BB664B7EC1BBDA75C4A10039EDC462007A89CB93
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145990.jpg" />
 </div>
 
 
@@ -286,7 +465,7 @@ magnet:?xt=urn:btih:5FF4672E8A855A21F500FCEC45A41418EC03B33A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145991.jpg" />
 </div>
 
 
@@ -310,7 +489,7 @@ magnet:?xt=urn:btih:7C2F26434E20E19BFEE243D5320007B62E7F2F24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145994.jpg" />
 </div>
 
 
@@ -334,7 +513,7 @@ Sidious - Revealed in Profane Splendour (2014) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145995.jpg" />
 </div>
 
 
@@ -361,7 +540,7 @@ magnet:?xt=urn:btih:6B8C6E15AC3CEA583C7AD3D05D9BAEDF1301BD2F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145996.jpg" />
 </div>
 
 
@@ -385,7 +564,7 @@ magnet:?xt=urn:btih:23A4992A37EDAAA16AFAEC7DADE3816FEB03A3F7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145997.jpg" />
 </div>
 
 
@@ -409,7 +588,7 @@ VA - Cookin' Jazz vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145998.jpg" />
 </div>
 
 
@@ -436,7 +615,7 @@ Blocs 5.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145999.jpg" />
 </div>
 
 
@@ -461,7 +640,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146000.jpg" />
 </div>
 
 
@@ -472,178 +651,6 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A84292D8717A5AB5ECA98A9D16C33A817682755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518952   (146001) от 25.12.2021
-
-Фантазии для взрослых / Les fantasmes (2021) WEB-DLRip [MVO, AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146001.jpg" />
-</div>
-
-
-###  Подробнее
-
-За закрытыми дверьми спален всегда найдется место для смешных, неловких, уморительных или просто забавных ситуаций. Шесть разных пар в погоне за острыми ощущениями устроят настоящую буффонаду — кому удастся укрепить отношения, а кто обречен на френдзону?Производство: Франция / Angoa-Agicoa, Canal+Жанр: комедияРежиссер: Давид Фонкинос, Стефан ФонкиносАктеры: Карин Вьяр, Кароль Буке, Моника Беллуччи, Дени Подалидес, Сюзанн Клеман, Матис Барбедетт, Полин Клеман, Гаэль Камилинди, Жереми Липман, Эмерик КомеруаПеревод: Любительский многоголосый (@MUZOBOZ@)Субтитры: ОтсутствуютПродолжительность: 01:42:41Реклама: Присутствует аудио и видео реклама + баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272223   (146002) от 26.12.2018
-
-Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vibe [6:34]
-02. Caryisms [7:04]
-03. Where Were You? [5:03]
-04. Alter Ego [6:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192A0D2ED2311EAA43C6DFBD7E1FCC86F4E90A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348050   (146003) от 26.12.2019
-
-С.Н. Старков | Справочник по математическим формулам и графикам функций для студентов (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть данного справочника содержит более 1200 формул элементарной и высшей математики, расположенных в 34 разделах. Во вторую часть вошло более 1200 рисунков, представляющих собой графики функций и их преобразования (элементарные и неэлементарные), а также изображения кривых на плоскости.
-Издание предназначено для студентов и преподавателей высших учебных (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B365CB051EBDD6F7B92A6CCBB8D8161C9F4F7216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435146   (146005) от 27.12.2020
-
-Журнал | Мир фантастики №10 (октябрь 2020) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146005.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мир фантастики» единственное издание в России, посвященное фантастике и фэнтези в самом широком смысле. В фокусе внимания — книги, кинофильмы, игры и все самое интересное в этой области.Жанр: Журнал фантастикиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DF08FB1537487F5EB81BBDFF2BE64A3881F3A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589938   (146006) от 16.12.2012
-
-Универсальный солдат 4 / Universal Soldier: Day of Reckoning (2012) BDRip [1080p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее время. Программа «Unisol» по-прежнему актуальна и снова введена в эксплуатацию. Давним и непримиримым врагам времён Вьетнамской войны Эндрю Скотту и Люку Деверо суждено встретиться в очередной раз, дабы продолжить своё извечное противостояние и нескончаемую борьбу. Однако, новые опасности и трудности заставляют двух солдат на время объединиться пред лицом (   Читать дальше...   )Жанр: Фантастика, Боевик, ТриллерРежиссер: Джон ХайамсАктеры: Жан-Клод Ван Дамм, Дольф Лундгрен, Скотт Эдкинс, Кристофер Ван Варенберг, Дэвид Дженсен, Остин Нолти, Рой Джонс мл., Мария Боннер, Рас Блэквелл, Джеймс ДюМонтПеревод: ОтсутствуетПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20C3B0E96D8CF6CDE1D45D70586387A3D43D622
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348237   (146007) от 26.12.2019
-
-Вадим Васильев | Управляй легко. 23 шага к созданию команды в российских реалиях (2020) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вадим Васильев, менеджер с двадцатилетним стажем, делится своим опытом построения команд с нуля и описывает эффективную систему управления, неоднократно доказавшую свою работоспособность в российских реалиях. Система содержит простые и понятные инструменты поиска и подбора «правильных» людей, формирования по-настоящему чемпионских команд; дает четкое понимание того, (   Читать дальше...   )Жанр: Экономика и бизнес, управление персоналомФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D315E5032C1847D662A8644B3272FF0E40117BB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678430   (146008) от 21.11.2023
-
-TunesKit Screen Recorder 2.5.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный аудио и видео рекордер , позволяющий одним нажатием кнопки захватывать любое видео и аудио с любого источника на экране компьютера, а также редактировать и сохранять записи в любом формате и на любом устройстве с сохранением высокого качества.Тип издания: macOS SoftwareРелиз состоялся: 08.11.2023Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBE0DE27C0641A988990D65846A1261DCD2CE8E
 ```
 
 

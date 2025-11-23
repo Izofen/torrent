@@ -1,3 +1,178 @@
+###  Публикация: 1516877   (164191) от 13.12.2021
+
+Александр Прозоров, Алексей Живой | Легион (Книга 1). Рим должен пасть (2021) [MP3, Кирилл Мириславский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два только что демобилизованных морских пехотинца Федор Чайка и Леха Ларин отправляются на морскую рыбалку в Черное море. Друзья попадают в сильный шторм, который уносит их далеко от берега. Спасшись, они обнаруживают, что «провалились» во времени. На дворе 219 год до Р.Х. Один год до начала Второй Пунической войны. Самой грандиозной войны за будущее античного мира (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 13:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBA3922A9C7F43BD0830E9C158EF4F5B2FCF0DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673578   (164192) от 02.11.2023
+
+Журнал | Моделист-конструктор №10 (октябрь 2023) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164192.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моделист-конструктор» — ежемесячный отечественный популярный научно-технический журнал. Издаётся с августа 1962 года. В каждом номере журнала публикуются чертежи и схемы самых разнообразных конструкций — от приспособлений для домашнего хозяйства до самодельных микроавтомобилей и любительских самолётов, а также материалы по истории техники и движению самодеятельных (   Читать дальше...   )Жанр: Научно-технический журналИздательство: ЗАО «Редакция журнала «Моделист-конструктор»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236B2C2EE2DE43EB346A5F8067AEA3C92699020E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346114   (164193) от 18.12.2019
+
+Умка на ёлке (2019) WEB-DLRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький белый медвежонок с большим сердцем Умка однажды отправился на поиски уехавшего друга. Покинув маму, Умка преодолел долгий путь, но не забыл о своем обещании вернуться домой. Студия «Союзмультфильм» представляет заключительную часть знаменитой зимней мульттрилогии о приключениях самого очаровательного медвежонка на всем Северном полюсе. Пятьдесят лет прошло (   Читать дальше...   )Производство: Россия / СоюзмультфильмЖанр: Детский, Компьютерная анимацияРежиссер: Александр ВоробьевАктеры: Лариса Брохман, Андрей Тенетко...Перевод: Не требуется (русский)Продолжительность: 00:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59318456BF706027D1165BBE805A0114FDA12D9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673601   (164194) от 02.11.2023
+
+VA - Die 50 Grobten Saxophon Hits Aller Zeiten (2015) [MP3|320 Kbps] <Pop, Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saxophone Dreamsound - The Lady in Red [04:13]
+02. Saxophone Dreamsound - Unchained Melody [03:36]
+03. Saxophone Dreamsound - Killing Me Softly with His Song [04:50]
+04. Saxophone Dreamsound - She's the One [04:27](   Читать дальше...   )Жанр: Pop, Instrumental, SaxophoneПродолжительность: 02:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A69DDDFB21A0F9319B252C1453734E2B4B04692
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598093   (164195) от 17.12.2022
+
+Главная дорога (17.12.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мамкин гонщик: в Липецке задержали 18-летнего гонщика за рулем Lada Priora. Пройти медицинское освидетельствование он отказался, но прав его так и не лишили. Почему?
+Любовь прошла, остался без машины: причем здесь электронный ПТС?
+4–15–2–30–2–15–2–12! Эта сложная, на первый взгляд, формула спасает водителей от смертельно опасного сна за рулем. Ведь сонный водитель (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737086ACAD929676DB3FC0F654570473C2D5D504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432315   (164196) от 17.12.2020
+
+В.Н. Сарабьянов | Введение и диалектический материализм (1925) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164196.jpg" />
+</div>
+
+
+###  Подробнее
+
+... Каким должно быть наше мировоззрение?
+
+Биолог изучает законы всего живого, зоолог законы животного мира (фауны), ботаник растительного мира (флоры), минералог работает в области минералов, физик рассматривает процессы перехода тел от одного состояния в другие, химик - процессы превращения одного тела в другие тела, социолог интересуется процессами в человеческом (   Читать дальше...   )Жанр: История, науковедение, философия, логикаИздательство: ПролетарийФормат: DJVU, PDFКачество: OCR с ошибками
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4464B50D4744C4D629BC4D1E10F9360DC987ACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517039   (164197) от 13.12.2021
+
+AIDA64 (Mobile) v1.84 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-диагностическая утилита для устройств на базе Android. Основываясь на обширных знаниях аппаратной части в AIDA64 для Windows, AIDA64 для Android способна показывать различные диагностические сведения для телефонов, планшетов, умных часов и телевизоров.Тип издания: Pro (Mod)Релиз состоялся: 01.12.2021Разработчик: FinalWire LtdПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166A057DB12531B0329C17F6A8507AC18298981B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346208   (164198) от 18.12.2019
 
 EZ CD Audio Converter 9.0.5.1 (x86) RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +181,7 @@ EZ CD Audio Converter 9.0.5.1 (x86) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164198.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ magnet:?xt=urn:btih:D52EC6FA1C4D11B4DFE81A1955C86E3FDCA3E114
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164199.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ Volume2 1.1.7.444 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164200.jpg" />
 </div>
 
 
@@ -78,7 +253,7 @@ magnet:?xt=urn:btih:44631EAF8C3F8AD2D9FF97AD22BA02E65BA266DE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164201.jpg" />
 </div>
 
 
@@ -102,7 +277,7 @@ MaxCommander 2.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164202.jpg" />
 </div>
 
 
@@ -129,7 +304,7 @@ magnet:?xt=urn:btih:FA8401A0D2AE350DABA4161BC11DEB7464073BA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164203.jpg" />
 </div>
 
 
@@ -153,7 +328,7 @@ magnet:?xt=urn:btih:773A94B779EA14E9B1781841A21BABE2AD21F562
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164204.jpg" />
 </div>
 
 
@@ -177,7 +352,7 @@ Windows and Office Genuine ISO Verifier 11.12.43.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164205.jpg" />
 </div>
 
 
@@ -202,7 +377,7 @@ magnet:?xt=urn:btih:4ED5DC7EA59181AF8A8D518AEA5CFF6B6EED00BE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164206.jpg" />
 </div>
 
 
@@ -226,7 +401,7 @@ Alicia Keys - Keys (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Pop>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164207.jpg" />
 </div>
 
 
@@ -253,7 +428,7 @@ magnet:?xt=urn:btih:F94A4FEB8D3B10DFA8693D5F0AB1071D3DD5D7CE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164208.jpg" />
 </div>
 
 
@@ -277,7 +452,7 @@ VA - Americas Greatest Rock Anthems (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164209.jpg" />
 </div>
 
 
@@ -304,7 +479,7 @@ Webcam Surveyor 3.8.7 Build 1182 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164210.jpg" />
 </div>
 
 
@@ -328,7 +503,7 @@ magnet:?xt=urn:btih:9EAAEB393A0AA2FBC205DA1ADCD828E11316DF11
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164211.jpg" />
 </div>
 
 
@@ -352,7 +527,7 @@ FileMaker Pro 19 v19.2.1.14  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164212.jpg" />
 </div>
 
 
@@ -377,7 +552,7 @@ magnet:?xt=urn:btih:C7680B12083B55F9FE56D3CCD4100584BD2CCDD4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164213.jpg" />
 </div>
 
 
@@ -401,7 +576,7 @@ Final Draft 12 v.12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164214.jpg" />
 </div>
 
 
@@ -427,7 +602,7 @@ magnet:?xt=urn:btih:BE6BDBAC94BDE18CA757118112412AFF6D47E9A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164215.jpg" />
 </div>
 
 
@@ -451,7 +626,7 @@ The Philarmonics - Philadelphia Disco (1977) LP [MP3|320 Kbps] <Disco, Instrumen
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164216.jpg" />
 </div>
 
 
@@ -465,184 +640,6 @@ The Philarmonics - Philadelphia Disco (1977) LP [MP3|320 Kbps] <Disco, Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B45CF91F1A74F6358D9FCCA8110992048F0106
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516838   (164217) от 13.12.2021
-
-Формула 1. Сезон 2021. Этап 22. Гран-при Абу-Даби. Квалификация, Гонка (11-12.12.2021) HDTVRip [H.264/1080p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 22, Арена:  Автодром Яс Марина (Абу-Даби, ОАЭ)
-Квалификация. 11 декабря 2021, суббота.
-Гонка. 12 декабря 2021, воскресенье.
-(   Читать дальше...   )Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Матч ТВ: Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский (SkySports F1HD).Субтитры: отсутствуютПродолжительность: 01:22:08 квалификация; 02:16:36 гонка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEA35486345AD95280836D83E69EE3A79076F64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346123   (164218) от 18.12.2019
-
-Экшены - GraphicRiver - Water Art Photoshop Action - 24972587 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Water Art - экшен фотошоп превратит ваши изображения в акварельное полотно. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7529251E1A07A37FFFA3046FE949D39E20DB5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516973   (164219) от 13.12.2021
-
-The Allman Brothers Band - Shades Of Two Worlds (1991) [FLAC|Lossless|tracks + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of The Line
-02. Bad Rain
-03. Nobody Knows
-04. Desert Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16219E2626E68ECF40FDD519EA35CD97C36FECE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432483   (164220) от 17.12.2020
-
-Леонид Сухоруков | Белая дорожка, черная судьба (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164220.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Стаса и Олеси все начиналось очень хорошо. Любовь. Молодость. Здоровье. Перспективы. Все двери были открыты перед ними. Все дороги стелились перед ними. Но они выбрали дорожку. Рождение ребенка их не остановило. Семья начала стремительно деградировать. Так как с каждым днем денег на наркотики требовалось больше, Стас пошел на грабежи и убийства. Молодые люди все (   Читать дальше...   )Жанр: Современные детективы, ТриллерыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80218473E6FD4B27603A8E5DE7B7B325D77D0B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598038   (164221) от 17.12.2022
-
-VA - Summer Soft Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christopher Cross -- Sailing (4:16)
-02. Fleetwood Mac -- Tusk (2018 Remaster) (3:39)
-03. Jefferson Starship -- Miracles (6:52)
-04. Jackson Browne -- Running On Empty (4:58)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681802E7082B712BB6F3443AF354BED62ACBA759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673741   (164222) от 02.11.2023
-
-Google Chrome 119.0.6045.106 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3668BE323499985C1606721A2F8E44C627DEB413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346257   (164223) от 18.12.2019
-
-Убийство в Белом доме / Murder at 1600 (1997) WEBRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захват американских заложников в Северной Корее вызвал бурю возмущения в Белом Доме. Президент Америки близок к тому, чтобы принять решение вмешаться и атаковать Корею. Тем временем в самом здании Белого Дома обнаружена убитая женщина, бывший секретарь.
-Расследование поручено полицейскому детективу Харлану Реджису, до этого не связанному с правительственными и секретными (   Читать дальше...   )Производство: США / Regency Enterprises, Warner Bros. Pictures Co.Жанр: боевик, триллер, драма, криминал, детективРежиссер: Дуайт Х. ЛиттлАктеры: Уэсли Снайпс, Дайан Лэйн, Дэниэл Бензали, Деннис Миллер, Алан Алда, Ронни Кокс, Дайан Бэйкер, Тейт Донован, Харрис Юлин, Том РайтПеревод: Дублированный (Варус-Видео)Субтитры: английские (полные/SDH)Продолжительность: 01:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3464C1E93C00FFD1C75CABE01DFDBB44C2DA3C
 ```
 
 

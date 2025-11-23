@@ -6,7 +6,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114131.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ TechSmith Camtasia 2023 Studio 2023.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114137.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ iA Writer 7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114140.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Image Uploader 1.4.0 Build 5135 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114143.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ SRWare Iron 120.0.6200.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114162.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ CPU Temp 1.6.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114164.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0305) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114167.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Wise Program Uninstaller 3.1.9.263 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114169.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ PotPlayer 240305 (1.7.22124) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114175.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Glary Disk Cleaner 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114176.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Glary Tracks Eraser 6.0.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114178.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Ashampoo UnInstaller 14.00.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114183.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Microsoft PowerToys 0.79.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114184.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Mullvad Browser 13.0.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114185.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:870011A6434029B75E42B1443F65BB7CA8B52BA5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114186.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PotPlayer 240305 (1.7.22124) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114187.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.6 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114190.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ NonVisual Desktop Access (NVDA) 2023.3.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114191.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ WizTree Enterprise 4.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114193.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:993EDEECF97AB59BD516AC1EE12A317474AC6CC8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114196.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Freeplane 1.11.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114197.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Firefox Browser 123.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114198.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Glarysoft Malware Hunter PRO 1.180.0.800 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114201.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Psiphon 3 build 181 (04.03.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114203.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:3B3CB8FD7E086A29D5E63C4B264F9894C83C5B3A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114205.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Total Commander 11.03 (05.03.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114210.jpg" />
 </div>
 
 

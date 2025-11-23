@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55355.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:33FD0944146EC7914AD3102646E09014BCFCDAB8
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55356.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:86B424803DC33B3E62B9283F6BAEBD8FBEB14293
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55357.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F8CCD020182BD5A81E0FB27E31BAFFF869AE0E11
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55358.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C36193D1729A1AD09029084DF6806E4C7BE17B15
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55359.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:CA7954A28DCEC05B3130A5836D1856FDD74D2411
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55360.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:48297969BD089BB07934B10F2F0825EC74DCF92D
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55361.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:57CDAAE787B5D4121DE3ACA0800D26B9C51765AF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55362.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:537352E91E487E0A8B340762CDAEF202C5765F7E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55363.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4E49933858FFDF5FEF4881FBBD3889E9CADF1DD7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55364.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Kubikon 3D (2024) [Multi] (1.0.12) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55365.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A0FEECBF992C69C281F2FC7F2C37A672D1D40F03
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55366.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8B2FC98AD321233AE70DE96642A42CC2BA5F18AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55367.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:8937B741AF4B50ECBD5C24FADBFB6F1A30BEE455
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55368.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:8D0242F3424C40FA9D4321DF694161CDD71A7804
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55369.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.02) Repack R.G. Механик
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55370.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Foxit PDF Reader 2024.2.2.25170 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55371.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B3D3DB6C3018DE7265D89635D25A5CE46ED6C5DF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55372.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:9E44933375F9D5A7281BE85A7C7652FEDF913EFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55373.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:979E514E9E00AF6EA896798172239743BC2DAFF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55374.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:BA5528C5FEEC72D2E99566F1EBEFF28A0582EEFF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55375.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:D979CBE55C0219611BED9194E229DF23F76E3265
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55376.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:96F758EEE5952CB2B38EA917D7CEBB5F5A3B8A8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55377.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:8254486A5336925A1016F03DA539186677A0D580
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55378.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:16E6BD0B44702EBED0F0AF9423AA2A8A95F12FB3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55379.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:25059FB4B4DD0B9660297C821EB3E980AAF11434
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55380.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83682.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Mars Volta - Noctourniquet (2012) [FLAC|Lossless]<Progressive Rock / Experim
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83683.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Mars Volta - Noctourniquet (2012) [FLAC|Lossless]<Progressive Rock / Experim
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83684.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:D95EA7C2451017C5B4863FD9CD6393E4F97C88D9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83687.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:D95EA7C2451017C5B4863FD9CD6393E4F97C88D9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83693.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Speedsoft - MAZ Sound Tools - VSampler v3.5.2 x86  by TEAM H2O (VSTi, DXi, STADA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83695.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VSampler- это программное обеспечение, превраща
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83698.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VSampler- это программное обеспечение, превраща
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83703.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:83D9C3C3081629ACAB397140732657652C65A7C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83707.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:83D9C3C3081629ACAB397140732657652C65A7C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83708.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:83D9C3C3081629ACAB397140732657652C65A7C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83710.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Kaspersky World 1.3.2.102 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83714.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83717.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Steve Grant's Barockestra - Roll Over Beethoven (2009) [MP3|320 кб/с]<Hard-Ro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83718.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:6CC90D6548B6046D9EB570C0998F05A0631B59A8
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83719.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ NG: Последнее пристанище тамплиеров / The last stan
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83723.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:EB983F492F9E2E0A37EBA22143E6302A67FDEC0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83734.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:EB983F492F9E2E0A37EBA22143E6302A67FDEC0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83744.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:EB983F492F9E2E0A37EBA22143E6302A67FDEC0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83752.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:28137015F692F408288BF00F57245DF52016C786
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83768.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:28137015F692F408288BF00F57245DF52016C786
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83772.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:FEA1EBDCEFC5F6858C4B4D457A24980D5575CD9D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83773.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:00D09207963C79C5BEE7A05B67D01EAEDFC32D83
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83791.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:00D09207963C79C5BEE7A05B67D01EAEDFC32D83
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83793.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83794.jpg" />
 </div>
 
 

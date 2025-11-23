@@ -1,3 +1,75 @@
+###  Публикация: 1659459   (189935) от 11.09.2023
+
+Время / In Time (2011) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир, где время стало единственной и самой твердой валютой, где люди генетически запрограммированы так, что в 25 лет перестают стареть. Правда, последующие годы стоят денег. И вот богатые становятся практически бессмертными, а бедные обречены сражаться за жизнь. Уилл, бунтарь из гетто, несправедливо обвинен в убийстве с целью грабежа времени и теперь (   Читать дальше...   )Производство: США / New Regency Productions, New Regency ProductionsЖанр: фантастика, мелодрама, боевикРежиссер: Эндрю НикколАктеры: Джастин Тимберлейк, Аманда Сайфред, Киллиан Мёрфи, Алекс Петтифер, Винсент Картайзер, Оливия Уайлд, Мэтт Бомер, Джонни Галэки, Коллинз Пенни Итан ПекПеревод: Дублированный (Blu-ray CEE) CPIGЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA347CFF5144D9AAF9806D54B3D111029DC87D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659190   (189951) от 11.09.2023
+
+Кобра / Cobra (1986) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он - «Кобра» - штурмовой отряд полиции из одного человека, ему достаётся кровавая работёнка, за которую никто не хочет (или не осмеливается) взяться. Он выходит на след убийцы, за которым целая армия преступников-маньяков, стремящихся уничтожить свидетельницу их кровавой вакханалии. Но, к счастью, она попадает под защиту «Кобры»Производство: США, Израиль / The Cannon Group, Warner Bros.Жанр: боевик, криминал, приключенияРежиссер: Джордж П. КосматосАктеры: Сильвестр Сталлоне, Бриджит Нильсен, Рени Сантони, Эндрю Робинсон, Брайан Томпсон, Джон Херцфелд, Ли Гарлингтон, Арт ЛаФлёр, Марко Родригес, Росс Ст. ФиллипПеревод: Дублированный (Blu-ray CEE, Варус-Видео)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3602A042277C76603DE9B087F06279C45249DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659211   (189991) от 11.09.2023
+
+Честная куртизанка / Dangerous Beauty (1998) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Венеция, 1583 год. Юная, красивая, умная, но бедная Вероника Франко влюбляется в аристократа Марко, брата своей подруги, только что вернувшегося из Рима. Он тоже неравнодушен к девушке, но его отец считает, что их брак невозможен, так как у Вероники нет приданого. Мать Вероники, бывшая куртизанкa, пытается убедить дочь в необходимости обратиться к древнейшей профессии, (   Читать дальше...   )Производство: США / Regency Enterprises, Arnon Milchan Productions, The Bedford Falls CompanyЖанр: драма, мелодрама, биографияРежиссер: Маршалл ХерсковицАктеры: Катрин МакКормак, Руфус Сьюэлл, Оливер Платт, Жаклин Биссет, Фред Уорд, Наоми Уоттс, Мойра Келли, Джоанна Кэссиди, Дэниэл Лапэйн, Ерун КраббеПеревод: Дублированный, двухголосый, одноголосыйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиeПродолжительность: 01:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9253DFD000C814D844274BE77706A7FBDA4846C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589092   (190144) от 09.11.2022
 
 Бегство мистера Мак-Кинли (1975) HDTVRip [H.264/1080p] [hand made Upscale remastered AI]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_190144.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_190144.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:BA4A9F2628E3C5A295A987787B646EF31D726623
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190316.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190316.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:9F08E813B5F2D4575293C33BDAE3A9E6082F07CA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190340.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190340.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:BD6400A1BED587B4513EE858E3670859C2DBC986
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190399.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190399.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:25630074ABF493288092A46B86FCF9C846DD95C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190400.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190400.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:C8B3F16E84721ED811D98DFB55A5685F00AFDD70
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190401.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190401.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:65EE7947915C4F5F7DC2A39982798C1B6993E4A5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190739.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190739.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:4E20BC4FFD176724D2B4BEBAAC24F980B5574735
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190773.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190773.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:6782A7AE0EB0289D071762E194BC599DF5E1EB0C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190809.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190809.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:C20AD8CB9893709F1307D4AC643284EF9F1DF506
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190845.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190845.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:71B08C9B2E4D8355D31BEDEC166E1BAC9166CD30
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190851.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190851.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:EFE70DAA85398A962668CE68E7CEA673DB210331
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190865.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190865.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:C6984FEB4F7ADC3DA13E0281360249BD35057535
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190895.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190895.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ magnet:?xt=urn:btih:53A9A28068F773DE1D5F921DA6B0D28B8E77BA5A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191102.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191102.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ magnet:?xt=urn:btih:AB3358B39D276A2AA5C334CF32B116A9372E32DA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191113.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191113.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ magnet:?xt=urn:btih:C750E9F5442B245DB99612C515E4734E7D0248FE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191114.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191114.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ magnet:?xt=urn:btih:CD70BCAD275DA1166367EEE80E64C1FA85767CC8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191118.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191118.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:5AABE2FE5468C0B9FDD55F7F15E807D0F1AEA396
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191129.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191129.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ magnet:?xt=urn:btih:C8D3160534146B210D43F986AF7AD85E18384C44
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191130.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191130.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ magnet:?xt=urn:btih:5E510B23BBF7E18FEBDEC941867DBF627FBF3002
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191181.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191181.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ magnet:?xt=urn:btih:4E40606B7542AA22B62B3A620E90ECDF354B60DB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191366.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191366.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ magnet:?xt=urn:btih:BEE95C3381EB1D59BEA6ECD1F39CDBAF22FC170A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191393.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191393.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ magnet:?xt=urn:btih:1814B88F1BBD8EB3C9233E9FBAFC9115F5C38ECA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191440.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191440.jpg" />
 </div>
 
 
@@ -545,79 +617,6 @@ magnet:?xt=urn:btih:1814B88F1BBD8EB3C9233E9FBAFC9115F5C38ECA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEDF216163C80650BA9A0D854ABAC236BC28C094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658247   (191464) от 07.09.2023
-
-Возвращение высокого блондина / Le retour du grand blond / The Return of the Tall Blond Man (1974) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шпионские игры продолжаются. Спецслужбы не могут оставить Перрена в покое - новый министр нашёл досье на высокого блондина, заведённое Бернаром Миланом, и следуя подсказке капитана Камбрэ, подозревающего Тулуза в фарсе с высоким блондином и убийстве Милана, приказывает полковнику Тулузу представить ему «суперагента». Тот в смятении придумывает историю о том, что (   Читать дальше...   )Производство: Франция,  Gaumont InternationalЖанр: комедияРежиссер: Ив РоберАктеры: Пьер Ришар, Жан Карме, Жан Рошфор, Мирей Дарк, Жан Буиз, Поль Ле Персон, Колетт Кастель, Анри Гибе, Эрве Санд, Жан АмосПеревод: Дублированный (Союзмультфильм), многоголосый (Союз Видео)Язык озвучки: русский, французскийСубтитры: английские (pgs)Продолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E610D56ED48F318900B747EA6427C3E54AACCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588307   (191529) от 04.11.2022
-
-Проект: Альф / Project: ALF (1996) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военные занимаются расследованием неземной формы жизни. Имеется в виду - странное волосатое, ярко оранжевое существо, которое думает, что котов едят на десерт. Оно обожает педикюр, азартные игры и атласные простыни.
-Самый тайный проект мира набирает обороты. А тем временем Альф контролирует секретную военную базу и регулярно обыгрывает всех в покер. Его решают уничтожить. (   Читать дальше...   )Производство: Германия, США / Alien Productions, Patchett Kaufman Entertainment, Paul Fusco Productions, UFA Fernsehproduktion GmbH,  World International Network (WIN)Жанр: фантастика, комедия, семейныйРежиссер: Дик ЛоуриАктеры: Мигель Феррер, Уильям О’Лири, Дженсен Даггетт, Скотт Майкл Кэмпбелл, Беверли Арчер, Чарльз Робинсон, Джон Шак, Грегори Алан Уильямс, Лиз Коук, Делл ЙонтПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB6CFCF13BB7F7274B15D96ED54508A7860FC25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658085   (191665) от 06.09.2023
-
-Константин: Повелитель тьмы / Constantine (2005) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джону Константину удалось не только побывать в аду, но и вернуться обратно. Родившись с неугодным самому себе талантом — способностью распознавать помесь ангелов и демонов, которые бродят по земле в облике людей, — Константин под давлением обстоятельств пытается совершить самоубийство, лишь бы избавиться от мучительных видений. Но неудачно. Воскрешенный против собственной (   Читать дальше...   )Производство: США, Германия / Warner Bros.,Village Roadshow Pictures,DC ComicsЖанр: фэнтези, триллер, драмаРежиссер: Френсис ЛоуренсАктеры: Киану Ривз, Рейчел Вайс, Шайа ЛаБаф, Джимон Хунсу, Макс Бейкер, Прюитт Тэйлор Винс, Гэвин Россдэйл, Тильда Суинтон, Петер Стормаре, Джесси РамирезПеревод: Дублированный (Лицензия) Мосфильм-МастерЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 02:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8C7EE75001B453CFB0D519CDF7FB5741BF0220
 ```
 
 

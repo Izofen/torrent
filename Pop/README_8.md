@@ -6,7 +6,7 @@ VA - Hello, 2025 (The Ultimate Party Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31879.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31887.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Best Of Italo Disco Vol. 13 (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31888.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31891.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31893.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:AAE27FC164BEE4B1BE23D7E91DDE4EB9DE6DFCC3
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31908.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Best Of Italo Disco Vol. 12 (1988) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31979.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gigi D'Agostino - Gin Lemon E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo Dan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32010.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - 70s Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32028.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - The Best Of Italo Disco Vol. 11 (1988) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32086.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Союз 19 Альбомов-Полные версии (1995-2003) 38CD [MP
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32138.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wings - Wings Over America (1976) 2xCD, Japanese Edition, SHM-CD, Reissue, 2024,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32197.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gigi D'Agostino, Luca Noise - Total Eclipse (2024) EP [FLAC|Lossless|WEB-DL|trac
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32288.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Joggen 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32292.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Wings - Wings Greatest (1978) Japanese Edition, SHM-CD, Compilation, Reissue, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32322.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:BB526047FCF62240DFEC71AF065BCEC800F6C630
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32399.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wings - Wings At The Speed Of Sound (1976) Japanese Edition, SHM-CD, Reissue, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32408.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Queen - Hot Space (1982) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32609.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ken Laszlo - Hey Hey Guy Don't Cry Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32610.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Happy New Year 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32809.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Thomas Anders & Florian Silbereisen - Nochmal! (2024) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32843.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Happy New Year Party 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32850.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:F12BC85A77578ABEB1225A04144D4468C75E5301
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32927.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mflex Sounds - Flashback Vol. 1 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32928.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mflex Sounds - Flashback Vol. 3 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32931.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mflex Sounds - Flashback Vol. 2 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32933.jpg" />
 </div>
 
 

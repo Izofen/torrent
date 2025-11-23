@@ -1,3 +1,76 @@
+###  Публикация: 1658247   (191464) от 07.09.2023
+
+Возвращение высокого блондина / Le retour du grand blond / The Return of the Tall Blond Man (1974) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шпионские игры продолжаются. Спецслужбы не могут оставить Перрена в покое - новый министр нашёл досье на высокого блондина, заведённое Бернаром Миланом, и следуя подсказке капитана Камбрэ, подозревающего Тулуза в фарсе с высоким блондином и убийстве Милана, приказывает полковнику Тулузу представить ему «суперагента». Тот в смятении придумывает историю о том, что (   Читать дальше...   )Производство: Франция,  Gaumont InternationalЖанр: комедияРежиссер: Ив РоберАктеры: Пьер Ришар, Жан Карме, Жан Рошфор, Мирей Дарк, Жан Буиз, Поль Ле Персон, Колетт Кастель, Анри Гибе, Эрве Санд, Жан АмосПеревод: Дублированный (Союзмультфильм), многоголосый (Союз Видео)Язык озвучки: русский, французскийСубтитры: английские (pgs)Продолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E610D56ED48F318900B747EA6427C3E54AACCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588307   (191529) от 04.11.2022
+
+Проект: Альф / Project: ALF (1996) DVDRip [H.265/1080p] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военные занимаются расследованием неземной формы жизни. Имеется в виду - странное волосатое, ярко оранжевое существо, которое думает, что котов едят на десерт. Оно обожает педикюр, азартные игры и атласные простыни.
+Самый тайный проект мира набирает обороты. А тем временем Альф контролирует секретную военную базу и регулярно обыгрывает всех в покер. Его решают уничтожить. (   Читать дальше...   )Производство: Германия, США / Alien Productions, Patchett Kaufman Entertainment, Paul Fusco Productions, UFA Fernsehproduktion GmbH,  World International Network (WIN)Жанр: фантастика, комедия, семейныйРежиссер: Дик ЛоуриАктеры: Мигель Феррер, Уильям О’Лири, Дженсен Даггетт, Скотт Майкл Кэмпбелл, Беверли Арчер, Чарльз Робинсон, Джон Шак, Грегори Алан Уильямс, Лиз Коук, Делл ЙонтПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB6CFCF13BB7F7274B15D96ED54508A7860FC25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658085   (191665) от 06.09.2023
+
+Константин: Повелитель тьмы / Constantine (2005) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джону Константину удалось не только побывать в аду, но и вернуться обратно. Родившись с неугодным самому себе талантом — способностью распознавать помесь ангелов и демонов, которые бродят по земле в облике людей, — Константин под давлением обстоятельств пытается совершить самоубийство, лишь бы избавиться от мучительных видений. Но неудачно. Воскрешенный против собственной (   Читать дальше...   )Производство: США, Германия / Warner Bros.,Village Roadshow Pictures,DC ComicsЖанр: фэнтези, триллер, драмаРежиссер: Френсис ЛоуренсАктеры: Киану Ривз, Рейчел Вайс, Шайа ЛаБаф, Джимон Хунсу, Макс Бейкер, Прюитт Тэйлор Винс, Гэвин Россдэйл, Тильда Суинтон, Петер Стормаре, Джесси РамирезПеревод: Дублированный (Лицензия) Мосфильм-МастерЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 02:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8C7EE75001B453CFB0D519CDF7FB5741BF0220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658161   (191725) от 06.09.2023
 
 Назад в будущее 3 / Back to the Future Part III (1990) BDRip [H.264/1080p-LQ] [10-bit] [handmade]
@@ -6,7 +79,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191725.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191725.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:7FA5C6836901B8A8DF0882CCA44F7CF092780D03
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191983.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191983.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ magnet:?xt=urn:btih:28DCC885E5E2DE4F0A7D5B58C2CBB76D08B018E1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192049.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192049.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ magnet:?xt=urn:btih:EB21E9DC0D66DDC430896CD8B613A777101821AD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192239.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192239.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:032B04B8FEDB88E02D55A207534F0A73DD6E6A25
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192345.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192345.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ magnet:?xt=urn:btih:34750958AE7CB9B9107167B498BDBDC373B19E57
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192557.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192557.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:A1FF19658736E76CEBDC33DB1E807FFEFE321C82
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192791.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192791.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ magnet:?xt=urn:btih:2BA6A9CC3468B5985AEDFCF098B186BCFADC56F0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192824.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192824.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:009A1BCD1B9E25D25D2F51935A995A6F360627FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192868.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192868.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:F8E8524905753092D761BF19AC4812CAF05F1028
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192870.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192870.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:94CD1F19FCF180C90DC97558161EDD7FBE8A0220
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192878.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192878.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:4030CF7DACA7CE441EF7A4075E8835177480E418
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192924.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192924.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ magnet:?xt=urn:btih:2979DCD36A731B629749141D57CB2873A726D36B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192960.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192960.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ magnet:?xt=urn:btih:0CC22C8D4D38A2FC5968E6E791890F586F2D2A4C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193102.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193102.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ magnet:?xt=urn:btih:9B9CF5E4C84D1CB8C64F61117111CAB4F1CEF0D1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193184.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193184.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:6AB70D9F2B042E416F40514AF5303DABB60BE489
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193235.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193235.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:4797BFC0150537DC0091327A1F6B56010B34CC51
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193378.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193378.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ magnet:?xt=urn:btih:B8DF47889B760CD4059B6B81BF78E4AC7193CBFC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193453.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193453.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ magnet:?xt=urn:btih:19DC56111EAA7F7882DEAC783758B6E8BEF3B8F0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193528.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193528.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ magnet:?xt=urn:btih:A2D5029A6C82CFEF45DDD4E208BEC9E6F4D078BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193529.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193529.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ magnet:?xt=urn:btih:3DBCDE403434539A9DEECF48D661B37C5AF62C54
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193531.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193531.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ magnet:?xt=urn:btih:402B29D6E09DCDC767AA5E049A861464C11D4EA0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193541.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193541.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ magnet:?xt=urn:btih:2C74E97887BB8CE3C3EE606FD8ED66709CEDF37D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193572.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193572.jpg" />
 </div>
 
 
@@ -551,78 +624,6 @@ magnet:?xt=urn:btih:2C74E97887BB8CE3C3EE606FD8ED66709CEDF37D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48367A15B50FECF30D005831BA418B763B0E0211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656373   (193596) от 30.08.2023
-
-Человек с бульвара Капуцинов (1987) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193596.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из ковбойских городков Дикого Запада с его традиционной стрельбой, сквернословием и мордобоем появляется тихий миссионер кино мистер Фёст. Неведомое прежде ковбоям «синема» до неузнаваемости меняет уклад их жизни, нравы и привычки.Производство: СССР, МосфильмЖанр: комедия, вестерн, мюзикл, мелодрамаРежиссер: Алла СуриковаАктеры: Андрей Миронов, Александра Яковлева, Михаил Боярский, Олег Табаков, Игорь Кваша, Лев Дуров, Галина Польских, Наталья Крачковская, Наталья Фатеева, Николай КараченцовСубтитры: ОтсутствуютПродолжительность: 01:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB51D32DD30679DCE870E11EEBB2FEFAE15D2CDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538430   (193600) от 28.08.2023
-
-В огне брода нет (1967) DVDRip [H.264/1080p] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193600.jpg" />
-</div>
-
-
-###  Подробнее
-
-В санитарном поезде, вывозящем раненых с фронтов гражданской войны, работает медсестрой комсомолка Таня Теткина. Совсем юная, застенчивая девушка искренне и самоотверженно предана своему делу. Она далеко не все еще понимает из происходящего вокруг, многое лишь смутно ощущает, пытаясь выразить это своими рисунками и отношением к близким людям, которых она находит (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: драма, военныйРежиссер: Глеб ПанфиловАктеры: Инна Чурикова, Михаил Кононов, Вадим Бероев, Анатолий Солоницын, Майя Булгакова, Михаил Глузский, Владимир Кашпур, Михаил Кокшенов, Евгений Лебедев, Любовь Малиновская, Виталий Матвеев, Леонид Дьячков, Анатолий МареничСубтитры: Русские, английскиеПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280F2D9BCDCE8D347969015C1D7ACCB59786F2D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656444   (193604) от 30.08.2023
-
-Назад в будущее 2 / Back to the Future Part II (1989) BDRip [H.264/1080p-LQ] [10-bit] [handmade]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фантастической истории о приключениях американского подростка во времени. На этот раз с помощью модернизированной Доком машины времени Марти из 80-х попадает в будущее. Дети Марти в беде, и их надо выручать. Приходится повозиться со злодеем…Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: фантастика, приключения, комедияРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Лиа Томпсон, Томас Ф. Уилсон, Элизабет Шу, Джеймс Толкан, Джеффри Вайсман, Кейси Семашко, Билли Зейн, Дж.Дж. КоэнПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A62E155982130B3C703461FAAF044C7E7272EC9
 ```
 
 

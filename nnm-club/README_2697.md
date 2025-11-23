@@ -6,7 +6,7 @@ Free Wheeling Blues - Train Ain't Gonna Stop (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70870.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tom & His Free Mockingbirds - All Shades of Blues & Dreams (2025) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70871.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Max Greger und sein Orchester - Sax In Love (1992) Polydor [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70872.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Matt "The Rattlesnake" Lesch - Blues Cut Like Glass (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70873.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:D3CF80378CAB2453CBC2FCF06A6A5F1347180A93
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70874.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:BB2BB311D0E8D5A11D652D2EE59AF1E86B446EF3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70875.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Frank Bey - Peace (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70876.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Chris Sutherland - Heaven (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70877.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Bill Abel - Waiting At The Station (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70878.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Teri Thornton - Sings Open Highway (1963) 2001, Koch Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70879.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Jimmy Raney - Here's That Raney Day (1980) 1990, Black & Blue [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70880.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:D4086B28DD1864AF29DB1878B1E5EB78D762E034
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70881.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Stud - Under Silver Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70882.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Open to Close Solo Set, Avalon H
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70883.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Tommy Castro & The Painkillers - Closer To The Bone (2025) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70884.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Thorbjorn (Thorbjørn) Risager and The Black Tornado - House Of Sticks (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70885.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:424D3EBBD5B1E5794D2B45D799567A2EA015D3AC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70886.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:82E8F136AD371228BDFDA62C10057B81EBA9DFF0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70887.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ John Tho - Truth Be Told (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70888.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mick Clarke - Bad Whisky Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70889.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:D4BD75B39E77F2663112280E1CF9D8CFFBBAE2BD
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70890.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:032C444BA34BC13F108C2D3BE3A1D03DD76919B3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70891.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ A-Mase - Indian Journey (Extended) (2025) [MP3|320 Kbps] <Progressive House, Mel
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70892.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Soultide - Midnight Rhythm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70893.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:7A10C6DF7BFB6AC4A384AF1E4AB6F0B5E074B5EB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70894.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:96FFF77D08410F096426D6FFFD648ABF29FE75A4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70895.jpg" />
 </div>
 
 

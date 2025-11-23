@@ -6,7 +6,7 @@ Chasys Draw IES 5.35.01 include Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20991.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20991.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XnConvert 1.105.0 + Portable (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21054.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Photo AI Pro 3.6.2 (x64) [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21381.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Serif Affinity Photo 2.6.2.3228 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22114.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22114.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FotoSketcher 3.98 Final + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22836.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22836.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Polarr Photo Editor Pro 5.11.10 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23144.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23144.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Topaz Gigapixel AI Pro 8.3.3 RC [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23586.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23586.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ inPixio Photo Editor 10.5.8103 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23876.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23876.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ ABViewer Enterprise 15.2.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23972.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23972.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ inPixio Photo Focus Pro 4.3.8624 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24058.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ InPixio Photo Maximizer Pro 5.3.8624 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24068.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24068.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ InPixio Photo Editor 10.5.8103 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24073.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24073.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ inPixio Photo Eraser 10.5.7924 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24292.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24292.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ inPixio Photo Cutter 10.5.8105 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24300.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24300.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AVS Image Converter 7.0.2.22 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24828.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24828.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Icecream Slideshow Maker PRO 5.16 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25412.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Aiarty Image Enhancer 3.3 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25581.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25581.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Digiarty AIArty Image Matting 2.5 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26001.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Pipette 24.8.31 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26487.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26487.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:649EECCDB60EBAF12B12C4332F61D2F4F98D16C4
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26524.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26524.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ inPixio Photo Focus Pro 4.3.8624 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27446.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27446.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ InPixio Photo Maximizer Pro 5.3.8624 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27454.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Movavi Photo Editor 24.3.0 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27888.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Movavi Photo Editor 24.3.0 RePack (& Portable) by elchupacabra (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28095.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ DxO PhotoLab Elite 8.2.1.487 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28278.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:E3AD9523AE75FF5E500ED629177BEC7B26CDEC60
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29645.jpg" />
 </div>
 
 

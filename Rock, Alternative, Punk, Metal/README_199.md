@@ -6,7 +6,7 @@ Seawalker - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127202.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Liturgy - 93696 (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127204.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vore - Lord of Storms & Dead Kings Eyes (2009) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127205.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vox Interium - Yearning (2004) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127206.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vore - Gravehammer (2011) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127207.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Demon - Night of the Demon (1981) Japanese Edition, Reissue, Remastered, 2020, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127209.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Red - Rated R (2023) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127227.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ UseEye - Stoned Mental (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127348.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Shamayna - Shamacaine (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127350.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Gravegod - Promised Graveland (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127352.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Illt - Mercy Of The World (2022) [FLAC|Lossless|image + .cue] <Thrash Black Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127355.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dusk Chapel - Astrophysics And Abnormal Activities (2022) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127356.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - With Us or Against Us (1995) Compilation, Napalm Records [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127357.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Consume - Genetic Waste (2023) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127358.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:5A7DFA32993E561C1C180921AF21E11BA3C36A51
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127359.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lissa - Гости без будущего (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127366.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:A998CB94DF7206062AF779FC15CB980F2BFBC07C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127368.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Valentino Francavilla - Midnight Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127370.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Avenged Sevenfold - Hail To The King (2013) [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127373.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Impress - Враг не дремлет (2023) [FLAC|Lossless|image + .cue] <Thra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127377.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:FFC61739ED3C3CDDBA4C21447446C7EF90790225
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127378.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Holy Giant - Diviners & Dividers (2023) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127384.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6D45B68665BD096ABF9B0D849858B537B59190B3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127386.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:4BBF7E7519CADCD05C40238E69A3BAEB48A61472
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127390.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Heavy Load - Death Or Glory (1982) Remastered, 2019, Reissue, 2023, WM Sweden [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127391.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Heavy Electric Guitar (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127392.jpg" />
 </div>
 
 

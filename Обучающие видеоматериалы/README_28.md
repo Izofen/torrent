@@ -6,7 +6,7 @@ Pikuma, Gustavo Pezzi | 3D Computer Graphics Programming (2024) WEB-DLRip [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58742.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JavaScript.Ninja | Учись реальности, Crash Course (Пакет Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59048.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ javascript.ru, Егор Сидоров | Интенсив по "продвину
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59059.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Swiftbook | Junior iOS-Developer (2023) WEB-DL [RU] [Части 1-6 из 6]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59129.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:9A2A4CCA60E585149CE204EAA4F78DEFC2564A86
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59338.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:646C89B6FE783DEEF0FE5630EBC097FD2DDFF477
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59435.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Garden Group, Иван Шаферов | Благоустройство. Тари
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59931.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Lingerie Design School | Бельевой эксперт. Тариф «Я сам
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60274.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ JUG Ru Group | Flow 2024 Spring. Конференция по системном�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60405.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:1E3B83F4B5969A93FBA24BB4AD9FB69283CB9BAD
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60455.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Thinknetica Pro, Александр Борисов | Деплой Ruby on Rails 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60457.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Austin School of Furniture & Design, Philip Morley | Изготовление м
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60473.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:5EA57BF9CE43A90B70D6DBC05982F029DF75027C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60512.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ UNIGINE,  Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60615.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Lynda, Kevin Skoglund | Git Essential Training (2012) PCRec [EN, RU / RU Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60616.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:CCF0FB2B70E74195EFD2FF4F44DF95C9C80D1E4D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60670.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:186AD22B49F6C05B421D6F6C8C9363B65E13E55D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60710.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Udemy, Nikolay Naydenov | Arm and hand anatomy exercises course (2024) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60789.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3467AB3ECBA59AA264F5D3FE623E2DC5352E15C5
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60804.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:FB3B3443682EF968E1AE12E19BB7AE5983300599
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60806.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:6A9A95725DC7937A88964C8EA15DFAEDD74552ED
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60808.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:669AFF652303317DCEBA42C2C386BE3EE2483469
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60810.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ CG Fast Track | Blender Fundamentals Vol. 1-3 - Modeling, UVs, Texturing and Sha
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60817.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60903.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:5CEF710CFD85390E5E624417157F12B65A975B10
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60919.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Udemy, Bharat Sharma | Old Stylized Character in Blender (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61035.jpg" />
 </div>
 
 

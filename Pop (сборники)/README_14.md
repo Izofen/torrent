@@ -6,7 +6,7 @@ VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156096.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - 50 Latin Hits 2016 (2016) [MP3|320 Kbps] <Pop, Latino>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156418.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Новички в попсе (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157294.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Funky Fever: Disco Mania (2019) [MP3|320 Kbps] <Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157481.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Cristmas Sexy Dance (2018) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157487.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157699.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Like FM. Слушай, что нравится! (2015) [MP3|320 кб/с] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158352.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Best Of 2015 - Die Hits des Jahres (2015) [MP3|320 кб/с] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158638.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Soft Pop Hits (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159175.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Female pop assorted compilation part  40 (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159239.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bishop Briggs - Compilation (2022) [MP3|320 Kbps] <Pop, Dark Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159323.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Хиты Авторадио (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159415.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Luxury Disco - Ultimate House Grooves (2022) [MP3|320 Kbps] <Funky, Indie D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159596.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Dance Compliance Bests (2022) [MP3|320 Kbps] <Dancecore, Synthpop, Eurobeat
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159775.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Mega Hits Des Jahres (2022) [MP3|320 Kbps] <Synth-pop, Disco, Neo Soul, Bri
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159794.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Ultimate Party Classics Dance (2022) [MP3|320 Kbps] <Electropop, Future Hou
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159819.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Кавказ Бомба Hits (2011) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160523.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Chill Hits 2 (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160544.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rose Laurens - Compilation (2023) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161266.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sofia Bellini - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162016.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - The Christmas Songs 2022 (2021) [MP3|320 Kbps] <Pop, Rock, R&b, Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162106.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Disco Is Alive 3 (2021) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162122.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Discolandia (2021) [MP3|320 Kbps] <Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162127.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162281.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlag
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162285.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162900.jpg" />
 </div>
 
 

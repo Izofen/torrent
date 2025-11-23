@@ -6,7 +6,7 @@ Atlantis Word Processor 4.4.0.1 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49706.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Audacity 3.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49708.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0715) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49712.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera One 112.0.5197.25 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49715.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ EssentialPIM Pro 12.0.4 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49720.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Blender 4.2.0 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49724.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ KiCad 8.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49725.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Internet Download Manager 6.42 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49729.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ iFind Data Recovery 9.2.5.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49731.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ DLNow Video Downloader 1.54.2024.07.16 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49734.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ HopToDesk 1.42.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49738.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SplitCam 10.8.5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49739.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Microsoft .Net Packages AIO 09.07.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49750.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Planet VPN 2.8.31.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49751.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NVIDIA GeForce Desktop Game Ready 560.70 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49760.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Acrobat Pro 2024.002.20933 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49764.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ CCleaner 6.26.11169 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49773.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Internet Download Manager 6.42 Build 15 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49774.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ O&O ShutUp10++ 1.9.1439 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49775.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ WinTools.net Premium 24.7.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49808.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ DigiKam 8.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49809.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ EssentialPIM Pro 12.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49812.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Aiseesoft Video Converter Ultimate 10.8.52 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49816.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Opera One 112.0.5197.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49818.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:7B45A35AD53408B8B8359C3765B2B66075AF69B9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49819.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ FastStone Capture 10.6 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49829.jpg" />
 </div>
 
 

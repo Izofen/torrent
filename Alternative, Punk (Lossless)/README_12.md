@@ -1,3 +1,84 @@
+###  Публикация: 1666412   (179644) от 04.10.2023
+
+The Veer Union - Covers Collection Vol.1-2 (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightmare [00:03:55]
+02. I'm so Sick [00:03:05]
+03. White Noise [00:04:24]
+04. Nihilist Blues [00:04:48](   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 01:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57571A35E6E56CD74E1B86182AAE1CB9A1989B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593757   (180026) от 28.11.2022
+
+Oceans Turn Red - MOIRAE (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore / Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Council
+2. Born From Blood FT. Danillo Visser
+3. Lachesis
+4. Redemption of the Ghoul(   Читать дальше...   )Жанр: Metalcore / DeathcoreПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FA8F1E8C6FF78526432D5229D41936A055C71C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593619   (180450) от 27.11.2022
+
+Brain for the Masses - Monachopsis (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleak [00:05:11]
+02. Retribution [00:05:44]
+03. Seclusion [00:06:45]
+04. To Be Alike [00:05:25](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A46DA73525BEFF434A77F24EA6D4A30E033B197
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593573   (180539) от 27.11.2022
 
 The Crossed - The Producer Of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore, Progressive Metalcore>
@@ -6,7 +87,7 @@ The Crossed - The Producer Of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180539.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180539.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Soul Exchange - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180893.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180893.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Muse - Ghosts (How Can I Move On) [feat. Elisa] (2022) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180931.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180931.jpg" />
 </div>
 
 
@@ -76,6 +157,33 @@ magnet:?xt=urn:btih:B0D9F32734D79185EAB83AEBCAA96D1D95EE2876
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427973   (181449) от 30.11.2020
+
+Nick Cave & The Bad Seeds - Idiot Prayer (2020) Nick Cave Alone at Alexandra Palace [FLAC|Lossless|WEB-DL|tracks] <Alternative, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spinning Song (Live at Alexandra Palace, 2020) (1:48)
+02. Idiot Prayer (Live at Alexandra Palace, 2020) (3:09)
+03. Sad Waters (Live at Alexandra Palace, 2020) (3:44)
+04. Brompton Oratory (Live at Alexandra Palace, 2020) (3:22)(   Читать дальше...   )Жанр: Alternative, Singer-SongwriterПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684E1D206005C695BD78FB0A2DAAD348C74481E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665441   (181453) от 01.10.2023
 
 The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Neofolk, Post-Punk>
@@ -84,7 +192,7 @@ The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181453.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181453.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ Nomy - Stay (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_181502.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ Daisy George - see me now (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Alternative & I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181719.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181719.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Nickelback - Get Rollin' (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181747.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181747.jpg" />
 </div>
 
 
@@ -184,6 +292,33 @@ magnet:?xt=urn:btih:869F56C46A118CA77D0BAEE858F58EB69D25E868
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427491   (181807) от 29.11.2020
+
+Nirvana - 9 Albums, 3 Box-Sets, 6 Singles, 43CD (1989-2013) [FLAC|Lossless|image + .cue] <Grunge, Alt Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная в Сиэтле в 1987 году группа Nirvana стала одной из самых больших и влиятельных групп в истории музыки, исполнявшей гранж. Недолгая, но яркая история группы прервалась в 1994 году, в связи со смертью Курта Кобейна. В начале 90-х Курт Кобейн оказался в глазах СМИ не просто музыкантом, а «голосом поколения», а Nirvana — флагманом «поколения Х». Многие музыкальные (   Читать дальше...   )--------------------------
+
+01. Heart-Shaped Box (LP Version) (4:41)
+02. Milk It (LP Version) (3:54)(   Читать дальше...   )Жанр: Grunge, Alternative Rock |Продолжительность: 37:50:56 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA9D75001F3A7D9481EF31D27C5D883C3FF3F98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592937   (181972) от 25.11.2022
 
 Her Anxiety - No Land in Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
@@ -192,7 +327,7 @@ Her Anxiety - No Land in Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181972.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181972.jpg" />
 </div>
 
 
@@ -219,7 +354,7 @@ Vain Louie - Time Devours Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181988.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181988.jpg" />
 </div>
 
 
@@ -246,7 +381,7 @@ Nickelback - 10 Albums (1996-2022) Full Studio Discography [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182693.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_182693.jpg" />
 </div>
 
 
@@ -273,7 +408,7 @@ Alanis Morissette - Jagged Little Pill (1995) Maverick 9362-45901-2 [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183258.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183258.jpg" />
 </div>
 
 
@@ -300,7 +435,7 @@ We Blame The Empire - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183291.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183291.jpg" />
 </div>
 
 
@@ -327,7 +462,7 @@ Anxious Arms - Crimes of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Emo, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183977.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183977.jpg" />
 </div>
 
 
@@ -354,7 +489,7 @@ Slipknot - The End, So Far (2022) [FLAC|Lossless|image + .cue] <Alternative Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184270.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184270.jpg" />
 </div>
 
 
@@ -381,7 +516,7 @@ The Smashing Pumpkins - CYR (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184312.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184312.jpg" />
 </div>
 
 
@@ -408,7 +543,7 @@ Illuminate - Discography (1996-2019) [FLAC|Lossless|image + .cue] <Darkwave, Got
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185295.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185295.jpg" />
 </div>
 
 
@@ -435,7 +570,7 @@ Jared Dines - the grey (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185336.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185336.jpg" />
 </div>
 
 
@@ -462,7 +597,7 @@ Tallah - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185353.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185353.jpg" />
 </div>
 
 
@@ -487,7 +622,7 @@ Saltwound - In the Shadow of the Valley of Death (2023) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185513.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185513.jpg" />
 </div>
 
 
@@ -513,7 +648,7 @@ The Real McKenzies - Songs of the Highlands, Songs of the Sea (2022) [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185532.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185532.jpg" />
 </div>
 
 
@@ -540,7 +675,7 @@ Diamonds to Dust - Amidst the Hallowed and the Vanquished (2022) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185635.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185635.jpg" />
 </div>
 
 
@@ -554,141 +689,6 @@ Diamonds to Dust - Amidst the Hallowed and the Vanquished (2022) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF6442A8A9C07DFEEBF371AF21B2075B476B817F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668092   (185822) от 25.11.2020
-
-Primal Scream - More Light (2013) Japanese Deluxe Edition [FLAC|Lossless]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   2013 [09:01]
-02.   River Of Pain [07:00]
-03.   Culturecide [04:37]
-04.   Hit Void [04:14](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30549D90C0B438F6F9EB8E244FB169A758E1403
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664126   (186028) от 25.09.2023
-
-Hax - Wives with Knives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway 69 [00:04:15]
-02. Work the Room [00:03:55]
-03. Bad Kiss [00:03:46]
-04. Must Be Love [00:02:36](   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308D34B27142D87454883D3F12E1A58302756C52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664143   (186038) от 25.09.2023
-
-Lost Romantic - LovexHate (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No! Looking Back [00:01:17]
-02. Bad Intentions [00:02:22]
-03. Waterfalls [00:02:40]
-04. Sober [00:02:57](   Читать дальше...   )Жанр: Alt.RockПродолжительность: 00:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403792A0B7A9E9005728AB56B99BA287A7F7680E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664023   (186261) от 24.09.2023
-
-Never Obey Again - The End Of An Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End of an Era [00:01:09]
-02. The Storm [00:03:31]
-03. Toxic Feelings [00:03:33]
-04. Take Care of You [00:03:47](   Читать дальше...   )Жанр: Alt.Metal, Female VocalПродолжительность: 00:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F7AD260A930639C55633341104D4BCFA0F8CA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664104   (186271) от 24.09.2023
-
-Day Aches - One Last Dream Before Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hide [00:02:59]
-02. New June [00:02:39]
-03. Leave [00:04:07]
-04. Wait [00:03:45](   Читать дальше...   )Жанр: alternative rockПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630CD7A5ED523C37FD8F9D869D074B1069AD4444
 ```
 
 

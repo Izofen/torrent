@@ -6,7 +6,7 @@ OK English School, Елена Вогнистая | Начинающим. МЕГ�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28116.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28116.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ventoy 1.1.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28117.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28117.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28118.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Franz Ferdinand - 10 альбомов (2004 - 2025) [FLAC|Lossless|image + .cue,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28119.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:45BF25DF23B412631F7B2C3A31C0B2F282B4AD43
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28120.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28120.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:45BF25DF23B412631F7B2C3A31C0B2F282B4AD43
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28121.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28121.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ BORE BLASTERS (2024) [Multi] (1.52) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28122.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:334045C2E456EBB121C37D5E937EC36B69D2F00B
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28123.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Drova - Forsaken Kin (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28124.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28124.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:19D6A1F434522E96B3D978324A95C6EB9C35DA71
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28125.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:6719295404F4D43325D18ADA74A1BF5F4FBCF5ED
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28126.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:A6CABC21BEA18E863E120282C37892B9A9379C3A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28127.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28127.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ GiliSoft Video Converter Discovery Edition 12.2.0 Pro RePack (& Portable) by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28128.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28128.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:55073E6407927BE2E9FD8D38716A67D5C670C869
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28129.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:42EF20003599221E58D835A5DDD25ACCD8AFD616
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28130.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28130.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:E9B3986BE34EDCD706D28FA14B7BF348AF3C08F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28131.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28131.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:386BE630BAB90A070B6BB9A70622F5A07F075348
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28132.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Topaz Video AI Pro 6.1.0.2.b (x64) Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28133.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28133.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17294620) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28134.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28134.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:F6D814BD2E188436130157554803C74A63BD5089
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28135.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:4CBFE0CF7B9B5EB551E8E18E4C246724316FED1F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28136.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28136.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Slimjet 45.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28137.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28137.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ dBpoweramp Music Converter 2025.02.07 (x64) Portable by FC Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28138.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28138.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:791E286102368AEB7CA32AD10A99B922CBBCD0B2
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28139.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28139.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Paint.NET 5.1.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28140.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28140.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Alfa eBooks Manager 9.0.229.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28141.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28141.jpg" />
 </div>
 
 

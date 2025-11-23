@@ -1,3 +1,75 @@
+###  Публикация: 1823571   (125840) от 11.10.2025
+
+Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вотано - обычный школьник. Обычный парень. Ну кроме того, что когда на горе Соукай случается беда, всегда зовут его. Беда всегда одна - либо кто-то уже захватил гору Соукай и установил на ней свой тотальный контроль либо только собирается это сделать. Приходится опять одевать свои латы, Меч Дракона, вызывать своего Робота Воина Дракона и идти всех месить. Такая вот (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фэнтезиРежиссер: Иути СюдзиПеревод: Code Giass (Kogaji)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 2 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25027B526C14C6115C33A3B126ABC33370DC02E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823572   (125841) от 11.10.2025
+
+Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спасатели 2 [1990, TV, 46 из 46] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон о приключениях 9-летнего мальчика Вотано, который попадает в волшебный мир богов.Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Иути СюдзиПеревод: CodeGiass (Kogaji)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 46 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31288A6349EFE3CB8D95F2AD45D9CFCB98B7E58C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823576   (125842) от 11.10.2025
+
+Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спасатели: История о бесконечном времени [1993, OVA, 3 из 3] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередные приключения Вотано и его друзей в мире богов.Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Иути СюдзиПеревод: CodGiass (Kogaji)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 3 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57141A73307EA3D950964881C0E323627FAC99D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823578   (125843) от 11.10.2025
 
 Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спасатели 3 [1997, TV, 51 из 51] BDRip 1080p HEVC 10-bit raw
@@ -6,7 +78,7 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125843.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125844.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125845.jpg" />
 </div>
 
 
@@ -83,7 +155,7 @@ magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125846.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:F819279E5D01B7EA51A6B7DB5C32761E6AA8858C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125847.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ Ventusky: Прогноз погоды v48.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125848.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2025.09.55
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125849.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125850.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125851.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:7FF700DB7F42CE18F7C23C8E7141D586083C988F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125852.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:52BB747A0F91B64653F1EF3C2FF7866A2FECBA1D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125853.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:D4E74EE152FC71E8448A4B65E6286294A40D6F67
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125854.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:EE614CAF832FF130B7D0BC215C140ECE42940AAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125855.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ magnet:?xt=urn:btih:918B6C450A18E18EDD8BBB56D48BF012F4F9F3C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125856.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ magnet:?xt=urn:btih:32FF09B5D695ADAC2D51F9E7C0B8DFBF376FC3DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125857.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:ABF76942DA72402DD6C7D038C1EEEBA14B71EBC5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125858.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:4FE7A1F1045B08BC388C2311375880CA6C54E1BF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125859.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:4FE7A1F1045B08BC388C2311375880CA6C54E1BF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125860.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ Kazrog Plugins 10.2025 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125861.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ W10 Digital Activation v1.5.5.5 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125862.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:D44CB586B456A57EA03F66CC2D507B5F6FE20AF1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125863.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:F8D8F874847BAD7C8563C99049026524C2905C1F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125864.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ AI - Russian Covers Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125865.jpg" />
 </div>
 
 
@@ -560,83 +632,6 @@ AI - Russian Covers Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416DAE0C3BCBD4DD1B253F190704494524E011B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823620   (125866) от 12.10.2025
-
-Frezee - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal, Other>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Твои Шаги
- 02 - Между Небом И Землей
- 03 - Минуту Назад
- 04 - Первая Любовь(   Читать дальше...   )Жанр: Swing Jazz, Nu Jazz, Chillout, Female Vocal, OtherПродолжительность: 00:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181B831EA86D7C468BE1F84528AC8FBDB7AF4216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823666   (125867) от 12.10.2025
-
-J.R. Waldram | The Theory of Thermodynamics (1987) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125867.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом учебнике теория термодинамики изложена логично и лаконично, с акцентом на лежащей в её основе физической модели.Жанр: ФизикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC180A22052FB9DDCBD1C79C9F2E4BFCBB1912C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823684   (125868) от 12.10.2025
-
-1С Учебный центр №1, Лада Люзинелли | Ведение бухгалтерского учета в 1С Предприятие 8 (2024) WEBRip [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен: для пользователей как небольших, так и крупных предприятий, желающих освоить работу с программой «1С:Бухгалтерия 8» в актуальной редакции 3.0 при ведении учета на общей системе налогообложения.
-
-Базовый курс построен в виде сквозной задачи, при решении которой слушатель выполняет практикумы вместе с преподавателем. Учебная задача построена на примере (   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 29:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7B560D37A4F694AE515088752C1E2639562C54
 ```
 
 

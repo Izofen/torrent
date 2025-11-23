@@ -6,7 +6,7 @@ Gabi Hartmann - La femme aux yeux de sel (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68842.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:506968C660A02820375026EEE9D10D9B211A7873
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68843.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nightwish - Angels Fall First (1997) Released, 2015, Spinefarm Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68844.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Gotthard - Stereo Crush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68845.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:D12E32E093517111906690260DAECC1EE26023A0
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68846.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:01D9F6D3905A95CC934879906E54EE87FE052947
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68847.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kruger - Aes Triplex (2023) 3xCD, Compilation, Deluxe Edition, Limited Edition [
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68848.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:7187585C85C98158294AC3D3856F1002A2D404C5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68849.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:F47F1DFB0995CF606E8F2B71895C7F1324F99198
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68850.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Balance - 2 Albums (1981, 1982) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68851.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sharp Pins - Radio DDR (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68852.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:3064CB38F7A4976B599685109A962F446A3E8D40
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68853.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Shok Paris - Steel And Starlight (1987) Reissue, Remastered, 2022, Bad Reputatio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68854.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:3271E0FE142690569A1AD601CF561A16BEC3CF37
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68855.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Th Da Freak - Negative Freaks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68856.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Diamond Construct - Angel Killer Zero (2024) Deluxe Edition, 2025, Greyscale Rec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68857.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Richard "Groove" Holmes - Broadway (1980) 1998, 32 Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68858.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:111410C72300277630A297222A8C811A6F7BFFD4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68859.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:54158DFC55CCBE0164CB8D39BEAEC963C210520F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68860.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68861.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Chillout & Lounge Moods (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68862.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Gotthard - Stereo Crush (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68863.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:BC782A898C2395BFD54756F364E2F0AF2E88C6AA
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68864.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Def Leppard - Just Like 73 (Tom Morello Version) (2024) Japanese Edition [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68865.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:28FD3C70AE54CA5C6141A58B3C67D45900660F29
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68866.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:FE61292EB7EE61D5100F3A9EF808F7530F0F2480
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68867.jpg" />
 </div>
 
 

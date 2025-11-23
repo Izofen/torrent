@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63753.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63754.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FEFC0BC00D9530825EFE37B26985E06AA2BCDD35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63755.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FEFC0BC00D9530825EFE37B26985E06AA2BCDD35
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63756.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v15 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63757.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D53CF9950C6D98373B0B6083D928EAC6E9DF52A5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63758.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FDFDB4F50239300D01233BD591692C6674E52CF2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63759.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:E5F8CF38453A71733A591970A39A8C339C284FDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63760.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8488573D56CB081E59B19ABD5756EBBB8F3E50AE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63761.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Pixelmator Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63762.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:628B64806795E9541C9767E664016A5481D26F53
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63763.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Tor Browser Bundle 13.0.11 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63764.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:82289D1C758F94CEC27FD18D788CF464413D4BD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63765.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:82289D1C758F94CEC27FD18D788CF464413D4BD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63766.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:82289D1C758F94CEC27FD18D788CF464413D4BD8
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63767.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ FxSound Pro 1.1.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63768.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F408EE10535F1861D573D5015551CE8A8422AAB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63769.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Gumroad, Pierrick Picaut | Alive! Animation course in Blender 2.9 [Chapters 1-9]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63770.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:28AB88A0001F64095CE82E003B614E70596510CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63771.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Gumroad, Pierrick Picaut | Alive! Animation course in Blender 2.9 [Chapters 1-9]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63772.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:B829265FAB2E50303D8A0E85F2A2B899474849A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63773.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Hiren’s BootCD PE x64 v1.0.8 (5 March 2024) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63774.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0CF100FA2CB87BC5D99DF0FF5D9764911172BA17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63775.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:7FE513C0145419738DFC456064F3FEAB11E5CC26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63776.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:FCD9925B33EB5C1601FA9E002CA5E699A2704797
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63777.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0D713BE2C24599467D6EEDE951BBC138DB315BF6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63778.jpg" />
 </div>
 
 

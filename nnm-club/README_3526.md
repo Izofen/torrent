@@ -1,3 +1,84 @@
+###  Публикация: 1716329   (111358) от 15.04.2024
+
+Caru de Souza - Amor, Pele e Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move On (2:54)
+02. Me And My Gin (3:42)
+03. Isolamento (3:48)
+04. Like My Desire (7:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E7057D7C92EF54F263FCA709B42F33B6830AD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716336   (111359) от 15.04.2024
+
+Stonehurst - Wild Visions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medicine (3:37)
+02. Whispers (4:58)
+03. Wild Visions (3:03)
+04. Make Believe (6:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994F79CFA5CB8F6ADD539498C1B7755D52E238B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716334   (111360) от 15.04.2024
+
+Starsailor - Where The Wild Things Grow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Wild (5:35)
+02. Heavyweight (3:12)
+03. After The Rain (2:16)
+04. Where The Wild Things Grow (4:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BF250745EB99F1C931909500BBE77C7CC09A24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716351   (111361) от 15.04.2024
 
 Randy Brecker & Mats Holmquist - Together (2018) Mama Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
@@ -6,7 +87,7 @@ Randy Brecker & Mats Holmquist - Together (2018) Mama Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111361.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Aequorea - Dim (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111362.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Aequorea - Tellurian (2014) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111363.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ VA - Rock para bailar (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111364.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:D5FAE62FA862C4BC7C0D20D420B4983654D69367
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111365.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ magnet:?xt=urn:btih:054C5B5605E0B0FA963D4A52C512CA4B4A10DAC5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111366.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ Stacey Kent - The Summer We Crossed Europe In The Rain (The Kazuo Ishiguro / Jim
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111367.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ Love Sex Machine - Trve (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111368.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ Durante - Enter (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111369.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ Strawbs - Just A Collection Of Antiques And Curios (1970) Reissue, Remastered, 2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111370.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ VA - Something Aggressive (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111371.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ Frank & Tony - Ethos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111372.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ Love Sex Machine - Asexual Anger (2016) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111373.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ magnet:?xt=urn:btih:F3AA5CE490BE7EAFF29CDB11CCD4E603F4DE6F46
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111374.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ magnet:?xt=urn:btih:0554B29EB7A06121A056C80483EBECA9D8E81288
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111375.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ magnet:?xt=urn:btih:2473F2584F839E6B4C711674E928AFA9CB27523D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111376.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ magnet:?xt=urn:btih:1AA855982069A303A51EB62E0E65B846C2AF24E8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111377.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ Steve Davis - Crossfire (1997) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111378.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ Keely Smith - The Intimate Keely Smith (1964) 2016, Real Gone Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111379.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ magnet:?xt=urn:btih:D8547208331CBE7F899FB0490D6696C1E9E12BA6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111380.jpg" />
 </div>
 
 
@@ -527,7 +608,7 @@ Aequorea - Departure (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111381.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ Aborted - Vault of Horrors (2024) [FLAC|Lossless|image + .cue] <Brutal Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111382.jpg" />
 </div>
 
 
@@ -581,7 +662,7 @@ magnet:?xt=urn:btih:83FA63720515B8AF6BFF9FE55C4FB9960F5D0BCE
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111383.jpg" />
 </div>
 
 
@@ -595,84 +676,6 @@ magnet:?xt=urn:btih:83FA63720515B8AF6BFF9FE55C4FB9960F5D0BCE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ACACD9F382A3DCDA3998C74B7C5393D01949806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716204   (111384) от 14.04.2024
-
-Денис Стрельцов - Песни из старого чемодана (2018) [MP3|320 Kbps] <Шансон>>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гастрольная
-02. Письмо белогвардейца
-03. Канкан
-04. Два ангела(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8319179CAAE50F2E02E9AD335AE609D5F863FD59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716179   (111385) от 14.04.2024
-
-Chicane - Far From The Maddening Crowds (Symphonic Rehearsals) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early (Symphonic Rehearsal Mix)(05:23)
-02. Already There (Symphonic Rehearsal Mix)(03:30)
-03. Offshore (Symphonic Rehearsal Mix)(06:27)
-04. Lost You Somewhere (Symphonic Rehearsal Mix)(04:05)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ElectronicПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C60EA016C7C47CD3693BB9ED7DF5365A71245B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716072   (111386) от 14.04.2024
-
-МакВикар / McVicar (1980) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111386.jpg" />
-</div>
-
-
-###  Подробнее
-
-История основанная на реальных событиях. Джон МакВикар бежит из тюрьмы, где должен был отбыть еще двадцать три года. Вместе с сокамерником Уолли он роет туннель. При побеге Уолли схвачен, а Джону удаётся уйти. В Лондоне, с помощью старого знакомого, беглец встречается с женой и сыном и хочет начать новую жизнь, но полиция объявляет большую охоту на «врага общества (   Читать дальше...   )Производство: Великобритания / Polytel, The Who FilmsЖанр: драма, криминалРежиссер: Том КлеггАктеры: Роджер Долтри, Адам Фэйт, Шерил Кэмпбелл, Билли Мюррэй, Джорджина Хейл, Стивен Беркофф, Брайан Холл, Питер Джонфилд, Мэтью Скарфильд, Леонард ГрегориПеревод: Двуголосый профессиональный, авторский (Юрий Товбин)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CABA2D1F8C771A5CB03929DAF197D64823E481
 ```
 
 

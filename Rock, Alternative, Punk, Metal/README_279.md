@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168849.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:285182F4F4D2158DA0612F4E64981508B3FF5B45
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168937.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Electric Light Orchestra - Secret Messages (1983) Limited Edition, Reissue, Rema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168950.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A4E0585E860AE3D88C77A98EAF236B77C9BBFFC2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169048.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Famous Last Words - 3 альбома + 3 EP (2012-2021) [MP3|320 кб/с]<Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169053.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Duran Duran - Danse Macabre (2023) [FLAC|Lossless|image + .cue] <Sort Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169056.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:348D00ECCCDAB09271F73B1DB44C22DA70252F34
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169072.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Dismal Euphony - Soria Moria Slott (2004) Remastered in February 2010,   Keltic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169080.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Doro - Conqueress - Forever Strong and Proud (2023) [MP3|320 Kbps] <Heavy-Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169134.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Soma Planet - Bholenath (2007) [FLAC|Lossless|tracks + .cue] <Progressive Rock /
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169138.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:038C1F128A2E6C04F8863CCF6515C66D0E7FEBED
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169144.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Diamond Head - The Coffin Train (2019) [WavPack|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169146.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ ShadowPlay - ShadowPlay (2007) [FLAC|Lossless|image + .cue] <Gothic Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169150.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Lacrimosa - Nachts (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169151.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Judas Iscariot - Heaven in Flames (1999) Reissue 2000 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169155.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ John Norum - Gone To Stay (2022) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169163.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Bereaved - Daylight Deception (2009) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169164.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Nemesis - The Day Of Retribution (1982) Reissued 1990 [WavPack|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169175.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Objectif Running: Rock (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169186.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Reido - Anātman (2019) [FLAC|Lossless|image + .cue] <Sludge/Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169190.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Leviathan - Scoring The Chapters (1997) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169193.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Borknagar - True North (2019) [FLAC|Lossless|image + .cue] <Black Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169199.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Leviathan - Deepest Secrets Beneath (1994) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169207.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Princesse Angine - Никому не нужны твои жертвы (2022) [FL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169211.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Thunder - The Thrill of It All (1996) Expanded, 2019, Sanctuary Records [MP3|320
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169218.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Amon Acid - 5 Albums (2019-2022) [MP3|320 Kbps] <Psych, Doom, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169219.jpg" />
 </div>
 
 

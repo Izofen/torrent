@@ -1,3 +1,84 @@
+###  Публикация: 1697486   (118898) от 06.02.2024
+
+Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118898.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ella
+A2 Fager Som En Ros
+A3 Leaves Of Yggdrasil
+A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697329   (118899) от 06.02.2024
+
+Johnny Rawls - Walking Heart Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking Heart Attack (3:25)
+02. Trying To Live My Life Without You (3:20)
+03. Free (3:39)
+04. Tell Me The Truth (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA887B9AC6C720FBAD3D111F28BC8C9D8C46C64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697437   (118900) от 06.02.2024
+
+Kenny Barron Trio - Lemuria-Seascape (1991) 2023, Candid [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemuria [4:36]
+02. Ask Me Now [5:31]
+03. Sweet Lorraine [7:20]
+04. Fungii Mama [5:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3324E7445B0F3B6E7C508B35DB3BA7847082A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697364   (118901) от 06.02.2024
 
 Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Metal>
@@ -6,7 +87,7 @@ Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118901.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:D7047F171D2FA4A188C45B883DED4118900F3121
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118902.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118903.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Siren - Financial Suicide (1989) Reissue, 2018, Blacksmith Productions [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118904.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118905.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118906.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Shaytan - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118907.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ magnet:?xt=urn:btih:3EE8AD7B416749EBF2AE6E16719DB7C06A7F7EAD
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118908.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ magnet:?xt=urn:btih:1980772FD00045CB510CB32D209E05B5071BF4DC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118909.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ Lloyd Foulks - They Call Him Joe (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118910.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ Mark Dillon - T.A. Vern's (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118911.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ Sacrify Souls - The New Begin (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118912.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Emanuel Casablanca - Strung Out On Thrills (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118913.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ Threestyle - No Matter What (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118914.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ The Last Dinner Party - Prelude to Ecstasy (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118915.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ magnet:?xt=urn:btih:D8F5BC03ACB37A5BD5EA0BBF7B3B70EE2FC28E46
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118916.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ Sean Riley & The Water - Stone Cold Hands (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118917.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ The CrossRoadBand - Reload (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118918.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ magnet:?xt=urn:btih:890437C371B375AB93C6A348F6DB2E0A33BB84B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118919.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ Hammerhead - Lords Of The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118920.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118921.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ Shaytan - Chapter One (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118922.jpg" />
 </div>
 
 
@@ -589,7 +670,7 @@ Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118923.jpg" />
 </div>
 
 
@@ -603,87 +684,6 @@ A4 Crown(   Читать дальше...   )Жанр: Atmospheric Black Metal, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697322   (118924) от 06.02.2024
-
-Bubba Henry - It Is What It Is (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Blues Be the Blues (4:14)
-02. I'm a Bluesman (3:18)
-03. Me and Memphis (3:41)
-04. Losing the Blues (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51711CB938DBF8D8A7762E9E5EDA7D0023AEA64F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697321   (118925) от 06.02.2024
-
-Bourbon Street Revival - Bourbon Street Revival (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolution (4:44)
-02. No More (5:06)
-03. Nine Minutes of Bliss (3:23)
-04. Ain't No Use (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD8C26BEEEF6E73D570993CE7A2A9CD93B3FEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697108   (118926) от 06.02.2024
-
-Prediction of the Witch - Sworn into the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawling [00:03:07]
-02. Color of Death [00:03:40]
-03. Swamp Water [00:03:03]
-04. Monolith [00:03:30](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B3635D5916635EDA529AD2C0A5F8974620C445
 ```
 
 

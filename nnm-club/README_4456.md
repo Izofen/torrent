@@ -1,3 +1,75 @@
+###  Публикация: 1195926   (137783) от 31.12.2017
+
+Aho Girl | Дурочка (2017) [FLAC|Lossless] <OST>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: OP Single, ED SingleПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2164417417C6A7437633479D6484B90539F8BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436097   (137784) от 30.12.2020
+
+Йеллоустоун / Yellowstone (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йеллоустоун – первый в мире национальный парк, одно из самых посещаемых мест в США. Но здесь, на границе цивилизации, происходит много такого, чего не видят туристы, что не освещается средствами массовой информации. Семья Даттон, главой которой является Джон Даттон, владеет огромным ранчо, сопредельным с территорией парка. На их землю претендует и сам парк, и индейская (   Читать дальше...   )Производство: США / Paramount Network, 101 Studios, Linson EntertainmentЖанр: Драма, вестернРежиссер: Тейлор Шеридан, Стефен Т. Кэй, Джон ДалАктеры: Кевин Костнер, Люк Граймс, Келли Райлли, Уэс Бентли, Коул Хаузер, Келси Эсбиль, Брекен Мэрилл, Джефферсон Уайт, Джил Бирмингем, Форри Дж. Смит и др.Перевод: Многоголосый профессиональный - LostFilmПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2188DD1DDAC5716CEB2A587E7FE06FE8CFCD6D9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521095   (137785) от 31.12.2021
+
+Любовь нас разлучит (Хочу, чтобы мы были вместе) / Wo yao wo men zai yi qi / Love Will Tear Us Apart (2021) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их любовь началась в старшей школе. Но выдержит ли она испытания деньгами, домом, браком?... Смогут ли они в десятилетнем забеге на длинные дистанции вспомнить обещание, которое однажды выгравировали в своих сердцах: «Я хочу, чтобы мы были вместе».Производство: Китай, CKF PicturesЖанр: Драма, мелодрамаРежиссер: Ша МоАктеры: Цюй Чусяо, Чжан Цзинъи, Нин Сунь, Ду Цзяи, Цзинчэн Джин, Цзяхао Ли, Лян Хао, Ляо Ни, Пэй Куйшань, Цзинь ШицзяПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3445EFAE9BE71817B4F9116FC98BA742BD8F2950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679450   (137786) от 25.11.2023
 
 Freakstorm - Angel In The Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard-Rock, Miscellaneous>
@@ -6,7 +78,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137786.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:4EBF51DA4588D5F0F4494581950B5D5E72F3EB82
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137787.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Trypogen 1.0 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137788.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Hunting Unlimited 2 (2003) [En] (1.0) License Fairlight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137791.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137792.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Polnalyubvi - О чем поет твое сердце (2023) [FLAC|Lossless|WEB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137793.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137794.jpg" />
 </div>
 
 
@@ -183,7 +255,7 @@ magnet:?xt=urn:btih:DF029B88C1E25A0C0A4DDC1DF8ABCDF34D415103
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137795.jpg" />
 </div>
 
 
@@ -207,7 +279,7 @@ magnet:?xt=urn:btih:B90CC92D68D7A8171521FB4465FA2B10185B5484
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137796.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137797.jpg" />
 </div>
 
 
@@ -258,7 +330,7 @@ Rockets - Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Space Rock, Synth-p
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137798.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ magnet:?xt=urn:btih:CFDEE60E051AA9CDD040F3AB70B11425432C363B
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137800.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ magnet:?xt=urn:btih:D4651928BCFF67DD0B8D20BE12EC79C6412EEA45
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137802.jpg" />
 </div>
 
 
@@ -333,7 +405,7 @@ magnet:?xt=urn:btih:27A52A78CE88E4775249E68357562D498D666AB5
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137803.jpg" />
 </div>
 
 
@@ -357,7 +429,7 @@ Alta Reign - Upon the Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137804.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ magnet:?xt=urn:btih:844615515F06C6F7E30E3CB6C2072152A9347D23
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137806.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ magnet:?xt=urn:btih:02FBDC00A07B595A8E6048B4AB4357E4DACC93FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137808.jpg" />
 </div>
 
 
@@ -433,7 +505,7 @@ magnet:?xt=urn:btih:211EB50742BA4A168D642D6E67B75B3202A8497D
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137809.jpg" />
 </div>
 
 
@@ -457,7 +529,7 @@ magnet:?xt=urn:btih:E1C5229FF59AA9332E7F40EF59B61219F3122C0B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137810.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ John Legend - A Legendary Christmas (2018) [FLAC|Lossless|tracks + .cue] <R&B, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137811.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ magnet:?xt=urn:btih:2995C320BE90F1C772B30D31AE5828E11A2DF2A3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137812.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ magnet:?xt=urn:btih:3FC9FF4F04FB2EDE281B5242AD7FA4A9A03CEF3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137813.jpg" />
 </div>
 
 
@@ -556,7 +628,7 @@ magnet:?xt=urn:btih:34E49328F3C04E7274DF149633D38D1DFCB8D0EE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137814.jpg" />
 </div>
 
 
@@ -567,84 +639,6 @@ magnet:?xt=urn:btih:34E49328F3C04E7274DF149633D38D1DFCB8D0EE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:897AAB8664B0DCABEBBD7F923FC3F7C2E46177D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679306   (137815) от 25.11.2023
-
-Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Special Edition, earMUSIC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sublime Gracia [00:04:44]
-02. Ô Viens, Ô Viens Emmanuel [00:04:59]
-03. O Christmas Tree [00:03:39]
-04. Feliz Navidad (Barbuda Relief and Recovery Charity Version) [00:06:36]Жанр: Symphonic Metal, Gothic MetalПродолжительность: 2 CD, 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD6024FE6D2BAD25ACB8CBE870C03CE90B1A9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521009   (137816) от 31.12.2021
-
-Пробуждение / Awakening (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сенсорная видеопоэма, рассказывающая о мечтах молодой женщины, её духовном и чувственном путешествии по нетронутому острову Азорские острова.Производство: ПортугалияЖанр: документальный, видовойРежиссер: Энрике Грасиа ЭррераПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045889C9D09B5F9B040AB15F7818EF947A80391F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273262   (137817) от 31.12.2018
-
-VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop, House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137817.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Muka  MK X CeCe Peniston - 17 X Finally (Muka Short Mashup)
-002. Starjack & Collini  Ini Kamoze - Hotstepper (Starjack vs Kuba & Neitan Festival Edit)
-003. Vegas & Dj Julo Cruz  Khia - Bodak Yellow X My Neck My Back 2017 (Acapella In My Neck My Back) (Moombahton Mash-Up RMX)
-004. #The Goodfellas  Lil Uzi Vert - Unfazed (Intro)(   Читать дальше...   )Жанр: Dancehall, Future Bass, ElectroПродолжительность: 09:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC5F2C76274A724AD76EC85C584EAC6E5F44191
 ```
 
 

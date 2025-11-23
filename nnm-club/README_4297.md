@@ -1,3 +1,84 @@
+###  Публикация: 595948   (132213) от 29.12.2012
+
+62 HQ Wallpapers (29.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDA0E41F726C6BB8F8F44749D479B3DB41EFA15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681722   (132214) от 04.12.2023
+
+Corona Renderer 11.0 for 3ds Max 2016-2024 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B9A9173F2E045E468F49E257F5843BB7D9509E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595789   (132215) от 29.12.2012
+
+VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sven & Olav - Blissful World (Bonus Berlin Exclusiv Mix) (06:54)
+02. Chris Rockz - Dromedario (Cubic Egg Tech Mix) (08:20)
+03. Mauerpark Community - The Divine Circus (Outdoor Club Mix) (06:07)
+04. Berlin Minimal - Freitag Frei, Feierei (Original Mix) (06:17)
+05. Jason Duff vs. Miss Thunderpussy - BelleVille (Original Mix) (05:41)
+06. Jimmy(Ge) - Space (Original Mix) (06:37)
+07. Jens Riemann - Dirty Rolando (Original Mix) (05:37)
+08. Technodar - Funny Day (Original Mix) (05:08)
+09. Crazy Krauts - Frau Wunderlich geht baden (Original Mix) (06:10)
+10. Walter Native - Love Strings (Sirkhan Remix) (06:44)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C138730A719374CDC7DCB1BE03C7A1C6EB11333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681859   (132216) от 04.12.2023
 
 Total Commander 11.02 Final - Titan v32 Portable by pcDenPro [Ru]
@@ -6,7 +87,7 @@ Total Commander 11.02 Final - Titan v32 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132216.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:8EBB02266EBA300B52D0E7BF637252482F4B55B2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132217.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ magnet:?xt=urn:btih:AE61079D064A7E0E14E1CB9C61B3A62DB717FCFA
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132218.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ magnet:?xt=urn:btih:B0768DBEC688DBA1411FC6D3A23330E84EBB9D08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132219.jpg" />
 </div>
 
 
@@ -102,7 +183,7 @@ magnet:?xt=urn:btih:A5D43E65E03073705AF78B53E0E5163BBE123DC4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132220.jpg" />
 </div>
 
 
@@ -126,7 +207,7 @@ magnet:?xt=urn:btih:5A9DD43F56E25469275242BE409F27AC23A9C92A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132221.jpg" />
 </div>
 
 
@@ -150,7 +231,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132222.jpg" />
 </div>
 
 
@@ -177,7 +258,7 @@ magnet:?xt=urn:btih:E89A6BB21601FF9993CA8D1FE23330C24933862A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132223.jpg" />
 </div>
 
 
@@ -205,7 +286,7 @@ magnet:?xt=urn:btih:24F02A49862A441EF1EB80384B49E473800A7745
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132224.jpg" />
 </div>
 
 
@@ -229,7 +310,7 @@ magnet:?xt=urn:btih:EB20BB0F61AE203B9E7E98944DC488E1C33D4180
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132226.jpg" />
 </div>
 
 
@@ -256,7 +337,7 @@ VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132227.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132228.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ magnet:?xt=urn:btih:99D48AE7B83461E274AF37C7F626FC1EB4BE9A55
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132229.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ magnet:?xt=urn:btih:8E9463BD4B7053979D8AF2F5AB4ACDE9C97E0207
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132230.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ magnet:?xt=urn:btih:2031F18BF91447F09F5B60150D1EC148FD325D01
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132231.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ magnet:?xt=urn:btih:8CCA6F3F1D1AA0977119880FD8CC54BCA4AF9178
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132232.jpg" />
 </div>
 
 
@@ -420,7 +501,7 @@ magnet:?xt=urn:btih:0FACBB09A596F6A0032229899B19B2CF5AEC048E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_132233.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_132233.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ magnet:?xt=urn:btih:641CF861B735F857939F011C19D4E99B0945897F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132234.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ magnet:?xt=urn:btih:2A3087A461ACD316C5595088A0CD05B9D7A4F0AE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132236.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ Deus Otiosus - Godless (2012) [FLAC|Lossless]<Old School Death / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132237.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ Computer Desktop Wallpapers Collection (29.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132239.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ magnet:?xt=urn:btih:E79D3F8E2582106B051C5B9D4090F0DFF50FEA37
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132240.jpg" />
 </div>
 
 
@@ -586,7 +667,7 @@ magnet:?xt=urn:btih:FEA614743AA0D9489AADEB731FB85E14F90C8174
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132241.jpg" />
 </div>
 
 
@@ -601,82 +682,6 @@ magnet:?xt=urn:btih:FEA614743AA0D9489AADEB731FB85E14F90C8174
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00CEEA549C39B866E4D34E2497313C17809198FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316485   (132242) от 04.12.2023
-
-Тайна железной двери (1970) DVDRemux
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвероклассник Толик Рыжков познакомился с волшебником и стал обладателем спичек, исполняющих все его желания и капризы. Вместе с другом Толик очутился на необыкновенном острове, где все плохое считается хорошим, а хорошее - плохим. К тому же, ребята вскоре поняли, что им возвращаться придется самостоятельно...Производство: СССР, Киностудия им. М. ГорькогоЖанр: Семейный, ПриключенияРежиссер: Михаил ЮзовскийАктеры: Эвальдас Микалюнас (...Толик Рыжов), Дмитрий Юзовский (...Митька), Сергей Евсюнин (...Волшебник), Вячеслав Цюпа, Савелий Крамаров, Олег Табаков (...папа), Алиса Фрейндлих (...мама Толика), Светлана Старикова, Андрей Харыбин (...Мишка).Субтитры: русские, английские, французские (вшитые, отключаемые)Продолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D23CD88B4B1CB489E7FFD553BD55959841FDEA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681589   (132244) от 04.12.2023
-
-Дядюшка Бак / Uncle Buck (1989) BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ленивого, добродушного дядюшку-холостяка просят позаботиться о племянниках на время семейного кризиса их родителей. К дяде Баку те обратились от отчаяния: больше оставить детей не с кем. Но немного везения, много любви, и дядя Бак сумеет всех удивить.Производство: США / Hughes Entertainment, Universal PicturesЖанр: драма, комедия, семейныйРежиссер: Джон ХьюзАктеры: Джон Кэнди, Джин Луиза Келли, Габи Хоффманн, Маколей Калкин, Эми Мэдиган, Элейн Бромка, Гэррет М. Браун, Лори Меткаф, Джей Андервуд, Брайан ТарантинаПеревод: дублированный, многоголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5052DAAAC6BC73CFDF289541D747374CD09F13A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595839   (132245) от 29.12.2012
-
-[Wallpapers] From the world of fiction (29.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132245.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] From the world of fiction (29.12.12)
-Название: From the world of fiction (29.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FC7EB3B71F369238A6E1B503247947DEDF510E
 ```
 
 

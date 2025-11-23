@@ -1,3 +1,78 @@
+###  Публикация: 1723152   (109590) от 14.05.2024
+
+Video Converter Pro 0.2.37 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Video Converter Pro - стильное и функциональное приложение, что является конвертером видео- аудиоформатов, а так же простым по своим свойствам редактором. При этом есть масса предустановок, готовых проектов и всего прочего, что позволяет получать нужный результат без лишних проблем и выяснения чего же нужно тому или иному устройству, или ресурсу для стабильной работы. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.05.2024Разработчик: VidSoftLabПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A974458D5565F0754FF0DBA1B55A0E4A6037A39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723213   (109591) от 14.05.2024
+
+Firefox Browser 126.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D02BBFEB8B15D008B0B29DBE77712F2308D1D86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723095   (109592) от 14.05.2024
+
+Kings of Leon - Can We Please Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballerina Radio (3:51)
+02. Rainbow Ball (4:10)
+03. Nowhere To Run (3:41)
+04. Mustang (3:15)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283C1507EF316EA674372ABBB730CEFA9FBEB959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723212   (109593) от 14.05.2024
 
 Pixolor - Живая Пипетка / Pixolor - Live Color Picker 1.4.19 Mod by Maximoff [Ru/Multi]
@@ -6,7 +81,7 @@ Pixolor - Живая Пипетка / Pixolor - Live Color Picker 1.4.19 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109593.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ GeoGebra 6.0.841.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109594.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.3 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109595.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:18F5642AA5890AB914C1DDB656B85E2041474B62
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109596.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:FCE0C511C2E07F27B2C45A66DF37C9450CA7D730
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109597.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ VA - Instrumental Jazz Music (Smooth Saxophone) (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109598.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ Google Chrome 124.0.6367.208 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109599.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:723BF1986CEB834877327A57D8FD0B61D3D0B06B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109600.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ Mark Ashley - Instrumentals Vol. 3 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109601.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ Radio Vampire - Transmissions From Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <EB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109602.jpg" />
 </div>
 
 
@@ -256,7 +331,7 @@ magnet:?xt=urn:btih:7859DD260CF08474C66DAA789453CE592014AD67
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109603.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ Mark Ashley - Instrumentals Vol. 2 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109604.jpg" />
 </div>
 
 
@@ -307,7 +382,7 @@ magnet:?xt=urn:btih:9942F2D9C91A584A05F6BCDF6B2C378D82C02815
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109605.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ VA - The Best of Italo Disco, Vol. 2 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109606.jpg" />
 </div>
 
 
@@ -358,7 +433,7 @@ VA - The Best of Italo Disco, Vol. 4 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109607.jpg" />
 </div>
 
 
@@ -385,7 +460,7 @@ magnet:?xt=urn:btih:1AC4F0B8A6417CFA091AFCC3141DD388D022A733
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109608.jpg" />
 </div>
 
 
@@ -410,7 +485,7 @@ magnet:?xt=urn:btih:539124E9F39542FA14287DA4D75104CB73C38B5B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109609.jpg" />
 </div>
 
 
@@ -434,7 +509,7 @@ magnet:?xt=urn:btih:C5138CB1484EEC25CCDB3CE98398FF3E2B9418A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109610.jpg" />
 </div>
 
 
@@ -458,7 +533,7 @@ FBackup 9.9.895 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109611.jpg" />
 </div>
 
 
@@ -482,7 +557,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.6.38 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109612.jpg" />
 </div>
 
 
@@ -506,7 +581,7 @@ Extra Terra - Accelerate or Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109613.jpg" />
 </div>
 
 
@@ -533,7 +608,7 @@ magnet:?xt=urn:btih:80355C9300E928EDD522E38792CE8F43548A9590
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109614.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ Alex Voysey - Blues In Isolation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109615.jpg" />
 </div>
 
 
@@ -574,87 +649,6 @@ Alex Voysey - Blues In Isolation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C98D7A1207591B0545C44FD09AD0B4EF7FCFA6E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722851   (109616) от 13.05.2024
-
-Al Lerman - Country-Fried Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Backbug Song (3:57)
-02. Big Bill’s Blues (3:27)
-03. How High Is Up (3:53)
-04. How Much Longer Can A Broken Heart Last (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEA18F7DDB9F030671510943B05EB8D91E4FC3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722844   (109617) от 13.05.2024
-
-VA - Delightful Cozy Smooth Inviting Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Together We Fly (4:08)
-02. Love Suggestions - Little Talks (4:59)
-03. Kool&Klean - Into the Unknown (4:13)
-04. Chillaxing Jazz Kollektion - Live & Tell (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854E6C9F43F04DDC9AD1A0C834394FFB6666ECAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722666   (109618) от 13.05.2024
-
-Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Piece of Cake (3:45)
-02. Welcome to the Mirrorland (3:46)
-03. I'm the King, I'm the Sun (4:56)
-04. The Key: Will (1:08)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B0C16FEC3D4EFA6C749FD81E2A93DAB958EEEE
 ```
 
 

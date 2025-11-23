@@ -6,7 +6,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:361FF4ABD4612063A56C8D0CF142EF9297119320
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39146.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A45A5B91D3424A962745AD543B92D7E857824B2F
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39147.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.10.04c.standalone/dlc) License GOG [Co
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39148.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:09B2B2F60E129D62EF7EC8836103A6ACC686C615
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39149.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:53EA017949CCE9F17974D030B677E90C821B2F15
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39150.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Windows 11 Pro 24H2 10.0.26100.1742 by Lak [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39151.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Smart AudioBook Player Pro v11.0.7 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39152.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Взрослые и
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39153.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:CEA0A4441C46B008D20F4605FA18D794AA5B4B35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39154.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:CEA0A4441C46B008D20F4605FA18D794AA5B4B35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39155.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Revo Uninstaller Pro 5.3.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39156.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:64CD05EF5592EDCD1D383B6A3C5BB971B6E81614
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39157.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:B0C9FFDBCE5528481EB67A3DB41B9FE58284B917
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39158.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:150D4E4CE3836769C48725F798E3D0EAF9520C70
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39159.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Blink-182 (& +44; Box Car Racer) - Studio Albums (14 releases) (1995-2024) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39160.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1AA97C9936A5739F94DFF90A3F13A0B8036A13FC
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39161.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:C7748BC2EB04C9CDE43930089D6D5D2E97634D25
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39162.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:CA1124A0EBC7088136D2A58E543F32372F64CB06
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39163.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Dead Can Dance - Studio Albums & Tributes (13 releases) (1984-2018) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39164.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9E0BE20B78A7E1E70ECDC876819C1F68F6ADB794
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39165.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ PeaZip 10.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39166.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Dance With The Dead - Dark Matter (2024) [FLAC|Lossless|WEB-DL|tracks] <DarkWave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39167.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Gazebo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39168.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.18.1-f3/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39169.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39170.jpg" />
 </div>
 
 

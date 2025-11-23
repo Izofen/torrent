@@ -1,3 +1,79 @@
+###  Публикация: 1733641   (107250) от 30.06.2024
+
+Ф. Г. Углов | Человек среди людей. Записки врача (2008) [MP3, Иван Дроздов]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записки врача — такой скромный подзаголовок у этой книги. Академик Ф. Г. Углов делится в ней раздумьями о взаимоотношениях людей в обществе, о высоких понятиях чести, долга и любви. Ну и, конечно же, о преимуществах трезвого образа жизни.
+Книга 3 раза переиздавалась в России, а также в ряде Союзных республик. Была полностью прочитана по Всесоюзному радио.Жанр: Научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 13:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0CF25DCFCC6F4DB4C51118429A70B133831E779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733871   (107251) от 30.06.2024
+
+VA - 100 Hits - The 70s (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster)
+02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
+03. Blue Swede - Hooked on a Feeling
+04. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEC6CC862588AB56C6F6CEC29B74D210543F040
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733626   (107252) от 30.06.2024
+
+Реми Майснер. Рабочий класс и его выбор (2024) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш коллектив изрядно ошалел из-за откровений праворадикальной профессуры в научном журнале «Миграционное право». Чтобы отдохнуть и немного развеяться, мы решили почитать сочинения левых интеллектуалов. И выбор наш пал на газету ֿ«Народная правда». Сие есть настоящая марксистская газета, она ведёт беспощадную борьбу с филистерами, конформистами, национал-предателями, (   Читать дальше...   )Производство: Россия, Авторский блог Remi MeisnerЖанр: юмор, публицистика, экономикаЯзык озвучки: РусскийПродолжительность: 03:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4F1D52A9894590CDD292CB42FAAB30D719205D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733839   (107253) от 30.06.2024
 
 Rainlendar Lite 2.21.2 Build 179 [Multi/Ru]
@@ -6,7 +82,7 @@ Rainlendar Lite 2.21.2 Build 179 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107253.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Paris France Transit - 2 Albums (1982, 1983) 3LP [MP3|320 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107254.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ BurnAware Free 17.9 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107255.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ Dua Lipa - Radical Optimism (2023) Extended Versions, 2024, Warner Records [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107256.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 24 (2024) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107257.jpg" />
 </div>
 
 
@@ -135,7 +211,7 @@ magnet:?xt=urn:btih:7E0CEEF9C583D8BC31431EAB108ED0FA44455D2D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107258.jpg" />
 </div>
 
 
@@ -161,7 +237,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107259.jpg" />
 </div>
 
 
@@ -185,7 +261,7 @@ magnet:?xt=urn:btih:729E6BF43B93F4A7A60A484C49662E16C361C6C8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107260.jpg" />
 </div>
 
 
@@ -209,7 +285,7 @@ Great Pretender: Razbliuto | Великий притворщик: Разблют
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107261.jpg" />
 </div>
 
 
@@ -233,7 +309,7 @@ magnet:?xt=urn:btih:03CF695A34E318F5F79FF5788642470067FC66E0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107262.jpg" />
 </div>
 
 
@@ -257,7 +333,7 @@ magnet:?xt=urn:btih:1A3AC68ED37DA78B7C7F62C3CF69FCB13834A62F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107263.jpg" />
 </div>
 
 
@@ -284,7 +360,7 @@ Tiësto - Tomorrowland Friendship Mix (2024-06-27) [MP3|320 Kbps] <Dance, Electr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107264.jpg" />
 </div>
 
 
@@ -311,7 +387,7 @@ magnet:?xt=urn:btih:6CE92B80AF1C1D62282D8C9CF6A8EB664F336A44
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107265.jpg" />
 </div>
 
 
@@ -338,7 +414,7 @@ magnet:?xt=urn:btih:15BFE0FFF513BFC5C04D1AE1FA23F0894A7DBDD8
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107266.jpg" />
 </div>
 
 
@@ -365,7 +441,7 @@ VA - Best of Electronic Beats (2024) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107267.jpg" />
 </div>
 
 
@@ -392,7 +468,7 @@ Austin School of Furniture & Design, Austin Waldo | Книжный шкаф из
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107268.jpg" />
 </div>
 
 
@@ -417,7 +493,7 @@ VA - Bad Blues, Dark Blues (2024) 2CD  [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107269.jpg" />
 </div>
 
 
@@ -444,7 +520,7 @@ VA - РАДИО БАТЯ - 015 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107270.jpg" />
 </div>
 
 
@@ -471,7 +547,7 @@ magnet:?xt=urn:btih:1F42A5037D311FFE83F247D90C477A87A83354A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107271.jpg" />
 </div>
 
 
@@ -495,7 +571,7 @@ magnet:?xt=urn:btih:1F42A5037D311FFE83F247D90C477A87A83354A3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107272.jpg" />
 </div>
 
 
@@ -519,7 +595,7 @@ magnet:?xt=urn:btih:49EAC8391AD25C780F485B8259E20812228E1800
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107273.jpg" />
 </div>
 
 
@@ -544,7 +620,7 @@ PotPlayer 240618 (1.7.22266) (unofficial) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107274.jpg" />
 </div>
 
 
@@ -568,7 +644,7 @@ magnet:?xt=urn:btih:9A32189B6209CE4593E68F19E3B249EF8BE18699
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107275.jpg" />
 </div>
 
 
@@ -581,81 +657,6 @@ magnet:?xt=urn:btih:9A32189B6209CE4593E68F19E3B249EF8BE18699
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47DAB774E47E66859A8C0CD48AE5AA80B7EF1356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723110   (107276) от 30.06.2024
-
-DailyArt - Daily Dose of Art v3.2.7 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное приложение для изучения творчества и биографии художников. Выполнено в виде ленты работ для ознакомления. Каждый день вдохновляйтесь прекрасными произведениями классического, модерн и современного искусства и читайте о них короткие истории. Присоединяйтесь к сообществу более 1.000.000 любителей искусства, для которых DailyArt - это то, что скрасит ваш (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.06.2024Разработчик: MoiseumПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C50494BA14B3BD695BBCF402F0A7044708C446
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733860   (107277) от 30.06.2024
-
-VA - For Discos Only: Indie Dance Music From Fantasy & Vanguard Records (1976-1981) (2018) [FLAC 24/192|Lossless|WEB-DL|tracks] <Electronic, Indie Dance, Disco,>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Players Association - Turn The Music Up! (12" Disco) (06:51)
-02. Sylvester - Over And Over (Special 12" Disco Mix) (09:31)
-03. The Blackbyrds - Don't Know What To Say (04:07)
-04. Poussez! - Boogie With Me (12" Disco Mix) (07:53)(   Читать дальше...   )Жанр: Electronic, Indie Dance, Disco,Продолжительность: 03:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A44D9F3CC0F5E2571F38AFC10970591938CB44A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733818   (107278) от 30.06.2024
-
-HandBrake 1.8.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107278.jpg" />
-</div>
-
-
-###  Подробнее
-
-HandBrake - бесплатный видео конвертер с открытым исходным кодом, который позволяет кодировать видеофайлы из DVD или любого видео формата в MPEG-4 или H.264. Содержит широкий набор пресетов, при помощи которых можно быстро преобразовать видео для дальнейшего просмотра на различных мобильных устройствах, как например Apple iPod, iPhone, iPad, AppleTV, Sony PSP, PS3, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2545D115CF4946D949CAA9CD1FB641CF11E508
 ```
 
 

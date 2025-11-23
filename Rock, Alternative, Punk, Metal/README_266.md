@@ -6,7 +6,7 @@ Damiano's Elysium - The Land Beyond Dreams Part 2 (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164295.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mostly Autumn - Back in These Arms (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164301.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Witchcult - Witchcult (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Doom>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164314.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Iron Savior - Skycrest (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164316.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Soniq Circus - Chapter 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164325.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tol Galen - Swamp Castle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164326.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Clouds of Clarity - Superficial Society (2022) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164341.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ BBoy Звезда - Удар по невежеству (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164347.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vega - Grit Your Teeth (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164348.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5FDF015F4F60F73E361ACDF5BDF6FF57B58218A5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164351.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sanguine Hum - А Тrасе Оf Меmоrу (2020) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164370.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Epica - Omega Alive (2021) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164375.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ DragonForce - Re-Powered Within (2018) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164380.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Volbeat - Live In Deutschland (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164386.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mad Pilot - Нет любви (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164390.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Angel - A Woman's Diary - Chapter II (2020) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164391.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Def Leppard - On Through The Night (1980) Remastered, 2018, [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164394.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mr R. - Ere Long (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164411.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Universal Mind Project - The Jaguar Priest (2016) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164414.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Cats In Space - Diamonds - The Best Of Cats In Space (2021) Compilation [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164417.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B0613B17DF37089D049883D69769BE9C9EECC338
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164422.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rock Legends - Metal Christmas (2015) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164423.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Bow - City Race (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164430.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:CC5F993E2C7DAD00B422A2878F44F92DA7AACE38
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164434.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Crimson Cry - Playing Gods (2020) [MP3|320 Kbps] <Progressive Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164438.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Empyrios - Zion (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164439.jpg" />
 </div>
 
 

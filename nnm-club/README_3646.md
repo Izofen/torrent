@@ -1,3 +1,81 @@
+###  Публикация: 1704291   (114478) от 03.03.2024
+
+Джон Банни. Поезд недоразумений / A Train of Incidents (1914) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая комедия ошибок. И качество неважнец и сохранился не полностью, но все же решил поместить в фильмографию Банни. Барышня должна поехать на запад и выйти замуж за неизвестного ей молодого человека, которого она представляет грубым ковбоем. На самом деле это вполне себе интеллигентный молодой человек. Он  тоже едет на запад к неизвестной невесте, в его воображении (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Джордж Д. БэйкерАктеры: Джон Банни, Флора Финч, Чарльз Брайант, Мэри Андерсон, Уильям Ши, Джордж СтивенсПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317620BDAA42DF30FD06E8F685F29B0A2551F116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704164   (114479) от 03.03.2024
+
+Saturnalia Temple - Paradigm Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drakon [00:02:08]
+02. Revel In Dissidence [00:08:55]
+03. Paradigm Call [00:07:42]
+04. Among The Ruins [00:05:16](   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC848DE9DCE71854578134A419063CA38B66F7F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704143   (114480) от 03.03.2024
+
+Clare Fischer & Salsa Picante - Crazy Bird (1985) Discovery Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [4:22]
+02. Where Are the Children? (Ay, Los Pequenos) [5:01]
+03. Serenidade [3:59]
+04. La Mucura [4:32](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9557CC4469AB07750D45D0022EAB206A373835DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704134   (114481) от 03.03.2024
 
 Ben Webster & Buck Clayton - Ben And Buck (1967) 1995, Storyville Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -6,7 +84,7 @@ Ben Webster & Buck Clayton - Ben And Buck (1967) 1995, Storyville Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114481.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Believer - Sanity Obscure (1990) [FLAC|Lossless|image + .cue] <Progressive, Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114482.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ GrandTotal 8.2.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114483.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ magnet:?xt=urn:btih:64A2C116C74EEB8626FB643A25D8024F01E3A172
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114484.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ QLab 5.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114485.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ Navicat Data Modeler Essentials for Mac 3.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114486.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ VA - EDM Superhits (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114487.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ Steve Lawrence & Eydie Gorme - The Original Hits (2024) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114488.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ ProPresenter 7.16.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114489.jpg" />
 </div>
 
 
@@ -238,7 +316,7 @@ Borknagar - Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Viking, Folk,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114490.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ magnet:?xt=urn:btih:0F38CBDC1C7D7CE990562A5BBFECF9CB01763C7A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114491.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ Piotr Figiel - Piotr (1971) [MP3|320 Kbps] <Hammond, Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114492.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ magnet:?xt=urn:btih:FD2DF73C3B27265BB54F6F348BF07144547E4B17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114493.jpg" />
 </div>
 
 
@@ -340,7 +418,7 @@ magnet:?xt=urn:btih:E72DFD63931D2FE3246A865D8DED91F7836D82A9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114494.jpg" />
 </div>
 
 
@@ -364,7 +442,7 @@ Nigel Olsson - Nigel Olsson's Drum Orchestra And Chorus (1971) LP [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114495.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ magnet:?xt=urn:btih:ACC85FB82367DDB1F3AF8739C4BCC206766B4BEC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114496.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ Topaz Photo AI 2 for Mac 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114497.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ Topaz Gigapixel AI for Mac 7.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114498.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ magnet:?xt=urn:btih:3C1C26303B6D0144D47D4BF8E3349017004D3AFF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114499.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ Affinity Photo 2 v.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114500.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ Navicat Premium 16.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114501.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ Onslaught - Skullcrusher (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114502.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ Wondershare Recoverit for Mac 12.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114503.jpg" />
 </div>
 
 
@@ -576,84 +654,6 @@ Wondershare Recoverit - профессиональное приложение, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB717B498AC098B1E8B6470DA45AC9461FFA658E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704160   (114504) от 03.03.2024
-
-The Steve Klatt Project - Dreams & Reality (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Void (04:57)
-02. Exile (03:49)
-03. That Feeling (04:40)
-04. Cosmic Perspective (04:27)(   Читать дальше...   )Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CB793A6220251BBDC2CC183D67DFFCD419C844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704300   (114505) от 03.03.2024
-
-BBEdit 15.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114505.jpg" />
-</div>
-
-
-###  Подробнее
-
-BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2024Разработчик: © 1992-2021 Bare Bones Software, Inc.Поддерживаемая ОС: macOS 10.15.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC9A011DDBF9E3BF53524F0A868837BAC68CF23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704329   (114506) от 03.03.2024
-
-Jesse James Dupree - Breathing Fire (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay It On Me
-02. Never Gets Old
-03. Breathing Fire
-04. It's Not Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110FB3E171B866CAA3B83E19927E63AEC1710250
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1728580   (108186) от 09.06.2024
+
+Escarlathia - Escarlathia (2024) [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Delirium
+03. Misantropía
+04. Agonía(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71CEEBEEF145F54F3806E82ABE3A625ADA3632FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728944   (108187) от 09.06.2024
+
+Paul Kleber - Little Home (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Loving (8:00)
+02. Fourty (4:34)
+03. Poisson d´or (5:47)
+04. Nachteule (6:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EAE93C3A4CBBF1806395E937281438E40657EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728754   (108188) от 09.06.2024
+
+Lamb Shelter - Out The Cage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambience (3:49)
+02. Harvest (1:27)
+03. Make (3:21)
+04. Port Wine Cherry Sauce (3:02)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E8DC2049150D5A7D75C4789415892E02C3A7A77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729014   (108189) от 09.06.2024
 
 Speedtest от Ookla 5.4.1 Mod by PieMods [Ru/Multi]
@@ -6,7 +87,7 @@ Speedtest от Ookla 5.4.1 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108189.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Folterkammer - Weibermacht (2024) [FLAC|Lossless|WEB-DL|tracks] <Operatic, Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108190.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ magnet:?xt=urn:btih:41FD12F8CAF3669085CC77DFBB811612429B503C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108191.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:E24A6D3A690B4EE7AB2840B30044C8530FEFA5B5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108192.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Elvis Costello - Tokyo 1994 (Live) (1994) Remaster, 2024, Cult Legends [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108193.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ magnet:?xt=urn:btih:1AFB278A75D9F66B7FCABD3651C400B1F719037C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108194.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Humanity Gone - Everything Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108195.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ magnet:?xt=urn:btih:79B10FA3DD085EDAD2B0A25134573ED75DFBF5D5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108196.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ PrivaZer 4.0.86 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108197.jpg" />
 </div>
 
 
@@ -239,7 +320,7 @@ magnet:?xt=urn:btih:A0F90A80E09F03AA406FB7B7B53EBD3C6169566E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108198.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ Newfangled Audio - Generate 1.6.3 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108199.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ Bidoben - Cobalt Blue Rust (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108200.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ magnet:?xt=urn:btih:7AB3D85CB6EF142993CFCB7B6E1279267D039885
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108201.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ Withering Surface - Exit Plan (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108202.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ magnet:?xt=urn:btih:A560DFB41FF40C2E0FB43CF5BF22D222E65BD530
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108203.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:768B4927FCCB0BCAF9B861051F9F75498CA7D664
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108204.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ magnet:?xt=urn:btih:A88F0EA23CBF898CC59E2AAE0544187DD1022438
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108205.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ magnet:?xt=urn:btih:9DDE9B5B631FC8FCA0D91F518E69EF11D2CEC86F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108206.jpg" />
 </div>
 
 
@@ -469,7 +550,7 @@ magnet:?xt=urn:btih:AF60D55EC3F0EE950CEBE6679ABF6520ABDF0A13
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108207.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ VA - This Is Chill Music 2024 (2024) Original Mix [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108208.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ magnet:?xt=urn:btih:05BDBB8F13BFF81480333650868B939CF6B18CC3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108209.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ magnet:?xt=urn:btih:D47FEE3B18CCBB8E50CCE0124508A2ED01BC44D4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108210.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ Kool&Klean - Volume XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108211.jpg" />
 </div>
 
 
@@ -587,84 +668,6 @@ Kool&Klean - Volume XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E4CC3E758FFC620D94C62F287588D9E7FF0353
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729018   (108212) от 09.06.2024
-
-Николай Лесков | Воительница. Тупейный художник. Левша. Грабёж (2007) [MP3, Фаина Раневская, Михаил Ульянов, Михаил Яншин и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Фирмы Мелодия».
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
-На диске представлены (   Читать дальше...   )Жанр: Русская литература, классика, рассказ, пьесаИздательство: 1С-Паблишинг, МФГУП «Фирма Мелодия»Продолжительность: 03:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4D54F97249948D2D4806D014E25729410F162B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728857   (108213) от 09.06.2024
-
-Mephisto - Forever Mine (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mephisto - Forever Mine (2:56)
-02. Mephisto - Forever Mine (Extended Mix) (4:47)Жанр: Nu-Disco, HouseПродолжительность: 00:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63CB5739A7F7EDDF2C037768C9F2C276812E6C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729023   (108214) от 09.06.2024
-
-Алексей Кузнецов - В старом стиле (2022) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108214.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Случайная встреча / Sluchainaya Vstrecha 3:21
-02. Garota de Ipanema 6:34
-03. Верные друзья / Vernye Druzja 7:20(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B80A218CBEFAA61F219443F5E3409EFC263BCE9
 ```
 
 

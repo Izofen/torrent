@@ -1,3 +1,76 @@
+###  Публикация: 448235   (92537) от 06.02.2012
+
+NG: Совершенно секретно. Секретная служба США. Линия фронта - Колумбия / Top secret. U.S. Secret Service. The front line - Colombia (2010) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следите за работой сотрудников секретной службы США, выполняющих агентурную операцию в Боготе с целью пресечения изготовления фальшивых денег.Телекомпания: National GeographicЖанр: ДокументальныйРежиссер: Peter SchnallПеревод: Профессиональный (одноголосый)Продолжительность: ~ 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E61A00060D09979A0228BF9E1E8A3B3866CAB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448139   (92542) от 06.02.2012
+
+Виталий Горяев | Мастера советской карикатуры [1961] [PDF, DjVu]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло 25 лет с тех пор, как на страницах «Крокодила» впервые появились рисунки Виталия Горяева. Став одним из постоянных художников журнала Горяев за эти годы создал свой особый, индивидуальный стиль, по которому читатели легко узнают автора рисунков.
+Чаще всего художник изображает быт и нравы воротил капиталистического мира и их прислужников, а также жизнь и борьбу простых людей в странах капитала. С большой силой передал художник в многочисленных рисунках борьбу народов за мир и независимость. Самое поразительное во всех этих работах — умение автора так живо передать характеры и типы людей самых разных социальных групп и сословия, так верно нарисовать позы, жесты, улыбки, манеру держаться, что, кажется, сам художник был свидетелем всех изображаемых им сцен и событий. ...Формат: PDF, DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87272A7F8BC5617170175F6AB4AAB414B8D32C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447074   (92553) от 06.02.2012
+
+Расписание на завтра (1976) TVRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, состоящий из трех новелл, посвящен проблемам воспитания школьников. Сценарий Анатолий Алексин.Жанр: МелодрамаРежиссер: Николай АлександровичАктеры: Нина Зоткина, Олег Жаков, Ирина Мурзаева, Ирина Фоминская, Я. Гайдукевич, Дима Кандидов, Инна Палехова, Данила Рожков, Ксения Ростовцева, Нина Агапова, Игорь Косухин, Александр Кузнецов (II), Людмила Максимчук, Татьяна Митрушина, Николай НикольскийПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6702A406881E48565E24A4D512685AAE02313D64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447314   (92554) от 06.02.2012
 
 Жизнь этого парня / This Boy's Life (1993) DVD5
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92554.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ NG: Загадки истории: Исчезнувшие из Алькатра�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92571.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ magnet:?xt=urn:btih:8D4FC86DF81FE39D9968E658BB2EBB526ADABF8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92576.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:1F04353B9904A1D8E366A365924B0A87EA3DBB95
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92606.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ magnet:?xt=urn:btih:619BFC5287174F3D8742C3EC2B1852245AF83180
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92659.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:619BFC5287174F3D8742C3EC2B1852245AF83180
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92662.jpg" />
 </div>
 
 
@@ -156,7 +229,7 @@ Like Wendy - Rainchild (1999) [FLAC|Lossless]<Progressive Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92695.jpg" />
 </div>
 
 
@@ -189,7 +262,7 @@ Like Wendy - Rainchild (1999) [FLAC|Lossless]<Progressive Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92713.jpg" />
 </div>
 
 
@@ -214,7 +287,7 @@ magnet:?xt=urn:btih:2D2A1C893761B19E813382D1FB5FAB770D654811
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92748.jpg" />
 </div>
 
 
@@ -238,7 +311,7 @@ magnet:?xt=urn:btih:2E8EB7453B8D300A0788BD326E8C8EA73E740250
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92754.jpg" />
 </div>
 
 
@@ -262,7 +335,7 @@ magnet:?xt=urn:btih:DA31553FB8127B68C4FE928CEFFDAE20CBE5EFB4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92760.jpg" />
 </div>
 
 
@@ -288,7 +361,7 @@ magnet:?xt=urn:btih:DA31553FB8127B68C4FE928CEFFDAE20CBE5EFB4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92766.jpg" />
 </div>
 
 
@@ -314,7 +387,7 @@ magnet:?xt=urn:btih:DA31553FB8127B68C4FE928CEFFDAE20CBE5EFB4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92822.jpg" />
 </div>
 
 
@@ -342,7 +415,7 @@ magnet:?xt=urn:btih:DA31553FB8127B68C4FE928CEFFDAE20CBE5EFB4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92847.jpg" />
 </div>
 
 
@@ -366,7 +439,7 @@ magnet:?xt=urn:btih:5CC02C0C574EF7962A6E50C9027501991B4B224F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92852.jpg" />
 </div>
 
 
@@ -391,7 +464,7 @@ Biohazard - Reborn In Defiance (2012) [FLAC|Lossless]<Hardcore>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92863.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ Indra - Old Skool (2011) [MP3|320 kbps]<Psychedelic / Full On>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92879.jpg" />
 </div>
 
 
@@ -456,7 +529,7 @@ Obe 1 Kanobe - Атака клонов (2012) [MP3|320 kbps]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92880.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ magnet:?xt=urn:btih:038B7D930D12B5221B5AD741480030E01C1B41DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92899.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ magnet:?xt=urn:btih:C069E62AB18BD3656A40F8FBC545B5FD0F0D2AB2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92902.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ Opera IX - Maledictae In Aeternum (2012) [MP3|320 kbps]<Gothic Metal / Black Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92907.jpg" />
 </div>
 
 
@@ -571,7 +644,7 @@ magnet:?xt=urn:btih:08E2D5798486889337A371F83CEA9854C99927D8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92929.jpg" />
 </div>
 
 
@@ -602,7 +675,7 @@ Kay Starr - Movin' On Broadway (1960) [MP3|320 kbps]<Vocal Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92932.jpg" />
 </div>
 
 
@@ -622,105 +695,6 @@ Kay Starr - Movin' On Broadway (1960) [MP3|320 kbps]<Vocal Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450146   (92962) от 10.02.2012
-
-The Magnificent - The Magnificent (2011) [FLAC|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holding On To Your Love - 5:24
-02. Cheated By Love - 5:31
-03. Memories - 4:56
-04. Angel - 5:05
-05. Satin & Lace - 4:07
-06. Love's On The Line - 4:47
-07. Bullets - 4:48
-08. Smoke & Fire - 4:45
-09. Tired Of Dreaming - 4:50
-10. If It Takes All Night - 4:57(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449294   (92970) от 10.02.2012
-
-VA - FearFM Hardcore Top 100 2011 (2012) [MP3|320 kbps]<Techno, Hardcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Art Of Fighters - Nirvana Of Noise (Official Dominator 2011 Anthem)
- 02. Tha Playah - On The Edge
- 03. Angerfist - Incoming
- 04. Evil Activities & Endymion Feat. E-Life - Broken
- 05. The Viper & Neophyte - Coming Home
- 06. Angerfist & Outblast - Odious
- 07. Mad Dog & AniMe - Hardcore Machine
- 08. Mad Dog - A Night Of Madness
- 09. Mad Dog & Amnesys - Game Over
- 10. Nosferatu & Evil Activities - Sick Of It All(   Читать дальше...   )2012Жанр: Techno, HardcoreПродолжительность: 08:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0DBDD836AE4027E5F66D7920EC59FCED8EFBDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450637   (92990) от 11.02.2012
-
-Interactive Noise - Synthetik Pleasure (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interactive Noise - Soundcheck 07:00
- 02. Interactive Noise - Disco Beat 07:30
- 03. Day.Din - Zurich (Interactive Noise Rmx) 06:10
- 04. Interactive Noise - Altered State 07:03
- 05. Interactive Noise - Synthetik Pleasure 07:11
- 06. Interactive Noise - Oscillations 06:38
- 07. Interactive Noise - The Transformers 06:03
- 08. Interactive Noise - Deep And Pumping Sound 06:26
- 09. Interactive Noise - Beethoven Album Version 07:42
- 10. Interactive Noise - Breaktime 04:522012Жанр: Psychedelic / ProgressiveПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D492412342D3767453C92172306CA25DF47F0267
 ```
 
 

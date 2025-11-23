@@ -1,3 +1,79 @@
+###  Публикация: 1689374   (123864) от 08.01.2024
+
+«А как у них?»: новогодние традиции разных народов мира
+
+>>Поговорим
+>>А знаете ли вы..
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_123864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год — волшебный праздник, который отмечают во всем мире. Что мы знаем о традициях празднования Нового года в нашей стране? А какие новогодние «елки» проводят в Африке? А в Австралии вообще вместо зимы лето, неужели Новый год в привычном для нас виде проходит мимо них?Все страны мира полны своих новогодних традиций, порой весьма необычных и интересных, а каких (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690700   (123865) от 08.01.2024
+
+Хоккей. НХЛ 2023-2024. Лос-Анджелес Кингз - Вашингтон Кэпиталз (07.01.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123865.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 января 2024, воскресенье. 23:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Гислейн Эбер (Батерст, Канада); Главный судья: Кевин Поллок (Кинкардин, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Бен О'Куинн (Вудсток, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E19362E9343753598BD63EB2D7769FD85725D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690703   (123866) от 08.01.2024
+
+Онлайн школа RealManual, Василий Егоров | Loki: не ври, что логов нет (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чему вы научитесь на курсе:
+    ✅Разворачивать систему логирования
+    ✅Настраивать хранение логов
+    ✅Запускать сборщики логов на хостах(   Читать дальше...   )Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 03:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690699   (123867) от 08.01.2024
 
 Онлайн школа RealManual, Василий Егоров | Vault: пароли под защитой (2023) WEB-DL [RU]
@@ -6,7 +82,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123867.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ magnet:?xt=urn:btih:6B84A5284D4A7D396E48D08C9FB614371F8414E4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123868.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ magnet:?xt=urn:btih:DA1A448B531CB852C044C7158F226F0820C665AB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123869.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:6067A4BD795173DE50333CB13E0F9173935CF848
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123870.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ magnet:?xt=urn:btih:ACD05225B4B8B1929D96A3509430F8B351218AFE
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123871.jpg" />
 </div>
 
 
@@ -127,7 +203,7 @@ magnet:?xt=urn:btih:7B0CA79301F089E98492869DB669C8078C662FD9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123872.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ magnet:?xt=urn:btih:4198BE4DFD7B8262C9482FE65CDAC5C24125A6FC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123873.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ magnet:?xt=urn:btih:7212FEBF91FE1519C1579AE23E03E1F13B8F1457
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123874.jpg" />
 </div>
 
 
@@ -203,7 +279,7 @@ magnet:?xt=urn:btih:D2574D298F15685F62283C719A7110CC5FF45022
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123875.jpg" />
 </div>
 
 
@@ -227,7 +303,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123876.jpg" />
 </div>
 
 
@@ -251,7 +327,7 @@ magnet:?xt=urn:btih:C3CB72E65EB632E7A4E147150773328BD1F7D9E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123877.jpg" />
 </div>
 
 
@@ -275,7 +351,7 @@ magnet:?xt=urn:btih:93600BCC097957D49D08BB7862A4983C8E6CD11F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123878.jpg" />
 </div>
 
 
@@ -299,7 +375,7 @@ magnet:?xt=urn:btih:D4D3F25114ABC12BA3A55E4327982408EB3B4C28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123879.jpg" />
 </div>
 
 
@@ -323,7 +399,7 @@ magnet:?xt=urn:btih:A33FA058316934573A2AAA935CE35D7C3E329A5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123880.jpg" />
 </div>
 
 
@@ -347,7 +423,7 @@ magnet:?xt=urn:btih:A7393531E88D066C0F20063D2807481B56B6AD14
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123881.jpg" />
 </div>
 
 
@@ -372,7 +448,7 @@ magnet:?xt=urn:btih:D4D75FC42470008157E5EB7831D981AA7CCEC54A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123882.jpg" />
 </div>
 
 
@@ -396,7 +472,7 @@ magnet:?xt=urn:btih:FFAE0452F3CCDD789AA9F3218CADEA06F8F6C1FA
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123883.jpg" />
 </div>
 
 
@@ -420,7 +496,7 @@ magnet:?xt=urn:btih:7C47F132F00A7BA4DDD702A7AE22140750CF7E5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123884.jpg" />
 </div>
 
 
@@ -444,7 +520,7 @@ TweakTimeSaver 1.1.0 [Ru/En] (Авторская раздача)
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123885.jpg" />
 </div>
 
 
@@ -468,7 +544,7 @@ magnet:?xt=urn:btih:C61D6A78C7FB0406C335DA0CE17710199953F384
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123886.jpg" />
 </div>
 
 
@@ -492,7 +568,7 @@ magnet:?xt=urn:btih:04A9A3BDEC3E4554413C0D699DBB561C21CAD9B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123887.jpg" />
 </div>
 
 
@@ -516,7 +592,7 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123888.jpg" />
 </div>
 
 
@@ -540,7 +616,7 @@ magnet:?xt=urn:btih:60874EC3BCA734C55D8F053070B362ECF74BB9CD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123889.jpg" />
 </div>
 
 
@@ -551,79 +627,6 @@ magnet:?xt=urn:btih:60874EC3BCA734C55D8F053070B362ECF74BB9CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12DE46BE8D611C340E962DA0A4C32AF15E5CA1DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690593   (123890) от 08.01.2024
-
-Герой наших снов / Dream Scenario (2023) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничем не примечательный лысеющий профессор среднего возраста Пол Мэтьюс ведёт обычную профессорскую жизнь, преподаёт в университете и много лет вынашивает идею книги о коллективном разуме муравьёв. Внезапно мужчина становится дико популярным — люди всего мира начинают видеть его во сне. Теперь о Поле трезвонят все СМИ, его хочет рекрутировать агентство талантов, (   Читать дальше...   )Производство: США / A24, Square Peg, Wildling PicturesЖанр: Драма, комедия, фантастикаРежиссер: Кристоффер БорглиАктеры: Николас Кейдж, Джулианна Николсон, Лили Берд, Джессика Клемент, Тим Медоуз, Стар Слэйд, Дэвид Клейн, Калеб Хорн, Лиз Аджеи, Паула БодроПеревод: Профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CD1086D00BC796E2973B02DFBF22180CFB9829
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690176   (123891) от 08.01.2024
-
-Яндекс.Навигатор / Yandex.Navigator v7.20.11111 + Карты от 26.10.2022 [Ru]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123891.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Яндекс Навигатор» — автомобильное навигационное приложение для мобильных устройств под управлением Android разработанное российской интернет-компанией «Яндекс». Представлено в марте 2012 года. Приложение может строить маршруты до конкретного адреса или места назначения из тематических категорий: заведений общественного питания и баров, магазинов и аптек, АЗС и прочих.Тип издания: FreeРазработчик: ЯндексПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96195542471EE6EA5ED219306207DE14D765EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690745   (123892) от 08.01.2024
-
-VPN Generator
-
->>След.
->>Бесплатные VPN сервисы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123892.jpg" />
-</div>
-
-
-###  Подробнее
-
-VPN Generator —  это такой проект, который даёт возможность создать собственный VPN-сервер и раздать доступ к нему своим друзьям, знакомым, родственникам. То есть, вы становитесь админом собственного VPN с уникальным сетевым адресом, который очень трудно найти и заблокировать.
-При этом вам не нужно становиться сетевым инженером или разработчиком, вам не нужно ничего (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

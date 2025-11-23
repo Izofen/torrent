@@ -6,7 +6,7 @@ VA - Rock Solid (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108387.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alberto Rigoni - Unexpected Lullabies (2024) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108388.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dreamcarnation - Dreamcarnation (2024) [MP3|320 Kbps] <Progressive, Symphonic Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108391.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dolorosa - Summoning Ancient Bleakness (2024) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108397.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Fail Of God - Acatalepsy (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108398.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Suffering Souls - In Synergy Obscene (2019) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108400.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Deliverance - Stay of Execution (1992) [FLAC|Lossless|image + .cue] <Speed, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108402.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Red Morrow - Instigator of Unexpected Change (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108405.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Night Wilds - All That Should Have Been (2024) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108411.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dreamgate - Dreamgate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108419.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Grain Of Pain - The Moon Lights The Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108420.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Deliverance - What a Joke (1991) Remastered, 2020, Retroactive Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108422.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Avi Rosenfeld & Stefano Stex Sbrignadello - Attack (2024) [MP3|320 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108425.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Deliverance - Deliverance (1989) Remastered, 2008, Retroactive Records [APE|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108460.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Deliverance - Weapons of Our Warfare (1990) Remastered, 2021, Retroactive Record
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108464.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Deliverance - Weapons of Our Warfare (1990) Rerelease, 2008, Retroactive Records
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108465.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Through These Gates - The Majestic Rights To Passage (2024) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108473.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Deliverance - What a Joke (1991) [FLAC|Lossless|image + .cue] <Speed, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108479.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bludgeoned - Live at the end (2018) [MP3|320 Kbps|tracks] <Crust Punk, Doom, Slu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108481.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Barock Project - Time Voyager (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108483.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC|Lossless|tracks + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108510.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Voskod - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108517.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Týr - Best Of - The Napalm Years (2024) Remaster [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108519.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Antreib & Burning Flag - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108530.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Interloper - Search Party (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Prog 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108531.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Cloven Hoof - Heathen Cross (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108540.jpg" />
 </div>
 
 

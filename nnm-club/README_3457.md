@@ -1,3 +1,82 @@
+###  Публикация: 1723109   (109564) от 14.05.2024
+
+Mike Clark Band - 0-60 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Away (6:07)
+02. Never Gonna Not (4:33)
+03. Waggle Butt Rock (4:02)
+04. Let Us Be (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590377F30A865171BFBCADACF47D102E5CDB18F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723118   (109565) от 14.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 4-й матч) Даллас Старз - Колорадо Эвеланш (13.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109565.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 мая 2024, вторник. 04:30 МСК. 1/2 финала - Запад. 4-й матч. Стадион: Болл-Арена (Денвер, США), 18 123 зрителя (100% при вместимости 18 147)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BE753F8B4777198CDDA285A7EEFFEFEFDE63B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723072   (109566) от 14.05.2024
+
+Chris BadNews Barnes - BadNews Travels Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Hall - Badnews Travels Fast (3:25)
+02. Walter Trout - True Blues (4:55)
+03. Sugaray Rayford - You Right Baby (4:41)
+04. Jimmy Hall - A Bluesman Can't Cry (5:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249419E0D30FB8FDBF4EE3BABB886D792FEA418C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723113   (109567) от 14.05.2024
 
 Nino Grandi Band - The Tales of the Wild Cat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +85,7 @@ Nino Grandi Band - The Tales of the Wild Cat (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109567.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ ManDoki Soulmates - A Memory Of Our Future (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109568.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ Rossometile - Gehenna (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109569.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ magnet:?xt=urn:btih:8046B98E0A786EDC81956F7F076C649590E0EF2E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109570.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Nick Evans Mowery - Midnight Faces (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109571.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ Larry Sargent - The Mystery of the Vesica Piscis (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109572.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ Baerum (Bærum) Blues Band - Going Wrong (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109573.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ Big Dave McLean - This Old Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109574.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ Maragda - Tyrants (2024) [FLAC|Lossless|WEB-DL|tracks] <progressive rock, psych,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109575.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ PJ O'Brien - Jefferson Blues (2012) 2024 jefferson records [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109576.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ magnet:?xt=urn:btih:57361A83F2CB62271B07E1AA0A748685A3E058F4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109577.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ Cal Harris JR - Bridges (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109578.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ Icecream Screen Recorder Pro 7.41 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109579.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ Haunting Ghosts - Shadow Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109580.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Instrumental Music Ensemble - Smoldering Erotic Jazz (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109581.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ Two Lone Swordsmen - Still My World (2024) [FLAC|Lossless|WEB-DL|tracks] <nar ne
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109582.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ magnet:?xt=urn:btih:0D390B4BB1CF0E181A9F325E3B1B72D0233067C2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109583.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ Google Chrome 124.0.6367.208 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109584.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ VA - Шансон премьера 2023 сентябрь (Новые песни.
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109585.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ magnet:?xt=urn:btih:0E1E2ABE002F4EDA6B4CFE9D41239F4819CB39D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109586.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109587.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ AirBrush: ИИ Фоторедактор v6.5.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109588.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109589.jpg" />
 </div>
 
 
@@ -594,81 +673,6 @@ Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C260DF8B198B2CB5980BF93651359AD37F3A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723152   (109590) от 14.05.2024
-
-Video Converter Pro 0.2.37 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Converter Pro - стильное и функциональное приложение, что является конвертером видео- аудиоформатов, а так же простым по своим свойствам редактором. При этом есть масса предустановок, готовых проектов и всего прочего, что позволяет получать нужный результат без лишних проблем и выяснения чего же нужно тому или иному устройству, или ресурсу для стабильной работы. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.05.2024Разработчик: VidSoftLabПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A974458D5565F0754FF0DBA1B55A0E4A6037A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723213   (109591) от 14.05.2024
-
-Firefox Browser 126.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D02BBFEB8B15D008B0B29DBE77712F2308D1D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723095   (109592) от 14.05.2024
-
-Kings of Leon - Can We Please Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballerina Radio (3:51)
-02. Rainbow Ball (4:10)
-03. Nowhere To Run (3:41)
-04. Mustang (3:15)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283C1507EF316EA674372ABBB730CEFA9FBEB959
 ```
 
 

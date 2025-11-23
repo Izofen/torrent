@@ -6,7 +6,7 @@ Re-Main | Ре-Мейн [2021, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68608.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:B16F3E9177F43681E8BD62B56629B8AB664EEACD
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68609.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6F72AC1CEA9400290D919694B8C11C104DEA8929
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68610.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Dear Reality - Exoverb 1.3.0 VST 3, AAX (x64) + Additional Reverbs [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68611.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Energy Of Calm Sound Currents (2025) [MP3|320 Kbps] <Chillout, Ambient, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68612.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:867B077CAD7A404D7ADAB3CF04112CDF555DBC15
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68613.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Bordeaux - Pesa tutto il mondo addosso (2025) [FLAC|Lossless|WEB-DL|tracks] <Ita
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68614.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3F8384FA398E01B19DB09C5767908659B149BF38
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68615.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:25F553B0C4349750C232FF09CE3D6F4731CD6C89
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68616.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Ori Uplift - Uplifting Only Episode 633 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68617.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:30A9D5393D7DFEF3918C571415AE7787C9F84E43
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68618.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Solefald - Norron livskunst (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Post-Bl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68619.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Judicator - Concord (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68620.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:8B3D774C4E76FA7D15058763D326A3C9B42820B7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68621.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:B8A0887F739D3602C733E043AD04CA15237D4DD8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68622.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Ibiza Beach Vibes (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68623.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:49A0709AE8F20FD0ACA4EE302CDFDE3B930DB741
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68624.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:0DED7771A202E1C8BDA1B32B35DAA83353078165
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68625.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ryder - Menagerie (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68626.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68627.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Black Eyed Sons - Cowboys In Pinstriped Suits (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68628.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Vampyros Lesbos - Vi Per Sanguinem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68629.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Frozen Crown - War Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68630.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68631.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:30723485B9A92CB442F0FEAA15BB79A83C9EA519
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68632.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:70FD4F5C8E2AC0ADBC2BF5ABD4D424FBF8D1E021
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68633.jpg" />
 </div>
 
 

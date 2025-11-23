@@ -6,7 +6,7 @@ X-Disk for Mac 1.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61405.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JetBrains PhpStorm for Mac 2023.3.6 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61428.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Charles Web Debugging Proxy 4.6.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61432.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ JetBrains PyCharm Professional for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61443.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.6 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61448.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Elmedia Video Player Pro 8.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61449.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ TablePlus 5.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61481.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Oka Unarchiver - Unzip ZIP RAR 2.1.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61484.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Airbuddy for Mac 2 v.2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61485.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Royal TSX for Mac 6.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61486.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ghost Buster Pro 3.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61489.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ InstaBro | Instagram Browser 5.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61491.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Elmedia Player Pro 8.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61513.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ DEVONthink Pro 3 Office/Server 3.9.6 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61515.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Topaz Photo AI 2 for Mac 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61525.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Topaz Video AI for Mac 4.2.2 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61530.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Topaz Gigapixel AI for Mac 7.0.5 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61531.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VanDyke SecureCRT and SecureFX 9.5.1 ARM/iNTEL [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61533.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Wins for Mac 1.6.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61608.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Boom 3D 2.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61612.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Dynamic Wallpaper Engine 17.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61623.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VueScan Pro for Mac 9.8.31 U2B ARM/iNTEL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61663.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Ableton Live Suite 12 v.12.0.1 U2B [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61666.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ CorelDRAW Graphics Suite 2024 v.25.0.0.230  [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61682.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PullTube 1.8.5.30 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61691.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ CloudMounter 4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61692.jpg" />
 </div>
 
 

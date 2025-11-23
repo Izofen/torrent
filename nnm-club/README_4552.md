@@ -1,3 +1,159 @@
+###  Публикация: 1272733   (140939) от 29.12.2018
+
+Валерий Атамашкин | Я – Спартак! Битва за Рим (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Я – Спартак!».
+Продолжение противостояния лейтенанта ФСБ Спартака Гладкова и олигарха Марка Красовского, угодивших в Древний Рим.
+Благодаря вмешательству лейтенанта Гладкова восстание рабов не потерпело поражение, но угроза все еще высока: в повстанческий лагерь доходят неутешительные вести – армии Красса и Лукулла готовы объединиться и добить (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B9CD11B90A2B0DB41C305F023C6FC3FCEB69F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088408   (140940) от 30.12.2016
+
+VA - Hardcore Bodybuilding Music 2016 (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saber Wolf - Sacri [00:02:17]
+02. Sources - Just [00:03:14]
+03. Stereofield - Trans [00:03:14]
+04. Qamil Stello - Lead [00:02:48](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25EC2B9DA72EC722AC16CC63E76C92D8C6AA5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853763   (140941) от 30.12.2014
+
+Дятьковский хрусталь  (2013) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрусталь пленяет бриллиантовым блеском, поражает чистотой и изяществом форм. А технология его производства остается неизменной вот уже много веков. Хрусталь хрупок и податлив одновременно. Чтобы овладеть искусством его обработки, нужны годы кропотливого труда, верный глаз и твердая рука. От мельчайшей песчинки кварца до готового изделия долгий путь. Проследите за (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C50FEFF8E3D1DA02705DCC6C3712E250F9921B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970511   (140942) от 30.12.2015
+
+Utsuro no Hako to Zero no Maria / The Empty Box and The Zeroth Maria / Пустая шкатулка и нулевая Мария (2009) [7 томов] [Ранобэ] [Русский] [FB2, EPUB, DOCX] [Завершен]
+
+>>Манга и Арт
+>>Ранобэ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140942.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе стоял март, когда новенькая по имени Ая Отонаси вошла в наш кабинет. Весь класс был ошеломлен ее красотой и сгорал от любопытства, почему она перевелась в конце учебного года.
+Ее «представление», однако, ограничилось простым сообщением имени, после чего над классом повисла мертвая тишина.
+По крайней мере, пока…
+— Кадзуки Хосино.(   Читать дальше...   )Жанр: Экшен, мистика, драма, ужас, романтика, школа, сверхъестественное, психология, триллерФормат: FB2, EPUB, DOCXПродолжительность: 07.01.2009 - 10.06.2015, выпуск завершён
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B089298B56AA9BE482668E1B1C7CDD402B851F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435763   (140943) от 29.12.2020
+
+PDF Expert 2.5.16 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140943.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - редактор  PDF
+Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому!
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50ECAD71826ECFB8BEB530BCF4579CCCE6B0B6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590826   (140944) от 17.12.2012
+
+Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 из 2] BDrip 1080 raw + rus x2
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рынок японских эрогэ перенасыщен, и что может предложить захолустная компания «Голубой март», чтобы конкурировать с китами жанра? 28-летняя Яёй Аояги, лидер компании, считает, что ответ прост: их козырь – душевная, искренняя и вдохновенная игра сэйю, которая поможет вдохнуть жизнь в любой избитый сюжет (а в этих играх иных и не бывает)! Так как для любого японца фирма – это семья и жизнь, хитроумная Яёй мобилизует в труженицы микрофона младшую сестренку, старшеклассницу Канну, девушку скромную, но с исключительно богатым воображением.
+
+И кого волнует, что Канна несовершеннолетняя? В шоу-бизнесе подобное скорее правило, чем исключение. Гораздо важнее то, что по причине природной простоты и наивности новая актриса теряет голос, стоит ей услышать, а потом попробовать произнести пару строк сценария «про это». Но гены есть гены – стоило младшей Аояги потихоньку втянуться, и процесс пошел… дальше вы поняли. Не зря говорят – корни и успехов, и неудач лежат исключительно внутри нас!Жанр: комедия, эротикаРежиссер: Хосода НаотоПродолжительность: (2 эп.), 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73ACD3A2DA01D012863AAEE18BEEDCBF58353171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088297   (140945) от 30.12.2016
 
 Прот. Лев Лебедев | Великороссия: жизненный путь (1999) [FB2]
@@ -6,7 +162,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140945.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ magnet:?xt=urn:btih:39E1D79F3700FFFCD7465B159E67A6CD2501FD49
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140946.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ magnet:?xt=urn:btih:FAD1AF112B9FCD1472D587995655DE37FD057CA4
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140947.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ Hitman: Absolution - Professional Edition [Ru/En/Multi8] (L/1.0.444.0/DLC) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140948.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Cradle Orchestra - Transcended Elements (2010) [FLAC|Lossless|tracks + .cue] <Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140950.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ Udemy, Dmytro Mezhenskyi | Производительный бэкэнд GraphQL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140951.jpg" />
 </div>
 
 
@@ -161,7 +317,7 @@ magnet:?xt=urn:btih:23858B6B7C88EAEB3AA51911826B9BADC5CFD542
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140952.jpg" />
 </div>
 
 
@@ -185,7 +341,7 @@ magnet:?xt=urn:btih:A5EF4A58C0E9A8E4D2305A9997D66FB80F528F8E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140953.jpg" />
 </div>
 
 
@@ -210,7 +366,7 @@ Metadata Converter Pro for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140955.jpg" />
 </div>
 
 
@@ -234,7 +390,7 @@ magnet:?xt=urn:btih:664A0A0411DED916FB841D523B50B2A9079C1647
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140956.jpg" />
 </div>
 
 
@@ -260,7 +416,7 @@ Agnitum Outpost Security Suite PRO 8.0.4164.639.1856.489 Final [MULTi / Русс
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140958.jpg" />
 </div>
 
 
@@ -287,7 +443,7 @@ Outpost Security Suite Pro - это новейшие технологии для
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140959.jpg" />
 </div>
 
 
@@ -311,7 +467,7 @@ Performance Index 64 Pro 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140960.jpg" />
 </div>
 
 
@@ -335,7 +491,7 @@ magnet:?xt=urn:btih:9F355C95AB4218FAF4483C4028DA75DD9E17B79F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140961.jpg" />
 </div>
 
 
@@ -362,7 +518,7 @@ magnet:?xt=urn:btih:98F4550BDA805DA3BEBC02C6290307A3599D0D9B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140962.jpg" />
 </div>
 
 
@@ -388,7 +544,7 @@ magnet:?xt=urn:btih:ED83977B5DB3D58486231FB875B73936F8226EBB
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140963.jpg" />
 </div>
 
 
@@ -414,7 +570,7 @@ magnet:?xt=urn:btih:6509ED65FF8DE41C9A9843DE69EEF42F717F23F2
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140964.jpg" />
 </div>
 
 
@@ -438,7 +594,7 @@ J.R. Monterose - The Message (1959) 1997, Venus Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140965.jpg" />
 </div>
 
 
@@ -465,7 +621,7 @@ magnet:?xt=urn:btih:2F4C5563EEA206B56D08A8EA3E766FA9F0C5F6FE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140966.jpg" />
 </div>
 
 
@@ -490,7 +646,7 @@ The Walking Dead: Episode 1-5 [RUS] [Native]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140969.jpg" />
 </div>
 
 
@@ -504,159 +660,6 @@ The Walking Dead – адвенчура с элементами «хоррора
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520649   (140970) от 29.12.2021
-
-Easy App Locker Pro for Mac 1.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Easy App Locker - это приложение для защиты конфиденциальности, которое использует расширенные алгоритмы безопасности, какие обеспечивают непреодолимую безопасность ваших конфиденциальных данных и блокируют несанкционированный доступ к вашим личным приложениям.
-Easy App Locker может защитить паролем отдельные приложения на вашем Mac. Сохраняйте конфиденциальность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 2021 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956B8B58460AFCFC72E4D8B5320D753377044A08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195709   (140971) от 30.12.2017
-
-О. Пальванова | Роль трудового коллектива в преодолении религиозных пережитков среди женщин (1983) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуется состояние религиозности среди женщин различных предприятий Ашхабада, прослеживается взаимосвязь проявлений религиозности с демографическими и образовательными характеристиками, отношение женщины к религии в мировоззренческом и культовом планах и т. д.Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51408AEBAC29CED46AF79BA71E43EC0A23FAF33E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348952   (140972) от 29.12.2019
-
-Александр Тамоников | Человек с двойным лицом (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Июнь 1941 года. В прифронтовой полосе немецкие диверсанты захватывают "секретного" инженера Николая Маханова. Специалисты такого уровня находятся под личным контролем Л. П. Берии, поэтому на поиски отправляются лучшие из лучших - группа майора Максима Шелестова. Однако в указанном районе следов Маханова не обнаружено. Что, если он уже на вражеской территории? (   Читать дальше...   )Жанр: БоевикиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8284A2AF98CBED870661FB8DCF49895BDC2702B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272535   (140973) от 29.12.2018
-
-Студия Маркел - Дача-дачка (2018) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дача-дачка (4:15)
-02. Месяц светит (4:53)
-03. Бабком (3:38)
-04. Я маленькая девочка (5:25)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F8336EB99779467F1BAD7730F4DD7BA99071D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678927   (140974) от 23.11.2023
-
-Foxit PDF Editor Pro 2023.3.0.23028 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Business) - является профессиональным программным решением для создания PDF файлов.
-Помимо основной функции, утилита обладает большим количеством дополнительных возможностей, таких как шифрование, преобразование и встроенный PDF Editor.
-Программа может похвастаться интуитивно понятным интерфейсом, который (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CF20EDA58F6984BCE4E671F15D579CBC45EF04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088233   (140975) от 30.12.2016
-
-Risssing - The Four Seasons (2014) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Trancestep, Breaks, Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Tears (feat. Flaer Smin) [07:40]
-02. Cold Breath [05:11]
-03. High Stakes (Album Edit) [04:49]
-04. Underworld [07:17](   Читать дальше...   )Жанр: Drum & Bass, Trancestep, Breaks, DubstepПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAAC4E1830F44ED14E9F10A20C82793C52EA872
 ```
 
 

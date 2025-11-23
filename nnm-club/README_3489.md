@@ -1,3 +1,81 @@
+###  Публикация: 1720223   (110396) от 02.05.2024
+
+VA - Great Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryukhno) (4:38)
+03. Katya Kramer-Lapin - 24 Préludes, Op. 28 No. 4 in E-Minor (2:53)
+04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7E511031805F8DA7314CC9A2A67AC79CE478C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720196   (110397) от 02.05.2024
+
+Google Chrome 124.0.6367.119 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F245FA6E7B19D437FFD60C14279B7C9B5023D282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720248   (110398) от 02.05.2024
+
+Severed Angel - Skyward (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Inside (3:18)
+02. Live Your Imagination (3:44)
+03. A Perfect Disaster (5:42)
+04. Skyward (4:10)(   Читать дальше...   )Жанр: Symphonic-Melodic Heavy MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F5C1D6417349E1D68702420CE7A825064BE7CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720154   (110399) от 02.05.2024
 
 Журнал | Главбух №9 (май 2024) [PDF]
@@ -6,7 +84,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110399.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Firefox Browser 125.0.3 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110400.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ FireAlpaca 2.11.20 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110401.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ Ghost on Mars - Out of Time and Space (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110402.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Auslogics Disk Defrag Pro 11.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110403.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ FM - Old Habits Die Hard (2024) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110404.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ FanControl V188 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110405.jpg" />
 </div>
 
 
@@ -180,7 +258,7 @@ Ghost on Mars - Out of Time and Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110406.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ Sensual Lounge Music Universe - Sexiest Ballads: Smooth Instrumental Erotic Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110407.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ Adobe Animate  2024 24.0.2.12 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110408.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ magnet:?xt=urn:btih:03408229CA1B042C34F7C5F87E4931F5A9E927DE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110409.jpg" />
 </div>
 
 
@@ -282,7 +360,7 @@ Q-Dir 11.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110410.jpg" />
 </div>
 
 
@@ -307,7 +385,7 @@ KAAZE - Live @ Illuzion Phuket, Thailand (2024-04-20) [MP3|320 Kbps] <Dance, Ele
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110411.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ Auslogics Registry Cleaner Pro 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110412.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ magnet:?xt=urn:btih:0628EF9B432E15953EF208B3E2B9444033EBD8F0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110413.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ Tablacus Explorer 24.4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110414.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ Sexual Music Collection - Erotic Bath with Jazz (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110415.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ LibreOffice 7.6.6.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110416.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ magnet:?xt=urn:btih:DFA9A775909A4E3AFD7779833518373B2C48FE8D
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110417.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ magnet:?xt=urn:btih:B8A1E0407A668B4AA1F16249A04AE9DF5421725D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110418.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ magnet:?xt=urn:btih:090121E138B5B204F80702DFAA6DCDFCFC2D06DC
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110419.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Fort Firewall 3.12.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110420.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ ibis Paint X 12.0.5 Lite-Mod by NURIK [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110421.jpg" />
 </div>
 
 
@@ -564,78 +642,6 @@ ibis Paint X - известное благодаря своим качества
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2492AC1C1425C7842EF73295C4E7762316155469
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720236   (110422) от 02.05.2024
-
-Память / Memory (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошлое не дает покоя Сильвии. На вечере выпускников она встречает Сола и обвиняет его в преступлении, совершенном против нее много лет назад. Сол страдает прогрессирующей потерей памяти и отказывается признавать вину. Постепенно противостояние двух одиноких сердец перерастает в сильное чувство. Тонкая история любви, помогающая справиться с демонами прошлого и обрести (   Читать дальше...   )Производство: Мексика, США / Case Study Films, High Frequency Entertainment, MUBIЖанр: драмаРежиссер: Мишель ФранкоАктеры: Джессика Честейн, Питер Сарсгаард, Мерритт Уивер, Джессика Харпер, Элси Фишер, Брук Тимбер, Джош Чарльз, Том Хэммонд, Брайан Келли, Тарина УэббПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:45Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720051   (110423) от 02.05.2024
-
-Идеальная зависимость / Perfect Addiction (2023) BDRip [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиенна — успешный тренер по боксу. Однажды она узнаёт, что её парень Джэкс, действующий чемпион, изменял ей с её же сестрой. Разъярённая, она решает отомстить бывшему самым болезненным способом — она берётся тренировать единственного боксёра, который может свергнуть Джэкса с пьедестала. Но то, что начиналось как план мести, постепенно перерастает во что-то большее.Производство: США, Германия / Constantin Film, JB Pictures, Arbor FilmsЖанр: боевик, мелодрамаРежиссер: Кастиль ЛэндонАктеры: Ману Беннетт, Росс Батлер, Поппи Гилберт, Киана Мадейра, Мэттью Нозка, Николас Дювернэй, Бри Уинслоу, Райан Баун, Джей Демеритт, Кайлас МахадеванПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:02Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720129   (110424) от 02.05.2024
-
-Журнал | Просто, вкусно и полезно! №3 (март 2024) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных рецептов. Все рецепты в этом журнале от читателей, они проверены ими не раз, из доступных продуктов и с простым способом приготовления. А чтобы довести их до совершенства - сделать еще вкуснее и полезнее, то тут вам помогут комментарии специалистов: шеф-повара и врача-диетолога.Жанр: КулинарияИздательство: Александр ИоффеФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBED95BB468D8605F56F742480E91FD18054EE4
 ```
 
 

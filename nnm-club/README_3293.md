@@ -1,3 +1,84 @@
+###  Публикация: 1743897   (105300) от 19.08.2024
+
+Zero Digital - Timeline (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope & Despair (3:32)
+02. Sinners Win (The Poo) (3:24)
+03. Turning the Dark Legacy (3:11)
+04. Taylor Swift Pants (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7774E45548EEC801936A251877284EB206F6431
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743930   (105301) от 19.08.2024
+
+Lesibu Grand - Triggered (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, new wave, punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scary Mary [00:05:13]
+02. Hot Glue Gun [00:02:27]
+03. Ordinary Girl [00:02:51]
+04. Anarchy [00:02:20](   Читать дальше...   )Жанр: Alternative, new wave, punkПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFF1D67158A3CD8937B68A7D05C87C9C645A675
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744111   (105302) от 19.08.2024
+
+Hifi Sean & David McAlmont - Daylight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Funk, Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight [00:02:54]
+02. Sun Come Up [00:03:36]
+03. Coalition [00:03:10]
+04. You Are My [00:03:21](   Читать дальше...   )Жанр: Electronic, Funk, Soul, PopПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAC1071D68599ECCCC2777C065C663D45B65078
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744106   (105303) от 19.08.2024
 
 Комната забвения / Chamber of Forgetfulness (1912) WEBRip
@@ -6,7 +87,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105303.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Brian Ray - My Town (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105304.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ Hazel Gaze - Hazel Gaze II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105305.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ A.D.A.M. Music Project - World Takeover (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105306.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105307.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Budderside - Good For Nothing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105308.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Strevellna - Revoldom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105309.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ Tight - Right Between The Eyes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105310.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ Charlie Mariano - Boston All Stars (1951 - 1953) 1990, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105311.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ Crossfade - Carousel (2019) [FLAC|Lossless|image + .cue] <Westcoast, Soft Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105312.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ magnet:?xt=urn:btih:AD55ECF8F1DA0EDDD9EA1B26C64F3FB44C5FF490
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105313.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ The Church - Eros Zeta And The Perfumed Guitars (2024) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105314.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ Qika - I'm So Excited (2010) [FLAC|Lossless|tracks] <House, Italo House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105315.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ magnet:?xt=urn:btih:C26F4AC349F0BE9D08D69B92F270C8E7543A3E63
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105316.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ Rosie Lowe - Lover, Other (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105317.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ Holycide - Towards Idiocracy (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105318.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ Claus Ogerman - Featuring Michael Brecker (1991) GRP [APE|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105319.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ magnet:?xt=urn:btih:0A2E8496C463E6E418331CC4715A9BB51C85C1DB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105320.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ Jontavious Willis - West Georgia Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105321.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ SuperDетки - Бикини-Мини (2007) Саундтрек к к/ф "Св�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105322.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ Slim *CENTR - Холодно (2009) [WavPack|Lossless|image + .cue] <Rap, Hardco
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105323.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ magnet:?xt=urn:btih:E29A410A22D2A68FB4B38977090863B703602BA2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105324.jpg" />
 </div>
 
 
@@ -591,7 +672,7 @@ magnet:?xt=urn:btih:3E77CF0D0D4C5FECCCAA30C8C2AD91EE6226C976
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105325.jpg" />
 </div>
 
 
@@ -605,85 +686,6 @@ magnet:?xt=urn:btih:3E77CF0D0D4C5FECCCAA30C8C2AD91EE6226C976
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41D90F8E613B6C7022C9FFFA3C5871AC2FA93ECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743909   (105326) от 18.08.2024
-
-La Banda Salsa - Viva La Salsa (1976) LP [MP3|320 Kbps] <Latin, Funk Soul, Salsa>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Comparsa (5:02)
-02. Pan Con Salsa (4:25)
-03. Eight Days A Week (3:19)
-04. And I Love Her (3:37)(   Читать дальше...   )Жанр: Latin, Funk Soul, SalsaПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7013198736AD043437F29F087A48CC1C9695AF5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743781   (105327) от 18.08.2024
-
-Триада - Шестое Чувство (2009) [WavPack|Lossless|image + .cue] <Hip Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бум
- 02. Моя Звезда
- 03. МС
- 04. Одна(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCC34D61870776910F2A920ED7772F0DE1EAC4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743952   (105328) от 18.08.2024
-
-Газета | Невыдуманные истории №32 (436) (август 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105328.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A382750E6042ED605E71831F3998DD81926D6D0
 ```
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1683008   (129924) от 09.12.2023
+
+VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Irina Поворознюк - Не Ной (02:49)
+ 002. 84 - Люди Хотят В Космос (02:48)
+ 003. 84 feat. Lookbuffalo - Магия (02:31)
+ 004. 84 feat. Rekudo - Руки в Потолок (02:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109B07A13220D700FDF94E7AA2BA84D70B432A9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490710   (129925) от 01.05.2012
+
+Einherjer - Norron (2011) [MP3|320 кб/с]<Viking Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Norrøn Kraft
+2. Naglfar
+3. Alu Alu Laukar
+4. Varden Brenne
+5. Atter På Malmtings Blodige Voll
+6. Balladen om Bifrost2011Жанр: Viking MetalПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4677FE2515D140937802020855C09C1CA519B461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683056   (129926) от 09.12.2023
+
+Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prepare for an explosive journey through a blistering setlist with Duran Duran's 'A Hollywood High' on Blu-ray and DVD. Visually stunning, this electrifying high-rise rooftop performance was filmed in Los Angeles at The Aster, framed against an iconic LA skyline and the Capitol Records building. Experience the pulsating energy of the band's timeless music in crystal-clear (   Читать дальше...   )Производство: Last Man MusicЖанр: Rock, New WaveПеревод: ОтсутствуетПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670760   (129928) от 09.12.2023
 
 Без ума от Мадонны / Crazy for Madonna (2018) SATRip [H.264]
@@ -6,7 +86,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129928.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129930.jpg" />
 </div>
 
 
@@ -57,7 +137,7 @@ magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129931.jpg" />
 </div>
 
 
@@ -81,7 +161,7 @@ magnet:?xt=urn:btih:1C2AD5608C7A23B7FA09C5668813D2560CAD2E83
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129932.jpg" />
 </div>
 
 
@@ -105,7 +185,7 @@ VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Du
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129933.jpg" />
 </div>
 
 
@@ -132,7 +212,7 @@ magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129934.jpg" />
 </div>
 
 
@@ -156,7 +236,7 @@ magnet:?xt=urn:btih:B1BCF10DC3243AF0ED1CFE222961C7E479148AC5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129936.jpg" />
 </div>
 
 
@@ -180,7 +260,7 @@ Boxy SVG 3  v3.75.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129937.jpg" />
 </div>
 
 
@@ -204,7 +284,7 @@ magnet:?xt=urn:btih:DB1598230E1337C5D8638E20A16B38864B934BDF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129938.jpg" />
 </div>
 
 
@@ -228,7 +308,7 @@ Dan McCafferty - In Memory of Dan McCafferty - No Turning Back (2023) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129939.jpg" />
 </div>
 
 
@@ -255,7 +335,7 @@ AYVY 1.18.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129940.jpg" />
 </div>
 
 
@@ -279,7 +359,7 @@ magnet:?xt=urn:btih:C9DF93CE520E7FB3740CBC1F329607A451F01860
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129942.jpg" />
 </div>
 
 
@@ -303,7 +383,7 @@ Action 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129943.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ magnet:?xt=urn:btih:767991E9B65A51DD5AAC7A6DE20C5347EE0BA89D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129944.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ magnet:?xt=urn:btih:31AA94A88FBF3B6F21C18AE8727FE4FF3D81BD9E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129945.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129946.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ Old Gods of Asgard - Rebirth - Greatest Hits (2023) Music from the Games 'Alan W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129947.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129948.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ Artstudio Pro 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129949.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129950.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ Smooze Pro 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129951.jpg" />
 </div>
 
 
@@ -526,7 +606,7 @@ David Gilmour - About Face (1984) Japanese Edition, Reissue, Remastered, 2020, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129952.jpg" />
 </div>
 
 
@@ -553,7 +633,7 @@ magnet:?xt=urn:btih:2DC5F2E5EDD378EDC9808F6CFF5449889837C125
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129953.jpg" />
 </div>
 
 
@@ -564,79 +644,6 @@ magnet:?xt=urn:btih:2DC5F2E5EDD378EDC9808F6CFF5449889837C125
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE81B4041DBEAD049E5D4770348F0DD12857F7D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525098   (129954) от 19.01.2022
-
-One Switch 1.24 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129954.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Switch - это крошечное приложение, разработанное для повышения вашей эффективности благодаря быстрому доступу к нескольким важным коммутаторам. Его можно открыть в строке меню, и он позволяет переключать определенные функции системы всего парой кликов.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 FireballПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB55DAAA4646CDCC57B7FCF67BC98B95607CF7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682960   (129955) от 09.12.2023
-
-Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа над созданием приложений может быть нелегкой, существует множество документации, но разработчикам трудно найти четкий шаблон при решении таких вопросов, как архитектура приложения, способ хранения данных и создание надежного и масштабируемого кода.
-Именно здесь на помощь приходит эта книга! Она проведет вас от идеи приложения до создания масштабируемого кода (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Kodeco IncФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4675FF1086FE4B7BA20F02D2CA9F70D66E85104C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525128   (129956) от 19.01.2022
-
-Scherlokk - Files finder 4 v4.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scherlokk является утилитой для быстрого поиска одного файла для точного и надежного поиска каждого файла, который соответствует критериям поиска. Музыка, изображения, закладки, документы и т.д., можно найти быстро и легко. Поиск может быть сделано в любой папке и на любом диске, в том числе на съёмных носителях (pendrives, карты памяти, USB-диски), сетевой диск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FA80EC18AD2C3D2F23D8DEDC88C34A2FF15596
 ```
 
 

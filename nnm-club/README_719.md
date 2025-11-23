@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19018.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Downtempo Reflection: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19019.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:718BD94784F5C26BC31F2050B86161A4732A32F9
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19020.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EBF298469560C35BCE39E3252796B53F263C3FE8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19021.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3344270F3BF540CDB03D3CE34C7E427A3B67026D
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19022.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] Blu-ra
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19023.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:560FC7A8D19BC7E30FE5FF8911E4F5FE84C1B4A6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19024.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Summer Wars | Летние Войны [2009, Movie] Blu-ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19025.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Stereophonics - Make ‘em Laugh, Make ‘em Cry, Make ‘em Wait (2025) [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19026.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Eela Craig - One Niter (1976) Japanese Edition, Reissue, Remastered, 2009, Belle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19027.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Voodoo Circle (Alex Beyrodt's) - Compilation (2008-2024) [MP3|320 Kbps] <Hard ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19028.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19029.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:024AE91C205802091518C9900EEEBBA7E90D3A73
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19030.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:E9BA70144E056AEE6D1C7E92E1FD41325F63B538
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19031.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:6E68BA84B9E07FE1A07217857182E2B8CCE44FC2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19032.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:E3501DD43141BB8D77031DAF63DB69A7273A6F53
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19033.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:10DDFD101EBD38F101F26DF5D525FB19F284B62D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19034.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19035.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:520683272C3DF6F488C4F90A273D58022D645F21
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19036.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Karg - Marodeur (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient Black Metal, Post-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19037.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:D415F56208883C1DC590CF010E1ACAE7B10DECED
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19038.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19039.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19040.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:4149C489DF7C8DE0398E594666B43F3E53BE6E75
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19041.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:ED6E5975DED6EE1675B0F4100A9689846AE99F4D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19042.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:9DF09CA95A39322EABC2924F0196537A7CB96D37
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19043.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9162.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11436.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D48586F9357235DDD566FF0841295673130CD9F3
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13057.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13641.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14504.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14860.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19221.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19746.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21068.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21091.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26512.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BBC: Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27587.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28475.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC: Саймон Шама - История Британии / BBC: Simon Schama
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28500.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:7A1A07CAC8EB3DAC7A8777445318508B4E08DC6B
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28549.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28576.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ BBC. Суперчувство / Суперчувства животных / Supe
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28583.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28597.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ BBC. Операция Стоунхендж: Тайна, скрытая под к
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28621.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ BBС. Внутренняя вселенная: Тайная жизнь клет�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28637.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BBC: Плотоядные. Касатка  / Wildlife Specials. Killer Whale (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28638.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ BBC: Тайны Тихого океана / South Pacific (Wild Pacific) (6 се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28739.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ BBC. Чудеса природы: жизнь на краю Земли / Earth's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28821.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BBC: Чем мы кормим наших детей? / What Are We Feeding Our K
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28829.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:35977BBA75E90D91D40746FDB1D37842D4E838DE
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28920.jpg" />
 </div>
 
 

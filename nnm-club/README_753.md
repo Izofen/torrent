@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19902.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:155DFF45D1C84FDCCE7E4C6FE2045C5D15E7F5F0
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19903.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FastStone Image Viewer 8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19904.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Photoshop 2024 25.12.3.1067 Full (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19905.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:08943352B5C88790B942BC536B23732E90A0F5A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19906.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19906.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19907.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0619724B1BB3D89359FEB311DBADAD1D2CFEFD91
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19908.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19908.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D696FF4ED2A66CDF0CA3C71691518F28CE7C3A92
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19909.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:66C3BEA17039941B454AA50B9F12A590292A20D9
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19910.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19910.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:1E0C41CC153363D389D61BD9510796A27061C27B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19911.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19911.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:1E0C41CC153363D389D61BD9510796A27061C27B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19912.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19912.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:025EE076E61D77CE18BF8E6352182C7158771AB2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19913.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19913.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Assassin's Creed Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19914.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19914.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:4CCB70C001240D8C4F69ADC81ACDE4A24C617780
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19915.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ CG Cookie | CORE Fundamentals: 9 Essential Courses for Blender 4.2 (2024) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19916.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19916.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:0B44C6BE32F0F06397FF160FD540FB95DB0B03F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19917.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:48393C67D12F8169450A3F3EACE6068B1E0BA230
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19918.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:6D596AC5D916926229B62FA77C24D746D703132D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19919.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19919.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ FastStone Image Viewer 8.0 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19920.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19920.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:50B1767B98929BE666DBCC7E49C20B88C09D92C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19921.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:FC4E5A117F444DB850DB3B8172D847EB22B6DB1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19922.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:E5B47578625F42B5BE087ABAF715F3C02A7A7F6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19923.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19923.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:BE6F0286A7806EE201B30CF520576AC0017EA31A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19924.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19924.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19925.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:4B03C852FFC62F2B30BEC2D476215554C4BA5E8A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19926.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19926.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:948217B542A3197B70D47C84FD224928E4F15029
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19927.jpg" />
 </div>
 
 

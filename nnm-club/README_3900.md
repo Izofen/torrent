@@ -1,3 +1,79 @@
+###  Публикация: 327819   (121082) от 25.01.2024
+
+Антуан де Сент-Экзюпери | Цитадель (2006) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Зарубежная проза.
+Антуан де Сент-Экзюпери (1900–1944)  – французский писатель, военный летчик.
+«Все мои предыдущие произведения – лишь проба пера» – говорил Сент-Экзюпери о «Цитадели» о своём самом своеобразном и возможно, самом гениальном произведении.
+В этом незавершенном философском романе причудливо переплелись мотивы притчи и военной прозы, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 21:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90592C022B82BED86184152CB1A8984ECDA8A1D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 297599   (121083) от 25.01.2024
+
+Покидая Лас-Вегас / Leaving Las Vegas (1995) BDRip [H.264/720p-LQ] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вся жизнь кажется кошмаром. Если затяжной запой окончательно разрушил карьеру в серьезной фирме. Может быть, есть смысл уничтожить все, что связывало тебя с прошлой жизнью и начать новую? В блестящем и грешном Лас-Вегасе.
+Где среди блеска ночной жизни одинокая «ночная бабочка» может оказаться внимательнее и сердечнее любого психоаналитика. Потому, что она захочет (   Читать дальше...   )Производство: Франция, Великобритания, США / Initial Productions, Lumière PicturesЖанр: Драма, МелодрамаРежиссер: Майк ФиггисАктеры: Николас Кейдж, Элизабет Шу, Джулиан Сэндс, Ричард Льюис, Стивен Уэбер, Валерия Голино, Эмили Проктер, Стюарт Реген, Ким Эдамс, Грэм Беккел...Перевод: Многоголосый закадровыйСубтитры: Русский, Английский, Французский, Итальянский, НемецкийПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E507B3854E67D2002837541A26DAB43B5B3DD75E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694347   (121084) от 24.01.2024
+
+doubleTake 2.6.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121084.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но какие мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Echo OneПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C930A17A3A5130B68911B72FD68BFF125FEBBEEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694278   (121085) от 24.01.2024
 
 Журнал | Сваты на даче №1 (109) (январь 2024) [PDF]
@@ -6,7 +82,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121085.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Cyrus Chestnut - My Father's Hands (2022) HighNote Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121086.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ Kenny Hughes - Born & Raised (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121087.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ magnet:?xt=urn:btih:4738ACDA4DA67CFA5EA82A6061416B32A5707E1A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121088.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:C3EBF9D55C9B6783D05DCD65060E1FB3C2C2A0FA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121089.jpg" />
 </div>
 
 
@@ -133,7 +209,7 @@ Seven Spires - Gods Of Debauchery (2021) [FLAC|Lossless|image + .cue] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121090.jpg" />
 </div>
 
 
@@ -160,7 +236,7 @@ Unclutter 2.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121091.jpg" />
 </div>
 
 
@@ -185,7 +261,7 @@ File Juicer 4.99 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121092.jpg" />
 </div>
 
 
@@ -210,7 +286,7 @@ magnet:?xt=urn:btih:576B4E3468F3BF19CEB1BC933D10AC86FA20C78C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121093.jpg" />
 </div>
 
 
@@ -234,7 +310,7 @@ magnet:?xt=urn:btih:2BEDB9EE1A2CFF736A95FFC14CC9946972F65B7D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121094.jpg" />
 </div>
 
 
@@ -258,7 +334,7 @@ Toshiyuki Miyama & New Herd - Misty (1982) 1985, SMS Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121095.jpg" />
 </div>
 
 
@@ -285,7 +361,7 @@ Electric Wizard - Wizard Bloody Wizard (2017) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121096.jpg" />
 </div>
 
 
@@ -312,7 +388,7 @@ Notebooks – Write and Organize 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121097.jpg" />
 </div>
 
 
@@ -336,7 +412,7 @@ Askon - Sacred Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121098.jpg" />
 </div>
 
 
@@ -363,7 +439,7 @@ Aberratio - Thanatos (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121099.jpg" />
 </div>
 
 
@@ -390,7 +466,7 @@ Erik Andresen's Quartet - GIP (1971) 2018, Jazzaggression Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121100.jpg" />
 </div>
 
 
@@ -417,7 +493,7 @@ Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121101.jpg" />
 </div>
 
 
@@ -444,7 +520,7 @@ Akkerhaugen Raid - Red Filipino Viper (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121102.jpg" />
 </div>
 
 
@@ -471,7 +547,7 @@ Carnivore - Retaliation (1987) [WavPack|24/96|image + .cue|Vinyl-Rip] <Speed, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121103.jpg" />
 </div>
 
 
@@ -498,7 +574,7 @@ magnet:?xt=urn:btih:E4CA29A734E49334A40D6BE2319A9AB39A3F5CA9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121104.jpg" />
 </div>
 
 
@@ -522,7 +598,7 @@ magnet:?xt=urn:btih:382A33127313C070ECDDFFFA8A3437E1614339D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121105.jpg" />
 </div>
 
 
@@ -546,7 +622,7 @@ VA - Cherry on Top Smooth Late Night Saxophone Jazz for Delightful Moments and P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121106.jpg" />
 </div>
 
 
@@ -573,7 +649,7 @@ magnet:?xt=urn:btih:AD076C0A2A0F594664B8B6BA952E89742309C6D5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121107.jpg" />
 </div>
 
 
@@ -584,84 +660,6 @@ magnet:?xt=urn:btih:AD076C0A2A0F594664B8B6BA952E89742309C6D5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD94B5F2209F4F4CF467C0745CD43EAC07BFBBF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694276   (121108) от 24.01.2024
-
-VA - Melodically Trance 01 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L_DG - Summerlust (Tom Bro Remix) [8:29]
-02. Dim Val Pol - Light Breeze (Wavelounger Remix) [8:13]
-03. Miguel Angel Castellini - If You Live In Me (Original Mix) [7:02]
-04. Borena - Alive (Original Mix) [6:24](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C55F731DB00E8EA6092FD91DE45B272C393255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694277   (121109) от 24.01.2024
-
-VA - Melodically Trance 02 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Frequency - Northern Lights (Atmospherika Remix) [6:51]
-02. Adam Sein - Winter Tales (Mind Of One Remix) [5:12]
-03. Virgil Hill & Tudor Wolf - Constanta (ReLoaded Mix 2021) [7:02]
-04. The Husky - Loba (Mark Digital Remix) [5:48](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAFB709E43153DE25F13F21029C837D3A211536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694252   (121110) от 24.01.2024
-
-Хелена Хейл | Сердце лета (2023) [MP3, Ксения Большакова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которая напомнит вам о детстве на даче или в деревне, о лете и первой любви. «Сердце лета» — это история о любви, но она поднимает вопросы домашнего насилия, жизни в маленьких деревнях и проблемы самоопределения.Жанр: современные любовные романы, романтическая эротикаИздательство: CLEVERПродолжительность: 09:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C80CEF538BB5351867631DB823D42C0A899F31F
 ```
 
 

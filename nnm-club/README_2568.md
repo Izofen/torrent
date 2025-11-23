@@ -6,7 +6,7 @@ Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67516.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cougar Synth - 2013 (2014) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67517.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Yasuhiro Kohno - Princess Sayaka (1995) ASCAP Record [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67518.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:05FE7E70EFFF8EF1661F29C38AD31C467C8DAA60
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67519.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Beach Relax Home (To Get Lost in the Music) (2025) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67520.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:C354F77A107974AE6EDAD02611BA3DC533DCC647
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67521.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:38CE6C96886FDACA69893B5FB8E2B2A809EDF8AA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67522.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:6CA307394F59175D7D0516753FCA25D9B6F983A4
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67523.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Machine Head - Unatøned (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67524.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:28220CA46E7828440212BAA2FF0DED1DC47813B0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67525.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Smart AudioBook Player Pro v11.2.8 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67526.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:7AC57CBECA5387F0E520779E1E0A6F8410E2F149
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67527.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Battle Beast - Bringer Of Pain (2017) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67528.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Art Nation - The Ascendance (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67529.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ H.e.a.t. - Welcome To The Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67530.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:C7ED2BCEA5B92BB995D5FE9D737C32BD89BC596D
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67531.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Bob Roy Orchestra - Disco-Flash (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67532.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E3CC1B01DC27FBCC5FD0F191D1BA1F4C4BE8CBCB
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67533.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:231E65A2552C5C185BF9194D696FF87E22EA2ADF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67534.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Gary Moore - Dirty Fingers (1983) Reissue 1992 [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67535.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:3E97D38314C79AC42D79FDA1BB4A3E1DCEE9DE3B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67536.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:28E144EB5B236F20E14F16C2BE50AF04804683E4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67537.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Buddy Rich - Just In Time: The Final Recording (1986) 2CD, 2019, Gearbox Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67538.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:3079AB6206848091C2F5DC05A9D2A584A4C2B0A0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67539.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:57A632740D7B7ED92E9AD2B72FA1DFCF6B84FFB1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67540.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:2EFC39E963451353721B10DE8801982CB4BA6051
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67541.jpg" />
 </div>
 
 

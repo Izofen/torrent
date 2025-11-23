@@ -1,3 +1,94 @@
+###  Публикация: 464586   (95940) от 08.03.2012
+
+[EN] Пропавшие / Gone (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95940.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кадрах фильма мы видим таинственного незнакомца, убегающего от своры воющих собак. С ним мы встретимся позже...
+Затем мы встречаем энергичную сестру Эми ( Молли Паркер), которая подверглась на автостоянке ужасному нападению, эпизоды которого мы позже увидим из ее воспоминаний.Она лечится от последствий нападения, нанимает адвоката, а в целях самообороны занимается карате и обучается обращению с оружием. Затем она разводится со своим мужем Дэвидом Франклином ( Лочлин Манро ), который сомневается в ее способности противостоять преследованиям со стороны преступников. Дэвид идет за маленькой симпатичной дочерью Эмили ( Наташа Калис ) в школу и узнает, что она похищена...Жанр: Криминал, ДрамаРежиссер: Грант ХарвиАктеры: Молли Паркер, Лочлин Манро и Сьюзен ХогэнПеревод: ОтсутствуетПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AF2133761AA731314CCDAF921D26EE8A48D98D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464063   (95942) от 08.03.2012
+
+VA - Best of Gothic v.2 (2010) [MP3|192-320 кб/с]<Gothic Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightwish - Romanticide (04:58)
+02. Sirenia - Spor 1 (04:19)
+03. Epica - Resign To Surrender (A New Age Dawns - Part IV) (06:19)
+04. Graveworm - Diabolical Figures (04:54)
+05. The 69 Eyes - 01 Back In Blood (04:26)
+06. Lacuna Coil - I Wont Tell You (03:49)
+07. Lacrimosa - Feuer (04:33)
+08. Aeternitas - 08.Aeternitas - Ouvertüre (03:58)
+09. Katatonia - Departer (05:27)
+10. Within Temptation - Utopia (feat Chris Jones) (03:52)(   Читать дальше...   )2010Жанр: Gothic MetalПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F8348657606840E09C2BA36996E74F040CD29C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464650   (95944) от 08.03.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #76 (08/03/2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95944.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix) (5:31)
+ 2. Nic Chagall & Duderstadt feat. Relyk - Alone With You (6:27)
+ 3. Cerf, Mitiska & Jaren - Another World (Shogun Remix) (7:34)
+ 4. David Forbes feat. Antonia Lucas - Because Of You (Pulser Remix) (7:02)
+ 5. Andrew Rayel - Believe (Original Mix) (7:06)
+ 6. Ernesto vs. Bastian - Bonanza (Original Mix) (6:56)
+ 7. Trilucid feat. Sophie Tusnelda - Bring You The Sun (D-Mad Remix) (6:18)
+ 8. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (8:49)
+ 9. Karanda feat. Radmila - Coming Closer (Karanda Club Mix) (6:09)
+ 10. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) (5:11)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA7A5266967CED03ED80DE36FA422DCEC4FD735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464750   (95954) от 08.03.2012
 
 [Wallpapers] Sexy Girl Wallpapers Pack 24
@@ -6,7 +97,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95954.jpg" />
 </div>
 
 
@@ -35,7 +126,7 @@ VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95955.jpg" />
 </div>
 
 
@@ -68,7 +159,7 @@ magnet:?xt=urn:btih:681803F08310128FB01E507FAD0C355E4936311D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95963.jpg" />
 </div>
 
 
@@ -97,7 +188,7 @@ magnet:?xt=urn:btih:C104FE33B69B09221DEB39219FF7B95392A4DFD1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95965.jpg" />
 </div>
 
 
@@ -121,7 +212,7 @@ VA - Devil In The Detail (2007) [MP3|320 Kbps]<Downtempo, Ambient, Psy Chill, Ps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95966.jpg" />
 </div>
 
 
@@ -154,7 +245,7 @@ Asphyx - Deathhammer (Limited Edition) (2 CD) (2012) [FLAC|Lossless]<Death/Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95967.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95967.jpg" />
 </div>
 
 
@@ -187,7 +278,7 @@ Gabriel & Dresden - Live at Pacha, NYC (02-03-2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95968.jpg" />
 </div>
 
 
@@ -220,7 +311,7 @@ magnet:?xt=urn:btih:F9685F9C55DC9B1E452D38CAB315C55B0DF16BDE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95970.jpg" />
 </div>
 
 
@@ -244,7 +335,7 @@ magnet:?xt=urn:btih:BCA2D6C1BCF9D2350E3DB1F900FF2E1F3A45BE5E
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95973.jpg" />
 </div>
 
 
@@ -268,7 +359,7 @@ magnet:?xt=urn:btih:35CCD973636F24ED1CA9AF20A632E24409B9BE72
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95977.jpg" />
 </div>
 
 
@@ -292,7 +383,7 @@ DJ Tiesto - Club Life 257 (Swedish Special) (04.03.2012) [MP3|~224 кб/с ]<Pro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95981.jpg" />
 </div>
 
 
@@ -325,7 +416,7 @@ magnet:?xt=urn:btih:B0DEE6A43050D6F3E0B7FB97BE50714F20026441
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95983.jpg" />
 </div>
 
 
@@ -349,7 +440,7 @@ magnet:?xt=urn:btih:1EE39235E6747F926105D0EA23DF3F6B6F34EBD2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95986.jpg" />
 </div>
 
 
@@ -378,7 +469,7 @@ magnet:?xt=urn:btih:220240A7695E039EF2E5C35C3DA3E9CD30ED7C08
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95988.jpg" />
 </div>
 
 
@@ -407,7 +498,7 @@ MKVToolnix 5.3.0.418 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95990.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95990.jpg" />
 </div>
 
 
@@ -432,7 +523,7 @@ Dynazty - Дискография (2009-2012) три альбома [MP3|320 kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95991.jpg" />
 </div>
 
 
@@ -465,7 +556,7 @@ magnet:?xt=urn:btih:3D415755DCA21F3B98C17D9776F889B0B51EA39E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95992.jpg" />
 </div>
 
 
@@ -489,7 +580,7 @@ Talamasca - Made In Trance (2004) [APE (image+.cue)|Lossless]<Psychedelic / Full
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95995.jpg" />
 </div>
 
 
@@ -521,7 +612,7 @@ Duotekk - Dunamis (2011) [MP3|320 кб/с]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96008.jpg" />
 </div>
 
 
@@ -553,7 +644,7 @@ magnet:?xt=urn:btih:B6174FBDC9D4F61E875CA8817DF79A474B8B1EFB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96014.jpg" />
 </div>
 
 
@@ -577,7 +668,7 @@ magnet:?xt=urn:btih:E80948BF2C4D26138C51BE5466A2E2F21EC44F3C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96020.jpg" />
 </div>
 
 
@@ -601,7 +692,7 @@ magnet:?xt=urn:btih:CB8D476575EFA23E2C1824F90BDAC9AA08B681CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96023.jpg" />
 </div>
 
 
@@ -629,7 +720,7 @@ Jungle Rot - Kill On Command (2011) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96024.jpg" />
 </div>
 
 
@@ -649,87 +740,6 @@ Jungle Rot - Kill On Command (2011) [MP3|320 кб/с]<Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D6F3250A978175C949D44821914669F66C92E41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464856   (96025) от 09.03.2012
-
-[Wallpapers] Avto Wallpapers Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96025.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 6
-Название: Avto Wallpapers Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4A011C6FD5DC9E5D517ACE7C7D8E895EC34FC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464874   (96026) от 09.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 62
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96026.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 62
-Название: Desktop Wallpapers Pack 62
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736FCB50EF206A441F5887CD7B4B2B893FB879AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464744   (96027) от 09.03.2012
-
-Мэтью Гэбори | Сердце Феникса [2003] [RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство мертвых Харония стремится покорить мир живых с его неповторимыми землями, о которых пекутся Хранители. До сих пор Грифоны, Пегасы, Аспиды, Единороги и другие волшебные существа обеспечивали покой и гармонию во всех государствах Миропотока, но вторжение Темных Троп нарушило равновесие. Единственный, кто в силах помешать шествию злых сил, - юноша, почти подросток, Януэль и не подозревает о выпавшей на его долю великой миссии.2003Формат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2DD8DD8F082EE7F687C6E3B23A5B90EEE7E9A9
 ```
 
 

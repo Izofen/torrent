@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31111.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mark Duffy - Tribute To Glen Campbell (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31112.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31113.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31113.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:ABEA12E3CB8242504239189ADAE83E86CE9BEA92
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31114.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31114.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FABC0E0D772FCB3109AB67CE0FA42772512E4DD6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31115.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:42630F9E50BC3698E9EDFF1B14A7C82E7CEE36F9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31116.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31116.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31117.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31117.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Best Slow Rock Love Songs, Ballads (2025) [MP3|320 Kbps] <Rock, Ballad>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31118.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31118.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.7.19/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31119.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1833F4260FBD5DED586A48C6B5C1A4ECB75B28EB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31120.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ KMS Tools Lite Portable  by Ratiborus 30.12.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31121.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:1F6DB6CCC12CE320D90C13EA9083D95C96FF46B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31122.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:135F6E765FF6FAD07D20352A582C4961131CB811
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31123.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C50943D69412432240AC430AB07B5BEC5E9A0528
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31124.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ BBC. Древние державы / Ancient Powers (2023) WEB-DL [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31125.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:796BCFB387CCFD3560536B12DD1C3BD3AD996551
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31126.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31126.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft давно перестала агрессивно бороться с
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31127.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31127.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Microsoft — одна из немногих корпораций, основа�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31128.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31128.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:D58650144F2A7616F3360DA09FF60758813BE0F0
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31129.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31129.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:6EEC7982513B6CE0E218F7887EE09B539555AED8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31130.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31130.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:BC02EC7AA1ADF53CE129E8AA1FC9A0C4052808EB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31131.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:108BB07DBF180E52E08C7F971E3835C887FB08DD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31132.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31132.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:108BB07DBF180E52E08C7F971E3835C887FB08DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31133.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31133.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:10E32DA098279FD5C9A511ABF8B5873233590E66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31134.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31134.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:3DCAF9528B56065748BA4F8A09776FB701D4297F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31135.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:B3A16B8E2B08CD807A9C1D807E51662EE4B862E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31136.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31136.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Compilation Part 186 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6136.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8EF56A6FDF9CCC0A2E981017C885FF345BF5F0A2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6137.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6138.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:9B55A4F43DBBD5D69AC9E414F4BA7ECC87698030
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6139.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:CEA0EB896D2865CC13D4ECA6AB00ED1854168A5E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6140.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C5269F9A43D472129D6D84C619AC88D3F07F62E6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6141.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:91E2675D296938289AAAE42F91CA56B1C6F02ABE
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6142.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:890274D455FFA711E0DDB4A8CEA8B2B7102B9164
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6143.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:E0D9CD144B2DA0FDD6307E322CA0069F0043AEB5
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6144.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6145.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:7A10F6BFED2ED166A9C997EB3B4B727C522DBDC6
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6146.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:F74D02D58942443C3ED1078F183466F160D6D400
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6147.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:B3FC72CF61AE88B97CFC715BCFA08432D8A46715
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6148.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D0CD157CD3C00D19D189C317D352988B948F196A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6149.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6150.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:5029171A9ABCC1EC377FCEFFF2085A51644544EE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6151.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:04E1F23E3F6D7A5941365C8F68FFDF3F6EA99853
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6152.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:F88E4D236F514D11110D33AB4E887D53D6DE61F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6153.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ GPS Locker Prime v2.5.0 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6154.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ DJ Moralez & Various Artists - Nrg Colabmix compilation  part 1 (2025) [MP3|320 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6155.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:138F0BF446E376D79B8C4856BAE49D08AA08D663
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6156.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.6 Mod by Balatan  [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6157.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Firefox Browser ESR 115.27.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6158.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6159.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ GPS Compass Navigator v2.20.35 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6160.jpg" />
 </div>
 
 

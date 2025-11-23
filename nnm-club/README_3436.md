@@ -1,3 +1,81 @@
+###  Публикация: 1725534   (109018) от 24.05.2024
+
+Савелий Гуреев | Рассказы о композиторах (2009) [MP3, Савелий Гуреев]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Беседы о музыке.
+Сборник рассказов с музыкальными иллюстрациями о великих композиторах написанный профессиональным искусствоведом Савелием Гуреевым.
+Вы услышите истории о жизни и творчестве Баха, Бетховена, Верди, Гайдна, Генделя, Гершвина, Глинки, Моцарта, Прокофьева, Рахманинова, Шопена, Шуберта, Шумана.Жанр: Биография, воспоминания, ЖЗЛИздательство: Вира-МПродолжительность: 00:37:11
+
+Из этого рассказа слушатели узнают немало интересного о жизни и творчестве одного из самых поэтичных европейских композиторов середины XIX века - Роберте Шумане. Великий музыкант не ограничивался сочинением музыки, он был еще и замечательным исполнителем своих фортепианных сочинений, составивших основное ядро его творчества, а также прогрессивным музыкальным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD76800EE895F872776FB86706BB1A07849C170F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725418   (109019) от 24.05.2024
+
+Sumatra PDF 3.6.16254 Prerelease + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
+Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76372944BA85D22ADF74AED8439A8CFB4987DC2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725428   (109020) от 24.05.2024
+
+Q-Dir 11.65 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC68CB02D2CBC38EA1674F976538B857AF64773B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725416   (109021) от 24.05.2024
 
 Журнал | Psychologies №79 (лето 2024) [PDF]
@@ -6,7 +84,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109021.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ VA - Fulltime Production Italo Disco, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109022.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ FastStone Capture 10.5 Final RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109023.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:65175C7F12F451B865E67AB4DAA019BF72DE8551
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109024.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Black Sabbath - Evil Eye, Get a Grip (2024) Single [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109025.jpg" />
 </div>
 
 
@@ -130,7 +208,7 @@ NetLimiter 5.3.13.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109026.jpg" />
 </div>
 
 
@@ -154,7 +232,7 @@ Joplin 2.14.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109027.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ magnet:?xt=urn:btih:9FF80FA7186C4E6ACCCD91551826FDF82BDD2316
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109028.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109029.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ magnet:?xt=urn:btih:6889383A1747551B2D8D7977EBFCB3A3D57E1556
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109030.jpg" />
 </div>
 
 
@@ -251,7 +329,7 @@ Serif Affinity Publisher 2.5.0.2471 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109031.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ FastCopy Pro 5.7.11 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109032.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ VA - Русская 30-ка хитов 4 (Новые русские песни) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109033.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ BurnAware Professional 17.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109034.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ magnet:?xt=urn:btih:81BF21A66FCE2256AD52F6451C938DF5859129CD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109035.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109036.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ magnet:?xt=urn:btih:235E62020F88D520CA9686F61B7D402096FE9E50
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109037.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ OneCommander Pro 3.80.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109038.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ magnet:?xt=urn:btih:88245B80101942DC269B1C377E15357772FC8CB1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109039.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Exhorder - Studio Albums (4 releases) (1990-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109040.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Bloodorn - Let the Fury Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109041.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ magnet:?xt=urn:btih:EF453967A2CB3F425CA16650AE83844DBC0340D1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109042.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Superblue - Superblue 2 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109043.jpg" />
 </div>
 
 
@@ -568,81 +646,6 @@ Superblue - Superblue 2 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E741A2D1DDA8D70A775CE0736194DA36B906494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725160   (109044) от 23.05.2024
-
-Malachi Thompson - Freebop Now! (1998) Delmark Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Nile [6:17]
-02. Goree Island [5:25]
-03. Flight to Senegal [5:59]
-04. Freebop Now! [5:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2042E00D88782BC96A3C86C1C971273247B32300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725137   (109045) от 23.05.2024
-
-Журнал | Трудовые споры №3 (231) (март 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудовые споры — это журнал о разрешении трудовых конфликтов. В каждом номере — десятки разобранных до мелочей трудовых споров, секреты оформления документов, пошаговые алгоритмы проведения кадровых процедур, оценка рисков работодателя, аргументы для того, чтобы выиграть спор в суде.Жанр: Популярный журналИздательство: ООО "Актион Цифровое издательство"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D76A3CC83BF343D810845824DF4679D4879208F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725169   (109046) от 23.05.2024
-
-Fort Firewall 3.12.11 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E9FE75D1B343BC1757F788ED8510DBA9EE32B7
 ```
 
 

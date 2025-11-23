@@ -1,3 +1,88 @@
+###  Публикация: 473909   (97766) от 27.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 18
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97766.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 18
+Название: Avto Wallpapers Pack 18
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16034BB7B8AA25C44BA262AAC63E3B13D652664F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473937   (97768) от 27.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (26.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667A6CE9D9A739E74B6B51239F2ECD284E88B15B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473894   (97770) от 27.03.2012
+
+Patchbay - Southern Cross (2012) [MP3|320 кб/с]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PatchBay & Lone Wolf – The Whole Universe 6:40
+ 02. PatchBay & CosmosVibration & Yage – Patagonia 8:08
+ 03. PatchBay – Mystery 7:14
+ 04. PatchBay & Ital – Plants And Animals 8:12
+ 05. PatchBay & Ital & SpaceVision – Genetic Space 7:21
+ 06. PatchBay & DJ Pin & Ital – Spiritual Revelation 7:04
+ 07. PatchBay & Yage – All The Stars In The Sky 8:10
+ 08. PatchBay & Pragmatix – Reality Molecule 7:31
+ 09. PatchBay & DJ Pin – Sound Mapping Saga 8:12
+ 10. 0dB – Andes 7:282012Жанр: Psychedelic / Full OnПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB89C8044C9C56D237774E1DE0ABE3CED90D0587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474142   (97771) от 27.03.2012
 
 Mozilla SeaMonkey 2.9 Beta 1 [Русский]
@@ -6,7 +91,7 @@ Mozilla SeaMonkey 2.9 Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97771.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97771.jpg" />
 </div>
 
 
@@ -30,7 +115,7 @@ Space Elves - Terrestrial Planet Finder (2012) [MP3|320 кб/с]<Psychedelic, Go
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97772.jpg" />
 </div>
 
 
@@ -61,7 +146,7 @@ VA - Orchid Lounge (2012) [MP3|320 kbps]<Lounge | Сhillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97773.jpg" />
 </div>
 
 
@@ -94,7 +179,7 @@ magnet:?xt=urn:btih:D45645DB30383B4327F03E103DAA037E3F78589D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97774.jpg" />
 </div>
 
 
@@ -122,7 +207,7 @@ VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97778.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97778.jpg" />
 </div>
 
 
@@ -155,7 +240,7 @@ VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97782.jpg" />
 </div>
 
 
@@ -183,7 +268,7 @@ Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97783.jpg" />
 </div>
 
 
@@ -216,7 +301,7 @@ Redmist Destruction - Nobility In Death (2012) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97789.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97789.jpg" />
 </div>
 
 
@@ -249,7 +334,7 @@ Redmist Destruction - Nobility In Death (2012) [FLAC|Lossless]<Thrash Metal>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97790.jpg" />
 </div>
 
 
@@ -273,7 +358,7 @@ magnet:?xt=urn:btih:686EAE222951014E78E6215A61E02ECE23533B11
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97792.jpg" />
 </div>
 
 
@@ -298,7 +383,7 @@ magnet:?xt=urn:btih:FB70E9AA165F377C00FCC2BE97C30D687D599AAC
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97793.jpg" />
 </div>
 
 
@@ -326,7 +411,7 @@ VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97795.jpg" />
 </div>
 
 
@@ -359,7 +444,7 @@ magnet:?xt=urn:btih:6785C069099DA21E9C529BEE66F557A30C8D6037
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97797.jpg" />
 </div>
 
 
@@ -383,7 +468,7 @@ magnet:?xt=urn:btih:F3DC2137E95D56F84E84C134D91EF3315B7A90C7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97799.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97799.jpg" />
 </div>
 
 
@@ -407,7 +492,7 @@ BurnAware Pro 4.7 [Rus/Eng] Repack elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97800.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97800.jpg" />
 </div>
 
 
@@ -431,7 +516,7 @@ BurnAware - простая и в тоже время мощная програм
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97801.jpg" />
 </div>
 
 
@@ -455,7 +540,7 @@ magnet:?xt=urn:btih:26C2DA39425DF5086E207DA91734C957D994680D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97802.jpg" />
 </div>
 
 
@@ -479,7 +564,7 @@ Google запатентовала новый вид рекламы
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97803.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97803.jpg" />
 </div>
 
 
@@ -504,7 +589,7 @@ Google запатентовала новый вид рекламы
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97804.jpg" />
 </div>
 
 
@@ -528,7 +613,7 @@ Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97805.jpg" />
 </div>
 
 
@@ -552,7 +637,7 @@ Ladylike Lily - Get Your Soul Washed (2012) [MP3|~245 кб/с (V0)]<Folk, Indie,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97808.jpg" />
 </div>
 
 
@@ -585,7 +670,7 @@ VA - Dub Step vol.7 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97809.jpg" />
 </div>
 
 
@@ -618,7 +703,7 @@ magnet:?xt=urn:btih:3231220E6F4DB728207741F4B7849A6D930A17C1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97810.jpg" />
 </div>
 
 
@@ -629,89 +714,6 @@ magnet:?xt=urn:btih:3231220E6F4DB728207741F4B7849A6D930A17C1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A09D6E3B9938FB080CE9A8DDF8B0C62DA42AF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474058   (97811) от 27.03.2012
-
-AOR - The Colors Of L.A. (2012) [FLAC|Lossless]<Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jenny At Midnight
-02.Benedict Canyons
-03.Kimberly
-04.Under Your Spell
-05.Brittany
-06.Halo Of Light
-07.Just One Kiss On Your Heart
-08.Dreams From Silver Lake
-09.You're My Obssession
-10.Teach Me How To Love You Again(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474195   (97812) от 27.03.2012
-
-Рио Гранде (Большая река) / Rio Grande (1950) DVD9
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький отдаленный форт на Рио Гранде. Сердце крутого подполковник Кирби Йорка немного смягчается: среди пополнения новичков, прибывших в его подчинение, единственный и горячо любимый сын Джефф. Однако, послаблений ему не будет: армейская жизнь полна трудностей и страданий, романтикой здесь и не пахнет.
-
-Но Джефф и сам хочет доказать отцу, на что он способен. Вскоре в форт приезжает Кэтлин Йорк — жена Кирби, с которой он расстался. Дама настроена весьма решительно: она хочет добиться ухода сына из армии и вернуть любовь мужа.Жанр: мелодрама, вестернРежиссер: Джон ФордАктеры: Джон Уэйн, Морин О'Хара, Бен Джонсон, Клод Джармэн-мл., Гарри Кэри-мл., Чилл Уиллс, Дж. Кэррол Нэйш, Виктор МакЛаглен, Грант УизерсПеревод: Перевод 1: Профессиональный (многоголосый закадровый) ООО "Светла"Продолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A6E7FB96A08B66A91071FA6247602FB6F0CC67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473636   (97813) от 27.03.2012
-
-[No / En, Da, Sw, Fi, No Sub] Коряжка в беде / Knerten i knipe (2011) BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам произведения известной норвежской детской писательницы Анне-Катарины Вестли "Коряжка и удивительный ребенок в конверте". В этом трогательном фильме параллельно развиваются две сюжетные линии, главные герои в одной которых-Коряжка, а в другой-найденный ребенок. Мальчик Лилебр (Adrian Smith) друг Коряжки, неожиданно теряет его на рынке при продаже фруктов. При поисках своего друга Коряжки он находит брошенного ребенка. Где Коряжка? Каково происхождение ребенка?Жанр: СемейныйРежиссер: Арилд Эстин ОммандсенАктеры: Адриан Грынневик Смит,  Пернилла Серенсен, Ян Гуннар Рёйсе, Петрус Андреас КристенсенПеревод: ОтсутствуетПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59446CAA2CB4E631DFF3AE33915F0490B7480ABE
 ```
 
 

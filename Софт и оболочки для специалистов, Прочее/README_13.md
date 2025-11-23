@@ -6,7 +6,7 @@ AMP Font Viewer 3.86 + Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244050.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244050.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Altair Activate 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244740.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244740.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Altair Flux & FluxMotor 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244817.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244817.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Altair SimSolid 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244873.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244873.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Altair Compose 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244956.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244956.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Brackets 2.2.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245076.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245076.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PowerShell Studio 2022 v5.8.202 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245271.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245271.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ LEX LIVE 10 RC v.26.0.15 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246235.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246235.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ PilotEdit Lite & Pro 20.4.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247844.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247844.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:BED396A64221429BB660598AAF839B07F72B95ED
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248680.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_248680.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Java SE Development Kit 8.0.341 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249585.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249585.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Wing Helper 1.50 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249660.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249660.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AltSnap 1.66 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250625.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250625.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D4387A1FB4027CD048B8BDCA8AB2169C617D094C
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250647.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250647.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:D4387A1FB4027CD048B8BDCA8AB2169C617D094C
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250677.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250677.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Trimble Tekla Structures 2023 SP3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252229.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252229.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ EarthView 7.13.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252575.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252575.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Microsoft Lync Server 2010 MSDN x64 4.0.7577 [English]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253884.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253884.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Lync™ Server 2010 – это новые возможности подключ�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254459.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254459.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Windows 10 PE (x64) by Ratiborus v.6.2023 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254564.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254564.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ JetBrains WebStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255362.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255362.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ JetBrains Rider 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255363.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Realtime Landscaping Architect 2023 v23.02 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255465.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255465.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Microsoft Visual Studio 2022 Professional 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255902.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255902.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255903.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255903.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Pythagoras CAD + GIS 12.26 [ENG + RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256530.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256530.jpg" />
 </div>
 
 

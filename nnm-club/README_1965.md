@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0B Build 43 Public Beta 4 (x64) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51446.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BE19F6DB8B0CCDE1C606CFD52CE3D2E9F6E7DD66
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51447.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:653D4B1B42FFDB0C95A5CADC6986A0E0B6E42CCA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51448.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ qBittorrent 4.6.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51449.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Udemy, 3D Tudor | Blender Geometry Node Fire Animation (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51450.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ uTorrent Pro 3.6.0 Build 47124 Stable Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51451.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C66590F1E7F16A2C85DD1C02E58D7DB92A499BAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51452.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:946D78402F4A8BB0A805015078B6AFBDE37BEDDC
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51453.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:8138C771D27975D28B4918C841CC9B48698EA4EE
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51454.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ New Yankee 14: Through the History Mirror / Янки 14: Сквозь зерка
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51455.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Undeadly (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51456.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Kaspersky Rescue Disk 2018 18.0.11.3 [01.07.2024] [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51457.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dr.Web LiveDisk 9.0.0 (01.07.2024) [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51458.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Cossacks: Back to War / Казаки: Снова Война (2002) [Ru/En] (1.35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51459.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:B05A91FAC0E14A8369DDD613EFA67E68C0516029
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51460.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows 10 PE x64 by AnkhTech V10 (28.06.2024) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51461.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Microsoft Windows 11 [10.0.22631.3737], Version 23H2 (Updated June 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51462.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:311DFE9BE92534134EF2DAA6F67AE23AE51FABEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51463.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Alaskan Road Truckers (2023) [Ru/Multi] (1.5/dlc) Repack Decepticon [Trucking He
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51464.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ iTop VPN 5.6.0.5262 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51465.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:6B4C06EF1494C5B711E3E95645E6B9086819B936
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51466.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A1271D5A7DAF6F01D61EF920EBE6AAAED9282E86
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51467.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:A822EC845F6D35EAB50D5B84A05154A5C416C6B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51468.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:FBFE82ABDB542A5371D5EA609D8099C3C307DB21
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51469.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FBFE82ABDB542A5371D5EA609D8099C3C307DB21
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51470.jpg" />
 </div>
 
 

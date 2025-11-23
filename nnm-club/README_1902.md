@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49807.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ WinTools.net Premium 24.7.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49808.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ DigiKam 8.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49809.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1D88AC24779EAB1B09B11F3476F8DD277945D06D
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49810.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:ADA63235CA086C189F2D8D2B98110D349F3D73B1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49811.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ EssentialPIM Pro 12.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49812.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Compilation  part 96 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49813.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:4D690876D00748E0841EA0EFC33A7BF734BDCF9A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49814.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:FC402C2263F407644923CFBF3028D58F8FFEA9C7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49815.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Aiseesoft Video Converter Ultimate 10.8.52 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49816.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:9ADF8E5A041D746EF3450BF4600F51B548851ABE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49817.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Opera One 112.0.5197.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49818.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:7B45A35AD53408B8B8359C3765B2B66075AF69B9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49819.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D5772DCE7575E4B3243ACE5D09B14A0468853583
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49820.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:933C8C3A527DA287FB5856131E8E5C366D2A229D
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49821.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:0FEF0CFDA9B3BA9EAE2F530F20B7F2BE2094FF11
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49822.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:2377C5C62876589A8983441601D0014F43C23392
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49823.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Amorphis - Tales From The Thousand Lakes: Live At Tavastia(2021) (2024) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49824.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Adobe InCopy 2024 19.5.0.84 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49825.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:4DB6CE01261E1C1819C92F3B64A48D8CF9EFB938
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49826.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D7B74D475F8983745FEF3B71E4BAE7E574BA5A5A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49827.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Instrumental guitar (2024) [MP3|320 Kbps] <Rock, Instrumental, Flamenco>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49828.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ FastStone Capture 10.6 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49829.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Antichamber (2013) [Ru/En] (build 296940) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49830.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Listen Audiobook Player v5.2.8 build 1003 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49831.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:B88C6C9BBE00E1D3EC8680C3DAF9AFDC98EB5FD5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49832.jpg" />
 </div>
 
 

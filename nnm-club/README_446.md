@@ -6,7 +6,7 @@ Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginne
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11834.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9A48B196619BB1690EE678A036E4D532AEA59565
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11835.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Olive Yong | Kawaii Kitties - Learn How to Draw 75 Cats in All Their Glory (Volu
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11836.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:F6B645DE9DF9D5B4E3F9E4127AD4E3E6695B3810
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11837.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0CE4ECB84A88A69F67E01C2FD2CAD9C8F1E46C08
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11838.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:12EDB52E313E47D486D17E730EB7201029AC043B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11839.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:5E2E0A18FDD1CC99418CBB713C6E4EDBD2F56D42
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11840.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:181A98AE16F31D7338712A935B30A89C8D66C796
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11841.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Union of Gnomes (2024) [Ru/Multi] (1.5.28) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11843.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1185E36E390604E2D4E21095F0079B6945284F18
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11844.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1943C4BD7745C895A817E05F8EB46F3EB16D3E1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11845.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:46C48395B6BD5C4AFE3C2CDAC8C0FAF53B123BF2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11846.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Everdeep Aurora (2025) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11847.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:143935606AC8FAF6D8CD85A62EDDADBFECDA0F28
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11848.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:ECB44A7DEA38348778A0B523FC1BF23C91F518D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11849.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:998E17E0A53CF7AB5078D02F20FE8A4E01E0B6F9
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11850.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:3EE69649893B09C0C848295BA6220E9AF474AE5A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11851.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:81E2C73D18E2A869778D96D7EA502F20F5C98413
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11852.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Adobe Acrobat Pro 2025.001.20566 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11853.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Blacksmith Master (2025) [Ru/Multi] (0.8.147) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11854.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E92800A221450F2D27C202E6E966B610F3BD5873
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11855.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Purvpn 7.9 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11856.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Udemy, Expert Azi, Md Azizul | Level Up Your UI/UX: Interactive Design & Prototy
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11857.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:7E8BE4DEA12648BFEB5B0913DB1F48A83E743673
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11858.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:D7377107AEFA0C88361962377F2D7E8802B2B768
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11859.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:06D52192B7A7164F99F7D5343CC9F0383A489904
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11860.jpg" />
 </div>
 
 

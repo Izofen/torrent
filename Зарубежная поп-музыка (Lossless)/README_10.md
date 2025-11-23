@@ -6,7 +6,7 @@ Climie Fisher - 3 Albums (1988-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Sy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107139.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Billie Piper - Something Deep Inside (2020) Remaster, 2024, Virgin Records[FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107158.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lovejoy - Wake Up & It's Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107216.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Raveena - Where the Butterflies Go in the Rain (2024) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107843.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ GoGo Morrow - Ready Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107845.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107868.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108310.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108647.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109420.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Soft Relaxing Piano Music - Famous Piano Songs 2024: Piano Jazz Relax [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109464.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Dance: Made in Italy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109487.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Xana - The Sex Was Good Until It Wasn't (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109589.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Imagination - The Golden Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109792.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110582.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Stephen Sanchez - Angel Face (2024) Club Deluxe [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110649.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Marina Kaye - Heavenbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110655.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Emel - Mra (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110846.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ MaWhoo - The Sound Of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111746.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Missy Higgins - The Sound of White (2004) 20 Year Anniversary Edition, 2024, Ele
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111889.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112285.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112294.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112590.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112877.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112891.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112897.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, La
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112982.jpg" />
 </div>
 
 

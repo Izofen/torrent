@@ -1,3 +1,153 @@
+###  Публикация: 1520229   (142813) от 27.12.2021
+
+Movavi Video Converter 22.2.0 Premium RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154141D46853DA68255E5DEFC01E6D810AA6A9B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272668   (142814) от 28.12.2018
+
+Michelle Gurevich - Exciting Times (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dark-Romantic, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Way You Write (4:22)
+02 Fatalist Love (4:39)
+03 Something Has Changed (4:10)
+04 Almost Shared a Lifetime (5:07)(   Читать дальше...   )Жанр: Pop, Dark-Romantic, BalladПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA81E85327521AFAC1E147F962E98554B13B7D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435726   (142815) от 29.12.2020
+
+BluePlum Home Inventory 4 v4.4.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142815.jpg" />
+</div>
+
+
+###  Подробнее
+
+BluePlum Home Inventory - наиболее полное приложение для инвентаризации дома, которое поможет вам составлять и поддерживать инвентарь для любой собственности, которой вы владеете. Оно позволяет вам организовать свои вещи в коллекциях, комнатах, местах и ​​/ или присвоить каждому из них один или несколько тегов. ПО позволяет добавлять фотографии, видео, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: Blue Plum SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87A52A901CE0BC1C3740D95EB4FC9593D2FEAC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348571   (142817) от 28.12.2019
+
+USB Safely Remove 6.2.1.1284 RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142817.jpg" />
+</div>
+
+
+###  Подробнее
+
+USB Safely Remove это надежная и удобная замена 'Безопасного Извлечения Устройств'. Гарантирует сохранность Ваших данных при остановке устройства и позволяет сделать процесс остановки максимально удобным и настраиваемым. Меню остановки теперь будет отображать только те устройства,которые вам действительно нужны. Имя любого устройства можно легко изменить - сделать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5B9C00F436BC834F65C3E0162FFBBA86B19A57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970217   (142818) от 29.12.2015
+
+Анна Шарлай | Стильное путешествие налегке (2015) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая книга для тех, кто хочет стильно и комфортно чувствовать себя в любом путешествии.
+Анна Шарлай не только профессионально занимается персональным стилем и созданием образов. Она много путешествует и в своей книге делится богатым опытом и наблюдениями, которые помогут вам путешествовать налегке, стильно и с удовольствием.
+
+Эта яркая книга с большим количеством (   Читать дальше...   )Жанр: Путешествия, туризмФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B76EA68C7A2CDA2D0B526457FD9594177D1A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435992   (142819) от 29.12.2020
+
+Room Arranger 9 v9.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Jan AdamecПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E955B65EBDA20D1A7462F45E096385780A73B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519811   (142820) от 27.12.2021
 
 Море Спокойствия / Goyoui bada / The Silent Sea (2021) WEBRip (сезон 1, серии 1-8 из 8) HDRezka
@@ -6,7 +156,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142820.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523.2310241203) Repack 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142821.jpg" />
 </div>
 
 
@@ -54,7 +204,7 @@ BurnAware Professional 11.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142822.jpg" />
 </div>
 
 
@@ -78,7 +228,7 @@ magnet:?xt=urn:btih:6BC55E2FAEFA55CBEA066978795FA920C865311C
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142823.jpg" />
 </div>
 
 
@@ -102,7 +252,7 @@ magnet:?xt=urn:btih:17773375B19345F784870727CA70AC9A522EB4A2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142825.jpg" />
 </div>
 
 
@@ -126,7 +276,7 @@ magnet:?xt=urn:btih:B752464A4EBDC88DF007E0109308DDE2E2A72026
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142827.jpg" />
 </div>
 
 
@@ -150,7 +300,7 @@ VA - Pop Rock Chart Music (2018) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142828.jpg" />
 </div>
 
 
@@ -177,7 +327,7 @@ magnet:?xt=urn:btih:15096C954963AEC46AA90AAB43E964D36624477A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142829.jpg" />
 </div>
 
 
@@ -201,7 +351,7 @@ magnet:?xt=urn:btih:8F499E18BA21E0E10D6B1872014F60A442E242F6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142831.jpg" />
 </div>
 
 
@@ -225,7 +375,7 @@ Twinkstar 4.10.1000.1812 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142832.jpg" />
 </div>
 
 
@@ -249,7 +399,7 @@ magnet:?xt=urn:btih:34E8E9C8A2B1E29CE2A66E14DDBCDCF3BAFBEE93
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142834.jpg" />
 </div>
 
 
@@ -273,7 +423,7 @@ Reflect Studio 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142835.jpg" />
 </div>
 
 
@@ -299,7 +449,7 @@ Stormzy - Gang Signs & Prayer (2017) [FLAC|Lossless|tracks + .cue] <Grime>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142836.jpg" />
 </div>
 
 
@@ -326,7 +476,7 @@ magnet:?xt=urn:btih:7EB73A97158668F7C968013D93F328F70A82404E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142837.jpg" />
 </div>
 
 
@@ -350,7 +500,7 @@ Microsoft Windows 10.0.19045.3693, Version 22H2 (Updated November 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142838.jpg" />
 </div>
 
 
@@ -377,7 +527,7 @@ Soilwork - Verkligheten (2019) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142840.jpg" />
 </div>
 
 
@@ -404,7 +554,7 @@ magnet:?xt=urn:btih:C58A2D573AC168B75889EE0A44E451414AE61C64
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142842.jpg" />
 </div>
 
 
@@ -428,7 +578,7 @@ magnet:?xt=urn:btih:A9C83B42EEBEC1A16CCAAA8F8CD1B306341DED23
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142843.jpg" />
 </div>
 
 
@@ -452,7 +602,7 @@ magnet:?xt=urn:btih:8711FB2904FA49E70A48DF6102F3CAAA09BBC89D
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142844.jpg" />
 </div>
 
 
@@ -476,7 +626,7 @@ magnet:?xt=urn:btih:7E70C5E7C05F50C95E67D05A2989D489CBC72754
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142845.jpg" />
 </div>
 
 
@@ -488,153 +638,6 @@ magnet:?xt=urn:btih:7E70C5E7C05F50C95E67D05A2989D489CBC72754
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:235F4BDB784141214607DDD4CD4FC695770B0261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598173   (142846) от 22.11.2023
-
-Массовая Радиобиблиотека [Выпуски 1 - 1293] (1947 - 2020) [DJVU]
-
->>След.
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия научно-популярных изданий МРБ. Большая коллекция книг и брошюр по радиоэлектроники. Выпускалась издательствами: с 1947 - «Госэнергоиздат» (с 1964 г. - «Энергия»); с 1982 - «Радио и связь». За 70 лет был собран огромный опыт построения электрических схем разного направления, начиная от ламповых усилителей низкой частоты и заканчивая программируемыми микроконтроллерами. (   Читать дальше...   )Жанр: РадиоэлектроникаИздательство: Госэнергоиздат / Энергия / Радио и связь / Горячая линия - ТелекомФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB40BF7D5B339D86546795C3EC3EAA85A7D0C24C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272629   (142848) от 28.12.2018
-
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа A. Россия — Дания (27.12.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142848.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 декабря 2018, пятница. 00:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа A.
-Россия — Дания(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8114A41DA549480B781CB940E3E00BF8E3DE8F2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036838   (142851) от 28.12.2020
-
-MInstAll by Andreyonohov & Leha342 Lite v.27.12.2020 [Ru]
-
->>3
->>24
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами лайт-версия от 27 декабря 2020 года полюбившегося многим пользователям сборника последних версий самых часто используемых в работе программ от Андрея Онохова. Образ подогнан под размер DVD-диска 4.7 Gb. Процесс установки и регистрации программ и компонентов происходит без участия пользователя после выбора необходимого софта. Состав программ и об изменениях (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFDE6EC7785B5B102681D090444E9626B6C5B9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272584   (142852) от 28.12.2018
-
-Q-Dir 7.35 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Q-Dir - бесплатный, отличный файловый менеджер с четырехпанельным интерфейсом и большими возможностями для работы с файлами. Легкий и быстрый, с удивительной Quadro-View технологией, программа имеет оригинальный четырёхпанельный интерфейс, благодаря чему выполнять операции с файлами намного быстрее в сравнении с другими менеджерами.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DCB4DE8C266682B9D27F12AB84D88A7C74C5A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677710   (142853) от 22.11.2023
-
-Дурные деньги / Dumb Money (2023) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что миром правят деньги. А деньгами распоряжается Уолл-Стрит. И если на самом верху решили, что небольшая сеть магазинов видеоигр должна обанкротиться, то под это можно брать кредит в банке. Но однажды обычные люди сказали «нет» и дали бой мировым биржам. Геймеры, тик-токеры, домохозяйки и мелкие инвесторы принялись скупать акции и «сломали» Уолл-Стрит, (   Читать дальше...   )Производство: США, Columbia Pictures, Black Bear Pictures, Stage 6 Films, Sony Pictures Entertainment (SPE)Жанр: биография, комедия, драмаРежиссер: Крэйг ГиллеспиАктеры: Сет Роген, Пол Дано, Себастиан Стэн, Пит Дэвидсон, Шейлин Вудли, Ник Офферман, Винсент Д’Онофрио, Клэнси Браун, Дэйн ДеХаан, Америка ФеррераПеревод: Многоголосый профессиональный (TVShows), авторский (Михаил Яроцкий)Язык озвучки: русский, английскийСубтитры: русские (forced), английскиеПродолжительность: 01:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFAE5A59CF5F4542B68FD07C98F867348B4C4192
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088040   (142854) от 29.12.2016
-
-Рождество с неудачниками / Christmas with the Kranks (2004) WEB-DLRip [H.264][MP4|1024x424]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лютера и его жену Нору просто достало Рождество. Вся эта суета, эти елки, подарки и хлопушки. В этот год они твердо решают «забить» на него и смотаться в круиз по Карибам, позабыв про идиотские колядки под окнами и трескучие фейерверки соседей. Но не тут-то было! Попытка убежать от Рождества вызывает такие последствия, какие им даже не снились…Производство: США / Revolution Studios, 1492 Pictures, Skipping ChristmasЖанр: КомедияРежиссер: Джо РотАктеры: Тим Аллен, Джэми Ли Кертис, Дэн Эйкройд, М. Эммет Уолш, Элизабет Франц, Эрик Пер Салливан, Чич Марин, Джейк Бьюзи, Остин Пендлтон, Том ПостонПеревод: Дублированный - (R5), Двуголосый закадровый - (Tycoon)Язык субтитров: Русский, АнглийскийПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9448B9B2C1B8C69864538C975A7775F530343D
 ```
 
 

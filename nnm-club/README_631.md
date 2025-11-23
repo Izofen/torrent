@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16719.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16719.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F0CE6371CDED7D9CC52A3D34EA1AE7BEB11C73C3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16720.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16721.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16721.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:F39B4A6ED79763CE398388FF508A571147FAA1A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16722.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16722.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Pioneer LaserActive - The Art Of Entertainment - Private Music Sampler (199
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16723.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:0CEB543B0FAC28C5B08DEEBE99108E2F24BBF8E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16724.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Hard Disk Sentinel PRO 6.30.1 Build 13402 Beta [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16725.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:F988E27C4D1666D66B96DE99E7E86EAD2A3E3D47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16726.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:ED2F2238759986B6690267E2563594526C5AA035
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16727.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Minecraft в кино / A Minecraft Movie (2025) UHD WEB-DLRip [AV1/2160p] [4K, 
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16728.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:17B39E2554FD84A6CD95895999DC44795899B601
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16729.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:1A14A6AF2101EAA7BE066D0BAFAD0A5BA0F3E97C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16730.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:16CCFD3B17A51935D2FFA714DFA5CA81EC453959
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16731.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:D459B3A12C7F6FC4FFE6A807D4BD34148A9D98FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16732.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:789CBBACFE7ECD73D092374A8720243F35A4A3D3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16733.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Firefox Browser 139.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16734.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:545DAEEAF59D13B424539294BC100A8CEC19B56E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16735.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:4C324FF0B765241346407678ADA9D7C35E4793C2
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16736.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:ADD0E084FEFA0C084F2541FAEFEADE5A025FF7F1
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16737.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:A8B841A8D1C4AAB755B7C983C8C306CA4BDC2658
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16738.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:0AF6BFF82EC3E14E934A4C50AF400B17B8B3CF6C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16739.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:1199242463E0F3BA195A0CE7C4DF96984A1628D2
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16740.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:FBBBE96E3F61BD58453CCC0BBBBE3EAD3202C96E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16741.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16742.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:DC3A6885DBD21392B1EE4ADD228AA33247C73F19
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16743.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Top 10 May 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16744.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16744.jpg" />
 </div>
 
 

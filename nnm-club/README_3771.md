@@ -1,3 +1,77 @@
+###  Публикация: 1691358   (117728) от 14.02.2024
+
+Откройте, полиция! / Les Ripoux & Ripoux contre ripoux & Ripoux 3 (1984/1989/2003) BDRip [H.264/1080p] [Handmade] [Трилогия]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Циничная комедия о коррупции, грязи и настоящей дружбе. «Откройте, полиция» оказался довольно веселый, грустный и сильный фильм. Веселый, потому что он про дружбу. Грустный, потому что он про дружбу людей, купающихся в грязи из-за принятия аморальных ценностей. И сильный, потому что эта «грязная» дружба прошла серьезные испытания и не распалась.Производство: Франция / Films 7, GaumontЖанр: комедия, криминалРежиссер: Клод ЗидиАктеры: Филипп Нуаре, Тьерри Лермитт, Режин, Грейс Де Капитани, Клод Броссе, Ги Маршан, Жан-Пьер Кастальди, Лин Рено, Мишель Омон, Лоран Дойч, Хлоя Флипо, Жан-Люк БидоПеревод: Дублированный (R5), многоголосый профессиональный (CP Digital, ОРТ)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:46:38 / 01:45:58 / 01:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F2476202501CD2D1D0B10C77F83B9C92E78E1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699724   (117729) от 14.02.2024
+
+Хоккей. НХЛ 2023-2024. Колорадо Эвеланш - Вашингтон Кэпиталз (13.02.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117729.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 февраля 2024, среда. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 17 878 зрителей (96% при вместимости 18 573)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Томми Хьюз (Лондон, Канада); Линейный: Марк Шевчук (Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01314592111E60A51CE2747F7C8B2907A11AD185
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285739   (117730) от 14.02.2024
+
+Гюстав Флобер | Воспитание чувств [2012) [MP3, Светлана Репина]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гюстав Флобер (1821–1880) – французский романист, глава реалистической школы во Франции.
+Роман Гюстав Флобера «Воспитание чувств» (1869) насыщен социальными проблемами. В частности в романе описываются европейские события 1848 года (2 февраля с французского престола свергнут последний король из рода Бурбонов Луи-Филипп и 22 февраля – начало революции во Франции). (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 17:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748F6E4ABC72D16D9599106BD37CD7F2DA8B268F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699761   (117731) от 14.02.2024
 
 Europa Universalis IV (4) (2013) [Multi] (1.36.2/dlc) Scene Rune
@@ -6,7 +80,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.36.2/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117731.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:82371F00E93C908591A0E1A750C04F3DCE0F6D4B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117732.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:8D7A44A0D01AF6BD597580EA2599DE837282AE9E
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117733.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:6734C9D4CDCA69DAD0EFD5669D29511B06853C65
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117734.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ magnet:?xt=urn:btih:629DF2DBA505C7D4F46C2FEB6A4ACCDED3990769
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117735.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ magnet:?xt=urn:btih:117A74A4BA7A0651F8E7A599A255F09F19854300
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117736.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ magnet:?xt=urn:btih:10EA6B11AF39D64BEFB813DF58C8EAFDA4EDC09A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117737.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ Master PDF Editor 5.9.82 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117738.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ magnet:?xt=urn:btih:95602C3637AB3AB77609B6618483E16CEF6BC5F8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117739.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ WinNTSetup 5.3.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117740.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ magnet:?xt=urn:btih:151C7CD5B80E853C0CEDF2934D29CD0A57967644
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117741.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ magnet:?xt=urn:btih:19BFF423E2EAC6392556CB55DBAC18DF28BB550F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117742.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ Total Commander 11.03 RC6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117743.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ magnet:?xt=urn:btih:4AB6ED8F89E8AF997B8E6D8C9EF2CF576419CD1D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117744.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ magnet:?xt=urn:btih:2EEB29E295EFE067FC4DB4F0D032D7BBB3A1546D
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117745.jpg" />
 </div>
 
 
@@ -370,7 +444,7 @@ magnet:?xt=urn:btih:5A30E90CF93DDC70370F377F82A31DDA3732CAE6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117746.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ magnet:?xt=urn:btih:F6F664A2418BE3AA443DABAF21B679988222A090
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117747.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ SIFU (2022) [Ru/Multi] (1.26.6.660/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117748.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117749.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ magnet:?xt=urn:btih:5C89D62DF07B91D423C4DDF9FD108482F567D2D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117750.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ magnet:?xt=urn:btih:9F3AB89C58227B769ED7DDE68DACBED589A392E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117751.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ magnet:?xt=urn:btih:7729E1F30E04260FECB6DE2FE8A0240F057A727F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117752.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ magnet:?xt=urn:btih:B367D5675CA1182C08D8D6D5CA00D7FBFAEB3878
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117753.jpg" />
 </div>
 
 
@@ -552,81 +626,6 @@ magnet:?xt=urn:btih:B367D5675CA1182C08D8D6D5CA00D7FBFAEB3878
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84D5BAC0391F82A97C7E54C7B126F24256BC0664
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698172   (117754) от 14.02.2024
-
-В России начали выпускать новые дизельные моторы: 6 цилиндров, 360 л.с. и ресурс 1 млн километров
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_117754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ярославский моторный завод «Автодизель» начал серийное производство средних рядных двигателей ЯМЗ-537. В сравнении с моторами серии ЯМЗ-536 за счет роста рабочего объема с 6,65 л до 7,7 л их максимальная мощность увеличилась с 330 до 360 л.с., максимальный крутящий момент – до 1500 Нм, а удельный расход топлива остался прежним, сообщили  в пресс-службе ЯМЗ.Первые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699631   (117755) от 14.02.2024
-
-Плохие парни / Bad Hombres (2023) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отчаянно пытаясь прокормить семью, нелегальные иммигранты Феликс и Альфонсо нанимаются на работу к Донни. Но их новый работодатель оказался настоящим психопатом, и теперь остаться в живых становится самой сложной работой в их жизни.Производство: США / BondIt, Broken Open Pictures, Buffalo 8 ProductionsЖанр: Триллер, криминалРежиссер: Джон СталбергАктеры: Диего Тиноко, Хемки Мадера, Томас Джейн, Люк Хемсворт, Тайриз Гибсон, Пол Йоханссон, Ксавьер Эстрада, Ник Кассаветис, Джефф Арарат, Джулия ХартманПеревод: Дублированный (OKKO)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED5B4E0036A38BC0979C9CE49A44D30D45B3EFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699638   (117756) от 14.02.2024
-
-Windows 11 x64 Rus by OneSmiLe [22631.3155]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Удалены все модерн приложения.
-Поиск работает
-Вырезана телеметрия(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A71044D01E60F04A362E61CA86002AFB65326DC
 ```
 
 

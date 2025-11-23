@@ -6,7 +6,7 @@ Microsoft .NET 8.0.3 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63077.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Microsoft  Visual C++ Runtimes AIO v0.79.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63079.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Adobe Acrobat Reader 2024.001.20604.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63088.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Reg Organizer 9.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63090.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ CCleaner 6.22.10977 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63103.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Adobe Acrobat Pro 24.1.20604 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63110.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.40.33617.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63113.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Reg Organizer 9.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63117.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Reg Organizer 9.41 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63120.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4170 (Updated March 2024) by FaTaL [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63154.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ CCleaner 6.22.10977 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63156.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63160.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Draw.io 24.0.4+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63164.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ PdfFactory Std & Pro 8.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63167.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ K-Lite Codec Pack Update 18.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63172.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ pdfFactory Pro 8.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63174.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.7 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63185.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ WinScan2PDF 8.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63186.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ FinePrint 11.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63187.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:28CC637527375409468739ABA9531392A2B5F9C9
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63188.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.7 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63189.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ FinePrint 11.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63195.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ WinSCP 6.3.2 Build 14890 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63196.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6800 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63217.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Icecream Screen Recorder Pro 7.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63219.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Qalculate! 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63220.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100517.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:320B1990F70671CA5DCF579EEA343684F3059A1D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100521.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:7B9BB69DAF355A2EEE965DFF80C05077AA4422B9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100522.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:7D225BB01351FA6212CE9C013A1854A4345C1040
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100524.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Filmora - Редактор видео с AI v14.3.61 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100568.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Photo Studio PRO v2.7.12.3613 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100601.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Magic Eraser / Магический ластик v2.16.4 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100616.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ STEEZY Studio - Learn To Dance v5.3.0 Mod by youarefinished [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100621.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Text Editor Pro 31.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100629.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:67EB915660EE24237920E42456F86410DCEEC920
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100632.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Photo Lab PRO v3.13.44 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100634.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Photo Studio PRO v2.7.12.3613 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100652.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ QOwnNotes 24.12.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100670.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:A60F1DD1F9ED563AAAE76D8B93C2D538538E7371
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101079.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:D7851C08C0E4A33258F7FF90551CAF35825AB622
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101080.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:C7B8CDAF757D64D9D780BC35222E0FFB1557E7AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101081.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:82C7903107303AD989A3B995B195E6AB2C388B1E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101084.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:93F1640D866615578120B1AE781B19C242CDD765
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101086.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:6EC09DFAE16B5CAAD6EF9A32A768D1517F6327FA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101087.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101087.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:6EC09DFAE16B5CAAD6EF9A32A768D1517F6327FA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101088.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101088.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:6EC09DFAE16B5CAAD6EF9A32A768D1517F6327FA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101089.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:D12D19D2C6DB6069734ACEC065C0977033903964
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101090.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:B9126C6F50F4F0F1F6EC702919AE38772ECCA18E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101091.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:9376B0B7D9A5EA7CCE86B6A58E6740EB042E13BE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101092.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101092.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:9376B0B7D9A5EA7CCE86B6A58E6740EB042E13BE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101093.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:961C9CCB3CA3DBDF0F15F575536D180DB7BBA3E9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101096.jpg" />
 </div>
 
 

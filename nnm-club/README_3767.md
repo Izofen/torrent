@@ -1,3 +1,79 @@
+###  Публикация: 1699627   (117624) от 14.02.2024
+
+VA - The Atlantic New Orleans Jazz Sessions (1955 - 1962) 4CD, 1998, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Punch Miller's Bunch - Hindustan (4:00)
+02. Punch Miller's Bunch - Casey Jones (3:07)
+03. Punch Miller's Bunch - Sugar Blues (4:03)
+04. Punch Miller's Bunch - Corrine Corrina (3:57)(   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 04:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23827259E34B53D75BBD8D3854C463C2E81B643
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823119   (117625) от 10.10.2025
+
+Взлом кодов / Cracking the Code (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117625.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Взлом кодов» — это документальный сериал, посвящённый одной из самых увлекательных и одновременно незаметных битв в истории человечества: битве умов. От древних тайн исчезнувших цивилизаций до современных технологий преступного мира — этот сериал погружает зрителей в захватывающие истории людей, которые смогли разгадать то, что казалось неразрешимым.
+Каждый эпизод (   Читать дальше...   )Производство: США | «Blink Films»Жанр: ДокументальныйУчастники: Деметри Горицас, Саша Ауэрбах, Onyeka Nubia, Clare Mulley, Пол Гэннон, Klaus SchmehПеревод: ОдноголосыйЯзык озвучки: РусскийСубтитры: Русские (отдельно)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7D59371A54996E601B406452B0CEA64EEBFE95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823059   (117626) от 10.10.2025
+
+Мушкетеры 20 лет спустя (1992) DVDRip [H.264] (серии 1-4 из 4) [Hand made]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117626.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа А. Дюма "Двадцать лет спустя". Продолжение удивительных приключений смелых мушкетеров. С момента описываемых в предыдущей части событий прошло 20 лет. Время много изменило в жизни наших героев: Атос получил наследство, поселился в замке Бражелон и вырастил сына, Портос разбогател благодаря выгодной женитьбе на стареющей прокурорше, Арамис (   Читать дальше...   )Производство: Россия, Студия Москва, Союзтелефильм, Одесская киностудияЖанр: приключения, экранизацияРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Михаил Боярский, Вениамин Смехов, Валентин Смирнитский, Игорь Старыгин, Виктор Авилов, Ольга Кабо, Анатолий Равикович, Алиса Фрейндлих, Юрий Дубровин, Екатерина Стриженова и др.Субтитры: отсутствуютПродолжительность: 01:02:17 + 01:12:16 + 01:14:08 + 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1994F225E68A8EBDA47CC17D1E80CEEF4A8D4CAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699722   (117627) от 14.02.2024
 
 Positive Music Universe, Most Relaxing Music Academy - Relaxing Sunday Brunch: Smooth Jazz Tunes for a Tranquil Morning (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +82,7 @@ Positive Music Universe, Most Relaxing Music Academy - Relaxing Sunday Brunch: S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117627.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:B57782AB40A782D5F2C98C52476F920A171A0772
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117628.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ LASCALA - Play-Off (2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117629.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ magnet:?xt=urn:btih:10C67DA370AB868AD50B76B1402314B924FD75E0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117630.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:90D3EF1776DE2F4483CF37E465A688B804BA9FEC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117631.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ magnet:?xt=urn:btih:A09C984D2C2EB836AFF98B0E50F19AC51A39ED71
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117632.jpg" />
 </div>
 
 
@@ -159,7 +235,7 @@ magnet:?xt=urn:btih:1C3BC645B8502C1F339A4035A4BF001DEA8B70C3
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117633.jpg" />
 </div>
 
 
@@ -186,7 +262,7 @@ TattooIN - Звёзды и руны (2025) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117634.jpg" />
 </div>
 
 
@@ -213,7 +289,7 @@ magnet:?xt=urn:btih:70AC9032B54007FB706E9115A5075B3253C0B8D0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117635.jpg" />
 </div>
 
 
@@ -240,7 +316,7 @@ magnet:?xt=urn:btih:DE457D8DC87E1699CFEFBFBDAE35B000E4037690
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117636.jpg" />
 </div>
 
 
@@ -264,7 +340,7 @@ magnet:?xt=urn:btih:69EA65803CB8AA9146188CD68E695772A7592914
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117637.jpg" />
 </div>
 
 
@@ -291,7 +367,7 @@ Innellea - The Belonging (2024) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Progressi
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117638.jpg" />
 </div>
 
 
@@ -318,7 +394,7 @@ magnet:?xt=urn:btih:7E6C0539302A4A7AC32E33456D055A5F8598325C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117639.jpg" />
 </div>
 
 
@@ -342,7 +418,7 @@ magnet:?xt=urn:btih:871CDD5136169D1EAF9E7DF6762E63FFBD96E978
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117640.jpg" />
 </div>
 
 
@@ -366,7 +442,7 @@ Topaz Video AI for Mac 4.1.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117641.jpg" />
 </div>
 
 
@@ -390,7 +466,7 @@ Native Instruments Komplete Kontrol 3.1.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117642.jpg" />
 </div>
 
 
@@ -414,7 +490,7 @@ Alanna Lyes - Compilation (2024) [MP3|320 Kbps] <Electro Swing/Nu Jazz | Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117643.jpg" />
 </div>
 
 
@@ -441,7 +517,7 @@ magnet:?xt=urn:btih:608D4B9034061DC21D7E9CA88EA868A59F4815FE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117644.jpg" />
 </div>
 
 
@@ -465,7 +541,7 @@ Icecream Slideshow Maker PRO 5.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117645.jpg" />
 </div>
 
 
@@ -489,7 +565,7 @@ VA - Johnny Hits Vol. 1 '98 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117646.jpg" />
 </div>
 
 
@@ -516,7 +592,7 @@ LibreOffice 25.8.2.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117647.jpg" />
 </div>
 
 
@@ -540,7 +616,7 @@ Jazz Sax Lounge Collection, Magical Memories Jazz Academy - Best Sexy Saxophone 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117648.jpg" />
 </div>
 
 
@@ -567,7 +643,7 @@ VCap Downloader 0.1.37.6739 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117649.jpg" />
 </div>
 
 
@@ -578,81 +654,6 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8772847442CAEE08ADE3D17A845735B4D86E5BA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699779   (117650) от 14.02.2024
-
-Skype 8.112.0.210 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58FEE56E41F89647DDCB1C153CE7A4E829DC075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823094   (117651) от 10.10.2025
-
-Hard Disk Sentinel PRO 6.30.4 Build 13402 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51BF2B34E82859BE9D8400A7C795EDC914B77CC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699798   (117652) от 14.02.2024
-
-Richard Marx - Ballads (1994) [OGG Vorbis|480 Kbps] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Now And Forever
-02.  Keep Coming Back
-03.  Hold On To The Nights
-04.  Silent Scream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB88E3DC1849F343AC3097CEDD2768C2D855F71
 ```
 
 

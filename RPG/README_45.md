@@ -1,3 +1,51 @@
+###  Публикация: 1657519   (192472) от 03.09.2023
+
+Starfield (2023) [Multi] (1.7.23.0/dlc) Repack DjDI [Premium Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starfield - первая более чем за 25 лет новая игровая вселенная от Bethesda Game Studios, авторов The Elder Scrolls V: Skyrim и Fallout 4. В этой космической ролевой игре вы сможете создать любого персонажа и исследовать вселенную так, как вам этого хочется. Раскройте величайшую тайну человечества. В 2330 году люди осваивают планеты за пределами Солнечной системы. (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Action, RPGЯзык озвучки: Английский, Немецкий, Испанский, Японский и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B551DA421222C619383A66F3A2755C4E6D8F14C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828021   (193742) от 23.10.2025
+
+Shining Resonance Refrain (2018) [Multi] (1.00.1618) Repack Necros
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shining Resonance Refrain - это ролевая игра в жанре экшен, которая является улучшенной версией игры Shining Resonance, изначально выпущенной на PlayStation 3 в Японии. Действие разворачивается в мире, где жизнь человека управляется судьбой, а сюжет вращается вокруг борьбы героя Юмы Илверн и его друзей, помешайте Империи использовать силу древних драконов. Заручитесь (   Читать дальше...   )Тип издания: RepackРазработчик: Media.Vision, Sega, O-TWO inc.Жанр: Приключенческая игра, ролевая играЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Корейский, Китайский (Упрощенный)Язык интерфейса: Английский, Японский, Корейский, Китайский (Упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E3EEAEF4CC57AF987B68DECAB7543D8709A2A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655317   (193777) от 25.08.2023
 
 Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
@@ -6,7 +54,7 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193777.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193777.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:538D95182BC09476A82AA57DFF9CC7AE36279387
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194244.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194244.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.009/dlc) License GOG [Hero Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194315.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194315.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194346.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194346.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194450.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194450.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Mato Anomalies (2023) [Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194512.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194512.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.10/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194599.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194599.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194658.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Adore (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194662.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194662.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194707.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194707.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194894.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194894.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195091.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ REMEDIUM: Sentinels (2023) [Ru/Multi] (11729250) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195307.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195307.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195345.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195345.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ The Rule of Land: Pioneers (2023) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195395.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195395.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ Atelier Marie Remake: The Alchemist of Salburg (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195658.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Ravenbound (2023) [Ru/Multi] (1.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196015.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196015.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196018.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196018.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (2.01) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196203.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ A Long Journey to an Uncertain End (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196294.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196294.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Spriters, Hopes Blooming Dawn (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196691.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196691.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Tales of Vogar - Lost Descendants (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196768.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196768.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196807.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196807.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Mask of the Rose (2023) [En] (1.2.664) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196935.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196935.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Mask of the Rose - это увлекательная визуальная нов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59200F4FE0C287E614CC4CA7C56EB61F45D7B4A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638479   (197258) от 09.06.2023
-
-Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197258.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой оригинальной ролевой игре о взрослении вы окунетесь в жизнь Нини - подростка, который только что прибыл на Землю, в причудливый японский городок Асихара. На дворе август 1983 года. Исследуйте городок, подружитесь с жителями и бейтесь с кегаями в пошаговых сражениях. Их исход зависит от отношений, которые вы построите, и решений, которые вы примете. У Нини (   Читать дальше...   )Тип издания: SceneРазработчик: Marvelous Inc.Жанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883BFB08D4D915AD37C7E2F3B74BCE259450D6B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638138   (197334) от 07.06.2023
-
-Bastard Bonds (2016) [En] (1.2.9) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bastard Bonds - это тактическая ролевая игра с первоклассной пиксельной графикой и возможностью детальной кастомизации игрового персонажа за счет чего перед игроками открывается необычайно огромный простор для экспериментов. Остров Лукатт стал местом обитания отпетых злодеев, ведь именно здесь отбывают свои наказания наемники, убийцы и прочие преступники, и именно (   Читать дальше...   )Тип издания: LicenseРазработчик: BigfingersЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD1C47E1CB4ABD7DFAF3AE5F323FF0913739783
 ```
 
 

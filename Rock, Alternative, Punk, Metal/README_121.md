@@ -6,7 +6,7 @@ Cloven Hoof - Heathen Cross (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106997.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Orden Ogan - The Order Of Fear (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107045.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107051.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Axty - Hannya (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107055.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107056.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kryptos - Decimator (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107058.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Indepen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107111.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Algorithmic Melody - Love & War (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alt Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107184.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pallas - Arrive Alive (1981) Remaster, 2024, Esoteric [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107192.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Various Artists - Fußball - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107201.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Strolling - Rock & Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107211.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Father's Day 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107212.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Muna - Live at The Greek Theatre in Los Angeles (2024) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107283.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Slam 420 - Bloated Exploded OG Gluttony (2020) [FLAC|Lossless|image + .cue] <Sla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107290.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Pryne - Gargantuan (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107291.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Matador - Сквозь тень времен (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107296.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107301.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Pryne - Gargantuan (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107306.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Anims - Good 'n' Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107315.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C76EFCCB317D114153AEEF27FCA77331D785A06B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107328.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ para bellvm - Это я (2024) [MP3|320 Kbps] <Gothic Rock, Dark Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107329.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Night Pleasure Hotel - Portraits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107333.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:4D81FAE1548BE0B5389FA2EFEC4EE075B89DABF4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107344.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ White Stones - Memoria Viva (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107377.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Anvil - One And Only (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107383.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Peter Hammill - Been Alone So Long (2024) The Naked Songs - Tour, Bremen 1985 [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107390.jpg" />
 </div>
 
 

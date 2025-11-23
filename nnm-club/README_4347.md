@@ -1,3 +1,85 @@
+###  Публикация: 594256   (133916) от 25.12.2012
+
+Tweetbot 1.0.1 [EN]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tweetbot является полнофункциональным Twitter-клиентом для OS X с большим количеством особенностей. Это тщательно продуманной интерфейс, звуки и многое другое.
+
+Преимущества:
+Поддержка нескольких учётных записей и быстрое переключение между ними
+Несколько окон и колонок
+Поддержка "Центра уведомлений"
+Поддержка Retina-дисплеев
+Mute-фильтр позволяет блокировать сообщения от пользователей не отменяя их чтения. Вы также можете отключить хэштеги и конкретные ключевые слова.
+Поддержка таких сервисов, как Pocket, Instapaper, Readability, CloudApp и Droplr.
+Cохранение черновиков, добавление местоположений, прикрепление фото/видео, управление списками, и многое другое.Название программы: TweetbotЯзык интерфейса: EN
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680757   (133917) от 30.11.2023
+
+Борис Шергин | Избранное (2011) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Викторович Шергин (1896–1973) – автор поморских былей и сказаний, замечательный мастер слова, известность которого растет с каждым новым изданием его произведений.
+В книгу Бориса Шергина, знатока быта и поэтического творчества поморов, включены произведения, рисующие образы талантливых умельцев Русского Севера – моряков, кораблестроителей, народных художников. (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: Нигде не купишьПродолжительность: 15:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A655BB1C5A8874A75071D2FA3EF60B982ABD2117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680652   (133919) от 30.11.2023
+
+CryptoEdit 2 v.2.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133919.jpg" />
+</div>
+
+
+###  Подробнее
+
+CryptoEdit - это абсолютно простое, мощное и безопасное приложение для создания и редактирования документов, которые по умолчанию зашифрованы. Идеальное решение для управления зарезервированными личными документами. Он может обрабатывать файлы TEXT, RTF и RTFD (RTF с изображениями).Тип издания: macOS SoftwareРелиз состоялся: 10.02.2022Разработчик: © 2023 Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA02E5116C6BDDE47B708771E516099750A9B0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594159   (133922) от 25.12.2012
 
 Олег Шелонин, Виктор Баженов | Академия Колдовства [2012] [MP3]
@@ -6,7 +88,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133922.jpg" />
 </div>
 
 
@@ -39,7 +121,7 @@ Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133923.jpg" />
 </div>
 
 
@@ -72,7 +154,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133926.jpg" />
 </div>
 
 
@@ -99,7 +181,7 @@ Catharsis - 15 Лет Полёта.. (2012) DVD-9
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133927.jpg" />
 </div>
 
 
@@ -127,7 +209,7 @@ Catharsis - 15 Лет Полёта.. (2012) DVD-9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133928.jpg" />
 </div>
 
 
@@ -151,7 +233,7 @@ magnet:?xt=urn:btih:F5FA43781052422643167DD9584302817B064590
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133929.jpg" />
 </div>
 
 
@@ -176,7 +258,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133930.jpg" />
 </div>
 
 
@@ -203,7 +285,7 @@ Automize13 Enterprise for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133931.jpg" />
 </div>
 
 
@@ -227,7 +309,7 @@ Manjaro Linux 0.8.3 [x86-64] (Arch с несколькими рабочими с
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133933.jpg" />
 </div>
 
 
@@ -253,7 +335,7 @@ Manjaro Linux 0.8.3 [x86-64] (Arch с несколькими рабочими с
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133934.jpg" />
 </div>
 
 
@@ -277,7 +359,7 @@ magnet:?xt=urn:btih:8678BFCFDEF45654403F18D4E0A6128A8DEC7FE5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133935.jpg" />
 </div>
 
 
@@ -301,7 +383,7 @@ Dr. John - In The Right Place (1973) [FLAC 24/192|Lossless|WEB-DL|tracks] <New O
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133936.jpg" />
 </div>
 
 
@@ -328,7 +410,7 @@ magnet:?xt=urn:btih:273AF63CBE0B01AAC5D492CB050903767CB4D158
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133937.jpg" />
 </div>
 
 
@@ -352,7 +434,7 @@ Sacrifire - The Art of Decay (2023) [MP3|320 Kbps] <Gothic, Melodic, Doom Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133938.jpg" />
 </div>
 
 
@@ -379,7 +461,7 @@ Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133939.jpg" />
 </div>
 
 
@@ -406,7 +488,7 @@ magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133940.jpg" />
 </div>
 
 
@@ -430,7 +512,7 @@ magnet:?xt=urn:btih:417D327C2C9A3F89DD80D85967507C69EA07E6A4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133941.jpg" />
 </div>
 
 
@@ -454,7 +536,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133942.jpg" />
 </div>
 
 
@@ -478,7 +560,7 @@ magnet:?xt=urn:btih:0CC83C479998B05AB8275AFD408E5C8C10E8147C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133943.jpg" />
 </div>
 
 
@@ -504,7 +586,7 @@ magnet:?xt=urn:btih:A379465DDF5CA461CDF1EEEA9234B1FE5752A756
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133945.jpg" />
 </div>
 
 
@@ -528,7 +610,7 @@ Moto Armonico - Wondering Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133946.jpg" />
 </div>
 
 
@@ -555,7 +637,7 @@ magnet:?xt=urn:btih:40552D85A7B1B593BF4F9D327326D25811377A64
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133948.jpg" />
 </div>
 
 
@@ -582,7 +664,7 @@ SILKYPIX Developer Studio Pro 11 for FUJIFILM 11.4.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133949.jpg" />
 </div>
 
 
@@ -593,84 +675,6 @@ SILKYPIX Developer Studio Pro11 для FUJIFILM предназначен для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3641EF84F64D25183EEBF90D4C1C124C2D0373C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594178   (133950) от 25.12.2012
-
-Nitro PDF Professional 8.1.1.3 Final [Multi/Eng]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nitro PDF Professional - мощный набор инструментов, с помощью которых можно выполнять весь спектр действий по созданию и редактированию PDF-файлов. Также с помощью программы можно выполнять обработку файлов в пакетном режиме, конвертировать файлы из более чем трехсот форматов в PDF, объединять несколько файлов в один, сканировать документы сразу в формат PDF. Возможен экспорт файлов из офисных приложений, как, например, Microsoft Word, PowerPoint и Excel. При необходимости можно с высокой степенью защиты (40 или 128 бит) шифровать содержимое создаваемых файлов. Приложение является практически полной мощной и функциональной альтернативой для популярного Adobe Acrobat и имеет все необходимое, чтобы подготовить документы любой сложности в формате PDF.Название программы: Nitro PDF ProfessionalЯзык интерфейса: Multi/Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680643   (133951) от 30.11.2023
-
-Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133951.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ra-Ta-Ta
-A2 Suona Orchestra (Cinta Orchestra)
-A3 Lui E Cosi (Asa E El)
-A4 Con Amore (Cu Dragoste)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680558   (133953) от 30.11.2023
-
-Weeping Silence - Isles of Lore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Watcher on the Walls [00:07:24]
-02. Serpentine [00:06:44]
-03. The Collector [00:04:12]
-04. The Beast and the Harrow [00:10:18](   Читать дальше...   )Жанр: Gothic, Doom-MetalПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421EB7F67717047BB79C512F65249D59A1E4B269
 ```
 
 

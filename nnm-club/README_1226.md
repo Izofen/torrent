@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32229.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9A85A56C00833B2A6BD8D07EC643E1FAA21EF021
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32230.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D5787BB8041C25FCD5AEB7A53F99080370B0CE48
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32231.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6668A682595F918CDE279F8E11BE249C659460D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32232.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32233.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6D92B6324757696007E22496ADBE2D30738C9DEB
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32234.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32235.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32236.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D42B206DD41618ABE92A155A9ECEFDE1B01413D7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32237.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BF944C11C8BCFEC6AAFA746D6A65078130EC7B61
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32238.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:94A7B883CAE7EE4DBD600D1A67EC305FF79C084E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32239.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ John Sokoloff - Дискография (1993-2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32240.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:BD8B07BED810F183D08B6559FB878DBEF91355A7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32241.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:7405A2D3493BFF4BC5E65961483B90C4DACAD723
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32242.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1D05E934C9B29FFC7662B4EA2776EDC9F1049A28
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32243.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:2570EEC5E03DBA109021554AC5C9FEE451684F5B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32244.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:D4D5BFEA2D03555F715280E87ADC472F26DC420F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32245.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Udemy, Bogdan Stashchuk | MongoDB - Полный Курс по MongoDB (2024) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32246.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:3B82C8AD4939DBB7B79260D78BDA028690B76C0C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32247.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:ED7295E9F0C0BC6063CA16B6BA46F71558604762
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32248.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:623F70DBBC5052C2FF60401C1FF0E2EED166E8B5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32249.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:11BAE5ECDB76885F23BFDC1370BE6917D373416F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32250.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:A80FA7BC79B2D7AE116DC86B3CD3391FAE4AD9CC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32251.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A80FA7BC79B2D7AE116DC86B3CD3391FAE4AD9CC
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32252.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32253.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 17 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32254.jpg" />
 </div>
 
 

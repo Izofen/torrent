@@ -6,7 +6,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55381.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VK сообщила о закрытии легендарного мессенд�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55382.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VK объявила о прекращении поддержки мессенд�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55383.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3D48A5DA16ABA824E455B2E696EAADB960402D8B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55384.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8116CE4BB7EBDFAFADB0158FD1D896BA8EB11940
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55385.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2E0BDB72A8ADD76C2805E628D59734BEC2A4802C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55386.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:18E79281589E2DAE28FD8F59ED06E98101619002
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55387.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F5EFE0D0B5E84DEF04EF587BF0D09DF3F4B6EC53
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55388.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Carl W. Hart | The Ultimate Phrasal Verb Book: For ESL and EFL Students (2017) [
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55389.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4B273F64343477922F28BBE357591CE3312FFFEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55390.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4B273F64343477922F28BBE357591CE3312FFFEE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55391.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:6F69E833D499E420A70A947ACC76ED6C6953C201
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55392.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Files Inspector Pro 4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55393.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ n7player Music Player 3.2.10-3002010 Lite-Mod by CMAPTOC [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55394.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D3612214A9BC10EC4E2951E6DCBA8CF53174CF33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55395.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ FotoJet Photo Editor 1.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55396.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:FF63600ABB19810E519038C3B95B5F5EB60410B4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55397.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:C6D781AFA58C9C50FBE36698814C6CE71456923B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55398.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:FD1657A799BE37566327501B46E02A44FD650C06
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55399.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:82DC3495E845F7820AB48FA52771341E3D81031B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55400.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ K-Lite Codec Pack Update 18.3.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55401.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2C3D33D770C0AE684C606401C23FEB37A54A416F
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55402.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Foreca Погода / Foreca Weather 4.55.6 Mod by funnysith [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55403.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:16D7B66226030127E709034E31BAF82BC40E1701
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55404.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Process Lasso Pro 14.1.0.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55405.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:E99384F2739115486B866450B7D826763D57C9FF
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55406.jpg" />
 </div>
 
 

@@ -1,3 +1,99 @@
+###  Публикация: 1642317   (234822) от 26.06.2023
+
+От рассвета до заката. Жаркий день в Новом Свете / Dawn to Dusk. Hot day in the New World (2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встаёт солнце, наступает рассвет и мир пробуждается к новому дню. В норах, колониях и на ветвях просыпаются животные, что бы встретить восход солнца и приступить к своим обычным делам. Всё это в период: от рассвета - до заката.Производство: Новая Зеландия, NHNZЖанр: документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DFE3C0EDD8A29573D6DD4C9CD3E0FE6A8762FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642314   (234890) от 26.06.2023
+
+От рассвета до заката. Жаркий день в Новом Свете / Dawn to Dusk. Hot day in the New World (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встаёт солнце, наступает рассвет и мир пробуждается к новому дню. В норах, колониях и на ветвях просыпаются животные, что бы встретить восход солнца и приступить к своим обычным делам. Всё это в период: от рассвета - до заката.Производство: Новая Зеландия, NHNZЖанр: документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8596237298DC6647641222556256503F5CFD6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642327   (234967) от 26.06.2023
+
+Жизнь в рамках пищевой цепи / Living within the food chain (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь поближе с китовыми акулами, дельфинами, гигантскими скатами мантой и захватывающими рыбными стаями. GREAT BLUE WILD - это ваш тур высокой четкости по подводному миру, в сочетании с увлекательными историями от профессионалов подводного плавания.Производство: Канада, GREAT BLUE WILDЖанр: документальный, природа, флора, фаунаРежиссер: Кайл Мердок, Эндрю УотервортУчастники: Даниэль Дэ Ким, Дэн НахтрабПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B0E6738462AE9F08E026B59769702202B10B0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642685   (235313) от 28.06.2023
+
+RTG. Главный Ботанический сад Российской академии наук (2014) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235313.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России первый ботанический сад - "аптекарский огород" - учредили при царе Иване Грозном в 1581 в Кремле. Заморские растения собирали и культивировали для изготовления лекарств. Сейчас ботанические сады в первую очередь - научные центры, благодаря которым сохраняется многообразие растений на планете. Главный Ботанический сад Российской академии наук крупнейший (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, природаРежиссер: Илья ПетровУчастники: Румия НиязоваЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF60C00B0E453CB3ECA00496D73C6474D049879F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631956   (235438) от 08.05.2023
 
 Что видят животные / What Animals See (2018) HDTV [H.264/1080i]
@@ -6,7 +102,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235438.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235438.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ magnet:?xt=urn:btih:CFBAC65347CC8B0336E94FD7CA0E3DF7F7F4DEC9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235739.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235739.jpg" />
 </div>
 
 
@@ -54,7 +150,7 @@ magnet:?xt=urn:btih:E39632C6DD3E1190A22E4ADA763207A3FFFEF2FF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235771.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235771.jpg" />
 </div>
 
 
@@ -78,7 +174,7 @@ magnet:?xt=urn:btih:44D4D3D5C638F02C3B581EF1079435B5B481EC7F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236122.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_236122.jpg" />
 </div>
 
 
@@ -102,7 +198,7 @@ magnet:?xt=urn:btih:D87C8263886A3594F8E793E65065BB84BBB2C854
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236342.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236342.jpg" />
 </div>
 
 
@@ -126,7 +222,7 @@ magnet:?xt=urn:btih:FA5E78242F21E8F4B50EA2ABD1A9AA755A9CF087
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236376.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236376.jpg" />
 </div>
 
 
@@ -150,7 +246,7 @@ magnet:?xt=urn:btih:49C51D7D372BEF6BA0198592F66A8221597395BE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236502.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236502.jpg" />
 </div>
 
 
@@ -174,7 +270,7 @@ magnet:?xt=urn:btih:6793150D495F7726B34CDEAF6B9AF8F5994008B1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236950.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236950.jpg" />
 </div>
 
 
@@ -198,7 +294,7 @@ magnet:?xt=urn:btih:4D55BBD9D9FB5175AF0494F9934CD8C3A1448FD7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237002.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237002.jpg" />
 </div>
 
 
@@ -222,7 +318,7 @@ magnet:?xt=urn:btih:03E9920387F522AAA37BFBA99068AF79959B3F83
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237175.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237175.jpg" />
 </div>
 
 
@@ -246,7 +342,7 @@ magnet:?xt=urn:btih:CF70DAFE0E0DBD3E2B4869664974DDE5FFFCD8F1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237206.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237206.jpg" />
 </div>
 
 
@@ -270,7 +366,7 @@ magnet:?xt=urn:btih:67985672AF413E0B023AA4CABA787795447B9F2B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237257.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237257.jpg" />
 </div>
 
 
@@ -294,7 +390,7 @@ magnet:?xt=urn:btih:D97BC1CD6792546B92EDB05E2D456EDE52AD967C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237269.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237269.jpg" />
 </div>
 
 
@@ -318,7 +414,7 @@ magnet:?xt=urn:btih:E940BB2E4F4010444390441914E8CDD56880D01F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237334.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237334.jpg" />
 </div>
 
 
@@ -342,7 +438,7 @@ magnet:?xt=urn:btih:B9E4F8EC1471BFB7EFD3755AB09580C5B67D290B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237432.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237432.jpg" />
 </div>
 
 
@@ -366,7 +462,7 @@ magnet:?xt=urn:btih:07D4FC11E123F2FBF282983D3BC23EC1AE2A2F9F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237562.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237562.jpg" />
 </div>
 
 
@@ -390,7 +486,7 @@ magnet:?xt=urn:btih:D0EAB3E338D4917363B7BEFD7F67014095221CA7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237719.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237719.jpg" />
 </div>
 
 
@@ -414,7 +510,7 @@ magnet:?xt=urn:btih:26959AB51F915C5B23D92EAE635B74C8DA04E140
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237754.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237754.jpg" />
 </div>
 
 
@@ -438,7 +534,7 @@ magnet:?xt=urn:btih:FC8855EDEABC84244C993F3D452A191A1D8E9434
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237764.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237764.jpg" />
 </div>
 
 
@@ -462,7 +558,7 @@ magnet:?xt=urn:btih:4A778D935204C4D9A7D68BEBFCC38220D6D0262E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237773.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237773.jpg" />
 </div>
 
 
@@ -486,7 +582,7 @@ magnet:?xt=urn:btih:5E0C1431FA4BD3E76060740C4FCA25A4B4964094
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237873.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237873.jpg" />
 </div>
 
 
@@ -510,7 +606,7 @@ magnet:?xt=urn:btih:2FC6D3D5A3BF4DC1A0111137C88C7A82872BACD6
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237881.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237881.jpg" />
 </div>
 
 
@@ -521,102 +617,6 @@ magnet:?xt=urn:btih:2FC6D3D5A3BF4DC1A0111137C88C7A82872BACD6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C72EF11F1A83F7F18491432EAA021479BE45C0AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629467   (238364) от 26.04.2023
-
-Знакомимся с сурикатами / Meet the Meerkats (2020) WEB-DLRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Храбрая стая борется за выживание: в семье сурикатов заботятся друг о друге. В пустыне много опасностей. Одной молодой самке приходится нелегко, ведь она осталась бездомной. Ей придется примкнуть к другой группе, потому что только вместе эти маленькие хищники могут выжить...Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4722A23F7E6482D9AA3D23DD203E53E32BAC088D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629465   (238366) от 26.04.2023
-
-Знакомимся с сурикатами / Meet the Meerkats (2020) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Храбрая стая борется за выживание: в семье сурикатов заботятся друг о друге. В пустыне много опасностей. Одной молодой самке приходится нелегко, ведь она осталась бездомной. Ей придется примкнуть к другой группе, потому что только вместе эти маленькие хищники могут выжить...Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E38B89F1F3B77175080FA8FBEDB8633D375843
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629489   (238384) от 26.04.2023
-
-Животные, изменившие мир (Лошадиная сила) (2022) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Табун лошадей, мчащихся по бескрайней степи — одно из самых красивых зрелищ в природе. Лошадь — живой символ неукротимой свободы, мощи и скорости. Но человеку удалось приручить это стремительное и вольнолюбивое создание. Давайте заглянем вглубь веков и узнаем, как лошадь стала нашим союзником и спутником. И почему она по праву называется животным, изменившим мир.Производство: Россия, ЕМГЖанр: документальный, научно-познавательныйРежиссер: Илья ЦыгановЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59E526A9706A9B2C434BE97E37774F7B013E828
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637337   (238439) от 03.06.2023
-
-Список желаний. Южная Америка / Bucket List: South America (2020) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из самых больших континентов полный возможностей для исследования. Реки рекордсмены. Самые длинные горы. Крутые водопады. И самые большие тропические леса. На таком разнообразном ландшафте обитает бесчисленное количество видов. У каждого своя изюминка. Крупные грызуны, выдры и попугаи. Уникальные птицы, млекопитающие, пресноводные дельфины, а также потрясающие (   Читать дальше...   )Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Фил КоулзПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CCF546BB63A1DD8397B8F90E9ACFC7BD99537C
 ```
 
 

@@ -6,7 +6,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37624.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3ACACBCE2E52C5598933643DE6E08CA6E432E687
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38760.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39217.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E9DD4CA9AE4B9E1867EB2814AA759AC295238E02
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39794.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C23673AE6B9FC5BFF6BFE405DF58614FB3A5A4B2
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40688.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:73EFF071A18CA149B3496BD974BE3D23BEEC5BCD
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43283.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Discovery: 11 сентября: когда башни упали / 9/11: After T
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43951.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4F8BF82A2135F73C1BECC95210CADA6B9A4FE462
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44249.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44906.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ NG: Покорители океана / OceanXplorers (2024) WEB-DL [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45013.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ NG: Пираты: Больше, чем легенда / Pirates: Behind the Lege
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47509.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49033.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:12C86C1618A12D4760A17729DEAD00EB8F53AE82
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49045.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:FC80D2FF195B286525307F17576D584EB691F358
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49582.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:903DCB1819115BD8A4F93DE539E25C03BEF7BD4E
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49658.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:29D277216AFBBAA4D32504822B71C27E2B8E13DB
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50558.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Animal Planet & BBC: Сурикаты / The Meerkats (2008) BDRip [H.264/1080p]
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50624.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:FF06527D9AA60A49F86D91F5BB951CC42477DF5B
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51323.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:157655428D171C1A6E89CB15A49913399CAB4820
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51425.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:A1FD8DB6D2BF264FBAA6070F128CBA2ED262F454
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51485.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53048.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PBS. Величайшие природные памятники планеты /
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53265.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:A96BAC06CE21E507D78E47727270480BB17E91AE
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53809.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55251.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55457.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC: Луи Теру. Разговоры с анорексией / Talking to An
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56180.jpg" />
 </div>
 
 

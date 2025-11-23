@@ -6,7 +6,7 @@ Windows Repair Toolbox 3.0.4.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51108.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Gigapixel AI 7.2.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51113.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Advanced SystemCare Pro 17.5.0.255 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51115.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51137.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AIDA64 Extreme Edition 7.30.6914 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51138.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Dr.Web CureIt! (04.07.2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51142.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kaspersky Virus Removal Tool (KVRT) 20.0.11.0 (04.07.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51143.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Bandicam 7.1.2.2451 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51167.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AOMEI Backupper Technician Plus 7.3.5 WinPE by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51173.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Microsoft PowerToys 0.82.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51175.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Wise Care 365 Pro 6.7.4.649 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51178.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Opera GX 111.0.5168.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51184.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Zettlr 3.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51198.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:D381224B86ACEFC013086A79985059CE17A08DBC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51201.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Topaz Photo AI 3.0.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51205.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ AOMEI Backupper Technician Plus 7.3.5 WinPE by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51216.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ CCleaner 6.25.11131 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51221.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VueScan Pro 9.8.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51224.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Snappy Driver Installer Origin R766 | Драйверпаки 24.07.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51235.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Corona Renderer 12.0 for 3ds Max 2016-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51265.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.2.1 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51269.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.9.1 RePack (& Portable) by Dodak
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51270.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.2 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51273.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ EssentialPIM Pro 12.0.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51280.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0629) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51282.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.9 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51283.jpg" />
 </div>
 
 

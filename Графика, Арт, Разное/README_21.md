@@ -6,7 +6,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172433.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E5FB345914EBD8CC50363C1FD2E350EB4C16E1A1
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172434.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:54B50C6FE57BA1747ADE1205349203BB9BF2D5E9
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172585.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0E14EEA38DD8717E25356725C9A4F47C4AAE2BF5
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172756.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:E7AAE0BC2235CB9954B1ABCE62D718E7EECE4AA8
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172760.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:292450FC613EEBAF130E86A3B35F0676F56B21EE
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172952.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:FD73F47534544B440B279DA71FA10E16D52C1430
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173752.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173752.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:D51C756E8804098C54C8D65B68F37304AD6B57CE
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174034.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174034.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:E76CEDB0BCC887562AC1C04EBA9AEAD63936BE60
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174052.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174052.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:90F733E2F93BAEB843FB75F73943D2B4BD605FCC
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174064.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174064.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:29F1B92C84D32CB20870FC8FB6919B42A2D2A398
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174111.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174111.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:D8B451F34FCA843907D37B87C4D46DF88071A1BD
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174719.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174719.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:685E8A5C0F78A29778BB5A8C6B3857B48DC0BDB1
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174747.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174747.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:C2B231C054D30687BC2971BBACBD743BB1F185EF
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174766.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174766.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:E4D5D504E8C489BCFA28BF8B8FDA06C00F7B74D8
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174881.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174881.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C7E7B5D3F040B6A9E4E42C4C755F2988121C23B8
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174889.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174889.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B45EED4D7E80131DA1AFE65AE7EA520589A9EBCA
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174938.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174938.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:CD6F6EC5585358B135D5273889D120E0807E4538
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174961.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174961.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C2DDBA93F5AF7D815A81862A79B7D5C8178A9618
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175407.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175407.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:16B915EB12A983BD74A5CFC55A6CB3F47D038CFA
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175471.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175471.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:D0D07CB399647590F99888A5FC347C527D6A8367
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175508.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175508.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:3C3ED79F6FA8F5F8D3860DD582B8569D794EBF2A
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175625.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:A71E2BB4041F2161EDB066244ABDAF02ACEDC4E3
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175657.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175657.jpg" />
 </div>
 
 
@@ -561,6 +561,30 @@ magnet:?xt=urn:btih:E6D26541F483F18A89A17E6A3770C5853D34772F
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429544   (176232) от 06.12.2020
+
+Фотография - ArtStation - Grafit Studio - 200+ Knight and Princess Reference Pictures for Artists [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_176232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здравствуйте, друзья! Мы рады поделиться нашим новым комплектом референсов с костюмами принцессы и рыцаря, включающим парные фотографии, различные настройки освещения и ракурсы.Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F429AF9A32ABD8035CBE4F20969A006F07EFB0A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429524   (176285) от 06.12.2020
 
 Фотография - ArtStation - Grafit Studio - 350+ Knight Reference Pictures for Artists [JPG]
@@ -569,7 +593,7 @@ magnet:?xt=urn:btih:E6D26541F483F18A89A17E6A3770C5853D34772F
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176285.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176285.jpg" />
 </div>
 
 
@@ -593,7 +617,7 @@ magnet:?xt=urn:btih:05A83DF992FAD456291166BA16F5A31C3321BCD4
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177187.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_177187.jpg" />
 </div>
 
 
@@ -605,30 +629,6 @@ magnet:?xt=urn:btih:05A83DF992FAD456291166BA16F5A31C3321BCD4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F18D91BEC490659DE301740A4BBFA2A7F4EC53C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594598   (177631) от 01.12.2022
-
-Картинки - Американские Индейцы [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки в жанре американские индейцы.Формат: JPGРазрешение файлов: 1440х1920-1920х1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6701DE35822B7369D998A518A9A678D42885DAA5
 ```
 
 

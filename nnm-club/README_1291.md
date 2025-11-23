@@ -6,7 +6,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Князь Тьмы: Retry! R [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33919.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:780ED2D34B70F465F3823D8E598B2BD16D325F80
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33920.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:780ED2D34B70F465F3823D8E598B2BD16D325F80
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33921.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F6FF27AC75847F646103E658F7E87A086771F6A4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33922.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2F92F11483BD99CFE3FC05E04C02C27EDE37C7BF
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33923.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VAG dataflash / Файлы прошивок для автомобилей гру
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33924.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:A723BB0C41BF81AC20240B11303143972A72B526
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33925.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VMware Workstation 17 Pro 17.6.2 Build 24409262 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33926.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ DEVOUR (2021) [Ru/Multi] (5.1.3) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33927.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Hitman: Blood Money — Reprisal 1.2RC13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33928.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Topaz Gigapixel AI 8.1.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33929.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:41AC9CCA5DB56627FAAD6C9E687EA9B80693822E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33930.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack FitGirl [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33931.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:EFD8E8E8F2B609D36BB639DCEB8C7A50259B47E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33932.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:EFD8E8E8F2B609D36BB639DCEB8C7A50259B47E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33933.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:B5F5C4FD345EE612F89FD7CE5BA5B23E5CE02F3B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33934.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:D7556FA481ACA51B1D16D9E3924DD28AE3571670
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33935.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:DC7067613A277B4622C43939672A12F2A90C1EF5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33936.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:1D6664C22847D083B3F8066F8D481D3952D97F3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33937.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:97F7A0936BC4813D9A1616A22A57677CE009378E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33938.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:97F7A0936BC4813D9A1616A22A57677CE009378E
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33939.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Adobe Photoshop Lightroom Classic 2024 14.1.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33940.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:2D749F3764513A2E05A3F2B8FF5779624B75EF74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33941.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ CCleaner 6.31.11415 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33942.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:E0BC0DE77A94C91CD349A0F4A561B157DF9DFC25
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33943.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:E0BC0DE77A94C91CD349A0F4A561B157DF9DFC25
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33944.jpg" />
 </div>
 
 

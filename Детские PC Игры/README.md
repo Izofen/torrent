@@ -6,7 +6,7 @@
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43637.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:65A07678E26997536BC01B86111226BA15730DAE
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77865.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kookabonga: Crazy Monkey Party / Кукабонга: Весёлые джунгл
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82696.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2E0F95C466CAA2D141AE0E898B67493CBDEE8E90
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84580.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C0930AA6B8753DC2FF325195ECBCB36F958BB238
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84632.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:20B1A6CDDACFA74D92565B02608E37E8096439E1
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84745.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:FC776EDF8D7613B98D640DCF517470A48470A962
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84931.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:57057310BCBB9DE89FDB31A5C1DFA1A4284DA983
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84971.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:719FF575B9D67850B7BA093B1163B0A8889A5B3B
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85009.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Incredibles: Rise of the Underminer / Суперсемейка. Подзем
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85194.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:22F993EA697C9800A953592C32789D8696ADD30D
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85213.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:58D98305DFDBF3402588D7C3793DA58707208D40
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85222.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:8E31BB01A5AFE8B56B89F7403719937CFE0C3938
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85414.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pet Hotel Tycoon  / 101 любимчик. Домашний зоопарк {7+} (
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85772.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:7C39DF0537F2A50E99BFA6EF9D1F5B2AD17A28EB
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86012.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:B041BD5E7C1594B9F0B5AC31E7933B9BA72C1773
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86029.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:C23A2CB32B7F8E8FC4F1060D261FD4C1C2C0F906
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86031.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:EE65722CDFB0BC7C0DAC83EA6D98635153710C8A
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86061.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:0E12FB8CCFFF967BD619E47B774A7855C9A59E5B
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86182.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:D6DD41CFCE864E0930DC777BD7F6800534FCDEE6
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86213.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ My Horse and Me / Моя любимая лошадка [7-12] (L) [Ru] (2008)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86240.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Alice and the Magic Gardens (P) {7+} [En] 2012
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86341.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:B2789441A608D9AEE1928F0F7214D43A9E2111AE
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87481.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:0C5FCBE743886EF9013BF1AC273683771323C16B
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88410.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:17649BE1952B75D22FA64CEE247604872DFA91A4
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88685.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Over the Hedge / Лесная братва [10+] (RePack) [Ru] (2006) | NICK0304
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88891.jpg" />
 </div>
 
 

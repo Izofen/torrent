@@ -6,7 +6,7 @@ Auslogics Disk Defrag Pro 12.0.0.1 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34526.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PotPlayer 241211 (1.7.22395) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (0912) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34532.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BD4C76809276563C3B9B3BBB18748D1A6C36AFC3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34534.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Allavsoft Video Downloader Converter 3.27.7.9106 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34535.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ FurMark 2.4.3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34539.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ DisplayFusion Pro  + Portable + MSI 11.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34543.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Room Arranger 10.0.0.710 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34544.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.50.7200 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34547.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Auslogics Driver Updater 2.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34549.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Capture One 23 Enterprise 16.5.2.2623 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34556.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ O&O ShutUp10++ 1.9.1440 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34564.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34571.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Auslogics SSD Optimizer 2.0.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34583.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ SnapEdit - AI photo editor v7.2.5 Mod by Oflarm [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34600.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Text Editor Pro 31.0.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34608.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ TreeSize Professional 9.3.0.1954 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34614.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Fast Screen Recorder 2.1.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34617.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ MediaInfo 24.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34618.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ MobiPDF: Редактор и сканер PDF  v11.1.266629 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34619.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ BurnAware Professional 18.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34624.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ DVDFab 13.0.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34625.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ v2rayN 7.3.1 portable pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34638.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:833F1E6214FDAA62B1D04C6F2B77765C79372423
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34640.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Aiseesoft Video Converter Ultimate 10.8.90 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34641.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ DVDFab UniFab 2.0.3.8 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34642.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98061.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Scream Silence - Scream Silence (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98066.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98066.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - Дискотека Русские Звезды (2012) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98069.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Saline OS 1.6 [i386 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98070.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:EB66D97D0040A159EC3474813671A3698170B243
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98072.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98072.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EB66D97D0040A159EC3474813671A3698170B243
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98074.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F159F0EEFEE7EAF130A91F9B23FAEC0B53226516
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98076.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:878E1794023CC17B55AD191E36F28AAD06DBD225
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98079.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - XXXL Блатнячок радио Шансон 3 (2012) [MP3|256 kbps]<Ш�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98080.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:2A68AA2D2D0E1DAF272FF8024FEC0054282C02D0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98082.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:6874B086DDE83B1EB67368CDA3C26F34F77B002F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98083.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:F77EEF73A9399DE19F4E546C7B14F313A71893C0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98084.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:111E4ADE6A8F5F7E9BC06545EBCFCC878BA495E0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98086.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:CDF7474E9C8AED98B104DCFB5CCC413FCC4D2490
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98092.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Inger Marie Gundersen - For You (2011) [FLAC|Lossless]<Female Vocal Jazz, Norway
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98097.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98097.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Inger Marie Gundersen - For You (2011) [FLAC|Lossless]<Female Vocal Jazz, Norway
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98111.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:3D724308DB949674C9A4879570E9A8DFA1F46E8A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98115.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:B206E7AC953552A8A66E289EB99C38D309F89DA7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98117.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:FA6C3D2015FCE6414254B200136BC5799B3B5240
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98121.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:551548FEB913A9C3651FAA065312A6B414B4D8F8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98123.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98123.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Клубные Новинки Vol.56 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98126.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Территория Звезд (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98129.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Spectro Senses - Power Core (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98130.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VNP - Trance Traveling 24 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98131.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Firebrand Super Rock - Firebrand Super Rock (2012) [MP3|320 кб/с]<Heavy Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98133.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Shadowgarden - Ashen (2010) [FLAC|Lossless]<Gothic Dark Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98136.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98136.jpg" />
 </div>
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1822966   (104441) от 09.10.2025
+
+Seelen UI 2.4.4 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seelen UI - это программа для кастомизации и полного преображения вашего рабочего стола.
+Это не просто смена обоев, стиля отображения окон, но и разнообразные виджеты и полный пересмотр взаимодействий с популярными программами.
+Seelen UI имеет обширную библиотеку (пресетов).Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873B5C0DD4FA7B641D6FC490F3BEBE9C1A054DC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822965   (104442) от 09.10.2025
+
+Оверлеи - Creative Market - Window Shadow Overlays - 92012573 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем оверлеи Window Shadow Overlays — продукт, специально созданный для улучшения ваших фотографий с помощью эффекта естественного оконного света. Преобразите свои изображения с помощью тонкой игры теней, добавив им реалистичности и глубины. Улучшите свои изображения и легко запечатлейте суть естественного освещения.Формат: PNGРазрешение файлов: 3011x2750 - 5892x4016
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C640C3AF3812364E4D050B623C747D6AAA864447
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585387   (104443) от 09.10.2025
+
+Школа Data Science (karpov.courses), Анатолий Карпов и др. | Симулятор аналитика (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что вы устроились аналитиком в молодой стартап, объединивший мессенджер и ленту новостей. Ваша задача — с нуля выстроить аналитические процессы под руководством ведущего аналитика.
+Чему Вы научитесь:
+Автоматизируете отчётность, используя связку BI + Python
+Прокачаете знания программирования и SQL реальном проекте(   Читать дальше...   )Производство: Школа Data Science (karpov.courses)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45841B71233CCCB46F94A66EFFD572B6AC1F457F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822938   (104444) от 09.10.2025
 
 Шрифты - Creative Market - Genoir - Bold Display Font Family - 291869583 [OTF, TTF, WOFF, WOFF2]
@@ -6,7 +83,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104444.jpg" />
 </div>
 
 
@@ -32,7 +109,7 @@ magnet:?xt=urn:btih:9A5C8149B89D7858FE0724E9660A72AC1A3F1366
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104445.jpg" />
 </div>
 
 
@@ -56,7 +133,7 @@ magnet:?xt=urn:btih:57EE3802ADB239169880AC6D65753A7B29450FBC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104446.jpg" />
 </div>
 
 
@@ -80,7 +157,7 @@ magnet:?xt=urn:btih:D934D96080E9233F9B0406C3A0D9E0FB4184D2E4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104447.jpg" />
 </div>
 
 
@@ -104,7 +181,7 @@ Acres - The Host (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104448.jpg" />
 </div>
 
 
@@ -131,7 +208,7 @@ magnet:?xt=urn:btih:57A6585CD6F8E193482A5188F196EBC6E486A6F8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104449.jpg" />
 </div>
 
 
@@ -155,7 +232,7 @@ Playingtheangel - любовь побеждает смерть (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104450.jpg" />
 </div>
 
 
@@ -182,7 +259,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.6) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104451.jpg" />
 </div>
 
 
@@ -206,7 +283,7 @@ magnet:?xt=urn:btih:6BF0494702743CCA157158BDDBA28D6B58EB9D37
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104452.jpg" />
 </div>
 
 
@@ -230,7 +307,7 @@ Deaf Havana - We're Never Getting Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104453.jpg" />
 </div>
 
 
@@ -257,7 +334,7 @@ Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104454.jpg" />
 </div>
 
 
@@ -284,7 +361,7 @@ magnet:?xt=urn:btih:226ED5FEF6F356B605588DDAAE26BD09BEF4AF50
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104455.jpg" />
 </div>
 
 
@@ -308,7 +385,7 @@ Minimal Firewall 2.4.3 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104456.jpg" />
 </div>
 
 
@@ -332,7 +409,7 @@ magnet:?xt=urn:btih:35DA2EC501EDB6045A11840610FD407D886B5EA2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104457.jpg" />
 </div>
 
 
@@ -356,7 +433,7 @@ magnet:?xt=urn:btih:CC346B4D5796DF71403E4E1A622C21E111382342
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104458.jpg" />
 </div>
 
 
@@ -382,7 +459,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104459.jpg" />
 </div>
 
 
@@ -406,7 +483,7 @@ magnet:?xt=urn:btih:19A5949982E6DDD91BB398A6C5382D3251E648EF
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104460.jpg" />
 </div>
 
 
@@ -430,7 +507,7 @@ magnet:?xt=urn:btih:9CFDC89704A8E3B68CFC1F168B0A737B4AE45A93
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104461.jpg" />
 </div>
 
 
@@ -454,7 +531,7 @@ magnet:?xt=urn:btih:07BC5D56923F71247017461557D3840EA913250E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104462.jpg" />
 </div>
 
 
@@ -478,7 +555,7 @@ magnet:?xt=urn:btih:D90CBB66D0272973E95F86DE7506A0FF85193EBA
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104463.jpg" />
 </div>
 
 
@@ -502,7 +579,7 @@ magnet:?xt=urn:btih:E50C59B8F76FB3E87B038F641CB6D067E5B2D664
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104464.jpg" />
 </div>
 
 
@@ -526,7 +603,7 @@ magnet:?xt=urn:btih:4CB560FAC6768D76544E7CF04473257DF7C0E352
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104465.jpg" />
 </div>
 
 
@@ -550,7 +627,7 @@ magnet:?xt=urn:btih:54C9116DF15C9188E8C559ADFBEAA47D9B60618C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104466.jpg" />
 </div>
 
 
@@ -561,78 +638,6 @@ magnet:?xt=urn:btih:54C9116DF15C9188E8C559ADFBEAA47D9B60618C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E08060524D21EFF51FF02DCA7349BB8E8C47C97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822913   (104467) от 09.10.2025
-
-Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack seleZen
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blood of Mehran переносит легендарного воина Мехрана в Древнюю Месопотамию, где его стремление к мирной жизни рушится из-за чужих амбиций. В основе сюжета, вдохновленного сказаниями Тысячи и одной ночи, лежат темы любви, потерь и верности. Игровой мир включает в себя раскинувшиеся дворцы, оживленные базары и бескрайние песчаные дюны, открытые для исследования. Геймеры (   Читать дальше...   )Тип издания: RepackРазработчик: Permanent Way Game Co.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2AB516B5043D354F708A9B7CB4D3EED994508F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822912   (104468) от 09.10.2025
-
-Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blood of Mehran переносит легендарного воина Мехрана в Древнюю Месопотамию, где его стремление к мирной жизни рушится из-за чужих амбиций. В основе сюжета, вдохновленного сказаниями Тысячи и одной ночи, лежат темы любви, потерь и верности. Игровой мир включает в себя раскинувшиеся дворцы, оживленные базары и бескрайние песчаные дюны, открытые для исследования. Геймеры (   Читать дальше...   )Тип издания: RepackРазработчик: Permanent Way Game Co.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6B7AB53DC828CF6F699563A6696CB84651342E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822903   (104469) от 09.10.2025
-
-Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Decepticon
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blood of Mehran переносит легендарного воина Мехрана в Древнюю Месопотамию, где его стремление к мирной жизни рушится из-за чужих амбиций. В основе сюжета, вдохновленного сказаниями Тысячи и одной ночи, лежат темы любви, потерь и верности. Игровой мир включает в себя раскинувшиеся дворцы, оживленные базары и бескрайние песчаные дюны, открытые для исследования. Геймеры (   Читать дальше...   )Тип издания: RepackРазработчик: Permanent Way Game Co.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFA3EC97690E3F463D5BAD87E4350634A3B682A
 ```
 
 

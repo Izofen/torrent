@@ -1,3 +1,77 @@
+###  Публикация: 1554085   (232344) от 29.05.2022
+
+Брат (1997) WEB-DLRip [H.264/2160p-LQ] [Handmade upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_232344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демобилизованный из армии, Данила Багров вернулся в родной городок. Но скучная жизнь российской провинции не устраивала его, и он решился податься в Петербург, где, по слухам, уже несколько лет процветает его старший брат. Данила нашел брата. Но все оказалось не так просто - брат был наемным убийцей.Производство: Россия / СТВЖанр: драма, криминал, боевикРежиссер: Алексей БалабановАктеры: Сергей Бодров мл., Виктор Сухоруков, Светлана Письмиченко, Мария Милютина, Юрий Кузнецов, Сергей Мурзин, Ирина Ракшина, Анатолий Журавлев, Андрей Федорцов, Андрей КраскоСубтитры: Русские, АнглийскиеПродолжительность: 01:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A50F01BA0920675541392B4AD4578D580705CDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635320   (232452) от 25.05.2023
+
+Семеро смелых (1936) [H.264/1080p-LQ] [hand made Remastered Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_232452.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Арктику прибыли шесть зимовщиков. После прощального салюта пароход скрывается за горизонтом, и зимовщики приступают к распаковке груза. К своему удивлению и ужасу в одном из ящиков они обнаруживают арктического "зайца" - Петра Молибогу (Петр Алейников). Мужественных зимовщиков становится семеро. Трудности работы в условиях зимовки помогает переносить (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: драмаРежиссер: Сергей ГерасимовАктеры: Николай Боголюбов, Тамара Макарова, Иван Новосельцев, Олег Жаков, Петр Алейников, Андрей Апсолон, Иван КузнецовПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4185A8A9106E8637C90FCB3440179844645F62AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635184   (232615) от 24.05.2023
+
+Розыгрыш (1976) DVDRip [H.264/1080p-LQ] [hand made Remastered Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_232615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкально-мелодраматическая история о проблемах десятиклассников, их увлечении музыкой, школьных конфликтах, лидерстве и первой влюбленности.
+В девятом классе сорвана контрольная. Конфликт двух учеников дал возможность выявить настоящего лидера и разоблачить необоснованность притязаний его соперника.
+Первая роль в кино Дмитрия Харатьяна (Грушко) и первая большая (   Читать дальше...   )Производство: СССР, МосфильмЖанр: мюзикл, мелодрамаРежиссер: Владимир МеньшовАктеры: Дмитрий Харатьян, Евгения Ханаева, Наталья Вавилова, Андрей Гусев, Александр Жильцов, Коля Константинов, Арсен Михайлов, Евдокия Германова, Ирина Кораблева, Галина Манухина, Нина Савищева, Дмитрий Николаев, Олег Табаков, Наталья Фатеева, Зиновий Гердт, Владимир Меньшов, Гарри Бардин, Любовь Мышева, Павел Винник, Мария ВиноградовПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B60F79A059C93AF9501ABA06A8B795156F5E775
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633350   (234498) от 14.05.2023
 
 Ты не сирота (1962) DVDRip [H.264/1080p-LQ] [hand made Remastered Upscale AI]
@@ -6,7 +80,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234498.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234498.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:1020079C2DB6B3C0552832E37231AAB3D8036BD4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234670.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234670.jpg" />
 </div>
 
 
@@ -58,7 +132,7 @@ magnet:?xt=urn:btih:037C4F6305049F882B380D705CE40C935271EA01
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235008.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235008.jpg" />
 </div>
 
 
@@ -82,7 +156,7 @@ magnet:?xt=urn:btih:652EA1B04F85D50690AAF3F8137AB3CE30D87E36
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235405.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235405.jpg" />
 </div>
 
 
@@ -106,7 +180,7 @@ magnet:?xt=urn:btih:8585EBED6D083032DEBAF9D4916A95B0115223AC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235701.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235701.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ magnet:?xt=urn:btih:32BA623DA084A256FAAF6D7E18D6E140441EBB7C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235883.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_235883.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ magnet:?xt=urn:btih:2352DB386F42AEBA7EDEE39A4C2BBBE4C61C33C0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235901.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235901.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ magnet:?xt=urn:btih:5C4F112F4542D7646567E6A103368E55699DDFA1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236088.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236088.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ magnet:?xt=urn:btih:E0269A238058E738478362BDC527E1563089E398
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236134.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236134.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ magnet:?xt=urn:btih:D06D7015AEE64853814A461101EEBDA605DF3B22
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236684.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ magnet:?xt=urn:btih:3B3EF78D6B1791AA8CEEAD17113D182D73D6F73E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236909.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236909.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ magnet:?xt=urn:btih:085D57764D076B43E4D1248396D600223E0045F2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237131.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237131.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ magnet:?xt=urn:btih:0E5A55601AB45AA7AA0531E4966762507A21D8FB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237724.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237724.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ magnet:?xt=urn:btih:04D41733D6F3D82F483A959EB7796B2A39DACC4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238307.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238307.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ magnet:?xt=urn:btih:AB17F0D18260C28FE86BCB076E1EBF303C055E14
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239042.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239042.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ magnet:?xt=urn:btih:35E564C7CB7B35B8D9687F0A4D2C60AD767D0C29
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239351.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239351.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ magnet:?xt=urn:btih:02A2046516C5DB9863174F9E9626CFD5E08B720A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239609.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239609.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ magnet:?xt=urn:btih:C1DFDED1CBFDF789F6758BB82457692E1DFC5D31
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239991.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239991.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ magnet:?xt=urn:btih:B0C85597F02B7F0CD3BB6798429031060834AD4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240392.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240392.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ magnet:?xt=urn:btih:7F9F34F9780441E31689BCF388A298BE40DAD088
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240421.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240421.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ magnet:?xt=urn:btih:D93EA0765F77543FCB6822B98F36207F25F55B94
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241356.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241356.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ magnet:?xt=urn:btih:E12BECDAB10E53756AF774F46916A21AABC4343B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241835.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241835.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ magnet:?xt=urn:btih:4B4C6B00258B77AA32BC75AFB5CB4B530973A73B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241982.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241982.jpg" />
 </div>
 
 
@@ -553,80 +627,6 @@ magnet:?xt=urn:btih:4B4C6B00258B77AA32BC75AFB5CB4B530973A73B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07FA6CFC58542E2DED5D39767565C3F85930549F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541246   (243645) от 06.04.2022
-
-Бегущий по лезвию 2049 / Blade Runner 2049 (2017) Hybrid [H.264/1080p] [Open Matte] [Локализованная версия]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243645.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем мир населен людьми и репликантами, созданными выполнять самую тяжелую работу. Работа офицера полиции Кей - держать репликантов под контролем в условиях нарастающего напряжения... Пока он случайно не становится обладателем секретной информации, которая ставит под угрозу существование всего человечества. Желая найти ключ к разгадке, Кей решает разыскать (   Читать дальше...   )Производство: США, Великобритания, Канада, Венгрия, Испания, Мексика / Alcon Entertainment, Columbia Pictures, SonyЖанр: фантастика, боевик, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Райан Гослинг, Харрисон Форд, Ана де Армас, Сильвия Хукс, Робин Райт, Маккензи Дэвис, Карла Юри, Ленни Джеймс, Дэйв Батиста, Джаред ЛетоПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D40360E9BB69733C785611EC24BF7B5348DA16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536774   (244309) от 03.04.2022
-
-Знахарь / Znachor (1981) DVDRip [H.264/1080p-LQ] [Handmade upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244309.jpg" />
-</div>
-
-
-###  Подробнее
-
-По повести Тодеуша Доленга-Мостовича.
-С гениальным хирургом Рафалом Вильчуром происходит трагедия, изменившая всю его жизнь. Уходят жена и дочь, в тот же день он оказывается на улице без денег и документов. Ему приходится пережить несколько лет скитаний и горя.
-И все-таки судьба поворачивается к нему лицом. Найдя приют в семье мельника, он спасает его больного сына (   Читать дальше...   )Производство: Польша, ЗодиакЖанр: драма, мелодрамаРежиссер: Ежи ГоффманАктеры: Ежи Биньчицкий, Анна Дымна, Томаш Стокингер, Бернард Лядыш, Божена Дыкель, Артур БарцисПеревод: Дублированный (Мосфильм 1983 год)Язык озвучки: РусскийСубтитры: русские, польские, английскиеПродолжительность: 02:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F930A9FB274B3F513A1CA3F1E639E5C9FB856A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541466   (244353) от 03.04.2022
-
-Няньки / Twin Sitters (1994) DVDRip [H.264/1080p-LQ] [Handmade upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владелец транспортной компании, замешанный в незаконном сбросе токсичных отходов желает выйти из игры, сдав своего заказчика. Ему угрожают, намекая на двух племянников-близнецов, оставшихся без родителей и живущих у него. Тогда он нанимает бесшабашных братьев качков с интеллектом десятилетних мальчишек в качестве телохранителей. Малолетние племяннички дают прикурить (   Читать дальше...   )Производство: США, Surge Productions Inc.Жанр: комедия, криминал, семейныйРежиссер: Джон ПарагонАктеры: Питер Пол, Дэвид Пол, Кристиан Казинс, Джозеф Казинс, Рена Софер, Джаред Мартин, Бэрри Деннен, Джоэнн Харт, Джордж Лэзенби, Валентина ВаргасПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: РусскиеПродолжительность: 01:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB33812B3A8402BCE5D95CB03CE4E47415549546
 ```
 
 

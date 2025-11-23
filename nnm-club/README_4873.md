@@ -1,3 +1,178 @@
+###  Публикация: 968715   (150999) от 25.12.2015
+
+360 Total Security 8.2.0.1056 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150999.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Total Security предлагает комплексную защиту от всех видов вредоносных программ и онлайн угроз. Бесплатный антивирус от Qihoo 360 использует защиту в реальном времени с антивирусными движками Avira и Bitdefender, проактивным QVM II и облачным 360 Cloud, а также System Repair для комплексной оценки и быстрого восстановления аномальных изменений операционной системы (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9A0DBB6B5DA52AB63226669E28827AC243BC18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519019   (151001) от 22.12.2021
+
+Volume2 1.1.7.446 Beta + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volume2 — альтернативный регулятор громкости, который полностью заменяет стандартный регулятор громкости Windows и обеспечивает простую настройку горячих клавиш и событий мыши.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E4E35BE2B579EE03BE85EA13E2163F7C02D329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601476   (151002) от 31.12.2022
+
+Чарли Чейз. Разве жизнь не ужасна? / Isn't Life Terrible? (1925) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь молодого человека поистине ужасна. Жена полностью потакает прихотям своего брата, Ремингтона , у которого аллергия на любую работу. Лишь дочка поддерживает папу, дарит ему значок с девизом "Все придет к тому, кто ждет". Однажды жена видит в газете объявление о конкурсе по продажам авторучек, победитель конкурса едет в морское путешествие. Чарли выигрывает (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтерин Грант, Оливер Харди, Лон Пофф, Сэмми Брукс, Кэтлин Коллинз, Уильям Гиллеспи, Чарли Холл, Нэнси МакКи, Жуль МенделПеревод: Немой с интертитрамиСубтитры: Русские интертитрыПродолжительность: 00:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1CF058666E946A2F90E990582DD749540FDB6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270788   (151004) от 22.12.2018
+
+Россияне бросают пиратство после 35 лет
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151004.jpg" />
+</div>
+
+
+###  Подробнее
+
+PayPal: почти половина россиян относится к пиратству негативно
+По данным исследования PayPal и SuperData, музыка стала самым популярным типом приобретаемого цифрового контента. С небольшим отрывом за ней следуют фильмы и телевизионные шоу (50% и 46%). Еще 32% потребителей приобретают электронные версии игр или совершают покупки внутри игр.Данные по всем рынкам показали, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081971   (151005) от 24.12.2016
+
+Disney Infinity 2.0 (2016) [Ru/Multi] (1.0.2/upd1) License PLAZA [Gold Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disney Infinity 2.0 — видеоигра нового поколения, в которой вас ждут головокружительные приключения с супергероями MARVEL! Выбирайте любимого героя из 20 доступных и отправляйтесь в их родные миры, чтобы узнать новые истории MARVEL. Зовите друзей и проходите уровни в кооперативном режиме. Или же создайте свой собственный, ни на что не похожий мир, и поделитесь им (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche Software, Heavy Iron StudiosЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9DA7082A113DF47F976AC0DD0185B6BF68A590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825880   (151007) от 18.10.2025
+
+Чёрный обелиск - Коробка (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Человек
+2. Между небом и землёй
+3. Коробка
+4. Нас нет(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B68D063FDD61D2EF86015A7D7489FE5CC8F08DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601305   (151008) от 31.12.2022
+
+Citadel - Chosen Bereft (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Amongst Still Waters (11:53)
+02 - The Mourne (10:28)
+03 - Sunder (08:50)
+04 - The Castle Portal (09:05)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863D804AF10A557BAA8D396F76916FE0A766B3B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519104   (151009) от 22.12.2021
 
 Opera GX 82.0.4227.50 Portable by Cento8 [Ru/En]
@@ -6,7 +181,7 @@ Opera GX 82.0.4227.50 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151009.jpg" />
 </div>
 
 
@@ -32,7 +207,7 @@ magnet:?xt=urn:btih:3B8C41924CC052F955EE97DD2E1EB3FDFEB7A1DC
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151011.jpg" />
 </div>
 
 
@@ -56,7 +231,7 @@ Plus Messenger (Telegram+) v10.2.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151012.jpg" />
 </div>
 
 
@@ -80,7 +255,7 @@ magnet:?xt=urn:btih:9DC9621EE4CA44A9CC31FA2F57CD1F9E02942C82
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151013.jpg" />
 </div>
 
 
@@ -106,7 +281,7 @@ magnet:?xt=urn:btih:22B80F584DF39B578DF397ABB030D5D2C4E0A7A8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151015.jpg" />
 </div>
 
 
@@ -130,7 +305,7 @@ A Stroke Of Fate [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151016.jpg" />
 </div>
 
 
@@ -154,7 +329,7 @@ Sombria - Chirographon Dei (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151017.jpg" />
 </div>
 
 
@@ -181,7 +356,7 @@ magnet:?xt=urn:btih:2FB46C50EECC1D8E1E0E3A524664BB6614375A21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151019.jpg" />
 </div>
 
 
@@ -205,7 +380,7 @@ Warhammer 40,000: Dawn of War II Chaos Rising (2009-2010) [Ru/Multi] (2.6.0.1024
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151020.jpg" />
 </div>
 
 
@@ -229,7 +404,7 @@ magnet:?xt=urn:btih:C8C466D5E1397FA6ED77E3C72CDA0FCAC2264667
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151021.jpg" />
 </div>
 
 
@@ -256,7 +431,7 @@ magnet:?xt=urn:btih:51133ED623D52346EB2ACA81FEF7E228ECBBE577
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151022.jpg" />
 </div>
 
 
@@ -281,7 +456,7 @@ VA - Clubhits Top 200 Vol. 13 (2019) [FLAC|Lossless|tracks] <Club, Future House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151023.jpg" />
 </div>
 
 
@@ -308,7 +483,7 @@ magnet:?xt=urn:btih:3705706F189884C4C4FC775D6C339C8B82DE2620
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151024.jpg" />
 </div>
 
 
@@ -333,7 +508,7 @@ Doomocracy - Visions & Creatures of Imagination (2017) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151026.jpg" />
 </div>
 
 
@@ -360,7 +535,7 @@ magnet:?xt=urn:btih:8F451F1C19B13BCAA5F44C06216BACA97797FE28
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151027.jpg" />
 </div>
 
 
@@ -384,7 +559,7 @@ magnet:?xt=urn:btih:D27C0BAF5CD30D883A180E75BCE1ADC3E58798B2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151029.jpg" />
 </div>
 
 
@@ -411,7 +586,7 @@ Ulrich Ellison - Power Of Soul (2021) A Tribute to Jimi Hendrix [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151030.jpg" />
 </div>
 
 
@@ -438,7 +613,7 @@ Vivaldi 6.4.3160.44 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151031.jpg" />
 </div>
 
 
@@ -462,7 +637,7 @@ magnet:?xt=urn:btih:069E3B0D34EBF41ADE8C798AB204FC83BE7DA14F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151032.jpg" />
 </div>
 
 
@@ -473,180 +648,6 @@ magnet:?xt=urn:btih:069E3B0D34EBF41ADE8C798AB204FC83BE7DA14F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3466A91F7AFC67D8D2F486248048E294C669E4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434295   (151034) от 24.12.2020
-
-Скажи что-нибудь хорошее (2020) HDTVRip [H.264] (сезон 1, серии 1-16 из 16)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Георгий Климов – гениальный диагност и потомственный лекарь, к тому же – убежденный холостяк. Георгий не выбирает, кому протянуть руку помощи, ведь для настоящего врача не существует хороших и плохих, есть только пациенты. Любовь Георгия к оперной певице Евгении Ромашиной становится причиной его конфликта с криминальным авторитетом Романом Поляковым, а также с коллегами (   Читать дальше...   )Производство: Россия | «ЛЕАН-М», «Кинокомпания Гамма»Жанр: МелодрамаРежиссер: Станислав ДремовАктеры: Ирина Антоненко, Иван Колесников, Александр Никитин, Олег Морозов, Алла Криницына, Сергей Тодоров, Алла Малкова, Оксана Семенова, Николай Зазуля, Игорь МакаровПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267A6DDFAD139931E2E8D995BDCD80368DB3DF4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588733   (151035) от 14.12.2012
-
-Анджей Сапковский | Нет золота в Серых Горах [2002] [FB2, DJVU]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анджей Сапковский буквально ворвался в «умы и души» российских любителей фантастики совсем недавно, но его произведения уже признаны абсолютной классикой фэнтези. Однако Сапковский — не только автор любимой всеми нами саги о Цири и Геральте и потрясающих, талантливых рассказов. Помимо этого его откровенно ехидному перу принадлежат многочисленные статьи по истории жанра фэнтези, в которых он дает творчеству и творениям своих собратьев по перу КРАЙНЕ ЯЗВИТЕЛЬНЫЕ ОЦЕНКИ. Читать эти статьи — едва ли не интереснее, чем даже лучшие из романов Сапковского. А ещё интереснее — знакомиться с его впервые издающимся на русском языке «БЕСТИАРИЕМ» — ВЕСЬМА познавательным и ВЕСЬМА ироническим «путеводителем по миру мифических и магических созданий». Не верите? Прочитайте — и проверьте сами!Жанр: ФэнтезиФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5E7E34A7A1A3D5007BF390596268DA5A989C3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601412   (151036) от 31.12.2022
-
-9.7 Richter - Ground Zero (2014) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ground Zero
-02. Run/Hide/Fail
-03. Sinner
-04. The Journey(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE86363705018DE086089E9812D43D8676E98E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519082   (151037) от 22.12.2021
-
-Помпея (2020) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151037.jpg" />
-</div>
-
-
-###  Подробнее
-
-С кем провести апокалипсис? В Москве во время локдауна сняли фильм про конец света.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Валерия ВоробьеваАктеры: Кристина Асмус, Роман Евдокимов, Ольга Веникова, Дэниел Эрл Барнс, Анастасия Дьячук, Глеб БочковСубтитры: ОтсутствуютПродолжительность: 00:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D67AEB3B67E52899F079B9E722E6A7B5C6C33B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677312   (151038) от 17.11.2023
-
-Из-за тебя / Because of You (1952) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о молодой женщине Кристине Кэрролл, которая по вине своего жениха, оказавшегося гангстером, попадает в тюрьму. После выхода на свободу она устраивается медсестрой в госпиталь, где у неё начинается роман с раненым боевым лётчиком Стивом Кимберли. Вскоре они женятся, и у них рождается ребёнок. Однако Кристина так и не может рассказать мужу о своём (   Читать дальше...   )Производство: США, Universal International PicturesЖанр: драма, мелодрамаРежиссер: Джозеф ПивниАктеры: Лоретта Янг, Джефф Чандлер, Алекс Николь, Фрэнсис Ди, Александр Скурби, Линн Робертс, Гэйл Рид, Мэй Кларк, Билли Уэйн, Моррис АнкрумПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8A724FC1E5DD114BD25C834030D541701E6B4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825582   (151039) от 18.10.2025
-
-William Gard Gaffney - You Can't Take it With You (2025) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be Careful (8:21)
-02.  More Than Trouble (5:21)
-03.  Queen of the Street (4:46)
-04.  Can't Go On (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE2CBEDB1AFC8276DAD08C2D9BE98D90795E972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968728   (151040) от 25.12.2015
-
-Maxthon Cloud Browser 4.9.0.2400 Beta + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный веб-браузер, разработанный для пользователей любого вкуса и предпочтений. Maxthon предлагает богатый набор функций для улучшения Интернет-серфинга. Двойной движок для отображения веб-страниц (Trident и Blink), быстрый JavaScript-движок (V8), поддержка современного HTML5 делают все, чтобы посещаемые сайты открывались действительно быстро.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA403DD6651F9673E73C531644F0054E88246E9E
 ```
 
 

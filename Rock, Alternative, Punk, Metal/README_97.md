@@ -6,7 +6,7 @@ Famishgod - Rotting Ceremony (2021) [FLAC|Lossless|image + .cue] <Doom Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102949.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hidden - Dead Land Energy (2011) [FLAC|Lossless|image + .cue] <Progressive Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102950.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Torchlight Parade - Children of the Night (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102957.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102961.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102962.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102963.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PJ Harvey - To Bring You My Love (1995) CD, Album, Club Edition [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102966.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:FECBD1124413DEB889D51F95D021F11FBDA45A66
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102967.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:19FD84BBD35770393A46D249811360D099860448
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102971.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:CD9486ED0CC60F63586175DA4BC712EA5DAD2A52
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102972.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Brazil, 936249809
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102973.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Linkin Park - Live In Texas (2003) 2003+, China, 7-88000-508-0 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102974.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C6A90F68AB75F63976AAF28AC152BD6D712310A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102975.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:612C0F16460A89D79FF1CE3A444340A7AEFBEF2C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102976.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Asgaard - When The Twilight Set In Again (1998) [FLAC|Lossless|image + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102978.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Poppy - Negative Spaces (2024) [FLAC|Lossless|tracks + .cue] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102984.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Moondive - Dive With Me (2004) [FLAC|Lossless|image + .cue] <Power Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102988.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Bleed The Sky - Paradigm In Entropy (2005) [FLAC|Lossless|image + .cue] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102989.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Herod - For Whom the Gods Would Destroy (2004) [FLAC|Lossless|image + .cue] <Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102990.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Maggoth - System Error (2011) Ressued, 2017, Defense Records [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102991.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Coldness - Poisoned Gift (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102992.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Plague Widow - Plague Widow (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102993.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Psychotomy - Antinomia (2015) [FLAC|Lossless|image + .cue] <Death Metal, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102994.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Carmina - Carmina (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102995.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sign Of The Jackal - Heavy Metal Survivors (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103001.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:A21A753F7F82388DBA7B8310EC86FA1C139653E1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103004.jpg" />
 </div>
 
 

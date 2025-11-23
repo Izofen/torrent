@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14170.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38C3D2143061837E964602C29BA67CF90F561F21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14171.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:04AD22291D01D6995A678CF2A76C6FCC52BB3C11
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14172.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WARNO (2024) [Ru/Multi] (157953/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14173.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Microsoft Windows 10 [10.0.19045.5965], Version 22H2 (Updated June 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14175.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5-34484/dlc) Repack FitGirl [The Compl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14176.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Adobe Premiere Pro 2025 25.3.0.84 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14177.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A8FDA8B62C9F5EE8DD910A4B0DAD43FD930C07AC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14178.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14179.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D49D6872FFC6970B6518EB76C0EA829F32B4A145
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14180.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5B0F0CF63D04D03064991A536433E6A8BFF86AA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14181.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:48B82C2D4A02F66FA94437592D07AFF95FB5EC98
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14182.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A8ADC840250850826D12B7045EBE893AA5A631EF
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14183.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:55E745D5D479F599A0A3F78766E1A16C9F6716DB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14184.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sipnetic v1.1.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14185.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A4B04528654C994447DD9206EDD69FA33F7E96EC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14186.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.11.7) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14187.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ TuneIn Radio Pro v39.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14188.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Compilation Part 169 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14189.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:EBC4B0EBC6887552EBA53A6A88A7E5A3A262E057
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14190.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:EF4668F348019BC84CDA6A2BA1A4129A86C9C9DF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14191.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:AF1348BFFE75224CAEE96B860F660AD646EF094C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14192.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:CF23D8E64BB806C14372164751383CC235230989
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14193.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:AE5AE2865BC1DCFB60D22219506401713B227B78
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14194.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Electrical Calculations Pro / Электрические расчеты v10.4.3.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14195.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:A5097220C6E32361917877BCAE4F0FD4ED7B5D59
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14196.jpg" />
 </div>
 
 

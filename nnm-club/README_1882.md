@@ -6,7 +6,7 @@ T. Edet | Database Fundamentals (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49287.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4ABFAD543054E35C2CDDFFD6FC5F763239507242
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49288.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FE92FE4B2AE46871E6F3C91EFC46BFA0233019E4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49289.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Benvista PhotoZoom Pro 9.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49290.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0DC107F13F7267E4F9E7191ABBBA425B05FBC0D7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49291.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:5590D94A4EF8EDE0D9981B9918CB6C27503A897B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49292.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:A1F7AC26EA0D637B3F8F12EE0CBAD0814E94D3BA
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49293.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ OfficeSuite Pro + PDF v14.6.52833 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49294.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:FFDA4780CB38C22DC3F068E879373A0AE601BE69
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49295.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ AR Drawing: Real Sketch v3.3.77 Mod by Maximoff [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49296.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Beyond Compare Pro 5.0.1.29877 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49297.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ USB Device Tree Viewer 4.3.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49298.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Music News For Forum vol.003 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49299.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:F708C9B6E08F97561027F415AF1C54E395555999
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49300.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Files Inspector Pro 4.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49301.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:7BB72B1A57B5E64E72F1D9B763F1287F201EF479
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49302.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49303.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NASA выставило на продажу луноход VIPER
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49304.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NASA выставило на продажу луноход VIPER
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49305.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:426B11D6C687EC67F40996120FCD9A10B42BF7A4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49306.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:AB1AEA7AC66BB82A1A2E8F0CFE34D90183DD09C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49307.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Until Then (2024) [Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49308.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:495DC92190BA7191127A8E688881A7A6AA10C92D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49309.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:D87F306BE1B4867C5F1FD76777987C44CC319C3C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49310.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:02804656D0B4E2905547C4B60A23BE3C19EC01CC
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49311.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:B167D2C972AEAA1741099F21F3D290A6ED9CFBE5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49312.jpg" />
 </div>
 
 

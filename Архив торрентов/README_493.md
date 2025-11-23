@@ -6,7 +6,7 @@ RegCool 2.005 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110130.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zoner Photo Studio X 19.2403.2.539 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110135.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ n-Track Studio Suite 10.1.0.8659 (x32) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110139.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ n-Track Studio Suite 10.1.0.8659 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110148.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5270E6E731E434CC2E3C931FEAB9D8EA741B31CA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110150.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ QOwnNotes 24.4.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110156.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2974 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110169.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ FileMenu Tools 8.4.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110172.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Brave Browser 1.65.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110183.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ QOwnNotes 24.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110185.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Telegram Desktop 5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110187.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Brave Browser 1.65.126 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110192.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Shotcut 24.04.28 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110195.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FastCopy Pro 5.7.10 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110198.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:EE940E217D5A8F92CF5AD9E771B08256285B8274
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110200.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PhotoDirector v19.1.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110215.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ KineMaster - Video Editor & Maker v7.4.10.32410.GP Mod by Shadow_Patcher [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110236.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ FireAlpaca 2.11.20 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110237.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ FastCopy Pro 5.7.8 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110239.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ PhotoRoom 4.9.4 (b1368) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110243.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ PowerDirector – Video Editor v13.4.2 b2405031 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110245.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Lucky Patcher 11.3.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110247.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ YT Downloader 9.7.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110255.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Tablacus Explorer 24.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110258.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:7E972E6A785C7ACE5F0D2AF138B6CA201BDF86B5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110259.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Aiseesoft Video Converter Ultimate 10.8.8 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110260.jpg" />
 </div>
 
 

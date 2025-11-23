@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115567.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NVIDIA GeForce Desktop Game Ready 551.61 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115575.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Desktop.Calendar.Tray.OK 4.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115578.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AntiPlagiarism.NET 4.130.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115580.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ TechSmith Camtasia 23.4.3 (Build 51546) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115585.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115592.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115597.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115599.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Hard Disk Sentinel PRO 6.20 Build 13190 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115606.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ CrystalDiskInfo 9.2.3 (24.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115611.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Adobe Illustrator 2024 28.3.0.94 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115619.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Office Tool Plus 10.8.5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115620.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ uTorrent Pro 3.6.0 Build 47016 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115633.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Acrobat Reader 2023.008.20555.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115635.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe Acrobat Pro 23.8.20555 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115637.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Text Editor Pro 28.4.3 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115710.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Fitify: Фитнес тренировки дома 1.66.2 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115717.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ NetLimiter 5.3.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115718.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Photo Lab PRO v3.13.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115719.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ TrustViewer 2.11.0.5090 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115725.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ LibreWolf 123.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115733.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ FurMark 2.1.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115738.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Device Info / Информация об устройстве 3.3.5.24 Mod by Bal
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115741.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ FileMenu Tools 8.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115744.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ KiCad 8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115751.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:A0BAE27665733497879E9462D3BF68F7B8432BD8
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115759.jpg" />
 </div>
 
 

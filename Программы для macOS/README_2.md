@@ -6,7 +6,7 @@ Affinity Publisher 2 v.2.4.1  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61700.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Screen Studio for Mac ARM/iNTEL 2.22.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61701.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Magic Disk Cleaner 2.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61707.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ ActiveDock 2 for Mac v.2.601 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61709.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Money Pro - Personal Finance 2.10.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61710.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Swinsian 3.0 Preview 15 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61711.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Rectangle Pro 3.0.21 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61712.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AI Transcription 2.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61713.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Affinity Designer 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61729.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Termius for Mac 8.10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61743.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Wondershare PDFelement Pro 10.3.1 (OCR) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61749.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Affinity Photo 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61753.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ XMind Pro 2024 24.01.14362 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61767.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:96B223622C769E8D8910070860144B0AC6CE508F
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62010.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Fork 2.41.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62013.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E8736911678D02C4ACD1965F82A43382CE38341D
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62022.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Luminar Neo 1.18.3 U2B  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62059.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Steinberg Cubase Pro for Mac 13 v.13.0.30 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62113.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ All to MP3 Audio Converter 5.2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62126.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Moho Pro for Mac 14 v14.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62146.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Wondershare Repairit 5.5.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62148.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ JetBrains GoLand for Mac 2023.3.5 Intel  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62219.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ JetBrains RubyMine for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62232.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ DRmare Audio Capture 2.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62234.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Notebooks – Write and Organize 3.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62236.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ JetBrains GoLand for Mac 2023.3.5 ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62242.jpg" />
 </div>
 
 

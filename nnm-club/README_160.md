@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4211.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:86E8737A9FCD7A6938CE10E6F6C42CEBB235FC4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4212.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4213.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7214A458E7FBF6DBDCEA9A07721F8D1556E708B4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4214.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:60E94A83DCA88B2A72490EFF1DFD28399F859233
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4215.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9A03CA96CEFAD971E314FA21ED42392D602DA532
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4216.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Berserk: Ougon Jidai Hen | Берсерк | Berserk Golden Age Arc | Берсе�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4217.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:166DB4F59C02F7F49F26733CC461BF62EED407DA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4218.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:147F87DF8BA94FFBA59064D6C5AFEC6B966AACC9
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4219.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6021FDDF3193BEF34AE33182F1C54817096F7A73
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4220.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1093513) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4221.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4222.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D2F9E5AD3DBE3E715C6B18939BE73725F392CCD0
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4223.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5C625D74A838836A05655FDE8CBDBA5126DE2EFC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4224.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:5C625D74A838836A05655FDE8CBDBA5126DE2EFC
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4225.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:E661518ACEA315A969CCB5DDDAE933C9DBFE6AD5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4226.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Futuremark 3DMark 2.32.8426 for Enterprise RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4227.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:B6196F2ABD2B9FD440773F585CA79EEEA7E3A842
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4228.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:AED5A9DDA551EB7CE89102FDE7F49D5C9805E442
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4229.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ SnowRunner (2020) [Ru/Multi] (38/dlc) Repack FitGirl [4-Year Anniversary Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4230.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ef - a Fairy Tale of the Two Original Soundtrack Collection (2007-2009)[FLAC]<OS
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4231.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:3F1F0BDB0421957C88D20936E7F46FF79DB5CF27
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4232.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4233.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4234.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Adobe Acrobat Pro 2025.001.20672 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4235.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:BDB44266744F3ECE6FDF1E94EC7B7AB0E650C388
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4236.jpg" />
 </div>
 
 

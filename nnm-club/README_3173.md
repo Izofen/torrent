@@ -1,3 +1,77 @@
+###  Публикация: 1822775   (101606) от 08.10.2025
+
+Проекты - VideoHive - Frame Slideshow - Clean and Elegant Gallery - 59681776 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frame Slideshow — это простой и современный шаблон After Effects, разработанный для фото и видео презентаций.
+
+Музыка очищена и предоставлена.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC72F688055422F17D2DB585A1A30CE2E24868A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822774   (101607) от 08.10.2025
+
+MAX Desktop 25.12.2 [Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667ADD899C20C1255C8A4C0BFE36D1E5A166D4CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822770   (101608) от 08.10.2025
+
+Шрифты - MyFonts - Ice Cream [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ice Cream – это продукт заброшенной концепции шрифта – несвязанного шрифта для упаковки продуктов питания. Первоначальные образцы были настолько культовыми, настолько вдохновляющими, что требовали доработки. Извилистый, с изрядной долей веселья, честно говоря, и я бы не хотел ничего другого. На него сильно повлияли Kari и Juicy (и даже бесстыжие копии моих оригиналов, (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5776FFBBEE9B8DE64D29ED4F1339225ECF5328DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822751   (101609) от 08.10.2025
 
 Люди и звери (1962) WEBRip [H.264/1080p] (серии 1-2 из 2)
@@ -6,7 +80,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101609.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101610.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:EBB165BD1F909F91D966EF245BB26E87CE014BC4
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101611.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:DEE8DB172764EFD4F6127932A734B4D536295DC6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101612.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:FD2A967083FCFA1CC0C17FE42D21260798E3EA3C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101613.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:6AA898A47830BB3C346DB0CB315B18FB03E20860
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101614.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ magnet:?xt=urn:btih:8C08C83B6D80505683667D09D955FF2254687B26
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101615.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:4C66AC5C99D90467930FB2FA42337F558989C075
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101616.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ magnet:?xt=urn:btih:CB151E63E66EC56E2DD82A24C464BB0EAEA6F425
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101617.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ Internet Download Manager 6.42 Build 50 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101618.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ magnet:?xt=urn:btih:671B13F0720CC0CC0FB4D0016F02E214A02C68EF
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101619.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ magnet:?xt=urn:btih:4294B6C13A237FD1E58C0B3623D9A89255666C54
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101620.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ magnet:?xt=urn:btih:311661AF33A976B21310A25AF9DD332F8412647D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101621.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ magnet:?xt=urn:btih:80464013BF57092905210BC86F362145F6468740
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101622.jpg" />
 </div>
 
 
@@ -346,7 +420,7 @@ magnet:?xt=urn:btih:CC8931DC3A8F71737E849393669419A4D1375194
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101623.jpg" />
 </div>
 
 
@@ -370,7 +444,7 @@ Notepad++ 8.8.6 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101624.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ Aversed - Erasure Of Color (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101625.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ magnet:?xt=urn:btih:18725F3066A86A2F87FCEDAF44C519C2724DBE86
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101626.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ magnet:?xt=urn:btih:0435B486AF93A8F7D0138A5F9756B1A02000A611
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101627.jpg" />
 </div>
 
 
@@ -470,7 +544,7 @@ Internet Download Manager 6.42 Build 49 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101628.jpg" />
 </div>
 
 
@@ -494,7 +568,7 @@ FastStone Capture 11.1 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101629.jpg" />
 </div>
 
 
@@ -518,7 +592,7 @@ magnet:?xt=urn:btih:A5F397CCDADD2E215E1AB0A786C82C813611B92E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101630.jpg" />
 </div>
 
 
@@ -543,7 +617,7 @@ Marmoset Toolbag 5.02 (5022) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101631.jpg" />
 </div>
 
 
@@ -554,78 +628,6 @@ Marmoset Toolbag 5.02 (5022) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10E45BD7D0262C377AAB47563EE31E36A48F17D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822721   (101632) от 08.10.2025
-
-Избранный (2025) WEBRip (сезон 1, серии 1-20 из 20)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромного сотрудника НИИ Олега Тяпина неожиданно избирают в Думу нового созыва. Он совсем не хочет быть депутатом, но долг есть долг — Тяпин отправляется из провинциального Глебова в Москву, чтобы приступить к новым обязанностям. Герой пройдет все стадии развития и становления себя как нового человека, влюбится, а самое главное — переживет массу комичных ситуаций.Производство: Россия | «MEM Cinema Production»Жанр: Комедия, драмаРежиссер: Алексей Зотов, Дмитрий ГубаревАктеры: Илья Лыков, Александр Лыков, Дмитрий Смолев, Евгения Добровольская, Артём Осипов, Нонна Гришаева, Камиль Ларин, Антон Даниленко, Ксения Теплова, Иван Писоцкий и др.Субтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FED958FF5D83C62B50FB1C35498102270614F65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822700   (101633) от 08.10.2025
-
-Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 02.10.2025) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8691B7917F4169072E8A7577BC5818CF089BAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822732   (101634) от 08.10.2025
-
-SketchUp Pro 2026 26.0.429 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101634.jpg" />
-</div>
-
-
-###  Подробнее
-
-SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B50B2E4C582DE32E2F42EE27817B17035B184C1
 ```
 
 

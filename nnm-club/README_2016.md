@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 70 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52781.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3CECAEB2D9AAB608EAC2B4D4DBE708AF30015CCE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52782.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:B28E19BB8238ADC7915C66FC66DB9A2389C40282
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52783.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:56D1201E91BD1E78CC1B5B98CFC24168091880EB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52784.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:305C7476845A64EC85FB46A496EC9ED33AFEB3AB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52785.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52786.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:AB33419368225BDAF36DE31C1DDFB0B26164D728
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52787.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:2947F8D1C009C506C240BADDADA7A700810B7A14
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52788.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:063AE3CA1DD932F1F8E2F615B948DD32C5537B32
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52789.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:5D9DEA81FB545979596FBDF684A47496278F9BD3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52790.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:31ED8DAA919FB0922E04F8B5182F89CA85E50184
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52791.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:A322D16095A17323CFFD1C9214C5A302D1921AC5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52792.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ O Launcher 12.3 (ARM64) Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52793.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Instant Audio - BassRift 1.2.0 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52794.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Maurice Ravel - The Complete Works (2020) 21CD [FLAC|Lossless|image + .cue] <Cla
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52795.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52796.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:DD230ED1C7811AE0602A3652AB10934ADE2C1B6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52797.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:170406030B7593598A31BB4D1DD3BBA95B0CB5BB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52798.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:60151A0D3B03103C629C7A4C294357B11ECD2B09
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52799.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Today Weather - Прогноз погоды 2.2.1-15.140524 Mod by Kirlif' [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52800.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52801.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
 >>Менты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52802.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Collins | Thai Visual Dictionary (2021) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52803.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:5D89CE247190049E0E9A640B0F8CE4C1E739331E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52804.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52805.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52806.jpg" />
 </div>
 
 

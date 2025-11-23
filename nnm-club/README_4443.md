@@ -1,3 +1,77 @@
+###  Публикация: 1349287   (137388) от 31.12.2019
+
+ФотоМАСТЕР 8.0 RePack (& Portable) by KpoJIuK [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137388.jpg" />
+</div>
+
+
+###  Подробнее
+
+ФотоМАСТЕР - мощная программа, позволяющая быстро и качественно улучшать фотографии. Благодаря инновационной архитектуре, "ФотоМАСТЕР" даёт возможность изменять любые параметры фотоснимков и отменять эти изменения в любом порядке без потери качества.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C167DF02D39F00E302C658E7B6A704ACE3755F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520977   (137389) от 31.12.2021
+
+BELOFF [dp] 2021.12.5
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник программ для автоматической установки драйверов в Windows x86-x64.
+
+Приятного времяпрепровождения за компьютером!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD96EEDD109807468D8BA6759D731DBB4670E7AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970658   (137390) от 31.12.2015
+
+Alcohol 120% 2.0.3.8426 RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alcohol 120% - эмулятор CD/DVD-дисков. Программа создает на жестком диске ПК пользователя образ диска с данными, аудио или видео информацией, а затем предоставляет доступ к этим данным другим программам так, словно искомый диск находится в приводе. Alcohol 120% поддерживает работу со многими форматами CD/DVD, имеет возможность работы с 31 образом одновременно, обеспечивает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8857339FFB7682222D9C55A6AC4812F506C5BFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195514   (137391) от 31.12.2017
 
 Тайны следствия (2017) HDTVRip (сезон 17, фильмы 1-12 из 12)
@@ -6,7 +80,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137391.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:2C380CE9EF5EE6941611CB433AA31159B5F8D06D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137392.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:FDC54BA47A0BC726CB1347A46ECF942230CB671E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137393.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:DAC06EA9E55F4AB4E2D010C42C5244C92DD00520
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137394.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ TMPGEnc Movie Plug-in AVC v1.0.9.9 CE RePack by Team VR [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137395.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:C99D93E47C7F9A85000A097283952D1A5B5DD5BB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137396.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ magnet:?xt=urn:btih:16CDF287BCB4AE91E786EAD9A5255E18043AE289
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137397.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:2112C756C8EBE80A25466A355704E2AD337674FA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137398.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ magnet:?xt=urn:btih:AD965988EF48B311D61E9F1C55890678CA85E931
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137399.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ reaConverter Pro 7.618 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137401.jpg" />
 </div>
 
 
@@ -250,7 +324,7 @@ magnet:?xt=urn:btih:C89ED8908826AE4908A48C2127A98185BE958A38
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137402.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ Daum PotPlayer 1.7.7145 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137404.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ magnet:?xt=urn:btih:3922E87F445B92251853E428223E4F314B8C949F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137405.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ magnet:?xt=urn:btih:3B116195A7C5EF2D8FDAABBAC9017E96B364AE3E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137406.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ magnet:?xt=urn:btih:019367FFA040D0D6DAD48A0BCECFE1480B7A669F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137407.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ magnet:?xt=urn:btih:24C3380C5E24F4B86185FE114B21B8A7B86D0275
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137408.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ magnet:?xt=urn:btih:255258C643908EA3B33A89ED1FF0CFA5EA559034
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137409.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ DVDFab StreamFab 6.1.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137410.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137411.jpg" />
 </div>
 
 
@@ -470,7 +544,7 @@ magnet:?xt=urn:btih:A57E698C8B55F5E730651AE4548F372EC7CEF3E1
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137412.jpg" />
 </div>
 
 
@@ -496,7 +570,7 @@ Jixipix Premium Pack 1.2.11 (x64) Portable by Spirit Summer [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137413.jpg" />
 </div>
 
 
@@ -521,7 +595,7 @@ Kekkai Sensen & Beyond | Фронт кровавой блокады-2 [2017, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137414.jpg" />
 </div>
 
 
@@ -545,7 +619,7 @@ magnet:?xt=urn:btih:6886D3B0722112748AF022B940BB2883AAA4C3F0
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137415.jpg" />
 </div>
 
 
@@ -556,78 +630,6 @@ magnet:?xt=urn:btih:6886D3B0722112748AF022B940BB2883AAA4C3F0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DEC079A4EBF17CBBF74CE7E561D2C4BB80C9B46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088711   (137416) от 31.12.2016
-
-Champions of Anteria (2016) [Ru/En] (1.7.499537.X/dlc) Repack R.G. Механики
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Champions of Anteria – тактическая стратегия, рассказывающая о сказочной стране Энтерии. Пяти героям предстоит восстановить мир в королевстве и сокрушить всех врагов, стоящих на пути к достижению цели. Каждый из персонажей связан с одной из стихий - огнем, водой, природой, электричеством и металлом. Но на одно задание может отправиться лишь трое, и игроку нужно решить (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ByteЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D586173FBEA11E63342F8F4B06A86C2AD9BE7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436203   (137417) от 31.12.2020
-
-Ларри Симон. Каскадер / The Stunt Man (1927) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из последних фильмов Ларри Симона. Ларри любит девушку, а она его - нет. Чтобы от него отвязаться, она говорит ему, что выйдет замуж только за кинозвезду. Ларри решает стать кинозвездой, но его принимают каскадёром.Производство: СШАЖанр: Короткометражка, комедия, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Дороти Рейнор, Джек ’Тини’ Липсон, Чарльз Микин, Аль Ст. ДжонЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DAEB78F1E479C46872B780E9C567AD13083C16C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256499   (137418) от 31.12.2018
-
-Himote House | Himote House: A Share House of Super Psychic Girls | Дом Химотэ [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три сестры Химотэ: Токиё, Кинами и Кокоро живут в одном доме вместе со своими подругами и котом. И всё бы ничего, вот только все обитатели дома обладают таинственными силами.Производство: BouncyЖанр: комедияРежиссер: Исидатэ КотароПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DBFAF011A075809037A7366BC74B8629E5E8F7
 ```
 
 

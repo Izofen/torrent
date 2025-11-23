@@ -1,3 +1,153 @@
+###  Публикация: 1347833   (142552) от 28.12.2019
+
+Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальные грузовики! Реальное безумие! Monster Jam Steel Titans - это невероятные заезды на монструозных машинах для всех и каждого! Трюки, грузовики, арены, головокружительные полеты - и все это в одном месте! Соревнуйтесь в различных режимах на аренах и трассах, выполняйте трюки и крушите всё вокруг!Тип издания: RepackРазработчик: Rainbow StudiosЖанр: Казуальные игры, Гонки, Спортивные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7A301B78E67FAAE587925ED98C5F5E2C73CC37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678922   (142553) от 23.11.2023
+
+uDock 4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142553.jpg" />
+</div>
+
+
+###  Подробнее
+
+μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013101D4F90F8A402ADC8F3503442F4527057A88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195360   (142554) от 29.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 34) (Compiled by Виктор31RUS) (2017) [MP3|224-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Валентина Готовцева  -  Ах, Самара-городок  3:37
+02.  Евгений Кибкало  -  Что так сердце растревожено  5:44
+03.  Виктор Иванович Селиванов  -  Три танкиста (к-ф Трактористы)  3:16
+04.  Марина Ладынина  -  Каким ты был  2:59(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0531650283652F24D2137FE3045C4C367E3332A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969855   (142555) от 29.12.2015
+
+Мир дому твоему (1987) DVDRip [H.264] [Реставрация КП]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сатирические миниатюры на социальные и морально-этические темы в постановке театра "Сатирикон".Производство: СССР, ТО "Экран", "Сатирикон"Жанр: СатираРежиссер: Аркадий Райкин, Константин Райкин, Марк ОрловАктеры: Аркадий Райкин, Константин Райкин, Тамара Кушелевская, Наталья Аитова, Феликс Аитов, Елена Бутенко-Райкина, Владимир Большов, Сергей Друзьяк (II), Игорь Еремеев, Сергей Зарубин, Александр Карпов (II), Лилия Макарова, Роланд Тер-Макаров, Владимир Михайловский, Лидия Петракова, Леонид Тимцуник, Виктор Шимановский (II)...Продолжительность: 01:26:30 + 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9BDABBE1F38C0E3A6ABC52663DEB0072D27B7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590553   (142556) от 17.12.2012
+
+Журнал | Вязание для вас №1 (январь 2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142556.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале представлены женские и мужские: пуловеры, жакеты, накидки, связанные спицами и крючком. Модели доступно проиллюстрированы фотографиями, подробными описаниями по выполнению работы, точными выкройками и схемами узоров.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6640D978F2715C99F26C8961E647E51E4F19F37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678965   (142557) от 23.11.2023
+
+Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louder Than Hell (5:53)
+02. The Book of Fire (6:15)
+03. Funeral Song (5:25)
+04. Symphony of Pain (4:33)(   Читать дальше...   )Жанр: Gothic Rock, Gothic Metal, IndustrialПродолжительность: 01:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5247DE63585EFAEEF08CFBB9162FD1D21341F003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087877   (142558) от 29.12.2016
 
 Visage - The Face (The Very Best Of Visage) (2010) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
@@ -6,7 +156,7 @@ Visage - The Face (The Very Best Of Visage) (2010) [FLAC|Lossless|tracks + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142558.jpg" />
 </div>
 
 
@@ -33,7 +183,7 @@ magnet:?xt=urn:btih:32C99266D31C72FAB9C1D7BFCDAA0BDAB44DEA0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142559.jpg" />
 </div>
 
 
@@ -57,7 +207,7 @@ magnet:?xt=urn:btih:BCBFB47B9F741E6742510052D4ECD5513DB426E3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142561.jpg" />
 </div>
 
 
@@ -81,7 +231,7 @@ magnet:?xt=urn:btih:207A011D1BF0E7334E0C357FF5EB37A4AACCF391
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142562.jpg" />
 </div>
 
 
@@ -105,7 +255,7 @@ magnet:?xt=urn:btih:51DD3414F6E0992AD003880E4470E0DF5EF0258F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142563.jpg" />
 </div>
 
 
@@ -129,7 +279,7 @@ magnet:?xt=urn:btih:05A60CBE65F00E79A6B4D7F13F511CD83097D392
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142564.jpg" />
 </div>
 
 
@@ -153,7 +303,7 @@ Story of the Year - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142566.jpg" />
 </div>
 
 
@@ -180,7 +330,7 @@ magnet:?xt=urn:btih:7C5E18BAD5DD4B908AAB34D1FBD4F2642A2CBF0F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142567.jpg" />
 </div>
 
 
@@ -204,7 +354,7 @@ VA - Hard Trance 2019: Top 40 Hits Electronic Hard Psy Goa Techno House EDM Danc
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142568.jpg" />
 </div>
 
 
@@ -231,7 +381,7 @@ magnet:?xt=urn:btih:A0A2460154960CC6DF9CD54E3587D179A6A1D863
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142569.jpg" />
 </div>
 
 
@@ -257,7 +407,7 @@ magnet:?xt=urn:btih:68D2DAC894EFCC109E215ED6ABED5E4FF2262415
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142570.jpg" />
 </div>
 
 
@@ -281,7 +431,7 @@ magnet:?xt=urn:btih:4A0B151345922C9DA48402BABE53827B7E9B58F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142571.jpg" />
 </div>
 
 
@@ -305,7 +455,7 @@ Midnight Dreams - Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142572.jpg" />
 </div>
 
 
@@ -332,7 +482,7 @@ magnet:?xt=urn:btih:738EE9F46F84AF6CB5A1311E575F6B41F3052D17
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142573.jpg" />
 </div>
 
 
@@ -356,7 +506,7 @@ Door Kickers v.1.0.9 (2015) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142574.jpg" />
 </div>
 
 
@@ -383,7 +533,7 @@ Sieges Even - The Art Of Navigating By The Stars (2005) [MP3|320kbps] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142575.jpg" />
 </div>
 
 
@@ -410,7 +560,7 @@ magnet:?xt=urn:btih:3668F78C448A29F4533ADCF44CA8B2E984678BF7
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142576.jpg" />
 </div>
 
 
@@ -434,7 +584,7 @@ magnet:?xt=urn:btih:3068AF0DB033F3F8A3604E96B8FB59D89C74E513
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142577.jpg" />
 </div>
 
 
@@ -458,7 +608,7 @@ magnet:?xt=urn:btih:09C4B51BCA309BF7D3EACB656501B325354618BA
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142579.jpg" />
 </div>
 
 
@@ -485,7 +635,7 @@ magnet:?xt=urn:btih:2B3975971DE0642889C06C3B8BBACF44726113A2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142580.jpg" />
 </div>
 
 
@@ -496,158 +646,6 @@ magnet:?xt=urn:btih:2B3975971DE0642889C06C3B8BBACF44726113A2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C909FCD4E55FDC88F3C05065B5FAA2870B77225C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679012   (142581) от 23.11.2023
-
-Legacy - Stand And Conquer (2003) [MP3|320 Kbps] <Progressive, Power Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Free To Fly [00:05:02]
-02 - You Can't Hide [00:03:24]
-03 - Stand And Conquer [00:03:58]
-04 - Sky Will Burn [00:04:07](   Читать дальше...   )Жанр: Progressive, Power Metal, Hard RockПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC650B0B807BABF4081945B45E2B87666D7827D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435893   (142583) от 29.12.2020
-
-Disk Space Analyzer Pro 3 v3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Space Analyzer (Disk Expert) - приложени позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
-Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, смонтированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB5246F3307F786130B802614084C09F06C7B49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272529   (142584) от 28.12.2018
-
-VA - Best 50 New Year 2019 Edition (2018) Compiled by mCITY [MP3|320 Kbps] <Eurodance, Eurohouse>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery & Emma Hewitt - Take Everything (Extended Mix) (4:29)
-02. Alan Walker - Faded (Dash Berlin Remix) (3:36)
-03. Brisby & Jingles - Surrender (4.Boyz Remix) (4:15)
-04. Alan Walker - All Falls Down (3:19)(   Читать дальше...   )Жанр: Eurodance, EurohouseПродолжительность: 03:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844B0BA6F832EB6945AC335227C2E1F0D6CF0B39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970076   (142585) от 29.12.2015
-
-Екатерина Шагалова | Самый новейший толковый словарь русского языка XXI века (2011) [FB2]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142585.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Словаре описано около 1500 слов, появившихся в русском языке в первом десятилетии XXI века и еще не зафиксированных толковыми словарями русского языка. В основном это заимствования из английского, реже немецкого и французского языков. Словарь поможет читателю лучше ориентироваться в этом море названий. В нем представлена максимально полная информация о новом слове: (   Читать дальше...   )Жанр: Языкознание, Справочники, СловариФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A417EC2215E8C9A59D12F9BFCC573C2FA162FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348701   (142586) от 28.12.2019
-
-Артём Исламов | Путь фрилансера. Поколение людей, работающих в интернете (2019) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ключ от свободы скрыт в книжном магазине. Данное произведение — золотой ключ от двери с надписью «Фриланс».
-Это история сильной личности, выковавшей себя из камня. Это глубоко, честно и про каждого из нас. С первых страниц автор затрагивает струны души тех самых людей, которые захотели жить по-другому. И самое уникальное то, что в книге раскрыт подробный план к действиям. (   Читать дальше...   )Жанр: Просто о бизнесеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0156C42AFA94F03E224506732F957141CC9FD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970175   (142588) от 29.12.2015
-
-Андрей Посняков | Невеста из ниоткуда (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женька Летякина – студентка, спортсменка, красавица… и просто девушка решительная. Поэтому, когда пришлось спасаться бегством от злоумышленников, она, недолго думая, прочитала заклинание «на отворение Врат», которому ее научила бабушка-колдунья, и оказалась… в 964 году от Рождества Христова. Как раз в это время верховный правитель племени весь Миронег отправил в (   Читать дальше...   )Жанр: Русское фэнтези, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3A8597A62CD36CC982C68C12E1B33320412379
 ```
 
 

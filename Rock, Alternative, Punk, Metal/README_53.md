@@ -6,7 +6,7 @@ Daron Malakian and Scars On Broadway - Addicted To The Violence (2025) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65277.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Reign Of Glory - Slingshot (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65282.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anapilin - Dezintegracija (2021) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65288.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fallujah - Xenotaph (2025) [FLAC|Lossless|image + .cue] <Technical Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65290.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cryptopsy - An Insatiable Violence (2025) [FLAC|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65291.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Upon A Burning Body - 6 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65292.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kerosin - Через тернии к монстрам (2025) [FLAC|Lossless|WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65303.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Heaven Shall Burn - Heimat (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65310.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hell - Human Remains (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65319.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Night Must Fall - Dissonance of Thought (2007) (EP), Released, 2008, Descending 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65332.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Maniae - Vestiges (2023) (EP) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65333.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65334.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Black Majesty - Oceans of Black (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65335.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ In The Woods... - Otra (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65344.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Mighty Dead Rabbits - Fly High Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65349.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Exvamon - Odyssey of Fate (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65351.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Tropical Fuck Storm (TFS) - Fairyland Codex (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65352.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Formless - Eon (2016) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65356.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Gruesome - Fragments of Psyche (2017) (EP) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65357.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Carn - Colors With Your Flesh (2023) (EP) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65374.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Atomic Rooster - Atomic Rooster (1980) 2 x CD, Reissue, Remastered, 2025, Esoter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65379.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Black Rose - The Mirror (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65385.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Death Heaven - Techno Decomposition World (2005) (Demo) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65390.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Devilskin - Re-Evolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65392.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Boguslaw Balcerak's Crylord - Lost Bloody Heroes (2025) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65405.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Jorum - Vortex of Madness (2025) [MP3|320 Kbps] <Heavy, Doom Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65409.jpg" />
 </div>
 
 

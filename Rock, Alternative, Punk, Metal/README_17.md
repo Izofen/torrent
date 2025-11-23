@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21953.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21953.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mark Morton - Without The Pain (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Count
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21955.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21955.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Arida Vortex - The Illustrated Man (2015) [FLAC|Lossless|image + .cue] <Power Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22092.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Who - The Best Of (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22185.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22185.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ L.A. Guns - Leopard Skin (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22266.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Covers Rock Bangers (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22279.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22279.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Совсем Не Popsовые (2014) [MP3|320 кб/с]<Ska, punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22313.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Unreqvited - Collection 13 Releases (2016-2025) [FLAC|Lossless|Web-DL|tracks + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22314.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) Live [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22407.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Iommi, Glenn Hughes - Fused (2005) Reissue, 2024, BMG [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22472.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22472.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ratt - The Atlantics Years (1984-1990) (2020) 5 x CD, Box Set [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22578.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22578.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Arch Enemy - Blood Dynasty (2025) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22596.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22596.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Uli Jon Roth & Electric Sun - Earthquake (1979) Remastered, 2023, Alpha Experium
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22602.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1663A3231A80C6D93BC3BD1F802B3D839F48499A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22829.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22829.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ UFO - The Complete Studio Albums 1974-1986 (2014) BOX Set, 10xCD, Compilation, R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22991.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22991.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Arch Enemy - Blood Dynasty (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23007.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23007.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Arch Enemy - Blood Dynasty (2025) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23097.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23097.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Santana - Sentient (2025) Compilation [FLAC|Lossless|tracks + .cue] <Blues Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23100.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23100.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A585F170C2E93C30A5A46A3EFFDE8D4667DEE25F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23282.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B050DC81F1B80ACA4BC38A215314C26A5D9425E8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23460.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:4078967B40A0813CFAA6FF334F2AC5C51DC8712F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23466.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23466.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Car Karaoke Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23518.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23518.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:1808CD58DDB6F9FF5D4ED8DA59DC15FC789502E4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23737.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Rush - Rush 50 (2025) Anniversary Super Deluxe [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23842.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23842.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ ROOK ROAD - Rook Road II (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23949.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23949.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Naxatras - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner, Space Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24160.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24160.jpg" />
 </div>
 
 

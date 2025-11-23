@@ -6,7 +6,7 @@ Manowar - Battle Hymns (1982) Reissue, 1987, Liberty [DSD|tracks|Vinyl-Rip] <Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68209.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fatal Embrace (Germany) - Studio Albums (7 releases) (2000-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68217.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sheila - A L’avenir (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Chanson>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68220.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bleed from Within - Zenith (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68222.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Natacha Lycurgue - Falling Petals - The Fearful-Avoidant's Discard (2025) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68227.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Devil Makes Three - Spirits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68228.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jerome Godboo - Deep Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68229.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alliance - Before Our Eyes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68230.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ne Obliviscaris - Studio Albums (6 releases) (2012-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68231.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mulvey's Medicine - Dopamine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68233.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Seth Walker - Why The Worry (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68240.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Night Intruder - Hellbound & Free (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68242.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Night Intruder - Sick Pretty Thing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68246.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Nova Revolution - Tour de force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68249.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Heavylution - The Cycle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68252.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nightwish - Dark Passion Play (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68253.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Frantic Amber - Studio Albums (3 releases) (2015-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68261.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Phantom Alley Swing - Pineapple Parade (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68265.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Nightwish - Elan (2015) (Singles) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68303.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Thornhill - Bodies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68306.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Fear Factory - Soul of a New Machine (1992) [FLAC|24/192|tracks|Vinyl-Rip] <Deat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68308.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Injustice System - Collapse of Mind (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68325.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Iron City Houserockers - Blood On The Bricks (1981) Remastered, 2025, Omnivore R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68326.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Persefone - Studio Albums (7 releases) (2004-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68327.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Tenebrae - Loss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68329.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Korgull the Exterminator - War of the Voivodes (2010) Reissue, 2014, Doomentia R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68330.jpg" />
 </div>
 
 

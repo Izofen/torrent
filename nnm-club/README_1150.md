@@ -6,7 +6,7 @@ Genius Art: Image AI Generator v1.1.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30253.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30253.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A5E4E7BCC285F5A1FE7830E3AE86F6AFDF19539A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30254.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:46A62B085422F4143B21FB834175B54A2946E9FB
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30255.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A4BF357C0854A6BBCE8F935194C625CC822BC17A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30256.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30256.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:F94BA3728D7CC042BF1555B588B661F3AB714282
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30257.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30257.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Windows Server [10.0.25398.1369], version 23H2 (Updated January 2025) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30258.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30258.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ FliFlik KlearMax for Photo 3.0.0 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30259.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:B5FC2630A0B71CC24CDC0C280A3A3FDF4E53305E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30260.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B5FC2630A0B71CC24CDC0C280A3A3FDF4E53305E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30261.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Microsoft Windows 11 [10.0.22631.4751], Version 23H2 (Updated January 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30262.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:047D5C7C9253E4A6AAC5B3CAF38047580656A679
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30263.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30263.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ iTubeGo 9.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30264.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Gangs of Neo Tokyo (2025) [En] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30265.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30265.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:D8DF06488878A138EA68E3FB4C5CA1AAECEBAACE
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30266.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:37391239C5A0722B5A4F38F462FEF6615EACC0CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30267.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:37391239C5A0722B5A4F38F462FEF6615EACC0CB
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30268.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30268.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft Windows 11 [10.0.26100.2894], Version 24H2 (Updated January 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30269.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:FD724C4B2A0AA614C0A7DABF2C0BFC42AA5DEF43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30270.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:FD724C4B2A0AA614C0A7DABF2C0BFC42AA5DEF43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30271.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30272.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30272.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:16E23AEE73EA6D92F37B06376572DEAE43D0DEE5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30273.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Microsoft Windows 10 [10.0.19045.5371], Version 22H2 (Updated January 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30274.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30274.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ CGMA, David Mooy | Intro to Maya (2020) WEBRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30275.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:44B6D6B4F862B2612E385B3E8233AC7538D32C98
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30276.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30277.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30277.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ TrafficMonitor 1.85 Portable [En/Cn]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30278.jpg" />
 </div>
 
 

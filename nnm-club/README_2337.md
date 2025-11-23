@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61127.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:427DDAE75308CF39A8E26EF36DA09FA987B7D219
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61128.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61129.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:38B17917FC0C10638046803F7D7D4921176AC8F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61130.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ BBC: Революции: Идеи, изменившие мир / Revolutions: Id
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61131.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D3EC5A4A6A3A077E907E8AAF053E3B7AD8593B82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61132.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7D3B9B44B132AB9DDB9F52248FEF9C3DD7957510
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61133.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:11E77D88D4C8D1C897AB659B87ED9C0FE3442745
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61134.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:29BAA39E637F1FD87DE58978DC647418E522258C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61135.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:10D55F40DF3D3FF995471473E06ED5F9C9B3B4D5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61136.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ BBC: Мир природы. Очковые медведи: Лесные тени
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61137.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Bruce Dickinson - 12 Albums, 15 Singles, 77 CD (1989-2024) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61138.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:A74697EF6188E292C80D3DA8BBE03DFE33F85CEB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61139.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:A069D22443E3183236F6546E8D56A44B5C488E62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61140.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:639EC65B489EB1132D73F885C636D7737CFB0D11
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61141.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ MANIAC (2024) [Ru/Multi] (0.9.12B) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61142.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:9AA8E9647D381E7CCF06F55A8373F587DCAF226D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61143.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:8937896654240ADBFAA38C750F8FE2CC64512CD4
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61144.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:1C0CD24D7BD6FEE5372A65976D43A6CBCFC37C78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61145.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:C3419AC98318ED890534B52A2229DE71BD6F35FF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61146.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:F49B04A7D86841D68E173746C08961BC3051877A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61147.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Adobe Illustrator for Mac 2024 v.28.4.1 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61148.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:5D56AD21931AF1DB12B3EF681149A06CBAD34BDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61149.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:65E394D8113563FA75214C623883DC7175AE8D9C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61150.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:D5679B562712EFF2A63393298CFACC9C858B384B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61151.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Repack FitGirl [Vanguard E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61152.jpg" />
 </div>
 
 

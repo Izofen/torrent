@@ -1,3 +1,77 @@
+###  Публикация: 1672859   (167145) от 30.10.2023
+
+VueScan Pro for Mac 9.8.20 ARM/Intel [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167145.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan является приложением для работы со сканерами Minolta, HP, Nikon, Epson, Polaroid, Canon и мн.др. Поддерживается работа с глубиной цвета, а также автоматическая и ручная настройки большого количества параметров и пакетного режима сканирования. VueScan поддерживает больше 2800 моделей сканеров. Приложением предусмотрено автоустранение дефектов с изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2023Разработчик: © 2023 Hamrick SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D2010872DC66F117BEDF98129020944206B239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672988   (167150) от 30.10.2023
+
+K-Lite Codec Pack Update 17.9.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167150.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B2D6855F4B66D6F166313C67AAA3B04A0688F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672984   (167153) от 30.10.2023
+
+Telegram Desktop 4.11.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821F3F9B15C7E72D96504F1050371EDD608D3FFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596973   (167154) от 13.12.2022
 
 ZWCAD 2023 SP2 Professional [Ru]
@@ -6,7 +80,7 @@ ZWCAD 2023 SP2 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167154.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ Trimble Tekla Structures 2020 SP3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167177.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ CloudMounter 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167186.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ XnView Shell Extension 4.1.6  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167187.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Nik Collection 4 by DxO 4.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167196.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ AMD Radeon Software Adrenalin Edition 22.11.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167197.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ Opera GX 102.0.4880.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167199.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ HP Service Pack for ProLiant (SPP) 2020.09.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167200.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ Seal 1.11.0-beta.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167211.jpg" />
 </div>
 
 
@@ -226,7 +300,7 @@ Zorin OS 16 Pro/Pro Lite [64-bit] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167231.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ Office 2013-2021 C2R Install + Lite 7.3.7 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167234.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ Auslogics Driver Updater 1.24.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167236.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ VivaVideo Video Editor v9.12.0 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167239.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ OCCT 11.0.18 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167240.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ Downie 4 v.4.6.33 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167251.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ PhotoDirector - Редактор фото 18.6.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167253.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ FontLab 8.0.1.8248 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167254.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ PhotoDirector - Редактор фото 18.6.5 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167256.jpg" />
 </div>
 
 
@@ -450,7 +524,7 @@ AIDA64 Engineer Edition 6.85.6300 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167257.jpg" />
 </div>
 
 
@@ -474,7 +548,7 @@ DesktopSnowOK 6.12 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167261.jpg" />
 </div>
 
 
@@ -498,7 +572,7 @@ Scrivener 3 v3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167262.jpg" />
 </div>
 
 
@@ -523,7 +597,7 @@ magnet:?xt=urn:btih:73DD31D51A9CEB2350FB3A0803DF0612CF5D6017
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167271.jpg" />
 </div>
 
 
@@ -547,7 +621,7 @@ Internet Download Manager 6.40 Build 2 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167279.jpg" />
 </div>
 
 
@@ -558,81 +632,6 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA0645F2A41277D9CF2DFEAB771752F19142FC6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672897   (167283) от 30.10.2023
-
-Soulver 3 v.3.9.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего Excel много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
-Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2023 Acqualia Software OÜПоддерживаемая ОС: macOS X 11.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DB4C7B259D45CE090218B5386812429195269B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431374   (167285) от 13.12.2020
-
-Adobe Media Encoder 2020 14.7.0.17 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Media Encoder 2020 - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCFCDAB4E91177B64C4EB30C410ABEEE892EC49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515880   (167288) от 09.12.2021
-
-Psiphon 3 build 170 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры.
-
-Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB0CC9A0B0BFDB5E7DCAC88CDDC7EA9DB82FD97
 ```
 
 

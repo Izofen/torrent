@@ -6,7 +6,7 @@ Antropomorphia - Devoid of Light (2025) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66506.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Deathfucker - God Devourer (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66507.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mudslider - Eerie Visions (2025) [MP3|320 Kbps] <Progressive Thrash, Heavy, Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66508.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Skunk Anansie - The Painful Truth (2025) [MP3|320 Kbps] <Alternative Rock, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66520.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Agressor - The Merciless Onslaught (2004) Compilation [WavPack|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66532.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jon Allen - Seven Dials (2025) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66536.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Shining - X - Varg Utan Flock (2018) Deluxe Digibox Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66552.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Fatal Embrace - Hail Down Deep MCMXCVIII (2025) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66567.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Onslaught - Origins Of Aggression (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66572.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Queens of the Stone Age - Queens of the Stone Age (1998) Remaster, 2024 Matador 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66576.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tokyo Blade - Knights Of The Blade (2017) 4 x CD, Compilation, Remastered, Hear 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66611.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - EZ Ridin’ (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66614.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Grails - Miracle Music (2025) [FLAC|Lossless|tracks + .cue] <Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66616.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Savage Oath - Divine Battle (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66617.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sum Of All - Time to leave (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66634.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kryuhm - Demoni (2025) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66636.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Venator - Psychodrome (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66648.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Sherlocks - Everything Must Make Sense! (2025) [MP3|320 Kbps] <Alternative &
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66649.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Monhell - A Last Sigh of Pain (2025) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66650.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Confessions of a Traitor - This Pain Will Serve You (2025) [MP3|320 Kbps] <Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66652.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Warfield - With the Old Breed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66656.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Martoriator - Bloodpainted Visions of Perpetual Conflict (2025) [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66660.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Zealotry - The Last Witness (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66662.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mark Morton - Without The Pain (2025) [MP3|320 Kbps] <Groove Metal, Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66705.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Marrowomb - Phisenomie (2025) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66714.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:FF793F5665BAE80D226AE821B693F8C3A68E044E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66719.jpg" />
 </div>
 
 

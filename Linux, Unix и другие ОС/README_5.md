@@ -6,7 +6,7 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155142.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B3114F34782C532FF6EBA6AF2CB2E20B97557973
 >>ОС *Nix - обсуждение
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156685.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156685.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Cyborg Hawk 1.1 (хакинг и анализ безопасности) [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158322.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Whonix 12.0.0.3.2  [анонимный доступ в сети] [x86] Обра�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158545.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158819.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163042.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Debian Edu - Skolelinux 11.6.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163063.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163086.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ CentOS 8.3 (2011) [amd64] 1xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169345.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ BackBox Linux 8 [Аудит безопасности, хакинг] 1xDVD [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172933.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ BlackArch Linux 2016.12.20 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173741.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173741.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175646.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175646.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Debian Edu - Skolelinux 10.7.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175678.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175678.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175732.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175732.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Kali Linux 2023.3 [amd64, i386, arm64] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177899.jpg" />
 </div>
 
 
@@ -365,6 +365,30 @@ magnet:?xt=urn:btih:84A50043B9F64FBD5AD32310A80EBA5A370FDAA7
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428657   (178856) от 03.12.2020
+
+BlackArch Linux 2020.12.01 [Хакинг, аудит, безопасность] [x86_x64] 1xDVD + 1xNetinstallCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опубликованы новые сборки BlackArch Linux, специализированного дистрибутива для исследований в области безопасности и изучения защищённости систем. Дистрибутив построен на пакетной базе Arch Linux и включает около 2300 связанных с безопасностью утилит. Поддерживаемый проектом репозиторий пакетов совместим с Arch Linux и может использоваться в обычных установках Arch (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB53589EF9F3E591ACB555AAEB856580C13F8B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583898   (184182) от 21.11.2022
 
 KingStation 0.2a [x86-64]
@@ -373,7 +397,7 @@ KingStation 0.2a [x86-64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184182.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184182.jpg" />
 </div>
 
 
@@ -397,7 +421,7 @@ SystemRescue 10.02 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187899.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187899.jpg" />
 </div>
 
 
@@ -423,7 +447,7 @@ Athena OS amd64 [Хакинг, аудит, безопасность] 22.11.04 [a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_190727.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_190727.jpg" />
 </div>
 
 
@@ -447,7 +471,7 @@ Mageia 9 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193556.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193556.jpg" />
 </div>
 
 
@@ -471,7 +495,7 @@ Mageia 9 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193564.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193564.jpg" />
 </div>
 
 
@@ -495,7 +519,7 @@ AltLinux 8 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194149.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194149.jpg" />
 </div>
 
 
@@ -519,7 +543,7 @@ Kali Linux 2023.2 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194848.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194848.jpg" />
 </div>
 
 
@@ -543,7 +567,7 @@ Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196030.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196030.jpg" />
 </div>
 
 
@@ -568,7 +592,7 @@ Ubuntu*Pack 20.04 Cinnamon (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196048.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196048.jpg" />
 </div>
 
 
@@ -593,7 +617,7 @@ Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196087.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196087.jpg" />
 </div>
 
 
@@ -605,30 +629,6 @@ Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B5D53AE5EBD66D4BFEAA5FB42CE1FAB84B1F964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638477   (197230) от 09.06.2023
-
-Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat опубликовала релиз дистрибутива Red Hat Enterprise Linux 9.2. Готовые установочные образы доступны для зарегистрированных пользователей Red Hat Customer Portal (для оценки функциональности также можно использовать iso-образы CentOS Stream 9 и бесплатные сборки RHEL для разработчиков). Выпуск сформирован для архитектур x86_64. Исходные тексты rpm-пакетов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FF2491D84C1D68781B754F3EEDA1474F1DFB15
 ```
 
 

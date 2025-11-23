@@ -1,3 +1,76 @@
+###  Публикация: 1678240   (147009) от 20.11.2023
+
+ФотоМОНТАЖ 2.31 (x64) Portable by 7997 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147009.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMS ФотоМОНТАЖ – редактор фото с поддержкой слоев. Вы сможете освоить профессиональную ретушь лица, соединить несколько изображений, убрать лишние объекты, заменить фон и улучшить качество снимков.
+Содержит 180+ объектов и текстур, современные фильтры и 3D LUT. Можете сделать коррекцию тона и освещения автоматически или вручную.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7608CAA78CBB8B6388F1E7970CF809F2A349F72E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678221   (147011) от 20.11.2023
+
+CrystalDiskInfo 9.2.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147011.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D79145F099F908996FB715C8A0EF238E983C66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969559   (147035) от 27.12.2015
+
+7-Zip 15.12 Final RePack (& Portable) by D!akov (27.12.2015) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147035.jpg" />
+</div>
+
+
+###  Подробнее
+
+7-Zip - очень хороший и качественный архиватор, который превосходит многих конкурентов и поэтому все больше пользователей останавливают выбор именно на нем. Забота разработчика программы проявляется в распространении 7-Zip по всему миру, переводу программы на 87 языков мира, среди которых есть и русский.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922043BA86EFD580365A85AA4D006BA3762A74F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347935   (147038) от 25.12.2019
 
 R-Studio Network Edition 8.12 build 175721 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +79,7 @@ R-Studio Network Edition 8.12 build 175721 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147038.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:588E2B787AA34DF792345EDAB5CA5A049787E907
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147040.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ XYplorer 22.60.0200 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147042.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ Cj Stereogun & Margo Fly - The Mirror (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147051.jpg" />
 </div>
 
 
@@ -108,7 +181,7 @@ VA - Ferry Corsten - Corsten’s Countdown - December (2016) [MP3|320 Kbps] <Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147055.jpg" />
 </div>
 
 
@@ -135,7 +208,7 @@ Hetman NTFS Recovery 2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147062.jpg" />
 </div>
 
 
@@ -159,7 +232,7 @@ WinTools.net Premium 20.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147070.jpg" />
 </div>
 
 
@@ -184,7 +257,7 @@ Hetman Uneraser 3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147078.jpg" />
 </div>
 
 
@@ -208,7 +281,7 @@ Wise Memory Optimizer 4.2.0.123 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147088.jpg" />
 </div>
 
 
@@ -232,7 +305,7 @@ Advanced Renamer 3.92.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147101.jpg" />
 </div>
 
 
@@ -257,7 +330,7 @@ Beyond Compare 4 v4.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147102.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ ClipGrab 3.5.6 Portable by poni-koni [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147105.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ Ashampoo WinOptimizer 26.0.0.20 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147118.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ CyberLink PhotoDirector Ultra 15.0.11.1110 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147122.jpg" />
 </div>
 
 
@@ -354,7 +427,7 @@ Colibri 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147127.jpg" />
 </div>
 
 
@@ -379,7 +452,7 @@ AusLogics BoostSpeed 5.5.0.0 RePack by elchupacabra [Русский / Англи
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147136.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ Auslogics BoostSpeed® - единственная программа, котор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147146.jpg" />
 </div>
 
 
@@ -434,7 +507,7 @@ Aiseesoft Video Converter Ultimate 10.7.32 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147158.jpg" />
 </div>
 
 
@@ -458,7 +531,7 @@ Glarysoft Malware Hunter PRO 1.175.0.795 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147166.jpg" />
 </div>
 
 
@@ -483,7 +556,7 @@ MP3jam 1.1.5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147168.jpg" />
 </div>
 
 
@@ -507,7 +580,7 @@ magnet:?xt=urn:btih:22968332E863C0EDE3D556ED197E1AA0966C633A
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147175.jpg" />
 </div>
 
 
@@ -531,7 +604,7 @@ Clean Space 2015.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147177.jpg" />
 </div>
 
 
@@ -555,7 +628,7 @@ Icecream Video Converter Pro 1.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147181.jpg" />
 </div>
 
 
@@ -566,79 +639,6 @@ Icecream Video Converter Pro 1.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5BCC8B895B46C2736FCBA752A4ED5AF84E458E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969357   (147195) от 27.12.2015
-
-Hetman Word Recovery 2.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа восстанавливает документы популярных пакетов Microsoft Office, Open Office, а также файлы Adobe PDF, текстовые файлы настроек и т.д. Hetman Word Recovery возвращает файлы с любых носителей информации c файловой системой FAT и NTFS.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0602DC9D0F2F0CE9E06A55D2590E2FECA43DA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678063   (147207) от 20.11.2023
-
-BetterDisplay Pro for Mac 2.0.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147207.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterDisplay — поистине замечательный инструмент. Приложение позволяет вам преобразовать ваши дисплеи в полностью масштабируемые экраны, позволяет управлять яркостью, обеспечивает масштабирование XDR / HDR (дополнительная яркость выше 100% на совместимых дисплеях), полное затемнение до черного, помогает вам создавать и управлять виртуальными дисплеями (манекенами) (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2023Разработчик: © 2023 waydabberПоддерживаемая ОС: macOS 12.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2FB0ABEA7B9751524690C73DEC43383346D806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678016   (147220) от 20.11.2023
-
-Icecream Video Editor Pro 3.11 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Video Editor - видеоредактор, предлагающий большое количество опций и функций для создания видео проектов. Присутствует возможность добавлять видео файлы, изображения и аудио файлы в программу, чтобы затем добавить их на таймлайн.
-Также пользователь может добавлять цвета, визуальные эффекты и переходы между сценами, добавлять текст, применять к нему эффекты (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151BC3455A8386BF3E9F3633A39DA8A1CF268EE7
 ```
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 1435684   (141087) от 29.12.2020
+
+DesktopSnowOK 5.11 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добавить немного ощущение зимней магии с помощью DesktopSnowOK - небольшой утилиты, которая украшает рабочий стол падающими снежинками . Программа легко настраивается, не требует установки. Количество снежинок, которые одновременно появляются на экране можно менять. Минимально количество - 5, максимальное 64. Нужно отметить, что количество снежинок близкое к 30 создает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC55202DEB193C1F565BD06AB2A98EE5BE85F43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970539   (141093) от 30.12.2015
+
+Wise Care 365 Pro 3.95.353 Final RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F4468ACFB6327F073515B2F15E8B30DB76CD23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272905   (141105) от 29.12.2018
 
 DiskDigger 1.20.9.2683 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +54,7 @@ DiskDigger 1.20.9.2683 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141105.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ CCleaner 6.18.10838 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141108.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:B176BD26351B810B7A74E5D886EE318BFD159E3F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141121.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141132.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ SPTD 2.08 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141137.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ GoodSync Enterprise 10.9.21.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141144.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ FoneLab HEIC Converter 1.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141149.jpg" />
 </div>
 
 
@@ -175,7 +223,7 @@ R-Studio Network  9.3 Build 191259 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141157.jpg" />
 </div>
 
 
@@ -199,7 +247,7 @@ CoolUtils Total Doc Converter 5.1.0.255 (Repack & Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141169.jpg" />
 </div>
 
 
@@ -223,7 +271,7 @@ Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В др
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141173.jpg" />
 </div>
 
 
@@ -248,7 +296,7 @@ magnet:?xt=urn:btih:6EAD3E72656F2D455726D23A73AD7EED1613313E
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141175.jpg" />
 </div>
 
 
@@ -272,7 +320,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.1 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141176.jpg" />
 </div>
 
 
@@ -296,7 +344,7 @@ AdwCleaner 5.027 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141190.jpg" />
 </div>
 
 
@@ -320,7 +368,7 @@ magnet:?xt=urn:btih:A6CBE82527D4F92171346521BBCBD77CCA33E691
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141198.jpg" />
 </div>
 
 
@@ -345,7 +393,7 @@ Boruto: Naruto Next Generations / Боруто: Следующее поколе�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141221.jpg" />
 </div>
 
 
@@ -369,7 +417,7 @@ VA - Always Alive Recordings - Best Of 2016 (Mixed By Daniel Kandi) (2016) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141225.jpg" />
 </div>
 
 
@@ -396,7 +444,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141227.jpg" />
 </div>
 
 
@@ -423,7 +471,7 @@ Microsoft Visual Studio 2019 Community 16.4.1 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141231.jpg" />
 </div>
 
 
@@ -447,7 +495,7 @@ Debian GNU/Linux 6.0.6 Live [i386] (4xDVD + 2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141236.jpg" />
 </div>
 
 
@@ -471,7 +519,7 @@ OCCT 7.2.3 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141253.jpg" />
 </div>
 
 
@@ -495,7 +543,7 @@ PDF-XChange Editor Plus 10.1.3.383 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141254.jpg" />
 </div>
 
 
@@ -519,7 +567,7 @@ VA - Clubbing Culture Mixed Compilation (DJ WAD) (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141256.jpg" />
 </div>
 
 
@@ -546,7 +594,7 @@ magnet:?xt=urn:btih:0E41A56700EE3790368E8DFFBBBCB94EC95F75C6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141264.jpg" />
 </div>
 
 
@@ -570,7 +618,7 @@ AIMP 4.50 Build 2058 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141275.jpg" />
 </div>
 
 
@@ -581,54 +629,6 @@ AIMP – проигрыватель, включающий в себя множе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A8AA8B2BBF64816486BA2EFACE4C3C6AA2A2FC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679048   (141288) от 23.11.2023
-
-CCleaner 6.18.10838 Free / Pro / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141288.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83928B853EDD0E52209A9EB45A015B9BDC311895
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520383   (141289) от 28.12.2021
-
-uTorrent Pro v6.6.7 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141289.jpg" />
-</div>
-
-
-###  Подробнее
-
-uTorrent - официальное приложение на Андроид. Благодаря программе µTorrent для андроид находите и загружайте торренты в смартфон или планшет. Воспользуйтесь встроенным поиском для поиска и загрузки или используйте торренты прямо из браузера. Помимо всего этого есть возможность прямо из приложения подписаться на RSS-каналы.Тип издания: PatchedРелиз состоялся: 20.12.2021Разработчик: BitTorrent, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A430A3A0FAA5AF4B8E1B3E9E7A6BDD579832CD5
 ```
 
 

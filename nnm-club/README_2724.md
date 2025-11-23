@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71572.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:73D283110A90137BDE3E053521FCFEA64C2EB280
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71573.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Text Editor Pro 31.3.2 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71574.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The BIG Deal - Electrified (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71575.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D381F3D638CE3A379AFC20FC858C2C851D52FFCB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71576.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:18FCE60D06F618186C9734BC9A2BB2B74CF01C9F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71577.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ One Day Remains - Amongst Beasts & Animals (2025) [FLAC|Lossless|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71578.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ PhotoDirector v19.10.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71579.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7A9AD67897A000A7E5B4D0C591B85E44ACC091CD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71580.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Pain - Dancing With The Dead (2004) Remastered, 2025, Nuclear Blast [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71581.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Pain - Nothing Remains The Same (2002) Remastered, 2025, Nuclear Blast [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71582.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Steve Booker - Dreamworld (серия "Другие восьмидесятые")
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71583.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:A8F4430669D134440DF34AABEF7E9785810FBDF7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71584.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Mythguard - Mythguard (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71585.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:1E52128264BE193EF41F59995FF4928B989FD2C4
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71586.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:E972AD91E4283035EDD76AA90A94277F8AB0D8CD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71587.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Master Sword - Toying With Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71588.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:194DCA83005CFE38479A906700EAAD7D3CFAD818
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71589.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F5F12377C74D5F1403E7EB0DC61BB8292E9F8CC8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71590.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:D50D421D08D43EC29E0207FC2C081E05D75B234D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71591.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:E2FCF014C71D41343A2011158172AC9649E25E36
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71592.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:3B3EA57312F23C0870F84D8130F4CA079D4EB9AC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71593.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:BED352769255792DB7AF1EB73D9CFD280A221A12
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71594.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Odyssey - Reinventing The Past (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71595.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kenny Neal - What You Got (2000) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71596.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71597.jpg" />
 </div>
 
 

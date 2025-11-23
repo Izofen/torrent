@@ -6,7 +6,7 @@ PurpleSchool, Антон Ларичев, Игорь Матюшкин | Осно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27651.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2559F3760FDDC3B07C2D5F71A485DF6FE1E22FE7
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27655.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27655.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Deworker Pro, Дмитрий Елисеев | Способы ускорения 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27659.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27659.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:900C6B76584B28DBC7EFD82D6EAD606986D246F9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27662.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27662.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Deworker Pro, Дмитрий Елисеев | Большой стрим про S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27664.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27664.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Frontendblok, Анна Блок | «Продвинутый курс по вёр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27675.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dartware | Многопоточность в C++ (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27701.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ D-Link | Видеоматериалы про основы сетевых тех�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27704.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Convert Monster | Яндекс.Метрика (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27705.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:880871A084AC44B12F25BA29021DCB353F33A602
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27740.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27740.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:9BF5258E2EE37BF4D70ABDEEA7977863916B85CD
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27747.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27747.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:293CB1598DF9C174A68762507AC1AAEBF08ADD3F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27753.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27753.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:395AA95BBA40187141B91432EA2B7B57FEBA1232
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27761.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27761.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microarch, Кирилл Ветчинкин | Микросервисная арх
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27797.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Skillbox, Наталья Бондаренко, Юрий Новожилов | Л�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27868.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:5A7D4E51113D8C18816FD5DEC9E68BAE2D8FF839
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27886.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Udemy, Евгений Курилов | Premiere pro для фрилансера 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27908.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Product University, Дмитрий Жечков, Артем Новиков | Сu
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27909.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:2107CC415A33F60F613D1B24D6EE3DE4603813DF
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27948.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27948.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Annie Leibovitz | Annie Leibovitz Teaches Photography (2017) WEB-DL [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27998.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Andrew Perkins | Build a CMS in Symfony 2 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28021.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:102D3FE35A5289F600AA9678ACFF11646F4413D6
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28054.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ PurpleSchool, Антон Ларичев, Дмитрий Мозулёв | Сов�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28092.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ OK English School, Елена Вогнистая | Начинающим. МЕГ�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28116.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28116.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:285967EEFFA5DEAE4D0A47B8BF7786404F4076B3
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28269.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco SD-WAN (Viptela). Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28284.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28284.jpg" />
 </div>
 
 

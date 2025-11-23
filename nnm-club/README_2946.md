@@ -1,3 +1,81 @@
+###  Публикация: 479969   (87205) от 08.04.2012
+
+Вадим Попов и др. | Сборник бизнес-планов с рекомендациями и комментариями [2006] [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продемонстрирован процесс бизнес-планирования на фирме. Приведены реальные бизнес-планы организаций различных сфер деятельности, реализация которых позволила их разработчикам достичь высокого коммерческого успеха, а инвесторам получить значительный доход. Приведены типовые формы документации, отвечающей требованиям международного бизнеса. Дан анализ типовых ошибок в разработке бизнес-планов. Определено направление квалифицированной разработки плана развития бизнеса фирмы.
+
+Для студентов, аспирантов и преподавателей экономических факультетов и вузов, а также бухгалтеров, экономистов, менеджеров и специалистов, занимающихся подготовкой экспертизы и реализации бизнес-планов. Книга "Сборник бизнес-планов с рекомендациями и комментариями", написанная автором Попов В.М., предназначена для широкого круга читателей, интересующихся литературой из раздела . Книга может быть полезна и интересна студентам высших и средне-специальных учебных заведений.
+
+Учебник: Вадим Попов и др. | Бизнес-планирование: Учебник [2001]Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAD321A37D3CB132880BD5033FDFFD80F3C1792
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480098   (87206) от 08.04.2012
+
+Филипп Ванденберг | Сборник книг [1996-2011] [FB2, DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филипп Ванденберг (Philipp Vandenberg). Настоящее имя - Ханс Дитрих Хартель (Hans Dietrich Hartel)
+Немецкий писатель, автор научно-популярных книг по эзотерической и археологической тематике, а также исторических и детективных романов.
+Родился 20 сентября 1941 в Бреслау. Ванденберг учился в гимназии курфюрста Максимилиана в старинной герцогской резиденции городе Бургхаузен. По окончании ее в 1963 Ванденберг изучал в Мюнхене историю искусств и германистику. В 1965 году он поступил волонтером в «Пассауер Нойен Прессе», что позже, в 1967 году, обеспечило ему пост руководителя редакции «Бургхаузер Анцайгер». В 1968 году он несколько месяцев работает редактором новостей в мюнхенской «Абендцайтунг». С 1968 по 1974 год Ванденберг трудится на иллюстрированный журнал «Квик», а с 1974 по 1976 в должности литредактора журнала «Плейбой» в Мюнхене. После этого он становится свободным художником и занимается писательством под псевдонимом Филипп Ванденберг.1996-2011Формат: FB2 (9 книг), DJVU (1 книга)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0F3E443D421392A97069BC90DB18320AB7A4AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479963   (87207) от 08.04.2012
+
+Алексей Бобл, Андрей Левицкий | S.T.A.L.K.E.R. Воины Зоны [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочная сила сбивает над Зоной Отчуждения армейский вертолет. Спецгруппа военных сталкеров отправляется на поиски упавшей машины, чтобы спасти ее единственного пассажира. Неожиданно на десантников начинается охота. Зловещие сообщения приходят на ПДА, их отправитель неизвестен. Бывшие товарищи становятся врагами, странные существа и ранее неизвестные аномалии встают на пути. С боем пробиваясь через Зону, военсталы пытаются понять, что происходит, кто заманил их в смертельную ловушку...Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A123BA8511ED70C1684295582374A481AA815E4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479909   (87208) от 08.04.2012
 
 М.Л. Краснов  и др. | Вся высшая математика. Том 1 [2003] [PDF]
@@ -6,7 +84,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87208.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:9D46D6B404F0D990E7CC325260B3BEAD705E7059
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87209.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ Softlim EstimaKit 2011 1.0.1.1584 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87210.jpg" />
 </div>
 
 
@@ -78,7 +156,7 @@ VA - The Golden Age Of American Rock 'n' Roll (1991-2009) [MP3|320 кб/с]<Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87213.jpg" />
 </div>
 
 
@@ -102,7 +180,7 @@ magnet:?xt=urn:btih:ABBEE181625B23F3BC3C213CFA57C9D4D8D9219B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87215.jpg" />
 </div>
 
 
@@ -126,7 +204,7 @@ magnet:?xt=urn:btih:ABBEE181625B23F3BC3C213CFA57C9D4D8D9219B
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87216.jpg" />
 </div>
 
 
@@ -150,7 +228,7 @@ magnet:?xt=urn:btih:F67F72137DB92798EA3E237E6746D01D44FEB589
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87219.jpg" />
 </div>
 
 
@@ -174,7 +252,7 @@ magnet:?xt=urn:btih:5AE4CDC828738A603A2568044E288FB99B19C358
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87220.jpg" />
 </div>
 
 
@@ -198,7 +276,7 @@ magnet:?xt=urn:btih:1C41910ED9B1574A636C6CBCA79FE995B03DFC92
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87221.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ magnet:?xt=urn:btih:1D47E5D173AA33BCFE22EACD9626F7A340C66C46
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87222.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ magnet:?xt=urn:btih:200B728D1B8FBDBE055FC44FF4745768BA6D2885
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87223.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ magnet:?xt=urn:btih:DAD3D4651D5D1A3A97F09C6E58F96BA7DE8D400E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87224.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ magnet:?xt=urn:btih:CFDC4AF333463294A35BDED079FE398D4DDABE3B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87225.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ magnet:?xt=urn:btih:CFDC4AF333463294A35BDED079FE398D4DDABE3B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87226.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ ABBA - Number Ones (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87227.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ ABBA - Number Ones (2006) DVD9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87229.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ ABBA - Number Ones (2006) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87230.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ magnet:?xt=urn:btih:9579ED05E62C02A402F4C8C259C6FFE446BE6475
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87232.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ magnet:?xt=urn:btih:ED3994FAE263846F8B96FE39EF24DCADBBF561A0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87233.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87234.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ DVD приложение к специальному выпуску журнал
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87236.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ magnet:?xt=urn:btih:B21181A00E2BD7FB4C8B74B2BC78D0F9CB1D9FB8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87237.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ Sony Sound Forge Pro 10.0c Build 491 + Dolby Digital AC-3 Pro  + Noise Reduction
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87240.jpg" />
 </div>
 
 
@@ -561,79 +639,6 @@ SoundForge 10 - новая версия мощного аудио-редакто
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479558   (87241) от 08.04.2012
-
-Autodesk AutoCAD Design Suite Ultimate 2013 (x86) (Английский)
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk AutoCAD Design Suite Ultimate 2013 - это программный комплекс, придающий повышенную гибкость привычному рабочему процессу на основе AutoCAD; содержит функции, предназначенные для проектирования и демонстрации проектного замысла.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479727   (87242) от 08.04.2012
-
-Джек-пот для золушки (12 серий из 12) (2004) SATRip
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джинны оказывается живут не только в бутылках, но и в компьютерах! А чудеса случаются и в наше время! Сомневаешься? Смотри премьеру современной сказки для взрослых «Джек-пот для Золушки» Удивительная история произошла с нашей современницей и соотечественницей Наташей! Жила она была, тихая и скромная девушка, училась в аспирантуре, работала в историческом архиве за мизерную зарплату. Заработанные по случаю 200 долларов, к удивлению своей бабушки и ближайшей приятельницы Алины, потратила на покупку допотопного б.у. ноутбука. Этот компьютер оказывается настоящим исполнителем желаний! Как джинн из восточных сказок он предлагает Наташе исполнить три желания! Единственное условие: желания должны быть связаны с приобретением материальных благ. У компьютера своя система исполнения желаний – он дает конкретные указания своей хозяйке: куда пойти, что сделать, что купить-продать, с кем встретиться. Жизнь Наташи выходит из привычной колеи. Появляется множество новых знакомых! Открываются безграничные возможности! Наташа воссоединяется (   Читать дальше...   )Жанр: Фэнтези, Мелодрама, КомедияРежиссер: Николай СтамбулаАктеры: Мария Голубкина, Алексей Кравченко, Дмитрий Брусникин, Екатерина Вуличенко, Борис Химичев, Михаил Жигалов, Александр Пашутин, Олег Морозов, Ольга Юрасова, Лянка ГрыуПродолжительность: 12 серий х ~ 00:41:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479054   (87244) от 08.04.2012
-
-Angels vs Devils [Ru] (L) 2004
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87244.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Angels vs Devils" - это динамичный, увлекательный action с элементами RPG и стратегии в реальном времени. Вам предстоит выбрать одну из сторон - Ангелов или Дьяволов, набрать команду и отстоять в жестоких схватках с врагом своё право властвовать над людьми. Стройте хитроумные тактические схемы, вырабатывайте стратегию действий, улучшайте качества и параметры своих подопечных, и будьте уверены: Добро обязательно победит. Или Зло? Решать - Вам.
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Shoter/RPG/3D/ActionЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4430AE5B40B10ED5B54FA3445D80FF32C01D20BE
 ```
 
 

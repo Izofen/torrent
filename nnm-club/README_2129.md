@@ -6,7 +6,7 @@ Foxit PDF Editor Pro 13.1.1.22432 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55719.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Piece of Blues (blues instrumental) (2024) [MP3|320 Kbps] <Blues, Instrumen
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55720.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft PowerToys 0.81.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55721.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:3E526E729D14F5351124D6D9D70E439F7DBED01B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55722.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:06197DD7FB8C45D294EFD6D34BE09F65F75E7BA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55723.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 3 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55724.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55725.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DED5BA7C289E124FCDE00CEFD1D73FAC08C91D9D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55726.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:5501AB59FEA5D0F6F0C8134BC1797255BAD13FFD
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55727.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Duolingo: изучай языки 5.151.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55728.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55729.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:0E2E44855DC22C7FFDAA3C717965E4D1C1757723
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55730.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0FE248816AE2398714DF4057D1DC0A6B8A4C6AF3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55731.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D728CF9D10DA722BB0BCCCDC7F2F255FBF4EDAA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55732.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:A2CB962AE716FA0569D18D5B8CF13FFD4A726A42
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55733.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:02AB3F80E58CED676875D44FB83A85131C410718
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55734.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:77A584B2B55C0D6BC15BED8862686AEF6B5A67F9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55735.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B224407A5783F57935C604ACE55AFD62D92503AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55736.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:EF2CCA463AC9BEA78A91BF3CEC32719E199959A8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55737.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ NVIDIA GeForce Desktop Game Ready 555.85 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55738.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:11065A50A94399E0B697B8E8FA893D52A2A33ED1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55739.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Driver Easy Pro 6.0.0.25691 Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55740.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:CB1E91A63E2683CE49545898C8ED3ABE44CAA358
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55741.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3A224267608C90AA5F6C5C143EAE860FF699DD6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55742.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - РАДИО БАТЯ - 007 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55743.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:FF3FEAEE0D2CDE1CAFDD4AA8F44B64383300BD7D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55744.jpg" />
 </div>
 
 

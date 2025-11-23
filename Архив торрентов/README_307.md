@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72620.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:B56C0CD79B94A8DA7081F25F2B2C7B8F2D4CDF45
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72623.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5AA37F7FDD789D71CA0892DC9B426E20FE459C77
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72704.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5AA37F7FDD789D71CA0892DC9B426E20FE459C77
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72707.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0E484DD8F10EEBAF7FC46538A3A09249CEA9221D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72766.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ David Garrett: Legacy - Live in Baden Baden (2011) Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72843.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ David Garrett: Legacy - Live in Baden Baden (2011) Blu-Ray
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72849.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Junior Wells - Come On In This House (2002) [FLAC 2.0 24/96 | tracks (SACD-Rip)]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72951.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:FB7F7F5A1F0AE7652CAC2CB3BC3F2F1C06F48D79
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72983.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:600BF19D52AC96C6F831380084C2300E8E7E907A
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72997.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:46963F6503311E43B0A6F80D847F646C9DD40D2A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73005.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:6192D2F4611F4395B0D40A77EB6E0B9BBD55F05F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73021.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:9F062A096675C428AD80E76B01A30278DADCE3F3
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73040.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:FD34D6763BB1D43DDB948215EBDAC76C5F4ECF7D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73055.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:7676C8C58AD061E45A58928F1167A8686E4F04C2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73122.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Talking Tom & Ben News 1.2.1 Full
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73152.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - No Alternative (1993) [MP3|320 kbps]<Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73157.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2106923861E054938A3C482168A7D2EF485A8764
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73211.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:2106923861E054938A3C482168A7D2EF485A8764
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73215.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:B1BF33993A36A5D45351DFE01F3BAE9A256FCA1C
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73284.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:ADD13A874C125DEAFE8FDA731974241D1F3E8105
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73306.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:ADD13A874C125DEAFE8FDA731974241D1F3E8105
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73327.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:ADD13A874C125DEAFE8FDA731974241D1F3E8105
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73332.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:ADD13A874C125DEAFE8FDA731974241D1F3E8105
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73374.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dance Boy / Дэнс Бой - Танцуй с нами! (1991) [MP3|192 kbps]<Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73414.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:86E974B008A922F35FA7A9F1F5EF47DE2657CDF9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73480.jpg" />
 </div>
 
 

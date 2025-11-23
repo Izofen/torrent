@@ -6,7 +6,7 @@ Adobe InDesign 2025 20.3.0.60 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20109.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20109.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Acrobat Pro 2025.001.20467 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20117.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Acrobat Pro 2025.001.20467 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20130.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20130.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Photoshop 2025 26.6.0.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20144.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20144.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Premiere Pro 2025 25.2.3.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20145.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20145.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Text Editor Pro 32.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20170.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20170.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Light Image Resizer 7.2.0.100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20184.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20184.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Process Lasso Pro 15.1.1.7 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20185.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20185.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ R-Wipe & Clean 20.0.2505 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20194.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20194.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MKVToolNix 92.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20201.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20201.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Driver Store Explorer 0.12.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20233.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20233.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:E3147B1E363FD1090E264305DA33D13421B626EE
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20262.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fan Control V221 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20268.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20268.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Alfa eBooks Manager 9.2.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20274.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20274.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Light Image Resizer 7.2.0.100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20276.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ MediaHuman YouTube Downloader 3.9.10 (2404) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20285.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20285.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ O&O DiskImage Professional 20.2 Build 363 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20290.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20290.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MediaHuman YouTube to MP3 Converter 3.9.10 (2404) RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20292.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20292.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ TapScanner v3.0.68 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20297.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20297.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 22.04.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20303.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20303.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ MediaHuman YouTube Downloader 3.9.10.0 (2404) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20314.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ TreeSize Professional 9.4.2.2004 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20315.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ IPTV Pro v9.0.15 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20338.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20338.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Capture One 23 Enterprise 16.5.10.2850 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20340.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Activation Program 1.11 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20354.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:06712C1C9182322DC86E23BE3EB0909008C00A8A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20362.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20362.jpg" />
 </div>
 
 

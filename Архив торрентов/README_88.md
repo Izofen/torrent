@@ -6,7 +6,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24303.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24303.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CPU-Z 2.15.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24312.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24312.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TranslucentTB 2024.4 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24326.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VMware Workstation 17 Pro 17.6.3 Build 24583834 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24335.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24335.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ WiFi Analyzer v6.0 (b98) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24340.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24344.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ StartAllBack 3.9.6 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24345.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24345.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ My TTS: Text-to-Speech v1.5.0 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24351.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24351.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Process Lasso Pro 15.1.1.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24362.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24362.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Dashcam Viewer 4.0.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24365.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24365.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Perfectly Clear WorkBench 4.6.1.2732 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24368.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24368.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:6C35744F1D12437992A8AA091A2CABB30812279B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24381.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AIMP 5.40.2668 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24388.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24388.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MKVToolNix 91.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24391.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24391.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:646F4FE9EF2EA87890DC4C25C9421D15AE2525C9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24394.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24394.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ MiniOS (все редакции) v4.1.1 [amd64, i386] 4xDVD [RU]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24395.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24395.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ NetLimiter 5.3.23.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24409.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Clip Studio Paint EX 4.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24425.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24425.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24440.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24440.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:D35AA319A662F530BC4907CA008084C49DD72CBF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24445.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24445.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ DjVu Reader & Viewer (читалка) v1.0.126 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24461.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24461.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ventusky: Прогноз погоды v41.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24465.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24465.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:01A44D53A275DF9330DB4F1D805D079E73B09607
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24482.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24482.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ES File Explorer File Manager v4.4.2.21 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24486.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24486.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AIMP 5.40 Build 2668 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24493.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24493.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 12.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24496.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24496.jpg" />
 </div>
 
 

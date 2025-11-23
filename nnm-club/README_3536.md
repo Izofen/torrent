@@ -1,3 +1,78 @@
+###  Публикация: 1715202   (111618) от 11.04.2024
+
+Google Chrome 123.0.6312.123 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0F99F03487AD04C2BBB04F38E26D5D85FD61AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715327   (111619) от 11.04.2024
+
+FontViewOK 8.41 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты и, конечно, Вы сможете с ними работать. Особенность программы - она позволяет вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6457248ECDEBD4917942C569D5F2FA152F062D42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714906   (111620) от 11.04.2024
+
+Session Americana - The Rattle and The Clatter  Twenty Years (so far) of Session Americana (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pack Up The Circus (3:46)
+02. Making Hay (Live at the Haybarn Theater) (4:44)
+03. Beer Town (4:18)
+04. Helena (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87420AEA136CCE3B6FFAFF88569B6143E7882DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715111   (111621) от 11.04.2024
 
 Perfectly Clear WorkBench 4.6.0.2653 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +81,7 @@ Perfectly Clear WorkBench 4.6.0.2653 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111621.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ PortableApps.com Platform 29.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111622.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Erasure - The Innocents (1988) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111623.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:B13214536015F388EE0A08DC28B12AE62C7C4941
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111624.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:074B79B1F93A97AB9052A594E8221748805BD770
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111625.jpg" />
 </div>
 
 
@@ -134,7 +209,7 @@ HWiNFO 8.01 Build 5415 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111626.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ magnet:?xt=urn:btih:9911B68ADA409403F04205BFD8B7D35FD2280AEE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111627.jpg" />
 </div>
 
 
@@ -182,7 +257,7 @@ magnet:?xt=urn:btih:AF1D0EA8F2BD23513F11AF4B1FBBA9E085AAB948
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111628.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ QOwnNotes 24.4.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111629.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ magnet:?xt=urn:btih:8BC5708A752505A8AFE9AAB220090E0AC72A3235
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111630.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ Electric Blues - Time Passed Me By (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111631.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ Photo Lab PRO v3.13.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111632.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ DailyArt - Daily Dose of Art v3.2.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111633.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ magnet:?xt=urn:btih:B0DBE6DC39143AD78950CA4D357F753B5B413B60
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111634.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ O&O DiskImage Professional 19.1 Build 132 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111635.jpg" />
 </div>
 
 
@@ -381,7 +456,7 @@ magnet:?xt=urn:btih:A965A0909ADCD20F1D5BD2E4D6862D7848DBAF2B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111636.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ Microsoft PowerToys 0.80.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111637.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ magnet:?xt=urn:btih:35B18FDB2B32E2B3864B7B10AC5840CF5026D38A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111638.jpg" />
 </div>
 
 
@@ -458,7 +533,7 @@ magnet:?xt=urn:btih:99DB8B0AE39FA774F2B6A1CC0672421BDCD48CC1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111639.jpg" />
 </div>
 
 
@@ -484,7 +559,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111640.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ OneCommander Pro 3.74.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111641.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ magnet:?xt=urn:btih:8C0CE0450531AA6933883B63525BBD2B14BCBC06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111642.jpg" />
 </div>
 
 
@@ -563,7 +638,7 @@ magnet:?xt=urn:btih:DB598D7DC1EA134D980CB9049C5F15E3BCC76E9D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111643.jpg" />
 </div>
 
 
@@ -576,81 +651,6 @@ magnet:?xt=urn:btih:DB598D7DC1EA134D980CB9049C5F15E3BCC76E9D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B8E427892B6953164EEC1A8E6CA685AD59465DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715309   (111644) от 11.04.2024
-
-С.П. Алексеев | Рассказы о Петре Первом (2014) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Аудиокнига «Рассказы о Петре Первом», созданная по произведениям знатока русской истории и замечательного детского писателя Сергея Петровича Алексеева (1922–2008) – живое и увлекательное путешествие в прошлое нашей Родины. Звучащие рассказы пробуждают у детей интерес к изучению истории Отечества, учат гордиться своими предками, воспитывают (   Читать дальше...   )Жанр: Русская историческая литература для детей, рассказИздательство: Студия «АРДИС»Продолжительность: 02:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA57A30A23D77A141A7EB81E4028045CA03E3575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715004   (111645) от 11.04.2024
-
-Юрий Погуляй | Ледовые корсары (Книга 2). Месть Ледовой Гончей (2024) [MP3, Юрий Гуржий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111645.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Пустыне, среди торосов и вздыбленных льдин, под всепрощающим снегом хранится множество тайн. И кому, как не ледовому корсару, знать о них? Главные герои — юноша-эмпат и его друг, бывший воришка из блуждающих городов, — волею судьбы оказались на борту пиратского судна и теперь обречены на приключения. Их ждут падшие шаманы и демоны льдов, следы погибших цивилизаций (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Неофициальное изданиеПродолжительность: 09:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F991D318DC1CAB91B4D99182FBF23C9D632D2976
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715331   (111646) от 11.04.2024
-
-С.П. Алексеев | Рассказы о декабристах (2014) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Сергей Петрович Алексеев (1922–2008) – известный детский писатель, автор многочисленных произведений о русской истории, участник Великой Отечественной войны.
-Произведения С.П. Алексеева – живое и увлекательное путешествие в прошлое нашей Родины. Его рассказы пробуждают у детей интерес к изучению истории Отечества, учат гордиться своими (   Читать дальше...   )Жанр: Русская историческая литература для детей, рассказИздательство: Студия «АРДИС»Продолжительность: 06:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3CE9195A620780DDDA185BBBC40A62A35C3E92
 ```
 
 

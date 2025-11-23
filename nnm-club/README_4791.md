@@ -1,3 +1,177 @@
+###  Публикация: 1519458   (148506) от 24.12.2021
+
+Aiseesoft Mac Video Converter Ultimate 10.2.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Aiseesoft StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572427E39765D5A338C42D3CEC24C13D0DB5C753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087197   (148507) от 26.12.2016
+
+Macsome iTunes Converter 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macsome iTunes Music Converter - Конвертировать DRM защищенную музыку в незащищенный формат
+Macsome iTunes Music Converter - программа для пакетного удаления DRM-защиты с различных типов файлов. Приложение поддерживает все аудио форматы, которые поддерживает iTunes. Преобразование происходит на 5X скорости с качеством Audio-CD.
+
+Macsome iTunes Music Converter позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAD275E7E9FABA2D5AD215932E6EC96AD95A95A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347492   (148508) от 24.12.2019
+
+Microsoft Visual Studio 2019 Professional 16.4.0 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898E84EDFD70C20CCA05C7B8A14BA066A63FBE97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969007   (148509) от 26.12.2015
+
+Журнал | За рулем [Россия] №1 (1015) (январь 2016) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148509.jpg" />
+</div>
+
+
+###  Подробнее
+
+«За рулем» — популярный советский журнал об автомобилях и автомобилестроении. Первый номер вышел в апреле 1928 года, журнал издаётся по сей день. До 1989 года был единственным автомобильным периодическим изданием в СССР. Как всегда много информации из автомобильного и околоавтомобильного мира.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70527F4C7FF992D39A8DA0FDFD2A765E034CA1CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271718   (148510) от 24.12.2018
+
+Неизвестная Тварь / Of Unknown Origin (1983) WEB-DLRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148510.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Манхэттене в подвале дома Барта Хьюза происходят странные и страшные вещи. Неизвестное свирепое существо, наделенное сверхъестественным чутьем и силой, угрожает жизни Барта и других, оно стремится безраздельно владеть заброшенным домом… Этот монстр — гигантская крыса, а голодных крыс, как известно, ничто не остановит, даже мор или ядерная бомба. И Барт спускается (   Читать дальше...   )Производство: США, Канада / Warner Bros. Pictures, Famous Players Limited, Canadian Film Development Corporation (CFDC), Les Productions Mutuelles LtéeЖанр: УжасыРежиссер: Джордж Пан КосматосАктеры: Питер Уэллер, Дженнифер Дэйл, Лоуренс Дэйн, Кеннет Уэлш, Луис Дель Гранде, Шэннон ТвидПеревод: Профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: английскиеПродолжительность: 01:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2164FA3E5D2C4F914BBF6B67F4D76B14A74DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087217   (148511) от 26.12.2016
+
+Giraffe Tongue Orchestra - Broken Lines (2016) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adapt Or Die 3:25
+2. Crucifixion 4:17
+3. No-One Is Innocent 4:21
+4. Blood Moon 3.20(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B31BC4F25314A871045511DCF633FED0AAB1D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519529   (148512) от 24.12.2021
+
+Моя сестра Эйлин / My Sister Eileen (1955) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий основан на пьесе Джозефа А. Филдса и Джерома Ходорова 1940 года. Рут и ее красавица-сестра Эйлин приезжают в «Гринвич Виллидж» в Нью-Йорке в поисках славы и удачи. Рут мечтает стать писательницей, а Эйлин - актрисой. Рут привлекает внимание издателя Боба Бэйкера, когда тот решает опубликовать историю о её сестре. Чтобы поддерживать к себе его интерес, Рут (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: мюзикл, мелодрама, комедияРежиссер: Ричард КуайнАктеры: Джанет Ли, Джек Леммон, Бетти Гаррет, Боб Фосси, Курт Казнар, Дик Йорк, Люси Марлоу, Томми Ралл, Барбара Браун, Хорас МакМахонПеревод: профессиональный многоголосый (Студия Кондор по заказу ВГТРК; вариант 2)Субтитры: русские (на песни), английские SDHПродолжительность: 01:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA106B30BF850771A9D756DBE7BBC06F2681397D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677835   (148513) от 19.11.2023
 
 Филип К. Дик | Вторая модель [Сборник] (2023) [FB2]
@@ -6,7 +180,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148513.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:81DBA1BCCA5B4B227AF315BB6D3B1D6E6DE6C8F9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148514.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:681195359BEFBDACB83EDFAAF7EE1F4006FC0447
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148516.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ magnet:?xt=urn:btih:8398F73FC874A8B79CC11DC21056FF81ABF0D60C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148517.jpg" />
 </div>
 
 
@@ -104,7 +278,7 @@ Cockos REAPER 6.43 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148518.jpg" />
 </div>
 
 
@@ -128,7 +302,7 @@ magnet:?xt=urn:btih:FB2A2202744E14FF211EDFAD6D5731F63C86ADB2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148519.jpg" />
 </div>
 
 
@@ -153,7 +327,7 @@ magnet:?xt=urn:btih:C6BCA1A646B091557E0FAF9CA430DEE7BD148A53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148520.jpg" />
 </div>
 
 
@@ -177,7 +351,7 @@ magnet:?xt=urn:btih:38370430A2A66FB92F690F2C770E80C0EE033E88
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148522.jpg" />
 </div>
 
 
@@ -204,7 +378,7 @@ Charetta - Fate Strikes Twice (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148523.jpg" />
 </div>
 
 
@@ -231,7 +405,7 @@ Geekbench 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148525.jpg" />
 </div>
 
 
@@ -256,7 +430,7 @@ magnet:?xt=urn:btih:D82715F67F9F8F1ABA6A3C46E286B0A01E590A24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148526.jpg" />
 </div>
 
 
@@ -280,7 +454,7 @@ magnet:?xt=urn:btih:BF8675D9835790A9EA3447B092451CBCB73EE302
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148527.jpg" />
 </div>
 
 
@@ -304,7 +478,7 @@ Yummy FTP Watcher 2.2.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148528.jpg" />
 </div>
 
 
@@ -330,7 +504,7 @@ magnet:?xt=urn:btih:921998667943CF96D3B2FFF3CB54380422820209
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148529.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ Wolfram Mathematica 11.3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148530.jpg" />
 </div>
 
 
@@ -378,7 +552,7 @@ magnet:?xt=urn:btih:04D56DF8B64C9B9A3FB4551B1374714C8247190E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148532.jpg" />
 </div>
 
 
@@ -402,7 +576,7 @@ magnet:?xt=urn:btih:A2A59FC4DC16F267D0B60647DE773D717444FB01
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148533.jpg" />
 </div>
 
 
@@ -426,7 +600,7 @@ Movavi Screen Recorder 11.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148534.jpg" />
 </div>
 
 
@@ -450,7 +624,7 @@ VA - Vocal Trance 2022 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148535.jpg" />
 </div>
 
 
@@ -464,184 +638,6 @@ VA - Vocal Trance 2022 (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D6EEF10D3F5840C7F304448121F0246BA03CAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677749   (148536) от 19.11.2023
-
-Luminar Neo 1.16.0.12503 (x64) Portable by conservator [Multi]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar Neo — это инновационный фоторедактор от Skylum на основе искусственного интеллекта.
-Новый редактор Luminar Neo использует улучшенный механизм ИИ, который должен повысить качество обработки и увеличить производительность нового программного обеспечения.
-Luminar Neo – это отдельный редактор, который включает многие функции редактора Luminar AI. Также в нем (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B279297A7A959F7C350F8E83722C1C4F820153EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271725   (148537) от 24.12.2018
-
-Glary Utilities 5.112.0.137 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F13EC1CE99FF036795190FEA5E3EF2DBE15DBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434879   (148538) от 26.12.2020
-
-Allison Crowe - Tidings (2004) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Christmas>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Came Upon a Midnight Clear (0:42)
-02. River (4:12)
-03. Hallelujah (4:32)
-04. Silent Night (4:02)(   Читать дальше...   )Жанр: Folk-Rock, ChristmasПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C008CBF47C84821E59DE8C7C60D32F37483144
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969074   (148540) от 26.12.2015
-
-Галина Панина | Вязание на спицах. Самый полный и понятный самоучитель (2015) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию подробный пошаговый самоучитель, который создан специально для начинающих вязальщиц! Вместе с этой книгой вы узнаете, какие материалы и инструменты понадобятся в работе, какие термины и условные обозначения приняты в этом виде рукоделия, какие существуют приемы вязания спицами.
-
-Благодаря ярким пошаговым фотографиям, простым описаниям (   Читать дальше...   )Жанр: Книги по рукоделию и творчествуФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21E778F5E385F8E9734A80C2AA33F4E0870DC8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271766   (148541) от 24.12.2018
-
-NGW: Динорыба / Dinofish (2011) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148541.jpg" />
-</div>
-
-
-###  Подробнее
-
-2001 год, Содвана Бей, Южная Африка. Команда дайверов охотится за живым динозавром. У них ровно 15 минут чтобы найти его. Эта мрачная преисподняя - место легенд. Но здесь, по-близости есть нечто реальное. В этой экспедиции один из дайверов погиб. Спустя десятилетие после трагедии в Содване элитное подразделение возвращается на южно-африканское побережье. Их задание (   Читать дальше...   )Производство: США, Earth Touch, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Грэм ДуэйнПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D81F49EFEB37A2B05C15932AD21C99300958921
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086228   (148542) от 26.12.2016
-
-Вечерний Ургант (2016.12.23) SATRip (cезон 10, выпуск 74)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A113C9836E158E4671542AB13B87C861A5487F8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519441   (148543) от 24.12.2021
-
-Lacrimosa - Leidenschaft (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liebe über Leben (06:11)
-02. Führ mich nochmal in den Sturm (05:59)
-03. Kulturasche (04:22)
-04. The Daughter Of Coldness (04:31)(   Читать дальше...   )Жанр: Gothic Metal, DarkwaveПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853EC32188C810678B3CCC3E61D73DA340A7992E
 ```
 
 

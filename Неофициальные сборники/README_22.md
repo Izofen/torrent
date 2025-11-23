@@ -6,7 +6,7 @@ VA - Music News For Forum vol.042 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37306.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - A State of Trance - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37314.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Trance In Motion Vol.382 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37362.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Autumn In the Mirror (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37400.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Pop Dance Summer Caramel (2024) [MP3|320 Kbps] <Pop, Pop-Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37462.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Melancholic Rock Blues (2024) [MP3|320 Kbps] <Rock, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37503.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37508.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Gritty Rhythms and Smooth Blues (2024) [MP3|320 Kbps] <RnB, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37571.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Music News For Forum vol.041 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37601.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Neural Dancing (2024) [MP3|320 Kbps] <Synthpop, Pop, Dance, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37602.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37611.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Record Super Chart 09.11.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37651.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Musical kaleidoscope part 12 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37661.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Melodic Techno 1 2024 [MP3|320 Kbps] <Melodic Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37689.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Musical kaleidoscope part 11 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37885.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Compilation part 129 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37891.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Music News For Forum vol.040 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37893.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Compilation part 130 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37895.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Ritmo Caliente (2024) [MP3|320 Kbps] <Latin, Dance, Reggaeton>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37973.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Pop-Rock Hits Of The New Generation (2024) [MP3|320 Kbps] <Pop, Rock, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37997.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Hot and Erotic (2024) [MP3|320 Kbps] <Jazz, Electro, Nu Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38068.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - DOWN LOW 7 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38104.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Jeem DJ - Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38183.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Music News For Forum vol.039 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38218.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - The Echo Of The Heart Strings (2024) [MP3|320 Kbps] <Rock, Soft rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38373.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - National Pop Dance Music Vol.89 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38395.jpg" />
 </div>
 
 

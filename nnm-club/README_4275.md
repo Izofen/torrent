@@ -1,3 +1,77 @@
+###  Публикация: 1682397   (131459) от 07.12.2023
+
+Игорь Евдокимов | Доктор Фальк. Тайна серого монаха (2023) [MP3, Михаил Обухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь: доктор Василий Оттович Фальк. Эстет, педант, скептик, совершеннейший зануда – и сыщик поневоле. В дачном поселке на побережье Финского залива, куда он переезжает летом из Петербурга, найдена мертвой пожилая вдова. За день до гибели она жаловалась Фальку, что по ночам в ее саду появляется серый монах – верный предвестник смерти. Но доктор быстро понимает, (   Читать дальше...   )Жанр: Исторические детективыИздательство: ЛитРес: чтецПродолжительность: 05:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF446ECB29D7B029CD22C3492C8F5C44CC9F042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596459   (131460) от 30.12.2012
+
+Бедная Саша (1997) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бедная Саша» - это в первую очередь детектив! «Новая русская» девочка хочет ограбить банк своей «новой русской» мамы, для того, чтобы она перестала быть банкиршей, а стала просто любимой мамочкой.
+«Бедная Саша» - это, конечно же, новогодняя сказка о том, как сильно люди нуждаются в любви: девочке недостает родительского тепла, ее мама неуютно чувствует себя без любимого (   Читать дальше...   )Жанр: Комедия, Приключения, СемейныйРежиссер: Тигран КеосаянПродолжительность: 01:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9103B78B99E03A27EAE1683B35F22FA613F0DA0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682392   (131461) от 07.12.2023
+
+Борис  Кригер | Звёздная система Сириуса (2023) [MP3, Андрей Канаев]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига «Звездная система Сириуса» представляет собой увлекательное путешествие в глубины космоса, где Сириус, ярчайшая звезда на нашем ночном небе, играет главную роль. Автор раскрывает сложную природу этой звездной системы, которая состоит из двух звезд разного типа — яркой Сириуса A и тусклого белого карлика Сириуса B.
+В книге используются последние научные (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Неофициальное изданиеПродолжительность: 02:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAA3860424122F997B32BEA35C0C642411AEE5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596246   (131462) от 30.12.2012
 
 Тай-цзи: Герой / Tai Chi Hero (2012) BDRip
@@ -6,7 +80,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131462.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:9BC3E691DFDD367031ACD0897075634005B0B74B
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131464.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Galahad - Beyond The Realms Of Euphoria (2012) [FLAC|Lossless]<Neo Progressive>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131467.jpg" />
 </div>
 
 
@@ -85,7 +159,7 @@ Galahad - Beyond The Realms Of Euphoria (2012) [FLAC|Lossless]<Neo Progressive>
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131468.jpg" />
 </div>
 
 
@@ -109,7 +183,7 @@ magnet:?xt=urn:btih:21A03391D22A2B6128A77792FD7AD5DE381602F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131469.jpg" />
 </div>
 
 
@@ -134,7 +208,7 @@ magnet:?xt=urn:btih:21A03391D22A2B6128A77792FD7AD5DE381602F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131470.jpg" />
 </div>
 
 
@@ -158,7 +232,7 @@ magnet:?xt=urn:btih:B90C631CEF3A8D23E17E1F6EFB9235FB2649944D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131471.jpg" />
 </div>
 
 
@@ -182,7 +256,7 @@ magnet:?xt=urn:btih:9B2A003D4B27CA0E57FED093F5FE54AAEF1E34FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131472.jpg" />
 </div>
 
 
@@ -206,7 +280,7 @@ magnet:?xt=urn:btih:FE16B8D622CC49318AC8720D1F2F2C2C6EFCE08D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131473.jpg" />
 </div>
 
 
@@ -233,7 +307,7 @@ Miss Li - Tangerine Dream (2012) [FLAC|Lossless]<Indie Pop/Blues/Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131474.jpg" />
 </div>
 
 
@@ -266,7 +340,7 @@ Miss Li - Tangerine Dream (2012) [FLAC|Lossless]<Indie Pop/Blues/Jazz>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131475.jpg" />
 </div>
 
 
@@ -293,7 +367,7 @@ magnet:?xt=urn:btih:71E3549AD449C778F6053BD51A763C3211F9F189
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131477.jpg" />
 </div>
 
 
@@ -317,7 +391,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131479.jpg" />
 </div>
 
 
@@ -341,7 +415,7 @@ magnet:?xt=urn:btih:7D03A7F1DC6BBDD258F6AFA4FA33E69DF67C4CFD
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131480.jpg" />
 </div>
 
 
@@ -365,7 +439,7 @@ magnet:?xt=urn:btih:879B1DEAF3D5EBB35DA279E1DD5324795DB5E8A3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131481.jpg" />
 </div>
 
 
@@ -390,7 +464,7 @@ magnet:?xt=urn:btih:0E8D37A9213AB457A683B102E128003DE254D0CB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131483.jpg" />
 </div>
 
 
@@ -414,7 +488,7 @@ Porcupine Tree - Closure / Continuation.Live (2023) [MP3|320 Kbps] <Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131485.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ Steve Shanahan - Blue Ranchero (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131487.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ magnet:?xt=urn:btih:CA7685C7712480CCE7351F5C2F8AEB06B2C0CFBA
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131489.jpg" />
 </div>
 
 
@@ -495,7 +569,7 @@ FastPictureViewer Pro 1.9.287 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131490.jpg" />
 </div>
 
 
@@ -519,7 +593,7 @@ Toshiyuki Miyama & The New Herd - A Love Story: This Is Latin Music (1970) 2006,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131491.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131493.jpg" />
 </div>
 
 
@@ -573,7 +647,7 @@ magnet:?xt=urn:btih:900EEEB4BFBD0A65E251590E3549C3C2CF332ED7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131495.jpg" />
 </div>
 
 
@@ -584,84 +658,6 @@ magnet:?xt=urn:btih:900EEEB4BFBD0A65E251590E3549C3C2CF332ED7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8BD932FAE28CE781762BD0FBD2EE92BE8E7C974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682617   (131497) от 07.12.2023
-
-Сибирская Благозвонница | Из творений преподобного Ефрема Сирина. Об антихристе, кончине мира и Страшном Суде (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию благочестивого читателя предлагаются слова преподобного Ефрема Сирина, в которых учитель покаяния живо и образно показывает события, сопутствующие кончине мира, и Страшный Суд Господа нашего Иисуса Христа, побуждая слушателей к раскаянию в своих грехах и изменению образа жизни.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48651AA3C79F6B8848D0F6C58E365B4B7706BEC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682547   (131499) от 07.12.2023
-
-Porcupine Tree - Closure / Continuation.Live (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackest Eyes (5:23)
-02. Harridan (8:07)
-03. Of The New Day (4:44)
-04. Rats Return (5:16)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E4BCF73946D5D3D27551A4BD53C0E687245567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682299   (131501) от 07.12.2023
-
-Baker & Cas - Hooligans (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock n Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Sug (2:32)
-02. The Woman I Love (2:33)
-03. I Told Jesus (4:53)
-04. It's Getting Strange (3:49)(   Читать дальше...   )Жанр: Blues, Rock n RollПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B8F3BA46538B6577423CCAE3F1826CBD7E6FC2
 ```
 
 

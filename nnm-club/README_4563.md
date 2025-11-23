@@ -1,3 +1,151 @@
+###  Публикация: 970468   (141304) от 30.12.2015
+
+Журнал | Железный мир №12 (декабрь 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Железный мир» - ведущее профессиональное издание, посвященное силовым видам спорта. Он отражает события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга, серии «Стронгмен». Много материалов посвящено методикам построения тренировочного процесса и спортивного питания, советам профессиональных спортсменов. Представлены информация о соревнованиях (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B1C3486613C49B2B1F4142A51A7B20631868F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520375   (141306) от 28.12.2021
+
+Various - Call Me Tonight (1986) [MP3|320 Kbps] <Boogie, Funk, Pop Rock, Synth-pop>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141306.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Rumi Natsumi (夏見ルミ) - 不安なジェラシー (2:51)
+2.Rumi Natsumi (夏見ルミ) - Call Me Tonight (3:21)
+3.Rumi Natsumi (夏見ルミ) - あなたにRainy Day (4:24)
+4.Hiroyuki Watanabe (渡辺裕之) - My Little (   Читать дальше...   )Жанр: Boogie, Funk, Pop Rock, Synth-popПродолжительность: 00:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19518242C8D363CD501CF2F689B18718EB5E83B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271875   (141308) от 29.12.2018
+
+Джон Коннолли | Ночные легенды [Сборник] (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый сборник мистических рассказов Джона Коннолли, создателя бестселлеров о частном детективе Чарли Паркере.Это темная, смелая и пугающая антология, полная потерянных любовников и пропавших детей, хищных демонов и мстительных духов. Коннолли отдает дань своим предшественникам – М. Р. Джеймсу, Рэю Брэдбери, Стивену Кингу, но не теряет собственного голоса и доводит (   Читать дальше...   )Жанр: Мистика, УжасыПродолжительность: 05:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7EDB07944C095AC5297D112FA5A5A178B1A1EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194842   (141309) от 29.12.2017
+
+Тайна 7 сестер / Seven Sisters (2017) BDRip [H.264/1080p] [MVO] [PR]
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141309.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где семейным парам разрешено иметь только одного ребенка, рождается семь сестер-близняшек.
+Их дед решает сохранить всех и дает малышкам имена в честь дней недели. Так девочки и появляются на людях - каждая в свой день. Но однажды Понедельник пропадает...Производство: Великобритания, Франция, Бельгия / Nexus Factory, Raffaella Productions, SND, Title Media, uMedia Family, VendГґme PicturesЖанр: Фантастика, Боевик, Триллер, Драма, Криминал, Детектив, ПриключенияРежиссер: Томми ВирколаАктеры: Нуми Рапас, Гленн Клоуз, Уиллем Дефо, Марван Кензари, Кристиан Рубек, Пол Сверре Валхейм Хаген, Адетомива Едун, Кэсси Клер, Камерон Джек, Клара Рид, Кирсти ЭвертонПеревод: Многоголосый закадровый, любительский (@MUZOBOZ@)Субтитры: АнглийскиеПродолжительность: 02:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25169C71E185BB16A8B830D16E9FC84E05B1EA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590579   (141310) от 17.12.2012
+
+Любовь для бедных (2012) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Маруси умирает на операционном столе, и с этого момента ее жизнь кардинально меняется. В поисках работы девушка знакомится с Алексеем и его двоюродным братом Костей. Оба молодых человека неравнодушны к Марусе - теперь ей предстоит сделать нелегкий выбор. Она еще не знает, что Костя - тот самый врач, который неудачно прооперировал ее отца. Однако виновен ли на (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Вадим АраповАктеры: Ольга Иванова, Сергей Загребнев, Татьяна Лютаева, Анатолий Котенев, Святослав Астрамович, Людмила Баталова, Валерий Кошеев, Светлана Никифорова, Елена Шкуратова, Полина Булахова, Фёдор Гриб, Инна ДубокПродолжительность: 01:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82A1ED2778E399FF820FD675E2092D1D0EA456A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678810   (141311) от 23.11.2023
+
+Dungeon Golf (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dungeon Golf, объединяющая мини-гольф и подземелье, обещает уникальный игровой опыт. В сетевом или локальном многопользовательском режиме с друзьями или в одиночном путешествии по сюжету игроки сталкиваются с эксцентричными фэнтезийными персонажами, каждый из которых обладает уникальными стилями и способностями игры в гольф. Перемещаясь по ландшафту, изобилующему (   Читать дальше...   )Тип издания: SceneРазработчик: Ant Workshop LtdЖанр: Казуальные игры, Инди, Спортивные игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA18E6BB32E2DCFE5D3778F5A5D39DB9B216740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520240   (141312) от 28.12.2021
 
 Интернет Контроль Сервер 9.0 [x86, amd64] 1xDVD
@@ -6,7 +154,7 @@
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141312.jpg" />
 </div>
 
 
@@ -32,7 +180,7 @@ CoolUtils Total PDF Converter 6.1.0.257 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141313.jpg" />
 </div>
 
 
@@ -56,7 +204,7 @@ Microsoft Visual Studio 2019 Professional 16.4.1 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141315.jpg" />
 </div>
 
 
@@ -80,7 +228,7 @@ magnet:?xt=urn:btih:25141D73B7B4ED1F29C998BAA1620DF4EA9E0C1B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141316.jpg" />
 </div>
 
 
@@ -104,7 +252,7 @@ magnet:?xt=urn:btih:B020D053F24618803C70BAC3360A37AF2BB92C9F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141317.jpg" />
 </div>
 
 
@@ -128,7 +276,7 @@ magnet:?xt=urn:btih:24B866CF67DE82B6812B84D38FDA0F5A6352EA5F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141319.jpg" />
 </div>
 
 
@@ -152,7 +300,7 @@ magnet:?xt=urn:btih:AC4360E9E8EE24AAFB569E5CB34882A61CC5D8BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141320.jpg" />
 </div>
 
 
@@ -176,7 +324,7 @@ Stellarium 0.20.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141321.jpg" />
 </div>
 
 
@@ -200,7 +348,7 @@ magnet:?xt=urn:btih:2D293F683CED17D5F37C3D751FB033A5BAA5FE6B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141323.jpg" />
 </div>
 
 
@@ -224,7 +372,7 @@ magnet:?xt=urn:btih:C1C015B3420589B8E8025D17EF1680B56C4E5F03
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141325.jpg" />
 </div>
 
 
@@ -249,7 +397,7 @@ magnet:?xt=urn:btih:4C2591C0F7ECFB270B401AFF0366A8D5E5F4227A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141326.jpg" />
 </div>
 
 
@@ -276,7 +424,7 @@ magnet:?xt=urn:btih:8074775A8D83881372BBF6AC4871A6A22EB042FC
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141327.jpg" />
 </div>
 
 
@@ -300,7 +448,7 @@ magnet:?xt=urn:btih:F0EA94B13777D4336C689521FFC0C113DFC6AEB1
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141329.jpg" />
 </div>
 
 
@@ -324,7 +472,7 @@ magnet:?xt=urn:btih:690D6A8B247AA0376FD8F26097A35FF42009AF68
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141330.jpg" />
 </div>
 
 
@@ -348,7 +496,7 @@ magnet:?xt=urn:btih:14A29D68BE67F9D40426EFDA3E635DDC912368EE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141331.jpg" />
 </div>
 
 
@@ -374,7 +522,7 @@ magnet:?xt=urn:btih:8D7365652E949EC9926B8037497E550F0D75F351
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141332.jpg" />
 </div>
 
 
@@ -398,7 +546,7 @@ magnet:?xt=urn:btih:C5426C04B968FAAB56B42D51CD17B2362DDCF3A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141334.jpg" />
 </div>
 
 
@@ -422,7 +570,7 @@ magnet:?xt=urn:btih:FF9F7D5ED0A0E1AE7BF6E6ED225C0AEBD94E0B71
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141335.jpg" />
 </div>
 
 
@@ -446,7 +594,7 @@ Garmin: AnaDigit Map 6.41 (Greek Anavasi TopoNavigator) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141336.jpg" />
 </div>
 
 
@@ -470,7 +618,7 @@ Privatus 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141337.jpg" />
 </div>
 
 
@@ -482,159 +630,6 @@ Privatus - это простое приложение для удаления н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E07189A4FAC0AB1BA2757EDCD36D7F4CC527BB1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271644   (141338) от 29.12.2018
-
-Джонатан Коу | Карлики смерти (2018) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Время: конец 80-х. Место: Лондон, уже отнюдь не свингующий. Звуковая дорожка: «The Smiths». Самые дорогие воспоминания: панк-рок второй половины 70-х. Пианист Уильям переехал из провинциального Шеффилда в столицу, стремясь стать знаменитым музыкантом, но его мелодичные танцевальные песни в исполнении довольно безнадежных соратников скорее напоминают пародии на «Status (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 07:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B77D7B716D6ABD9114EA3F90B65A6FB9483C45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435775   (141340) от 29.12.2020
-
-Джон Уиндем | Кракен пробуждается (2020) [EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тревожные вести приходят с разных континентов: при загадочных обстоятельствах гибнут корабли, терпят бедствие научно-исследовательские экспедиции, причем в районах катастроф наблюдается активность неведомых летающих объектов. Что это – очередное столкновение международных политических сил или нечто более страшное? В ходе своего расследования журналист Майкл Ватсон (   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаПеревод: Алексей ЗахаренковФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2784DB3F35E9CA5B91543B8FEE2915A8290B40DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272785   (141341) от 29.12.2018
-
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. Словакия — Швеция (27.12.2018) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141341.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 декабря 2018, пятница. 02:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа B.
-Словакия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05FD0530DE039633517090066AA4681568DDD33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970103   (141342) от 30.12.2015
-
-DJ Skydreamer - Happy Hardcore (2005) Монолит [APE|image+.cue] <Hardcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Cold As Ice
-02	The Player
-03	Pressing On
-04	Future Express(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E0FEC1274572C62468601D17291C8A7F29BD46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195417   (141343) от 29.12.2017
-
-Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США, 20th Century Fox Film CorporationЖанр: боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Колин Фёрт, Тэрон Эджертон, Эдвард Холкрофт, Гордон Александр, Марк Стронг, Ханна Альстрём, Кэлвин Демба, Томас Тургус, Тоби Бакаре, Джулианна МурПеревод: Дублированный (iTunes)Субтитры: Русские форсированные (отдельно)Продолжительность: 02:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68745D999C4B4E2FB9819810B25F6B3CF00B10D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088260   (141344) от 30.12.2016
-
-Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What Is, Is [05:39]
- 02.Breath Of Love [05:54]
- 03.Blue Hue [05:53]
- 04.You Are Always The One [07:35](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89DDC26F2DBB1B50C14254037509FF7B6E4EB1E
 ```
 
 

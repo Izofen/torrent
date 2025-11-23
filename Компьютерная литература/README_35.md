@@ -1,3 +1,129 @@
+###  Публикация: 1610210   (208080) от 06.02.2023
+
+Maximilian Schwarzmüller | React Key Concepts: Consolidate your knowledge of React’s core features, 1st Edition (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_208080.jpg" />
+</div>
+
+
+###  Подробнее
+
+As the most popular JavaScript library for building modern, interactive user interfaces, React is an in-demand framework that'll bring real value to your career or next project. But like any technology, learning React can be tricky, and finding the right teacher can make things a whole lot easier.
+
+Maximilian Schwarzmuller is a bestselling instructor who has helped (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523F05EAEDFDAFCD01716F6D8D6FA1A8C863C7CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610240   (208083) от 06.02.2023
+
+Forrest Brazeal | The Cloud Resume Challenge Guidebook, AWS, GCP & Azure ed. [3 Книги] (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_208083.jpg" />
+</div>
+
+
+###  Подробнее
+
+A proven way to advance your cloud career.​
+Since April 2020, the Cloud Resume Challenge has helped thousands of peopleskill up on cloud,
+improve their career prospects,
+and even land cloud jobs from totally non-tech fields like plumbing, professional poker, and HR.Now, I've packed their top tips, strategies, and resources into one e-book, so you too can build (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C385A18DDA5AFD7BC209596F1292CC6F6FEB59ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610057   (208116) от 05.02.2023
+
+И.Б. Аббасов | Основы графического дизайна в Photoshop 2021 (2021) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_208116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена для освоения графического редактора Adobe Photoshop с нуля. Кратко и емко описаны все многочисленные возможности Photoshop. Закрепить изученный материал помогают практические упражнения с пошаговыми инструкциями. Рассматриваемые темы: - интерфейс программы Adobe Photoshop; - особенности растровой графики; - обработка изображений; - использование (   Читать дальше...   )Жанр: Графика, Дизайн, ПроектированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF2E1E87EC822C1907EC4E6888C9A908AE7F6F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575640   (208455) от 10.09.2022
+
+Sylvain Kerkour | Black Hat Rust (2022) [PDF, EPUB, MOBI] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_208455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будь то в фильмах или в средствах массовой информации, хакеры часто романтизируются: их изображают волшебниками черной магии, мерзкими преступниками или, в худшем случае, ворами с капюшоном и ломом.
+На самом деле спектр злоумышленников чрезвычайно широк: от скучающего подростка, исследующего Интернет, до армии суверенного государства, а также несчастного бывшего (   Читать дальше...   )Жанр: Пентест, OSINTФормат: PDF, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E85CC7A4198F1417A544A65E2BAD5B0A7D7D85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814909   (208743) от 29.01.2023
+
+Д. Н. Тороп, В. В. Терликов | Teamcenter. Начало работы (2011) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_208743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой учебное пособие для освоения базовых принципов работы с системой Teamcenter®. В книге приводится общее описание всех модулей, входящих в состав системы Teamcenter, подробно рассмотрены функциональные возможности базовых модулей, предназначенных для управления данными об изделии, которые применяются в повседневной работе пользователей вне (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894D36772008F78F413B3A68D3D4B0D37D2D5AA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607744   (208823) от 28.01.2023
 
 М. Виннер | Компьютер и ноутбук для тех, кому за... Простой и понятный самоучитель (2021) [PDF]
@@ -6,7 +132,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208823.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208823.jpg" />
 </div>
 
 
@@ -32,7 +158,7 @@ magnet:?xt=urn:btih:AACAB0AEB2E578B32AA941789D7C77463EC6CC85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208832.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208832.jpg" />
 </div>
 
 
@@ -56,7 +182,7 @@ magnet:?xt=urn:btih:D9FE6D9A46086670CBC4DF656DE28107CEF693EB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209227.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209227.jpg" />
 </div>
 
 
@@ -80,7 +206,7 @@ magnet:?xt=urn:btih:43FC447F9E571B2E031B23B4CCF17F3EBE03D8C0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209354.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209354.jpg" />
 </div>
 
 
@@ -104,7 +230,7 @@ magnet:?xt=urn:btih:BB65982148DDEC4B02AAF7FB81F440DBA8A80538
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209363.jpg" />
 </div>
 
 
@@ -129,7 +255,7 @@ magnet:?xt=urn:btih:03CBB3ECC5A506752EDD81BE67FB8DC0ADF5C0A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210104.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210104.jpg" />
 </div>
 
 
@@ -153,7 +279,7 @@ magnet:?xt=urn:btih:83C60489ABC3DABD1895A402CCAED093602E892A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210541.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210541.jpg" />
 </div>
 
 
@@ -177,7 +303,7 @@ Adobe Press | Adobe After Effects CS6 Classroom in a Book [2023] [PDF, EPUB] [En
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210581.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210581.jpg" />
 </div>
 
 
@@ -201,7 +327,7 @@ Mario Casciaro, Luciano Mammino | Node.js Design Patterns: Third Edition (2020) 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210793.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210793.jpg" />
 </div>
 
 
@@ -227,7 +353,7 @@ magnet:?xt=urn:btih:0AB882F0C5C5712030A6BABECC3290D3DD192F55
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211011.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211011.jpg" />
 </div>
 
 
@@ -252,7 +378,7 @@ magnet:?xt=urn:btih:8F93E4CB98355F81778D330A52348E6F545A534C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211013.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211013.jpg" />
 </div>
 
 
@@ -276,7 +402,7 @@ magnet:?xt=urn:btih:D97DB6FAA819916DC5838AA4782FD23913BC64B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211153.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211153.jpg" />
 </div>
 
 
@@ -300,7 +426,7 @@ Alex Ellis | Everyday Go (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211230.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211230.jpg" />
 </div>
 
 
@@ -326,7 +452,7 @@ magnet:?xt=urn:btih:CD379FB998E2F09C2E72C64306DB79790D9AF2E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211261.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211261.jpg" />
 </div>
 
 
@@ -350,7 +476,7 @@ magnet:?xt=urn:btih:3113AB507098C73936980FF3CB8B3BCDB4971715
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211551.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211551.jpg" />
 </div>
 
 
@@ -375,7 +501,7 @@ Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your codi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211735.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211735.jpg" />
 </div>
 
 
@@ -399,7 +525,7 @@ Dimitrios Xanthidis и др.| Handbook of Computer Programming with Python (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211857.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211857.jpg" />
 </div>
 
 
@@ -423,7 +549,7 @@ magnet:?xt=urn:btih:7B700030FADCAC6291808DBC0D4C1CDBE9C2A103
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212012.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212012.jpg" />
 </div>
 
 
@@ -447,7 +573,7 @@ magnet:?xt=urn:btih:42C7B970DAA0F3DBC427DFE35DC8433C0A172C5D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212135.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212135.jpg" />
 </div>
 
 
@@ -471,7 +597,7 @@ Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212157.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212157.jpg" />
 </div>
 
 
@@ -495,7 +621,7 @@ Marcelo Rovai | Edge AI Engineering: Hands-on with the Raspberry Pi (2025) [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212159.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212159.jpg" />
 </div>
 
 
@@ -506,130 +632,6 @@ In the rapidly evolving landscape of technology, the convergence of Artificial I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B4795FFDDB9EDE4090EAC25DF9DF7E83D9074D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831413   (212160) от 28.10.2025
-
-Hattersley L. (ed.) | The Official Raspberry Pi Handbook 2025: Astounding projects with Raspberry Pi computers (2024) [EPUB, MOBI, AZW3] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dive into the world of Raspberry Pi with this huge book of tutorials, project showcases, guides, product reviews, and much more from the writers of The MagPi, the official Raspberry Pi magazine.
-
-Raspberry Pi Pico 2 joins Raspberry Pi 5 in this, The Official Raspberry Pi Handbook 2025. Pico 2 comes with a faster processor than the original Pico, and uses less power (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Raspberry Pi PressФормат: EPUB, MOBI, AZW3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC16D63EA9DA16EFFF156825A508B1598F714ED4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831422   (212161) от 28.10.2025
-
-L. Hattersley (ed.) | The Official Raspberry Pi Handbook - 2026 (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212161.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Official Raspberry Pi Handbook 2026 is packed with all the information beginners need to use their new Raspberry Pi computer. Inside this book, you'll find the best projects from the past year for long-term Raspberry Pi enthusiasts. With a special attention to Raspberry Pi 5, the latest and greatest in the Raspberry Pi microcomputer line, you'll learn how to (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Raspberry Pi PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B7AF51D15F25D9EACAE1FCB0613C1A5F5CB4FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831436   (212162) от 28.10.2025
-
-Phil King | Simple electronics with GPIO Zero: Take control of the real world with your Raspberry Pi (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212162.jpg" />
-</div>
-
-
-###  Подробнее
-
-There are many things that distinguish Raspberry Pi from other computers. The GPIO header might just be the most significant of them all — it allows you to connect electronic components to your Raspberry Pi and control them with code you've written yourself.
-The most popular programming language for controlling electronics on a Raspberry Pi is Python, particularly (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Raspberry Pi, Ltd.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31AE9DF9361D833AFDA2734D4C4AF7751813C821
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831493   (212163) от 28.10.2025
-
-Dylan G.H. Quagmire | Raspberry Pi Bible: The Ultimate Project & Programming Guide for Beginners (2025) [PDF, EPUB, MOBI] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Have you ever wondered how that tiny Raspberry Pi board everyone talks about can turn into a fully functioning robot, a weather station, or even a home automation system? Are you itching to build something exciting but feel overwhelmed by where to begin? Or maybe you’ve bought a Raspberry Pi, it’s been sitting on your desk, and you’ve been thinking—now what?
-What (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Independently publishedФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0403F2FC8D7902A90B27ABE9523E69946CE32D19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565631   (212221) от 24.07.2022
-
-А.В. Селезнева | Основы программирования. Язык высокого уровня С++. Часть I (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие состоит из двух частей, каждая из которых содержит теоретический материал, примеры задач с их реализацией, ряд лабораторных работ. Первая часть данного пособия знакомит читателя с основными понятиями программирования, его базовыми конструкциями, средами разработки. Учебное пособие направлено на приобретение студентами общих знаний и навыков программирования (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70B3C585A08D26289B86DCAE6596CBAA2AF6E8D
 ```
 
 

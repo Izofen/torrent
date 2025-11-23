@@ -1,3 +1,75 @@
+###  Публикация: 489747   (129330) от 29.04.2012
+
+Го Осака | Косые тени далекой земли [2006] [RTF, FB2]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129330.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глазах Ханагата Риэ, приехавшей учиться в Мадридский университет, убит ее преподаватель Хулиан Ибаррагирре, и девушку обвиняют в совершении этого преступления. Риэ начинает собственное расследование, в ходе которого она неожиданно встречается со своим старым знакомым, журналистом Рюмоном Дзиро, разыскивающим следы некоего Гильермо, японца, принимавшего участие в Испанской гражданской войне на стороне Франко в 1936 году. Эти поиски приоткрывают тайну похищенных русскими в годы войны золотых слитков. Но она становится известна и убийце Ибаррагирре…2006Перевод: Людмила ЕрмаковаФормат: RTF, FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525617   (129331) от 21.01.2022
+
+Дело фирмы / Company Business (1991) BDRip [H.264/1080p] [DVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба свела стареющего агента ЦРУ и бывшего резидента КГБ в довольно щекотливом деле. Американцы пожелали выкупить у КГБ своего агента, арестованного в России за шпионаж. За 2 миллиона долларов и провалившегося русского резидента в нагрузку. Однако, в момент передачи все пошло наперекосяк. Что оставалось делать двум бывшим непримиримым врагам, оказавшимся в чужой (   Читать дальше...   )Производство: США, Pathé EntertainmentЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Николас МейерАктеры: Джин Хэкмен, Михаил Барышников, Кертвуд Смит, Терри О’Куинн, Дэниэл фон Барген, Олег Рудник, Жеральдин Данон, Надим Савалха, Майкл Томлинсон, Говард МакДжиллинПеревод: Двуголосый, многоголосый (Укр.), авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:38:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525652   (129333) от 21.01.2022
+
+Бермудские глубины / The Bermuda depths (1978) BDRip [H.264] [AVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129333.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках причин смерти своего отца сирота Мангус едет на Бермудские острова. Отправившись в компании друзей отца, работников биологической станции, на поиски гигантской черепахи, во время ночного купания он начинает резко тонуть. Спасшая его от смерти молодая загадочная девушка по имени Дженни оказывается его подружкой детства, единственным другом тех лет...Производство: США, Япония, Rankin/Bass Productions, Tsuburaya ProductionsЖанр: фантастика, фэнтези, приключения, триллерРежиссер: Цугунобу КотаниПеревод: авторский (Андрей Дольский)Субтитры: английскиеПродолжительность: 01:37:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489415   (129334) от 29.04.2012
 
 VA - Дискотека: Весенний отрыв №100 (2012) [MP3|256 кб/с]<Pop,Dance>
@@ -6,7 +78,7 @@ VA - Дискотека: Весенний отрыв №100 (2012) [MP3|256 кб
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129334.jpg" />
 </div>
 
 
@@ -39,7 +111,7 @@ Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Te
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129335.jpg" />
 </div>
 
 
@@ -66,7 +138,7 @@ Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Te
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129341.jpg" />
 </div>
 
 
@@ -90,7 +162,7 @@ Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Te
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129342.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ Clive Barker's Undying (2001) [En] (1.1hf) License GOG
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129343.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ FamilyGo v4.2.2 [Ru/Multi]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129345.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ FamilyGo — это GPS локатор, который позволит найт
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129347.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ FamilyGo — это GPS локатор, который позволит найт
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129349.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ FamilyGo — это GPS локатор, который позволит найт
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129350.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ FamilyGo — это GPS локатор, который позволит найт
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129351.jpg" />
 </div>
 
 
@@ -258,7 +330,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.7.6) Repack Other s
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129352.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129353.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129354.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129356.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129357.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129358.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129359.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129360.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129362.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129364.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129365.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129366.jpg" />
 </div>
 
 
@@ -552,88 +624,13 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129368.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Молодожёны мистер и миссис Кент постоянно подозревают друг друга в неверности. Кроме того, уже третий год подряд они не могут поехать в свадебное путешествие в связи с неотложными делами мистера Кента. Пользуясь сложившейся ситуацией, миссис Кент решает сказать мужу, что поедет одна, но на самом деле отправляет в круиз вместо себя случайную знакомую — певицу из клуба (   Читать дальше...   )Производство: США / Michael Curtiz Productions, Warner Bros. PicturesЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Майкл Кёртиц, Басби БерклиАктеры: Джек Карсон, Дженис Пейдж, Дон ДеФор, Дорис Дэй, Оскар Левант, Ш.З. Шакалль, Фортунио Бонанова, Эрик Блор, Франклин Пэнгборн, Лесли БруксПеревод: Одноголосый любительский, binjakСубтитры: РусскиеПродолжительность: 01:39:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489646   (129370) от 29.04.2012
-
-Журнал | Empire №5 [2012] [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129370.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом номере журнала Empire - уникальные фотографии со съемочных площадок, эксклюзивные репортажи «из-за кулис», интервью с актерами, обзоры фильмов за несколько месяцев до их официального выхода в прокат, а так же анонс фильмов, которые можно посмотреть в кинотеатрах и на DVD в ближайшее время.2012Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525640   (129371) от 21.01.2022
-
-Тимофей Царенко | Полимерные крылья (2022) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летит сквозь пустоту космоса Барселона 17, звездный дом сотни миллионов человек, корабль - поколение. Летит покинутый жителями.
-Саймон Поль - ворон, скай-лутер, потомок тех, кто когда-то обрек на смерть всех обитателей города в пустоте. Потомок палачей? Нет! потомок самых больших неудачников в обитаемом космосе.
-
-Он пирует на забытых вещах, сражается с домашней робототехникой (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525661   (129373) от 21.01.2022
-
-Алексей Губарев | Аскет (Книга 3). Стикс (2022) [MP3, Радион Нечаев]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Река смерти, пересекающая безжизненный мир. Здесь нет места живым, сама суть мира мёртвых протестует против жизни. Только глупец или отчаявшийся добровольно выберет этот путь.Жанр: Боевая фантастика, Попаданцы, LitRPGПродолжительность: 07:51:19
 
 ## Скачать торент
 ```bash

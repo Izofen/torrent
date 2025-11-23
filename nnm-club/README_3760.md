@@ -1,3 +1,75 @@
+###  Публикация: 1700078   (117442) от 15.02.2024
+
+Microsoft Visual Studio 2022 Enterprise 17.9.0 (Offline Cache) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E34E83728F0CC33A174526C6C807DA9619253B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700003   (117443) от 15.02.2024
+
+Wondershare PDFelement 10.2.8.2643 RePack by elchupacabra + OCR Plugin [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51134B4E08F1F73CEEEED832E624E9EB4B4818B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700081   (117444) от 15.02.2024
+
+Topaz Gigapixel AI 7.1.0 + models Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BFA3EF8C94DB67A924D57A8775A5D732E7B003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700113   (117445) от 15.02.2024
 
 Н.В. Хрусталева | Особенности 3D-печати и фотограмметрии (2023) [PDF]
@@ -6,7 +78,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117445.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ Revo Uninstaller Pro 5.2.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117446.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:2D43DD8C8EAA98455ADCFE4DD95CC9BCFBF81C14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117447.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:8348FC9E359B49E7ECE3DD0512D12D0514A4E999
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117448.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:7E775BFB252ED9DB87AB58153584E24EDF952A27
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117449.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:91BB36426B8E2A08E95AA943311D1A0BDBD0A354
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117450.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:A4BDDA78A9C432DC81B788C69BB4C7A59D4B24AE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117451.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:2C2E53F768B3619E6E4791D0FC34345E77266A33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117452.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:2C2E53F768B3619E6E4791D0FC34345E77266A33
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117453.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:FBD9FF250C8D56CAB379CD71C05A48721C0B40E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117454.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ Speedtest by Ookla 1.12.186.1 (x64) Portable by Topersoft [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117455.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:AE08F07DF4E3A0DEF55F308D28BC1D48D02B6CBE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117456.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:F8A36C788D8B3A06B9C749D06B0300058DADB2EC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117457.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Find Any File (FAF) 2.4.2b7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117458.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ USB Device Tree Viewer 4.0.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117459.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ IceCream Ebook Reader Pro 6.47 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117460.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ magnet:?xt=urn:btih:2863704F96184B124EDB25D131A56501500D3E8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117461.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:888171D57C56FAC8D6E46621FD52690DD3782B60
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117462.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:38A561078A515A73E13B1A6DF28700839E180414
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117463.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ magnet:?xt=urn:btih:8065020B304621AA87395E99D324559B69F9272F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117464.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:046125D18B8D8EF43E14900F56A7D0114D02010D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117465.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ FreeBSD 14.0 [i386, amd64] 4xCD 2xDVD 4xUSB FlashDrive
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117466.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:AABA82A154BC9DE64BDE692271FF6A587A823C64
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117467.jpg" />
 </div>
 
 
@@ -560,79 +632,6 @@ magnet:?xt=urn:btih:AABA82A154BC9DE64BDE692271FF6A587A823C64
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76BE8CB260722CE2AD6D04AD30E75265EF5B3DEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690915   (117468) от 15.02.2024
-
-G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) WEBRip [H.264/1080p-LQ] [Open Matte] [Theatrical Cut] [handmade AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отряд G. I. Joe вновь бросит вызов группировке «Кобра» и вступит в противостояние с правительством.Производство: США / Di Bonaventura Pictures, Hasbro Inc., Metro-Goldwyn-Mayer (MGM), Paramount Pictures, Skydance ProductionsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Джон М. ЧуАктеры: Дуэйн Джонсон, Эдрианн Палики, Брюс Уиллис, Рэй Парк, Ли Бён Хон, Д.Дж. Котрона, Джонатан Прайс, Элоди Юнг, Ченнинг Татум, Люк БрейсиПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A308491C96814FF638E5F41B93ED53B437FD36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420916   (117469) от 15.02.2024
-
-Иван Гончаров | Обыкновенная история (2009) [MP3, Алексей Казаков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская классика.
-Иван Александрович Гончаров – один из самых ярких и значительных представителей русской литературы XIX века. Литературное наследие Гончарова не слишком обширно. За 45 лет творчества он опубликовал три романа, книгу путевых очерков «Фрегат «Паллада», несколько нравоописательных рассказов, критических статей и мемуары. Роман «Обыкновенная история» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 14:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B104DA4974E44E38CB32F61D4406E30B79FD0292
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699952   (117470) от 15.02.2024
-
-Охотники за привидениями 2 / Ghostbusters II (1989) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через пять лет все забыли о знаменитых охотниках, равно как и о самих привидениях. Но они и не думали исчезать… А это значит, что для отважной четвёрки снова есть работа. Теперь в их распоряжении новое современное оружие, которое поможет им одолеть даже самого страшного монстра. Облако чёрной энергии нависло над городом, а в городской канализации течёт река зловещего (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: фантастика, фэнтези, боевик, комедияРежиссер: Айвен РайтманАктеры: Билл Мюррей, Дэн Эйкройд, Сигурни Уивер, Харольд Рэмис, Рик Морэнис, Эрни Хадсон, Энни Поттс, Питер МакНикол, Харрис Юлин, Дэвид МаргулисПеревод: Многоголосый (Видеосервис), двухголосый (ОРТ)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B1E30C1AF1FE61C8000B067889582B7D8A4BDC
 ```
 
 

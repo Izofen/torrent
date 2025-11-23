@@ -1,3 +1,51 @@
+###  Публикация: 1195673   (140435) от 30.12.2017
+
+Камеди Клаб в Барвихе / Комеди Клаб / Comedy Club (2017.12.29) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140435.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: ~ 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19F216DB2DF918D663ED2CBB4F3EA4C88ABA239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679268   (140456) от 24.11.2023
+
+Master of Typing 3 - Practice 15.13.25 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master of Typing создан для тех, кто хочет научиться печатать вслепую. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687AC570A5DF9E4C3BDC9F17EA44BC0874BB3E9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520778   (140462) от 29.12.2021
 
 SeaMonkey 2.53.10.2 [Ru]
@@ -6,7 +54,7 @@ SeaMonkey 2.53.10.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140462.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:685870168645C3F3A70F48CA5A21788BBBF240B6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140469.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ NetLimiter 4.0.15.0 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140494.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Aidfile Recovery Software Professional 3.68 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140505.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140506.jpg" />
 </div>
 
 
@@ -127,7 +175,7 @@ qBittorrent 4.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140507.jpg" />
 </div>
 
 
@@ -153,7 +201,7 @@ SamDrivers 19.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140508.jpg" />
 </div>
 
 
@@ -177,7 +225,7 @@ magnet:?xt=urn:btih:927FB6FF7AEFC2053ED7DE8C0D9C21935EE03DEA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140511.jpg" />
 </div>
 
 
@@ -201,7 +249,7 @@ Menuwhere 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140517.jpg" />
 </div>
 
 
@@ -225,7 +273,7 @@ Troglodyte - Don't Go In The Woods (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140546.jpg" />
 </div>
 
 
@@ -258,7 +306,7 @@ magnet:?xt=urn:btih:DDE39873CBE670EC9D4C2E62252BFEA5F60CC479
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140552.jpg" />
 </div>
 
 
@@ -282,7 +330,7 @@ Comedy Woman. 10 лет (2017.12.29) HDTV [H.264/1080i]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140556.jpg" />
 </div>
 
 
@@ -306,7 +354,7 @@ Aiseesoft AnyCoord for Mac 1.0.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140571.jpg" />
 </div>
 
 
@@ -330,7 +378,7 @@ magnet:?xt=urn:btih:C60307C98848D9E72CF3DF4B60DD1FC36EA9A7FC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140579.jpg" />
 </div>
 
 
@@ -354,7 +402,7 @@ VA - 20 Winter Trance Tunes 2012 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140588.jpg" />
 </div>
 
 
@@ -386,7 +434,7 @@ Space Wallpapers (16.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140601.jpg" />
 </div>
 
 
@@ -410,7 +458,7 @@ VA - Blackout - Best Of 2016 (Mixed By Black Sun Empire) (2016) [MP3|320 Kbps] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140606.jpg" />
 </div>
 
 
@@ -437,7 +485,7 @@ AudioGrail 7.10.0.213 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140617.jpg" />
 </div>
 
 
@@ -461,7 +509,7 @@ OBS Multiplatform 0.12.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140618.jpg" />
 </div>
 
 
@@ -485,7 +533,7 @@ magnet:?xt=urn:btih:1AF03F1E50DF6EF56A0E4C87FB1B1CCD41985539
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140628.jpg" />
 </div>
 
 
@@ -509,7 +557,7 @@ ReviverSoft Driver Reviver 5.27.0.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140636.jpg" />
 </div>
 
 
@@ -533,7 +581,7 @@ Computer Desktop Wallpapers Collection (17.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140642.jpg" />
 </div>
 
 
@@ -557,7 +605,7 @@ SamDrivers 19.12 OLD - Сборник драйверов для Windows [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140643.jpg" />
 </div>
 
 
@@ -581,7 +629,7 @@ FileZilla 3.29.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140644.jpg" />
 </div>
 
 
@@ -592,54 +640,6 @@ FileZilla — это свободный многоязычный FTP-клиен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5251168A55134B2D8C6C7717CBA262C6C9DA7376
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272876   (140645) от 29.12.2018
-
-ICQ 10.0 build 12414 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140645.jpg" />
-</div>
-
-
-###  Подробнее
-
-ICQ — одна из самых популярных программ для мгновенного обмена сообщениями в режиме реального времени. С помощью ICQ пользователь может найти себе друзей по своим интересам или же связаться с коллегами, членами семьи независимо от того где они находятся. В ICQ можно не только обмениваться мгновенными сообщениями, а и общаться с помощью видеокамеры, в режиме чата, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD1FD4511213E60E9534ED222C91C86FCC35F47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520643   (140649) от 29.12.2021
-
-ConceptDraw Office for Mac 8.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140649.jpg" />
-</div>
-
-
-###  Подробнее
-
-ConceptDraw Office – пакет приложений для бизнес-продуктивности, разработанный компанией CS Odessa . Пакет ConceptDraw Office включает в себя инструменты для создания и обработки интеллект-карт (mind map), программное обеспечение для управления проектами, и графический редактор для создания бизнес–графики. Приложения в составе ConceptDraw Office поддерживают авторскую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 1993 — 2021 CS Odessa Corp.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B47B1B33317E19763BFEA3A012EC9D59E4DDF6
 ```
 
 

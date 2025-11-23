@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31397.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31397.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B2D2E16877C584FC4DB245C46216F54D3422958
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31398.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4B2D2E16877C584FC4DB245C46216F54D3422958
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31399.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31399.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A314E2FF0C140C7396400763D365B1BD186AE007
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31400.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31400.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B890C69F2EFB404AC97899C225B46E5D6BFF1267
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31401.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31401.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1FDEA66DFEE30F7078ED6D403534F8482DE6F2BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31402.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31402.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CCC2B9EF18E62C42388DD6054C27348FF61DA06F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31403.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31404.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31404.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1074A1CF90483651A9301F340C7E69B0587C41FD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31405.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F8C63B347317D6F72A3817B46C452CC324AA5B85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31406.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:16B1A777673E1B97291700D47F04DBF4C19A4CE0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31407.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31407.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:DE7E2E00973A68045C4B9E83A381D42AAFFF8F18
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31408.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.3.63441/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31409.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:A1227E3F43599F08B9AFBF9EE505ADC65F8A226E
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31410.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31410.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:84102C499D1ACADCAE62C6919E5AFAE5009BC983
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31411.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:807A8BE63EF376BAE7C56B120CA770A129B6D768
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31412.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:D93804F7962BF0821E7124AA8B279B48A674C9B8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31413.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:110ECAA0ED2370153FF1D03B89A2B3A77FC116DA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31414.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Mylene Farmer: Nevermore (2024) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31415.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:77281282664B7EA88C8B6234E79DB541E6ED9484
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31416.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Wondershare Filmora 14.2.9.11061 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31417.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ NG: На Марс: история марсохода Персеверанс / Bu
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31418.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:3BC489684546FAA6ADDD3D50A4CA8FA01D3D01F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31419.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:3BC489684546FAA6ADDD3D50A4CA8FA01D3D01F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31420.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:0C077B48CF97678269A1303DF30590B5DA510C2A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31421.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ My Summer Car (2016) [En] (241230-03) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31422.jpg" />
 </div>
 
 

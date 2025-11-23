@@ -1,3 +1,102 @@
+###  Публикация: 1596793   (169192) от 11.12.2022
+
+Rectangle Pro 2.7.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2022Разработчик: © 2022 Ryan HansonПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5546A9B816A26C62702C3D71C671AC2D3A00AA8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344795   (169197) от 12.12.2019
+
+SnapMotion 4.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169197.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapMotion - приложение которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
+
+SnapMotion имеет два режима:
+● Ручной режим, где вы можете извлекать изображения точно в установленное время.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B17F68BD55463A14F9C2A1198F1ACA51F1B623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515576   (169198) от 07.12.2021
+
+Overloud TH-U Premium 1.4.6 STANDALONE, VST, VST3, AAX (x64) + Library RePack by VR [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169198.jpg" />
+</div>
+
+
+###  Подробнее
+
+TH-U - это самая большая в мире коллекция в едином программном обеспечении, включающая более 239 моделей усилителей, кабинетов, эффектов и микрофонов, включая официально авторизованные модели известных производителей. Кульминация революционной технологии DSP позволяет пользователям менять местами лампы предусилителя и лампы усилителя мощности и даже изменять вариацию (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4B21BBEC9AE5B91519D95BECB06132658B69B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515420   (169204) от 07.12.2021
+
+CyberLink PowerDirector Ultimate 20.1.2405.0 (x64) [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169204.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C3A6E9DDD26D4392DC077E9C3D411731E55834
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672565   (169210) от 28.10.2023
 
 PDF Reader Pro Lite 2.9.9 [Multi/Ru]
@@ -6,7 +105,7 @@ PDF Reader Pro Lite 2.9.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169210.jpg" />
 </div>
 
 
@@ -30,7 +129,7 @@ MediaHuman Youtube Downloader 3.9.9.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169213.jpg" />
 </div>
 
 
@@ -57,7 +156,7 @@ Path Finder 2148 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169214.jpg" />
 </div>
 
 
@@ -81,7 +180,7 @@ magnet:?xt=urn:btih:40DB726CE52DD5185DF2A7477403769F0C36C489
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169217.jpg" />
 </div>
 
 
@@ -107,7 +206,7 @@ Display Tester v4.58 Mod by Balatan, serborkr  [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169228.jpg" />
 </div>
 
 
@@ -131,7 +230,7 @@ VueScan Pro 9.8.20 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169246.jpg" />
 </div>
 
 
@@ -155,7 +254,7 @@ Windows 8.1 with Update [9600.19893] AIO 36in2 (x86-x64) by adguard (v20.12.09) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169254.jpg" />
 </div>
 
 
@@ -179,7 +278,7 @@ Honeyview 5.45 Build 6005 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169255.jpg" />
 </div>
 
 
@@ -204,7 +303,7 @@ Outline 3.2212.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169263.jpg" />
 </div>
 
 
@@ -229,7 +328,7 @@ Google Chrome 96.0.4664.93 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169277.jpg" />
 </div>
 
 
@@ -253,7 +352,7 @@ magnet:?xt=urn:btih:D6FF20B6C3E8F61D4FFE04CD221B095232CFFCCF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169285.jpg" />
 </div>
 
 
@@ -277,7 +376,7 @@ DjVu Reader Pro 2.6.1 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169296.jpg" />
 </div>
 
 
@@ -302,7 +401,7 @@ Synalyze It! Pro 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169305.jpg" />
 </div>
 
 
@@ -328,7 +427,7 @@ Wondershare UniConverter 13.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169310.jpg" />
 </div>
 
 
@@ -353,7 +452,7 @@ Apple Remote Desktop 3.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169313.jpg" />
 </div>
 
 
@@ -377,7 +476,7 @@ Ghost Buster Pro 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169314.jpg" />
 </div>
 
 
@@ -401,7 +500,7 @@ Tinderbox 9 v.9.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169324.jpg" />
 </div>
 
 
@@ -426,7 +525,7 @@ Sublime Text Dev Build 4123 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169336.jpg" />
 </div>
 
 
@@ -451,7 +550,7 @@ Valentina Studio Pro 12.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169339.jpg" />
 </div>
 
 
@@ -475,7 +574,7 @@ iMap Builder: Organisation 11.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169347.jpg" />
 </div>
 
 
@@ -499,7 +598,7 @@ Sandboxie 5.55.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169349.jpg" />
 </div>
 
 
@@ -523,7 +622,7 @@ Nova 10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169362.jpg" />
 </div>
 
 
@@ -535,102 +634,6 @@ Nova поддерживает отдельные задачи сборки, за
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DFDC5E9E40FF5456EC19A1DB6949152A86DB1FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430924   (169367) от 11.12.2020
-
-MyPublicWiFi 24.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169367.jpg" />
-</div>
-
-
-###  Подробнее
-
-MyPublicWiFi - бесплатная программа, которая превратит ваш ПК в точку доступа Wi-Fi с брандмауэром и возможностью отслеживания адресов посещенных сайтов. Отличное решение для организации временной точки выхода в интернет в гостинице или на массовых мероприятиях, либо для расширения Wi-Fi покрытия в вашем доме. Есть возможность ограничить доступа пользователей к определенным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810BFEE3FAEAA8D2283ECBC4842354316FFB2997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515541   (169368) от 07.12.2021
-
-FBackup 9.4.460 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169368.jpg" />
-</div>
-
-
-###  Подробнее
-
-FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FC7FBB554AAB0C3B49E22C1CFD34203FEC76C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430748   (169373) от 11.12.2020
-
-Logic Pro X 10.6.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic Pro X — самая совершенная версия Logic. Мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобства работы — где бы Вы ни находились. В Logic Pro X входит огромная коллекция музыкальных инструментов, эффектов и лупов — всё, что нужно для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6CADECBFBE83FE50CAC6B7799470A1052F68496
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515456   (169375) от 07.12.2021
-
-TechSmith Camtasia 2021 Studio 2021.0.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: © 1995 - 2021, TechSmith CorporationПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89E6B39950B184BC4D46F78C18B558D3C91ACA0
 ```
 
 

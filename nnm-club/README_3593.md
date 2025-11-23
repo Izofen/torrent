@@ -1,3 +1,79 @@
+###  Публикация: 1708296   (113100) от 20.03.2024
+
+Tower Pro 10 for Mac v.10.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tower - мощный и элегантный Git клиент для Mac
+Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2010-2024 TowerПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8593886619FFFB370E22FF6B7BA2785854EF3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708457   (113101) от 20.03.2024
+
+VA - Calming Piano Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Katya Kramer-Lapin - The Well-Tempered Clavier - Book 1, BWV 846-869 - I. Prelude in C Major, BWV 846 (2:05)
+03. Katya Kramer-Lapin - Romance in E-Flat Major (Version for Piano) (3:09)
+04. Katya Kramer-Lapin - Menuet in G Major (From Notebook for Anna Magdalena Bach, Klavierbüchlein von 1725, BWV Anh. 114)Жанр: ClassicalПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B275BD411A79D76F31B5A73ED4C6D952C0D0243
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708287   (113102) от 20.03.2024
+
+Петер Ампе | Нейроотличные (2024) [MP3, Борис Медведев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чаще всего при упоминании ментальных особенностей, таких как синдром дефицита внимания и гиперактивности (СДВГ), дислексия, аутизм и обсессивно-компульсивное расстройство (ОКР), на ум приходят лишь негативные их проявления. У нейроотличных людей некоторые свойства мозга отличаются от большинства. Это не ошибки или недостатки, а особенности работы нейронных связей, (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 04:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C87EA30180000A9FC42E0EE663F0ACFDC3DAB92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708338   (113103) от 20.03.2024
 
 Leaves' Eyes - Myths of Fate (2024) [MP3|320 Kbps] <Symphonic Metal>
@@ -6,7 +82,7 @@ Leaves' Eyes - Myths of Fate (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113103.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Mozilla Thunderbird 115.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113104.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ Wise Registry Cleaner Pro 11.1.3.718 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113105.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ magnet:?xt=urn:btih:5073BA30ADF1461DA38560E2204CA2AEB5DCD036
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113106.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ Firefox Browser ESR 115.9.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113107.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ Skype 8.115.0.215 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113108.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ magnet:?xt=urn:btih:F408F9CD4184C2015AA0DF3047F9848833EEE9CA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113109.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ Doppler for Mac 2.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113110.jpg" />
 </div>
 
 
@@ -201,7 +277,7 @@ Chiara Ungaro - Urban Dreamscape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113111.jpg" />
 </div>
 
 
@@ -228,7 +304,7 @@ Bear Garden - Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113112.jpg" />
 </div>
 
 
@@ -255,7 +331,7 @@ Darkthrone - Panzerfaust (1995) Reissue, 2010, Peaceville [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113113.jpg" />
 </div>
 
 
@@ -282,7 +358,7 @@ Mike LeDonne & Eric Alexander - Wonderful (2024) [FLAC 24/96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113114.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ magnet:?xt=urn:btih:712133A8003504179FB4A2DF081F7F34BDE6ED27
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113115.jpg" />
 </div>
 
 
@@ -333,7 +409,7 @@ Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113116.jpg" />
 </div>
 
 
@@ -360,7 +436,7 @@ Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113117.jpg" />
 </div>
 
 
@@ -387,7 +463,7 @@ Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113118.jpg" />
 </div>
 
 
@@ -414,7 +490,7 @@ magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113119.jpg" />
 </div>
 
 
@@ -438,7 +514,7 @@ Karpathian Relict - Forever Not Yet (2018) [FLAC|Lossless|tracks] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113120.jpg" />
 </div>
 
 
@@ -465,7 +541,7 @@ The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113121.jpg" />
 </div>
 
 
@@ -492,7 +568,7 @@ Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113122.jpg" />
 </div>
 
 
@@ -519,7 +595,7 @@ Codepoint for Mac 1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113123.jpg" />
 </div>
 
 
@@ -544,7 +620,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113124.jpg" />
 </div>
 
 
@@ -571,7 +647,7 @@ Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113125.jpg" />
 </div>
 
 
@@ -585,81 +661,6 @@ Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBAC70FFA6A2909DA7782F2F959383D7339845F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708029   (113126) от 19.03.2024
-
-SiteSucker Pro 5.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113126.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Rick CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB63C86E1992AA939B070C4FE3A30BF7DB5ABEF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708072   (113127) от 19.03.2024
-
-Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roy Haynes [4:13]
-02. Airto [6:11]
-03. Elvin Suite [12:17]
-04. Roll 'Em Charlie [7:31](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E6C664F2FCBC5EBD9BC71FB9E99C581542D45B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708244   (113128) от 19.03.2024
-
-Hype 4 Pro v.4.1.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hype открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты с использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2011-2024 Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CF2F0A8FA3C2456BC81A32B32104A7ED23230E
 ```
 
 

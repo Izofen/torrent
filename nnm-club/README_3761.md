@@ -1,3 +1,76 @@
+###  Публикация: 1690915   (117468) от 15.02.2024
+
+G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) WEBRip [H.264/1080p-LQ] [Open Matte] [Theatrical Cut] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд G. I. Joe вновь бросит вызов группировке «Кобра» и вступит в противостояние с правительством.Производство: США / Di Bonaventura Pictures, Hasbro Inc., Metro-Goldwyn-Mayer (MGM), Paramount Pictures, Skydance ProductionsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Джон М. ЧуАктеры: Дуэйн Джонсон, Эдрианн Палики, Брюс Уиллис, Рэй Парк, Ли Бён Хон, Д.Дж. Котрона, Джонатан Прайс, Элоди Юнг, Ченнинг Татум, Люк БрейсиПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A308491C96814FF638E5F41B93ED53B437FD36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 420916   (117469) от 15.02.2024
+
+Иван Гончаров | Обыкновенная история (2009) [MP3, Алексей Казаков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Русская классика.
+Иван Александрович Гончаров – один из самых ярких и значительных представителей русской литературы XIX века. Литературное наследие Гончарова не слишком обширно. За 45 лет творчества он опубликовал три романа, книгу путевых очерков «Фрегат «Паллада», несколько нравоописательных рассказов, критических статей и мемуары. Роман «Обыкновенная история» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 14:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B104DA4974E44E38CB32F61D4406E30B79FD0292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699952   (117470) от 15.02.2024
+
+Охотники за привидениями 2 / Ghostbusters II (1989) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через пять лет все забыли о знаменитых охотниках, равно как и о самих привидениях. Но они и не думали исчезать… А это значит, что для отважной четвёрки снова есть работа. Теперь в их распоряжении новое современное оружие, которое поможет им одолеть даже самого страшного монстра. Облако чёрной энергии нависло над городом, а в городской канализации течёт река зловещего (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: фантастика, фэнтези, боевик, комедияРежиссер: Айвен РайтманАктеры: Билл Мюррей, Дэн Эйкройд, Сигурни Уивер, Харольд Рэмис, Рик Морэнис, Эрни Хадсон, Энни Поттс, Питер МакНикол, Харрис Юлин, Дэвид МаргулисПеревод: Многоголосый (Видеосервис), двухголосый (ОРТ)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B1E30C1AF1FE61C8000B067889582B7D8A4BDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699914   (117471) от 15.02.2024
 
 FabFilter - Total Bundle 2024.02.05 STANDALONE, VST, VST 3, AAX, CLAP (x86/x64) [En]
@@ -6,7 +79,7 @@ FabFilter - Total Bundle 2024.02.05 STANDALONE, VST, VST 3, AAX, CLAP (x86/x64) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117471.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:7E6880BFACCCDD616CEA19A17EA3DE82B19921F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117472.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Winaero Tweaker 1.62.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117473.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ ACDSee Photo Studio 10 for Mac v.10.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117474.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:5A62BC0F54D494C18A4DB5DEB29327F240B2BA28
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117475.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Speedtest by Ookla 1.12.186.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117476.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:78B07733860FDE7BE44505FA4EDCEFF060D31635
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117477.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:78B07733860FDE7BE44505FA4EDCEFF060D31635
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117478.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ magnet:?xt=urn:btih:2BE6B1A60E542D13B93A75E0FA0C1492DDE98759
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117479.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ WinToHDD 6.3 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117480.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ Wise Care 365 Pro 6.6.5.635 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117481.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117482.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ magnet:?xt=urn:btih:14B755407B0A23FFEAB00AF33392CF6DE393820A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117483.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [15.02.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117484.jpg" />
 </div>
 
 
@@ -352,7 +425,7 @@ magnet:?xt=urn:btih:B4D5FC5D1C78349F7A2E75553AD7CE563AA10BCF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117485.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ Rhinoceros 3D 8.4.24044.15001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117486.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ CCleaner 6.21.10918 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117487.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ magnet:?xt=urn:btih:08F377A4E10C9DC196E6D1AAF0731F3228A9D411
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117488.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ Snappy Driver Installer Origin R761 | Драйверпаки 24.01.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117489.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:1E12E29F31DF6981AF366C6EDF670F9AC5668719
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117490.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ magnet:?xt=urn:btih:43C29CA0113DC23715AC72CA5AB61FDF575A526E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117491.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ magnet:?xt=urn:btih:A813EEE801A76BC9B45D0F4D38E5C8D48CFD39C3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117492.jpg" />
 </div>
 
 
@@ -551,7 +624,7 @@ magnet:?xt=urn:btih:269CFB0B30A03FC296117F37953A291CC48C3F4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117493.jpg" />
 </div>
 
 
@@ -562,78 +635,6 @@ magnet:?xt=urn:btih:269CFB0B30A03FC296117F37953A291CC48C3F4F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D794EBA87810214D4C3BC51293889A3F8E790E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700074   (117494) от 15.02.2024
-
-Adobe Acrobat Pro 23.8.20533 (x32-x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADA95E49FD2C0B8C133DBEC0C5432A3C41C02AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575977   (117495) от 15.02.2024
-
-Мариуполь (2022) HDTV [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти 600 тысяч мариупольцев стали заложниками бойцов из "Азова" и ВСУ: людей не выпускали, дороги заминировали. Когда началось освобождение Мариуполя, ВСУ уничтожало граждан своей же страны. Почему и как город стал мощной базой батальона "Азов"? Об истории и наших днях города – фильм Андрея Медведева.Телекомпания: Россия / т/к "Россия", Кинокомпания «Мастерская», ВГТРКЖанр: документальный, война, пропаганда, историяЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB1C4F293F87767AAD8E3F79AE4894240E8AE0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552924   (117496) от 15.02.2024
-
-С.М.Беков и др. | 15 бригада Спецназ. Люди и судьбы. Афганистан глазами очевидцев [2009] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117496.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказывается об истории 15-й отдельной ордена Красного Знамени Республики Афганистан бригады специального назначения ГРУ ГШ ВС СССР, солдатах и сержантах, прапорщиках, офицерах и генералах, связавших свою судьбу со Спецназом. Глазами участников боевых действий в Афганистане раскрывается роль Спецназа ГРУ ГШ в афганской войне 1979-1989 гг., боевые будни (   Читать дальше...   )Издательство: М.: Русская панорамаФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25617008F6381AEC4E9A6B06A6FD4B2C3D782986
 ```
 
 

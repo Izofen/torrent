@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116685.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:65161D72E7D4644DB1405AC0EECAA40A92B2E71D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116726.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5A920AD359DBB73D0730CD933632D6A89C8D6358
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117019.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:2D93049C4A91648C44BE039629905E8009D81EE1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117022.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:8D553AE88915739B9AE8E417EA46BDFABA54A98C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117407.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:CC71C75D0E8183D2AC56973182EDF6F7CECC8D0B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117632.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:1C3BC645B8502C1F339A4035A4BF001DEA8B70C3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117689.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:F0CD8AE30A50C5003B504D2ED2A2A3A846F08B12
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118098.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7722588654C277A3B1BB0734593603950FD90D65
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118101.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:BED3F14F408F0A51456F53B0CDF167DC83EA09C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118102.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:8BF1B960E675FE285B6DC70322B2686F9D4A3E1C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118287.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:F7C2B5A9380E322B474E33D1B2D192430CD9D7AD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119109.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:286411809A1FBC98123649ED17EA8DFDA240FAF7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119142.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:A550CF477DA2F1CAD288CD83DD3F45F6AD9FFCBB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119234.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ SAXAR - Инсулин (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119313.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ The Dead State - Здесь (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119319.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Dominia - Timeless (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119424.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ June Ryah - Inspired Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119445.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:C1954AD4B01C73B21E58249F1E07477EEE3A59C0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119491.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:6EE31106F8BC2080E1B528594010386866F04D9F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119635.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:62565C5A54E1CE4098D885577BEDDAE84F2CEB7C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119727.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:969771929652C00E619B7C721B8701E05AC3B084
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120302.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Fast Aggressive - Волюнтаризм (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120600.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:19738D8376FEA8A392E1AF9465391DB2C77CD9AB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120603.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Bogobes - Катабасис (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120618.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:F98818FE63537EDE3B87C87F85496713E6AF24D2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120703.jpg" />
 </div>
 
 

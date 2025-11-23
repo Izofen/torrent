@@ -1,3 +1,27 @@
+###  Публикация: 1565894   (205276) от 22.09.2022
+
+Улыбка Арснотории | Warau Arsnotoria Sun! | Smile of the Arsnotoria the Animation [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_205276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ашлам, город-академия магии с полным пансионом. Её ученицы, Пентаграммы, стремятся стать настоящими леди, изучая не только школьные предметы и этикет, но и магию. Арснотория, одна из таких девушек, живёт в Общежитии №5 вместе с заводилой Мэлл, молчаливой и живущей в своём темпе Альбертой-младшей, старостой по призванию Пикатрикс и всегда спокойной Абрамелин. Они (   Читать дальше...   )Производство: Япония / Студия Liden FilmsЖанр: ПриключенияРежиссер: Тацува НаоюкиПеревод: (CrunchyRoll)Язык озвучки: Русский многоголосый, закадровый (AniDub), ЯпонскийСубтитры: Русские (софтсаб); Английские (софтсаб)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81EFD2905B791A06D6BB9B071A720252F364BCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567989   (205531) от 06.08.2022
 
 Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12] BDRip 1080p raw+rus
@@ -6,7 +30,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205531.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205531.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Baoh Raihousha | Baoh the Visitor | Бао: Посетитель [1989, OVA] DVD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205539.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205539.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Techno Police 21C | Технополиция XXI века [1982, Movie] BDRip  H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205582.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205582.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205952.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205952.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ Violence Jack: Jigoku Gai | Violence Jack: Evil Town | Жестокий Джек
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206274.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206274.jpg" />
 </div>
 
 
@@ -128,7 +152,7 @@ Violence Jack: Harem Bomber Hen | Violence Jack: Slum King | Жестокий Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206276.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206276.jpg" />
 </div>
 
 
@@ -153,7 +177,7 @@ magnet:?xt=urn:btih:3FF48D9906130E6E21B9F4D71F594F75571959B3
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206355.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206355.jpg" />
 </div>
 
 
@@ -179,7 +203,7 @@ Cyber City Oedo 808 | Кибер-город Эдо 808 [1990, OVA, 3 из 3] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206561.jpg" />
 </div>
 
 
@@ -203,7 +227,7 @@ magnet:?xt=urn:btih:70F73E75CF1A84703D7781E6B72149A529AA0E20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206642.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206642.jpg" />
 </div>
 
 
@@ -231,7 +255,7 @@ Riding Bean | Боб на колесах [1989, OVA] BDRip 1080p HEVC 10-bit rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206653.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206653.jpg" />
 </div>
 
 
@@ -255,7 +279,7 @@ Gigigoegoe seonghyeongsu | Beauty Water | Эликсир красоты [2020, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206728.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206728.jpg" />
 </div>
 
 
@@ -279,7 +303,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206745.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206745.jpg" />
 </div>
 
 
@@ -303,7 +327,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206903.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206903.jpg" />
 </div>
 
 
@@ -327,7 +351,7 @@ Project A-ko 2: Daitokuji Zaibatsu no Inbou | Project A-Ko 2: Plot of the Daitok
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206947.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206947.jpg" />
 </div>
 
 
@@ -351,7 +375,7 @@ Project A-ko | Проект А-ко [1986, Movie] BDRip 1080p HEVC 10-bit raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206989.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206989.jpg" />
 </div>
 
 
@@ -375,7 +399,7 @@ Armitage III | Армитаж III [1995, OVA, 4 из 4] BDRip 1080p HEVC 10-bit 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207116.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207116.jpg" />
 </div>
 
 
@@ -399,7 +423,7 @@ magnet:?xt=urn:btih:A556BB4C2CB317126342C8400EB81F8B5F327BC1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207152.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207152.jpg" />
 </div>
 
 
@@ -425,7 +449,7 @@ Armitage III: Poly Matrix | Армитаж: Полиматрица [1996, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207166.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207166.jpg" />
 </div>
 
 
@@ -449,7 +473,7 @@ Uma Musume: Pretty Derby | Девушки-лошадки: Милое дерби 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207468.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207468.jpg" />
 </div>
 
 
@@ -473,7 +497,7 @@ Roujin Z | Старик Зет [1991, Movie] HDRip HEVC 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207502.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207502.jpg" />
 </div>
 
 
@@ -498,7 +522,7 @@ magnet:?xt=urn:btih:5100F8B86BC8D7132E908FB6ADD2E0581BADE9D8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207517.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207517.jpg" />
 </div>
 
 
@@ -527,7 +551,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207646.jpg" />
 </div>
 
 
@@ -551,7 +575,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207659.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207659.jpg" />
 </div>
 
 
@@ -575,7 +599,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207713.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207713.jpg" />
 </div>
 
 
@@ -599,7 +623,7 @@ magnet:?xt=urn:btih:2BC8679CF12852C7EC8A91776A5AB0C7EC08CBE9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207828.jpg" />
 </div>
 
 
@@ -610,30 +634,6 @@ magnet:?xt=urn:btih:2BC8679CF12852C7EC8A91776A5AB0C7EC08CBE9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A9E70EDE230EED558C75A36BA0745FCDC84E0C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610724   (207872) от 08.02.2023
-
-86 | Eighty-Six | Восемьдесят шесть [2021, TV, 23 из 23] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгое время Республика Сан-Магнолия находится в военном конфликте с Империей, соседним государством, которое создало серию беспилотных военных машин. В ответ на угрозу республика успешно завершает разработку аналогичной технологии и отражает атаку противника, сумев обойтись без жертв. Однако это... официальная версия. На самом деле жертвы были. За пределами известных (   Читать дальше...   )Производство: Студия A-1 PicturesЖанр: приключения, фантастикаРежиссер: Исии ТосимасаЯзык озвучки: Японский, русский (AniLibria, AniPlague, Akari Group)Субтитры: Русские (Crunchyroll)Продолжительность: 23 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E1E25E7152E868E31211EC14CB9FA0A7375CF7
 ```
 
 

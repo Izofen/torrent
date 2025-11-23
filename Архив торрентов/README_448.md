@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99279.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:11529345C6B18FCB6ADDCD00AD3A8678EC355A0B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99280.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Upon A Burning Body - Red. White. Green. (2012) [MP3|~245 кб/с (V0)]<Metalcor
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99298.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Gary Boyle - Electric Glide (1993) [FLAC|Lossless]<Jazz-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99301.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99301.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Murder Bay - Never Was An Angel (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99302.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 кб/с]<Hard Rock, S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99303.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ iO and Goshva - Lazy Time EP (2012) [MP3|320 кб/с]<Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99304.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99305.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:D460370FFDE8D0D6E5600DFAB4F7F8A0C7F2296B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99308.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Wise Disk Cleaner v7.21 build 478 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99313.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99313.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wise Disk Cleaner - программа для быстрого и легкого
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99317.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Simple Man - Galactic Prophecy (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99320.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:1070F48FAE4F547C08BE9201B2765600AEF5AD18
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99321.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Klubnye novinki Vol.63 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99325.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:719F36395203B65D967D9ECBE148AA41454B8B69
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99327.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:FE6F611020512ED4510D8B854DB036108428ECAE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99330.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99333.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99335.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Solar Spectrum - Source Energy Creations (2011) [MP3|320 кб/с]<Psychedelic / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99336.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99340.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99342.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Side Winder - Faith (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99343.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:89BEE352DB37A7F2092E66990FFD854E4EF740A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99350.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99352.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ magnet:?xt=urn:btih:420B9B456061DB4CA4FA59C643FCE3275EB0518C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99354.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99355.jpg" />
 </div>
 
 

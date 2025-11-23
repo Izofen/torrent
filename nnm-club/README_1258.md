@@ -6,7 +6,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33061.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Notepad++ 8.7.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33062.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:21B86EFF19821579545A3033024062C12A012D00
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33063.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:42496CB47570CCDB6B980AF11966A16EDD316396
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33064.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:72108A981D702A0F2168DA4735A16E571C805E95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33065.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3BFD3C4EEB0E3C4AB89564E8503BE0F7240F7FE9
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33066.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Youtube Downloader HD 5.9.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33067.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Skylum Aperty 1.1.0.761 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33068.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F3B7C65F1BD7D4C1189A95445A179F12A37A2EDA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33069.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4A94DC923DD8D087757289B0238488C90E56CB4C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33070.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A359E40978DDB461479BC7D6D3E10EE0C14C180E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33071.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:DD0D449BA133E247527B6699E58DBC05AAF51FAD
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33072.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0E79A69D0A6CCAE139232597E02C3C64DC75BA10
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33073.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:F7B28CFEC235B90FA9D7CB1113CCF1374BE691AC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33074.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Shin Tennis no Ouji-sama: U-17 World Cup Semifinal | Новый принц те�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33075.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Castlevania: SotN v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33076.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ O&O DiskImage Professional 20.1 Build 324 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33077.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Homo Machina v1.6.38 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33078.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:614C12F63733BE7470DCE660181AA65374675E33
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33079.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:4ABA6F9278527FCCAE3F1B8882DA6F40E52D17F9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33080.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E909274C91DF945B27B305F86944F1E715A7FADF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33081.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B72000A8A6641FA1E87F496945D4C2DA5DB419C6
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33082.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ GadgetPack (ex 8GadgetPack) 38.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33083.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Tasuketsu: Fate of the Majority | Tasuuketsu | Правило большинст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33084.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:6C762AD083DDB5131EE5E7FC3FAA0E768D7EE9C9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33085.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:6C762AD083DDB5131EE5E7FC3FAA0E768D7EE9C9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33086.jpg" />
 </div>
 
 

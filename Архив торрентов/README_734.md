@@ -1,3 +1,77 @@
+###  Публикация: 1595647   (153249) от 29.12.2022
+
+CPUID HWMonitor PRO 1.49 RePack (& Portable) by xetrin [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153249.jpg" />
+</div>
+
+
+###  Подробнее
+
+CPUID HWMonitor Pro - расширенная версия утилиты, предназначенной для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C865EF342FC16E32E872C56E104FBAA7ED7084E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518787   (153252) от 21.12.2021
+
+URL Manager Pro 5.8.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153252.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935E7FBA690AE9AFE9B0CF2B515B4B9F19F7D563
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968604   (153254) от 24.12.2015
+
+SUMo Pro 4.2.4.297 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153254.jpg" />
+</div>
+
+
+###  Подробнее
+
+SUMo (Software Update Monitor) — последняя версия данной программы, которая поможет поддерживать ваш ПК обновленным и обеспечит его безопасность. В отличие от встроенной функции автоматических обновлений, SUMo предупреждает о доступных обновлениях перед запуском программы.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FB0C882521F7D50A6B2ECA9804A2EC511B5B6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347063   (153255) от 22.12.2019
 
 Freemake Mega Pack 3.2 by CUTA [Ru]
@@ -6,7 +80,7 @@ Freemake Mega Pack 3.2 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153255.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Artstudio Pro 3.2.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153262.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ WinContig 3.0.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153263.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Pathfinder: Kingmaker – Imperial Edition v2.0.7b (2018) [Multi/Ru] [macOS Nati
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153266.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:C079D6EC43340926A6E21DF7EA68B7BAD4E35772
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153276.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ Jason McGuire - Distancias (2005) [MP3|320 кб/с]<Instrumental, Flamenco, Acou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153291.jpg" />
 </div>
 
 
@@ -159,7 +233,7 @@ ForstWölfin - Quantum Mechanics (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153294.jpg" />
 </div>
 
 
@@ -186,7 +260,7 @@ magnet:?xt=urn:btih:4ADE209ABBD78002C3975C0EBC4EFAE19BBD96FD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153312.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ VKMusic 4.84.2 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153313.jpg" />
 </div>
 
 
@@ -236,7 +310,7 @@ CoolUtils Total PDF Converter 5.1.88 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153316.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ TechSmith SnagIt 2020.0.3 Build 4960 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153317.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ Jingle Cats - Here Comes Santa Claws (1994) [MP3|320 кб/с]<Other>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_153322.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_153322.jpg" />
 </div>
 
 
@@ -314,7 +388,7 @@ Jingle Cats - Here Comes Santa Claws (1994) [MP3|320 кб/с]<Other>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153325.jpg" />
 </div>
 
 
@@ -338,7 +412,7 @@ Folx Pro 5.1.13647 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153327.jpg" />
 </div>
 
 
@@ -364,7 +438,7 @@ PDF-XChange Editor Plus 7.0.328.1 + Portable RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153333.jpg" />
 </div>
 
 
@@ -388,7 +462,7 @@ Desktop Wallpapers (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153334.jpg" />
 </div>
 
 
@@ -412,7 +486,7 @@ NoMachine 7.0.211_4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153335.jpg" />
 </div>
 
 
@@ -436,7 +510,7 @@ NoteBurner iTunes DRM Audio Converter 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153340.jpg" />
 </div>
 
 
@@ -460,7 +534,7 @@ magnet:?xt=urn:btih:2436EEC03833423A60EDD8225503F2C290AD58D9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153348.jpg" />
 </div>
 
 
@@ -484,7 +558,7 @@ VA - DJ Andrey Balkonsky - The Power (2006) [MP3|320 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153363.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ Wise Registry Cleaner 9.01.578 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153364.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ WinTools.net Premium 18.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153365.jpg" />
 </div>
 
 
@@ -565,7 +639,7 @@ BELOFF [dp] 2019.12.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153374.jpg" />
 </div>
 
 
@@ -579,78 +653,6 @@ BELOFF [dp] 2019.12.3 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBBF84E20815213F4E4E0F9069E12F05C13FAB72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600891   (153375) от 29.12.2022
-
-Hetman Partition Recovery 4.6 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hetman Partition Recovery - программа восстанавливает данные жестких и внешних дисков, а также любых других устройств под управлением файловых систем FAT / exFAT, NTFS / ReFS, APFS / HFS+, Ext2 / 3 / 4 / ReiserFS / Btrfs / VMFS / Hikvision и XFS / UFS / ZFS. Утилита объединяет комплекс алгоритмов, восстанавливающих имя, атрибуты, содержимое файла и оригинальную структуру (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C457BA6C57F2290CB02D243D339536324D3C988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434234   (153376) от 23.12.2020
-
-R-Studio Network Edition 8.15 Build 180091 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153376.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Studio - лучшее на сегодняшний день программное обеспечение для восстановления данных. Поддерживает файловые системы FAT12/16/32, NTFS, NTFS5, Ext2FS (Linux). Позволяет восстанавливать файлы, как на локальных логических и физических жестких дисках, так и на дисках, расположенных на удаленных компьютерах через компьютерную сеть.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22B70CFF9F1C171703438E6CAACC5301D5AD2C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588919   (153380) от 14.12.2012
-
-Nature Wallpapers (13.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E835AB02F37DA83F70A8F28FB24D7220D8B9C597
 ```
 
 

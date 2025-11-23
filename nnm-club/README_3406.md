@@ -1,3 +1,75 @@
+###  Публикация: 1728916   (108238) от 09.06.2024
+
+Eventide - Ensemble Bundle 2.18.0 VST, VST 3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагины Eventide дают вам возможность создавать в ваших записях звуковой ландшафт легендарных альбомов и открывать двери для создания новых звуков, о которых раньше не слышали. Наши устаревшие плагины, такие как H910 Harmonizer и H3000 Factory, воссоздают культовые звуки, используемые ведущими артистами, инженерами и продюсерами, такими как Стив Вай, Тони Висконти, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A77786157E08F97EEEACC59A6BE898562D3ED6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729096   (108239) от 09.06.2024
+
+Красная дверь / La porta rossa (2023) WEBRip (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонардо Калиостро — обычный полицейский североитальянского города Триеста. У него есть любимая работа и любящая жена Анна, но никому, кроме нее, он не доверяется и не доверяет. Расследуя преступления, он всегда работает один и не чувствует необходимости в друзьях. Однажды во время выполнения очередного задания Леонардо убивают. Он получает шанс остаться на Земле (   Читать дальше...   )Производство: Италия / VelafilmЖанр: фэнтези, триллер, детективРежиссер: Кармине Элиа, Джанпаоло ТескариАктеры: Габриэлла Пессион, Лино Гуанчале, Валентина Романи, Пьерпаоло Споллон, Андреа Боска, Елена Радоничич, Гаэтано Бруно, Leonardo Ghini, Антонио Жерарди, Фаусто Мария Шиараппа и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED35E333F3F8E835293654BB25D23838DAAB314
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728957   (108240) от 09.06.2024
+
+Полный провал / Fiasco (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сериал рассказывает о молодом и неопытном режиссёре, который хотел снять фильм о своей бабушке, спасшей в свое время несколько еврейских семей. Вдохновленный этой историей Рафаэль желает снять нечто невероятное, но на его беду из-за своей безалаберности и неумения отстаивать границы, а также руководить съёмочным процессом, все начинает идти наперекосяк. Мало (   Читать дальше...   )Производство: Франция / Five Dogs, Ninety FilmsЖанр: комедияРежиссер: Игорь ГотсманАктеры: Пьер Нинэ, Жеральдин Накаш, Паскаль Демолон, Лесли Медина, Луиз Колдефи, Джимо, Джульетт Гаске, Игорь Готсман, Венсан Кассель, Франсуа Сивиль и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DD3C31FA3CD1586D6CD3B6180F520A91A34BB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728863   (108241) от 09.06.2024
 
 Максим Томилко | Временные трудности (Книга 1) (2024) [MP3, Григорий Метелица]
@@ -6,7 +78,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108241.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:9EB229EF4A6F22EF950C774E92E024A74079030F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108242.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:9C660D952E73DA29B4CC209647544D85A88E927C
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108243.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ AccuWeather - прогноз погоды 20.3-2-google Lite-Mod by LITEAPKS [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108244.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ R-Wipe & Clean 20.0.2459 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108245.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ OneCommander Pro 3.83.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108246.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Future Funk Squad - SIX (2024) [FLAC|Lossless|WEB-DL|tracks] <BreakBeat, Breaks,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108247.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ EPIK - AI Photo & Video Editor 5.0.1 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108248.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:3725D6EBCF987F17253E2052CD4B111DB1C41BBD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108249.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:1CC25A562235838AD9BF0898B65463C9107B2DBF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108250.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Samsas Traum - Kalk (2024) Underground-Edition, 2024, Trisol [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108251.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Muggsy Spanier - 1949 - 1954 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108252.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108253.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ Hippotraktor - Stasis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108254.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108255.jpg" />
 </div>
 
 
@@ -385,7 +457,7 @@ magnet:?xt=urn:btih:61ABA920E5405FCFBDB069553EA78A7A1EFA2318
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108256.jpg" />
 </div>
 
 
@@ -409,7 +481,7 @@ VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108257.jpg" />
 </div>
 
 
@@ -436,7 +508,7 @@ Escarlathia - Escarlathia (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108258.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108259.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:BED16278A0C99999F562754A3BAC344A089E0DDB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108260.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ LImperatrice - Pulsar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <nu disco, fr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108261.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108262.jpg" />
 </div>
 
 
@@ -569,7 +641,7 @@ Evergrey - Theories Of Emptiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108263.jpg" />
 </div>
 
 
@@ -583,84 +655,6 @@ Evergrey - Theories Of Emptiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3765C6A4D2468BA261BF1C563AC7E8EE94A092B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728663   (108264) от 08.06.2024
-
-Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toxic Holocaust — американская трэш-метал-группа, основанная в Портленде в 1999 году.2003 - Evil Never Dies
-2005 - Hell On Earth
-2008 - An Overdose Of Death
-2011 - Conjure and CommandЖанр: Thrash MetalПродолжительность: 03:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728796   (108265) от 08.06.2024
-
-Народ | В гостях у сказки (Выпуск № 12). Али-Баба и сорок разбойников (2005) [MP3, Вячеслав Гришечкин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
-Когда-то давным-давно в одном персидском городе жили два брата Касим и Али-Баба. Али-Баба с самого утра и до позднего вечера рубил дрова, чтобы потом продать их на рынке и купить себе немного еды. В один из дней Али-Баба стоял под высоким деревом и уже собирался его срубить, как вдруг увидел, (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FAAD5433AF0A9252C0112CC9928EE7FBF5FDF1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728777   (108266) от 08.06.2024
-
-Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Atrophy - американская трэш-метал группа, образованная в Тусоне, штат Аризона.1988 - Socialized Hate
-1990 - Violent By Nature
-2024 - AsylumЖанр: Thrash MetalПродолжительность: 02:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
 ```
 
 

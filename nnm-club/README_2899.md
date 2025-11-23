@@ -1,3 +1,79 @@
+###  Публикация: 301783   (85215) от 29.03.2012
+
+Подшивка журналов | Наша Психология (Психология на каждый день) (2008-2012) [PDF, DJVU] [Обновлено 28.03.2012]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по практической психологии, в котором можно найти советы на все случаи жизни. На страницах журнала ведущие эксперты в области психологии и психотерапии рассказывают о том, как добиться успеха, правильно построить взаимоотношения с друзьями, коллегами, родственниками и с самим собой. Что такое личность. Внутренняя гармония. Душа. Эмоции. Что такое личностный (   Читать дальше...   )Формат: PDF, DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475256   (85216) от 29.03.2012
+
+Ubuntu Skin Pack 9.0 for Windows 7 (x86/x64) [Русский]
+
+>>След.
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ubuntu Skin Pack способен быстро и без участия пользователя (за исключением запуска инсталлятора) преобразить оформление системы Windows 7, превратив внешний вид её интерфейса в аналог Ubuntu.
+Для установки этого пакета компонентов нужно лишь запустить соответствующий Вашей системе (х32 или х64) инсталлятор и дождаться окончания автоматической установки всех составляющих. Перезагрузив систему, Вы сможете сразу увидеть результат обновления.
+Перед началом установки нужно отключить контроль учётных записей пользователей и закрыть все работающие программы. После завершения установки - перезагрузить систему.
+Для быстрой и корректной установки Ubuntu Skin Pack необходимо удалить (если они были установлены ранее) другие или других версий пакеты изменений интерфейса (Skin Packs).Название программы: Ubuntu Skin Pack 9.0 for Windows 7Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474919   (85217) от 29.03.2012
+
+Джейсон Борн. Трилогия / The Bourne Trilogy (2002, 2004, 2007) [720p] BDRip
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он хотел одного — исчезнуть. Вместо этого за Борном теперь охотятся люди, которые сделали его таким, какой он есть. Он потерял память и человека, которого он любил. Но его не удается сдержать даже новому поколению профессиональных убийц. У него только одна цель: вернуться к началу и узнать кем он был, Джейсон Борн.
+Он мечется от Москвы к Парижу, через Мадрид и Лондон (   Читать дальше...   )Жанр: Боевик, Триллер, ДетективРежиссер: Пол ГринграссАктеры: Мэтт Дэймон, Джулия Стайлз, Дэвид Стрэтэйрн, Скотт Гленн, Пэдди Консидайн, Эдгар Рамирез, Альберт Финни, Джоан Аллен, Том Галлоп, Кори Джонсон, Даниэль Брюль, Джои Анса, Колин Стинтон, Dan Fredenburgh, Lucy Liemann, Bryan Reents, Arkie Alomar, Джон Роберсон, Russ Huards, Mark Bazeley, Синед О`КиффиПеревод: ДублированныйСубтитры: Russian, EnglishФормат: MKVПродолжительность: 01:55:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474792   (85218) от 29.03.2012
 
 Tropico 4: Modern Times [En] (L) 2012 l RELOADED
@@ -6,7 +82,7 @@ Tropico 4: Modern Times [En] (L) 2012 l RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85218.jpg" />
 </div>
 
 
@@ -32,7 +108,7 @@ magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85219.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85220.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85222.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ magnet:?xt=urn:btih:8E31BB01A5AFE8B56B89F7403719937CFE0C3938
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85226.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ magnet:?xt=urn:btih:969129020E3B0FB79D6C820D1E16145ECE7C05A8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85228.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ magnet:?xt=urn:btih:969129020E3B0FB79D6C820D1E16145ECE7C05A8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85230.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ VA - DJ Клуб (Vol. 1-7) (1997 - 1999) [MP3|320 кб/с]<Club/House/Trance/Pr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85231.jpg" />
 </div>
 
 
@@ -206,7 +282,7 @@ Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [ENGLISH]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85232.jpg" />
 </div>
 
 
@@ -230,7 +306,7 @@ Sysadmins Flash Prof Edition 1.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85235.jpg" />
 </div>
 
 
@@ -256,7 +332,7 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85236.jpg" />
 </div>
 
 
@@ -287,7 +363,7 @@ Windows 7 Максимальная SP1 x64 DVD WPI (2012) PC 7 [РУССКИЙ]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85237.jpg" />
 </div>
 
 
@@ -311,7 +387,7 @@ Rayman Origins [Ru] (RePack) 2012 | shidow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85238.jpg" />
 </div>
 
 
@@ -336,7 +412,7 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85239.jpg" />
 </div>
 
 
@@ -360,7 +436,7 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85240.jpg" />
 </div>
 
 
@@ -384,7 +460,7 @@ Zолушка (2012) DVDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85241.jpg" />
 </div>
 
 
@@ -408,7 +484,7 @@ magnet:?xt=urn:btih:28BC85C1AFF19F7E8028A90F717E108086AC9A06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85242.jpg" />
 </div>
 
 
@@ -432,7 +508,7 @@ magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85248.jpg" />
 </div>
 
 
@@ -456,7 +532,7 @@ magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85249.jpg" />
 </div>
 
 
@@ -481,7 +557,7 @@ magnet:?xt=urn:btih:9551847A16F10606376E66E705512A88D71281FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85250.jpg" />
 </div>
 
 
@@ -510,7 +586,7 @@ magnet:?xt=urn:btih:3C6A0BE00CB01FA7BCB7A219FD961CC9BCA87610
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85252.jpg" />
 </div>
 
 
@@ -534,7 +610,7 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85253.jpg" />
 </div>
 
 
@@ -567,7 +643,7 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85254.jpg" />
 </div>
 
 
@@ -582,81 +658,6 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:048C10426639A1297985C08CF2F916815BD8A8EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475219   (85255) от 30.03.2012
-
-Каникулы в Мексике - 2. Выпуск №19 (2012.03.29) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85255.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C44995C6EF467F8F1F8319BE1F9220292DD0741
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475172   (85256) от 30.03.2012
-
-Суд / Simpan / Judgement (1999) DVBRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85256.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма легли реальные события: 29 июня 1995 в Сеуле неожиданно обрушился шестиэтажный универмаг Сампун (501 погибший, 937 раненых).
-Режиссер показывает эгоизм и материализм членов семей погибших, которые хотят завладеть их состоянием. Мы видим здесь резкую критику капитализма, которая встречается в большинстве произведений режиссера.
-
-Первая проба Чхан Ук Пака в короткометражном кино - 26-минутный фильм «Суд» /Judgment/ на 35мм, который был отобран на Международный кинофестиваль короткометражных фильмов в Клермон-Ферран.Жанр: Драма, короткий метрРежиссер: Пак Чхан-укАктеры: Хак-рак Чои, Чу-бо Джи, Ин-бэ Ко, Сун-ми МьёнгПеревод: Одноголосый закадровыйЯзык субтитров: английскийПродолжительность: 0:26 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382EECF1A64497A07C9F45C07C146CA8ED959306
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475348   (85257) от 30.03.2012
-
-Дикий Юг. Опоссум - кошмар Новой Зеландии / Wild South. Possum-A New Zealand Nightmare (1990-1999) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C981C30AA3E151DEFAE6901727A076772004EB49
 ```
 
 

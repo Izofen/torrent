@@ -6,7 +6,7 @@ Ascold Flow | Релокант в другой мир (Книга 9). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16379.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16379.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ascold Flow | Релокант в другой мир (Книга 8). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16380.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16380.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ascold Flow | Релокант в другой мир (Книга 7). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16381.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ascold Flow | Релокант в другой мир (Книга 6). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16382.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16382.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:641AD4D578103F125D4B97E38A7C02EAA84A1B38
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16383.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:19CD82720145A62C757F0DAF1F420840AE1F730F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16384.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0B762F2A0472A583CA55B109781D8CE1168A8428
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16385.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:400FA463FA9CA5FA21201A4F2F1E47DF033D5CA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16386.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:68C7DC0C37FC1BDF05460C386BFC5B208DE25637
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16387.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C66519531B22984B61BB1A82812C7AD26350F274
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16388.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:829D8EBAF3561A62F875CC0592D0771748CCFE1A
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16389.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:C255AA38B6CAB0B0358FDFBBCB8FFBDB65C1E82A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16390.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:88EDFA1E7E0C86F4835360D533007019115A3AB9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16391.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:0E84DA2245A772258E85CDE1F218268A24B056A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16392.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.104) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16393.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.3 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16394.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:7254D6FF1634288083A11D2CB3F7C7AA23C08D01
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16395.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Devil May Cry | Adi Shankar's Devil May Cry | И дьявол может пла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16396.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16397.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ CyberLink PowerDirector 365 23.4.1716.0 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16398.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:D535F3FC0B8866223D684907AD6F763B567F6FA0
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16399.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VueScan Pro 9.8.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16400.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack FitGirl [Last Wish Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16401.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:BC66A4A7C77378BC44CA8FAD23609B2434842F47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16402.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ascold Flow | Релокант в другой мир (Книга 5). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16403.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ascold Flow | Релокант в другой мир (Книга 4). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16404.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16404.jpg" />
 </div>
 
 

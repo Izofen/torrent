@@ -6,7 +6,7 @@ Kanojo, Okarishimasu 4-1 | Rent-A-Girlfriend S4 P1 | Девушка на час 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2512.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С ны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2540.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | К�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2551.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Tu Bian Yingxiong X | To Be Hero X | Быть героем Икс [2025, WEB, 24
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2892.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8479.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8615.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32311.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41000.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | П
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52138.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Fin
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91153.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91162.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91289.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91290.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот мон�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91313.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91314.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:B3D5954ECD77D1F6EFA47F66068FF1DD6293E666
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94704.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100735.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Sanda | Санда [2025, TV, 1 из 12 эп.] WEBRip 1080p raw+eng
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100834.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Toujima Tanzaburou wa Kamen Rider ni Naritai | Tojima Wants to Be a Kamen Rider 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100835.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kikaijikake no Marie | Mechanical Marie | Механическая Мари [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100836.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ranma 1/2 (2025) | Ранма 1/2 (2024) [ТВ-2] [2025, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100838.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Alma-chan wa Kazoku ni Naritai / Alma-chan Wants to Be a Family! / Альма х
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100841.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100844.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100846.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я ста�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100849.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100852.jpg" />
 </div>
 
 

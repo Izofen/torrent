@@ -1,3 +1,83 @@
+###  Публикация: 1680379   (134217) от 29.11.2023
+
+VA - Music News vol.319 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134217.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aleksia - Свет Внутри (02:08)
+ 002. 22 Region - Так и Живём (03:01)
+ 003. Akila - Наглая (02:38)
+ 004. Akoma - Следуй За Мной (02:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA5897E9AFF762C4E2B2DA0B760E65EC98EC22E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594199   (134218) от 25.12.2012
+
+New Blues Underground - Whiskey Straight (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop These Blues
+02. What I Say
+03. Whiskey Straight
+04. Slo-Burn
+05. No Matter
+06. Outta SoulЖанр: Blues-RockПродолжительность: 00:24:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680578   (134219) от 29.11.2023
+
+Garden Planner 3.8.53 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garden Planner - удобное приложение для проектирования сада Вашей мечты или ландшафта для вашей фазенды. Расположите растения, деревья, постройки и объекты, используя удобный 'drag and drop' интерфейс. Используйте различные инструменты, чтобы быстро создать мощение, дорожки и заборы. Цвет листвы можно изменять. План легко масштабируется. В завершение, вы можете произвести (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2023 Artifact InteractiveПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92061836757C01C322F887B253D2EA5D7A96B3CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594070   (134220) от 25.12.2012
 
 Журнал | Авторский интерьер №4 [декабрь 2012] [PDF]
@@ -6,7 +86,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134220.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ Xodo PDF - Ридер и Редактор 8.8.0 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134221.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134222.jpg" />
 </div>
 
 
@@ -78,7 +158,7 @@ VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134223.jpg" />
 </div>
 
 
@@ -105,7 +185,7 @@ Skype 8.109.0.209 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134224.jpg" />
 </div>
 
 
@@ -129,7 +209,7 @@ TechSmith Camtasia 2023 Studio 2023.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134225.jpg" />
 </div>
 
 
@@ -153,7 +233,7 @@ Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134226.jpg" />
 </div>
 
 
@@ -180,7 +260,7 @@ Dan Berglund's - Tonbruket (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134227.jpg" />
 </div>
 
 
@@ -213,7 +293,7 @@ VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134230.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ Nature Wallpapers (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134231.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ HQ Wallpapers Perfect Women (25.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134232.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ Xodo PDF - Ридер и Редактор 8.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134233.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ Vivaldi 6.4.3160.47 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134235.jpg" />
 </div>
 
 
@@ -342,7 +422,7 @@ Animal Wallpapers (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134236.jpg" />
 </div>
 
 
@@ -366,7 +446,7 @@ Serj Tankian - Invocations (2023) Live [MP3|320 Kbps] <Classical, Modern>
 >>Концерты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134237.jpg" />
 </div>
 
 
@@ -393,7 +473,7 @@ PDFCool Studio 3.30.121225 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134238.jpg" />
 </div>
 
 
@@ -417,7 +497,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134239.jpg" />
 </div>
 
 
@@ -441,7 +521,7 @@ Icon In Me - Head Break Solution (2011) [WavPack|Lossless]<Melodic Death Metal /
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134240.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ Icon In Me - Head Break Solution (2011) [WavPack|Lossless]<Melodic Death Metal /
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134241.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ Sexy Girls Pack Wallpapers (25.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134242.jpg" />
 </div>
 
 
@@ -525,7 +605,7 @@ Wondershare PDFelement 10.1.9.2557 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134243.jpg" />
 </div>
 
 
@@ -549,7 +629,7 @@ magnet:?xt=urn:btih:CC13F714DD644970338CA2724C6C03B634A9037A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134244.jpg" />
 </div>
 
 
@@ -573,7 +653,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134245.jpg" />
 </div>
 
 
@@ -584,79 +664,6 @@ Moon Reader - проект-читалка которая весьма извес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB52671F01CB01B98F442025D9988FA6B8EAB26D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594442   (134246) от 25.12.2012
-
-Sexy Girls Wallpapers (25.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD566D56C58FEC5C3CC2F58F9437C0A1002A2AF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680408   (134247) от 29.11.2023
-
-Fort Firewall 3.10.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4F4294B75DC34FB3ECB23C425D5BF4AB0018AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680564   (134249) от 29.11.2023
-
-TG Pro (Temperature Gauge Pro) 2.89 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134249.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2023Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B46E35697F1D881979E3D2B055FA3B61C3643AD
 ```
 
 

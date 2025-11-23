@@ -1,3 +1,75 @@
+###  Публикация: 1704437   (114452) от 04.03.2024
+
+Виртуальная реальность / Чистые мысли / ClearMind (2024) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114452.jpg" />
+</div>
+
+
+###  Подробнее
+
+После цепочки трагических событий Нора решает пройти терапию в виртуальной реальности, чтобы в параллельной вселенной отомстить бывшим друзьям, которые, по её мнению, причастны к несчастьям. Но вскоре границы между виртуальным миром и реальностью начинают стираться, и эксперимент превращается в смертельную игру на выживание.Производство: США / Film Camp Productions, River Place ProductionsЖанр: триллер, комедия, детективРежиссер: Rebecca EskreisАктеры: Роб Бенедикт, Ребекка Крескофф, Токс Олагундойе, Кадим Хардисон, Дженн Лион, Шона Кофоуд, Джессика Мераз, Алек Мапа, Мэтт Питерс, Бобби Аугуст мл.Перевод: Профессиональный двухголосый (ViruseProject | 18+)Язык озвучки: Русский, английскийСубтитры: английскиеПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D369AC8D8A7D630FCA1DE176BB6EC3626A3B21C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704375   (114453) от 04.03.2024
+
+Согласие / Le consentement / Consent (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шокирующий фильм о недопустимых отношениях между четырнадцатилетней Ванессой и пятидесятилетним писателем Габриэлем Мацнефф в 80е годы.Производство: Франция, Бельгия / Compagnie Cinématographique, La, France 2 CinémaЖанр: драма, биографияРежиссер: Ванесса ФильоАктеры: Kim Higelin, Жан-Поль Рув, Летиция Каста, Элоди Буше, Jean Chevalier, Лолита Шамма, Давид Клавель, Агат Дронне, Кристоф Грегуар, Доби БродаПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB812CEC0C6EE6073F16354243BD959F2E2F506A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704384   (114454) от 04.03.2024
+
+Granblue Fantasy: Relink (2024) [Multi] (1.0.4/dlc) Repack FitGirl [Special Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Granblue Fantasy: Relink - приключение в просторах Небесного царства, где острова парят среди безбрежных лазурных просторов. В роли капитана небесного корабля вы отправитесь в путешествие, полное тайн, магии и товарищества. Вместе со своими верными спутниками, такими как энергичный дракон Вирн и загадочная Лирия, вы отправитесь на Эсталусию - мифический остров, окутанный (   Читать дальше...   )Тип издания: RepackРазработчик: Cygames, Inc.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Японский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BE6D6E48D9A42F721E1811394AAAE3C03F20E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704512   (114455) от 04.03.2024
 
 Stardock Start 2.0.6.4 RePack by xetrin [Multi/Ru]
@@ -6,7 +78,7 @@ Stardock Start 2.0.6.4 RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114455.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Branford Marsalis - Trio Jeepy (1989) CBS [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114456.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Text Workflow 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114457.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ PullTube 1.8.5.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114458.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Navicat Charts Viewer for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114459.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Ellis Marsalis - An Open Letter To Thelonious (2008) ELM Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114460.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ Navicat for SQL Server on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114461.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:22B30B0E67FC48B053F3E4F9F6294729CF291756
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114462.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ Navicat for MySQL for Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114463.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Navicat Charts Creator for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114464.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ Wynton Marsalis - My Funny Valentine: Live At Bubba's (1980) 1998, Pulse [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114465.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ Navicat for SQLite on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114466.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ magnet:?xt=urn:btih:54F43540AC0645623C98C882D57068DC5E2B8F0D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114467.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ Serial Box & SerialSeeker 03-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114468.jpg" />
 </div>
 
 
@@ -355,7 +427,7 @@ iShowU Studio 2 v.2.3.14 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114469.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ Affinity Designer 2 v.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114470.jpg" />
 </div>
 
 
@@ -405,7 +477,7 @@ ServerCat for Mac 1.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114471.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ Affinity Publisher 2 v.2.4.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114472.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ iShowU Instant (Advanced) 1.4.19 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114473.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ CopyQ for Mac 7.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114474.jpg" />
 </div>
 
 
@@ -505,7 +577,7 @@ Absolon - A Portrait of Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114475.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ Coltre - To Watch with Hands... To Touch with Eyes (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114476.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ Stephanie Haynes With The Cedar Walton Trio - Here's That Rainy Day (1988) Trend
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114477.jpg" />
 </div>
 
 
@@ -573,84 +645,6 @@ Stephanie Haynes With The Cedar Walton Trio - Here's That Rainy Day (1988) Trend
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DDA24FCD02D589B5FED740C7102B7632618B64A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704291   (114478) от 03.03.2024
-
-Джон Банни. Поезд недоразумений / A Train of Incidents (1914) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая комедия ошибок. И качество неважнец и сохранился не полностью, но все же решил поместить в фильмографию Банни. Барышня должна поехать на запад и выйти замуж за неизвестного ей молодого человека, которого она представляет грубым ковбоем. На самом деле это вполне себе интеллигентный молодой человек. Он  тоже едет на запад к неизвестной невесте, в его воображении (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Джордж Д. БэйкерАктеры: Джон Банни, Флора Финч, Чарльз Брайант, Мэри Андерсон, Уильям Ши, Джордж СтивенсПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317620BDAA42DF30FD06E8F685F29B0A2551F116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704164   (114479) от 03.03.2024
-
-Saturnalia Temple - Paradigm Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drakon [00:02:08]
-02. Revel In Dissidence [00:08:55]
-03. Paradigm Call [00:07:42]
-04. Among The Ruins [00:05:16](   Читать дальше...   )Жанр: Stoner MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC848DE9DCE71854578134A419063CA38B66F7F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704143   (114480) от 03.03.2024
-
-Clare Fischer & Salsa Picante - Crazy Bird (1985) Discovery Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [4:22]
-02. Where Are the Children? (Ay, Los Pequenos) [5:01]
-03. Serenidade [3:59]
-04. La Mucura [4:32](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9557CC4469AB07750D45D0022EAB206A373835DD
 ```
 
 

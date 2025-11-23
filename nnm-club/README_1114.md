@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29317.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MiniTool Power Data Recovery 12.3 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29318.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29318.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5A434C5C8CF07455BE761B3AB6F203B2019C781E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29319.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5A434C5C8CF07455BE761B3AB6F203B2019C781E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29320.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:5A434C5C8CF07455BE761B3AB6F203B2019C781E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29321.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29321.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5A434C5C8CF07455BE761B3AB6F203B2019C781E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29322.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29322.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CD0078969C9C805245F765854DFD2978AE70D55C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29323.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2B1B902D0A8929EC8A3B7FF75E4E0C78ED98E0E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29324.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2B1B902D0A8929EC8A3B7FF75E4E0C78ED98E0E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29325.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:2B1B902D0A8929EC8A3B7FF75E4E0C78ED98E0E8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29326.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:BB9E11AE899690CD70B53DA93154ADB7C605D372
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29327.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:BB9E11AE899690CD70B53DA93154ADB7C605D372
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29328.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ YouTube начал показывать зрителям  абсурдно дл�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29329.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Silent Hill 2 (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Let'sРlay [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29330.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe Photoshop 2025 26.3.0.156 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29331.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29332.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:B905CE65206A129619F6A82BB6A0BB8D86FE1EF3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29333.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ BBC: Horizon. Тёмная сторона Всемирной Паутины / In
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29334.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:4059F9B57C8CFC64903E90133D7FB9CA5AF250B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29335.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:4059F9B57C8CFC64903E90133D7FB9CA5AF250B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29336.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Grand Theft Auto III (3) (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlude [T
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29337.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:3CB00247F1483DF17BBE035BE5D04A3A5619D136
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29338.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:3CB00247F1483DF17BBE035BE5D04A3A5619D136
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29339.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:3CB00247F1483DF17BBE035BE5D04A3A5619D136
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29340.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Launcher for zapret 1.7 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29341.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:EED42047990281ABBF2D64FE406628F060813394
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29342.jpg" />
 </div>
 
 

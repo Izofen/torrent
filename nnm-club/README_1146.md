@@ -6,7 +6,7 @@ GPU Shark II 2.5.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30149.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30149.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:21E0D3A3D066F0660C19D07D5DF6EDA4B28E9A4C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30150.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30150.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Reaper v2.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30151.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30151.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F0B2A2418FEF29C69212A08CEC6A98E4A828782D
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30152.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30152.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D85DC1CAEB41E91248C052002F3042DE6ED48B79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30153.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30153.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:019CCC26BDF4A6B46E190D2D621B6C1594BF2573
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30154.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30154.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Vampire Therapist (2024) [Multi] (1.202) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30155.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VirtualBox 7.1.6 Build 167084 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30156.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30156.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BA0CB941E9D334592111E32F1C274E0A00866F1E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30157.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30157.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ AIMP 5.40.2655 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30158.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30158.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bandicam 8.1.0.2516 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30159.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30159.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:F3DF315C93F7896FA868DCA2A9B91E1CFF53AE29
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30160.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30160.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Topaz Photo AI 3.4.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30161.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30161.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:06D86648F7DA4051E778FC9FEBB8EDDA0F83C538
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30162.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:DA577B66B0BC352BD7A4DC9EDB8FF7421D04EDBE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30163.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30163.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:358CC450AF1479E8953D720C5EEC2A663727493E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30164.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30164.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:074FF37216EF60C23ACAE1E24D51FEF70ECD4FEE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30165.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30165.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:D9A3D46763D00C4123B38EA455FE257628704593
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30166.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30166.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30167.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30167.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:7F35EDE141EFC7B8D291AB8A1820FC87DAEE28F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30168.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:C6CC5CE936E1E3B3F48907F44E3E966FC0FB9185
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30169.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30169.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Bright Memory: Infinite v1.0 b82 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30170.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30170.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Arcane Quest Legends 2 Offline v1.0.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30171.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30171.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Monolith v1.1.12.065 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30172.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30172.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:78B5C89FC86DCFD1DC0B0C3B5E2D22A75F42081B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30173.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30173.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ CyberYozh Academy | Убойный Андроид + Мультиаккаунти
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30174.jpg" />
 </div>
 
 

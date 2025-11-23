@@ -1,3 +1,78 @@
+###  Публикация: 1745746   (105014) от 27.08.2024
+
+Связанные музыкой / The Bond of Music (1912) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франко-прусская война. Французский город осажден немецкой армией. Но жизнь в городе продолжается и гражданское население занимается своими делами. Это нормально. Торговцы торгуют, домохозяйки домохозяйничают, старенький музыкант дает уроки своим ученикам. Среди них у него есть любимчик - молодой человек, способный, преданный музыке. Только вот на самом деле, этот (   Читать дальше...   )Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, драма, военный, немое киноРежиссер: Чарльз КентАктеры: Чарльз Кент, Эрл Уильямс, Уильям Ши, Кейт Прайс, Ральф Инс, Эдвин Р. Филлипс, Хэл Уилсон, Фрэнк МэйсонПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692BCB05C83D58F77757CF083477364174F7938C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744691   (105015) от 27.08.2024
+
+Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serse (Xerxes), Opera, Hwv 40: Largo. Ombra Mai Fu / Welch Schattig Grun
+02. Work(S): Serenata Francese / Serenata Napoletana
+03. Amadis, Opera, Lwv 63: Act 2. Scene 4. Bois Espais Redouble Ton Ombre / Dicht...
+04. Fenesta Che Lucive, Song(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371C8C9A4540CE3CC705A0C8D1EE3A748F084FEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745752   (105016) от 27.08.2024
+
+MediaHuman YouTube to MP3 Converter 3.9.9.95 (0809) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA039D0BBEE00E9072C81D6BB384AD1B271F53F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745657   (105017) от 27.08.2024
 
 Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
@@ -6,7 +81,7 @@ Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105017.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:DC3EB8D8A7499B6719F1D88558B0AF5DE696F6D5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105018.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Sonic Hustle - Out Of The Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105019.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ magnet:?xt=urn:btih:02ADAE12A63FF0D76575CA3BCE4749CFABA61422
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105020.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ Then Jerico - 4 Albums: Before The Future: 1984-1989 (2024) [MP3|320 Kbps] <New 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105021.jpg" />
 </div>
 
 
@@ -138,7 +213,7 @@ magnet:?xt=urn:btih:B10819375F353DD393E84B9C1D511B581736356D
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105022.jpg" />
 </div>
 
 
@@ -165,7 +240,7 @@ magnet:?xt=urn:btih:BD993C6E3634F6D28F07D67262514DA980F86C41
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105023.jpg" />
 </div>
 
 
@@ -192,7 +267,7 @@ magnet:?xt=urn:btih:675B3455068F835419820DC20F2DCDDE3BBA1573
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105024.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ Nino Helfrich - Shadow Empress (2024) [MP3|320 Kbps] <Prog Metal, Vocals Instrum
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105025.jpg" />
 </div>
 
 
@@ -243,7 +318,7 @@ magnet:?xt=urn:btih:27F8242BF65653D27A59DF2B5AB23E544461E7B6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105026.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (0803) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105027.jpg" />
 </div>
 
 
@@ -294,7 +369,7 @@ magnet:?xt=urn:btih:5F285CD9DBFDC64634B443F6662F800195C3C4C3
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105028.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ Piper and The Hard Times - Revelation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105029.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ Chet Baker - Chet's Choice (1985) Criss Cross [APE|Lossless|image + .cue] <Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105030.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105031.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ Moonshine Jasmine - Grateful (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105032.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ Emily Wurramara - NARA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie-Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105033.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ Loss - Human Factor (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105034.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ Johnny Ray Jones - Mystic Chiefs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105035.jpg" />
 </div>
 
 
@@ -510,7 +585,7 @@ Memphis Royal Brothers - Memphis Royal Brothers (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105036.jpg" />
 </div>
 
 
@@ -537,7 +612,7 @@ Ruthie Foster - Mileage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105037.jpg" />
 </div>
 
 
@@ -564,7 +639,7 @@ This Ending - Crowned In Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105038.jpg" />
 </div>
 
 
@@ -591,7 +666,7 @@ Thom Rotella - Side Hustle (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Beb
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105039.jpg" />
 </div>
 
 
@@ -605,87 +680,6 @@ Thom Rotella - Side Hustle (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Beb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66777010CCD03D5C034C8212CDC0C99F3A40CBAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745457   (105040) от 26.08.2024
-
-Diane Durrett - Sweet Georgia Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Child Of The Blues (3:55)
-02. Good Goes With You (3:15)
-03. Sweet Georgia Blues (3:24)
-04. The Sweet Spot (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71318540C3F85270AF3182590D596D86C6F43063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745564   (105041) от 26.08.2024
-
-Anciients - In The Absence Of Wisdom (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Absence Of Wisdom [00:06:35]
-02. Cloak Of The Vast And Black [00:06:18]
-03. Melt The Crown [00:07:05]
-04. Raise The Sun (Re-recording) [00:06:41](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5D01BE1C8271108BF2715A4A0B5AB216AB14B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745446   (105042) от 26.08.2024
-
-Carly Harvey - Kamama (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Native Scat (1:41)
-02. Mean Old Woman (2:51)
-03. Misery (4:37)
-04. She Ain't Me (Kamama Version) (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987A898C000966FA071F77ACACD294E523B77A27
 ```
 
 

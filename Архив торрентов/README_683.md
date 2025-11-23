@@ -1,3 +1,51 @@
+###  Публикация: 1520352   (144010) от 27.12.2021
+
+SyncTime 3.7.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144010.jpg" />
+</div>
+
+
+###  Подробнее
+
+SyncTime - самое простое решение для синхронизации ваших файлов. Вы когда-нибудь думали, чтобы вы могли легко обновлять все свои резервные копии, распределенные по многим устройствам? SyncTime просто сделает это. SyncTime способен на очень много вещей, но так прост в использовании. От ручной, плановой или полностью автоматической синхронизации до фоновой синхронизации, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 DESAIREMПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0469ED26C22C781BCB105D97903D8E0FDE0581D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195302   (144015) от 28.12.2017
+
+Chromium 65.0.3306.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893CEB55590A4A1F45869D0FEE5C5EEA38B8A69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520247   (144021) от 27.12.2021
 
 Invisible 2.5.6.1 [Multi/Ru]
@@ -6,7 +54,7 @@ Invisible 2.5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144021.jpg" />
 </div>
 
 
@@ -31,7 +79,7 @@ Xliff Editor 2.9.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144034.jpg" />
 </div>
 
 
@@ -56,7 +104,7 @@ ColorWell 7.3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144049.jpg" />
 </div>
 
 
@@ -80,7 +128,7 @@ magnet:?xt=urn:btih:1ABB32EB8FAD9779B4536830EBCE15E82A0ABA23
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144051.jpg" />
 </div>
 
 
@@ -106,7 +154,7 @@ Bulletstorm [Ru/En/Multi7] (L/1.0.7111.0) 2011 2xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144057.jpg" />
 </div>
 
 
@@ -132,7 +180,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144058.jpg" />
 </div>
 
 
@@ -157,7 +205,7 @@ Stardock WindowBlinds 7.4 + 94 themes & skins [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144068.jpg" />
 </div>
 
 
@@ -181,7 +229,7 @@ Stardock WindowBlinds 7.4 + 94 themes & skins [Eng]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144069.jpg" />
 </div>
 
 
@@ -205,7 +253,7 @@ magnet:?xt=urn:btih:9FED3A827C7D97DD357F58CB7E7A81A86B06F878
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144076.jpg" />
 </div>
 
 
@@ -229,7 +277,7 @@ magnet:?xt=urn:btih:B4D01AC1496DFFD02B9A9CCDE6451F46A2511905
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144084.jpg" />
 </div>
 
 
@@ -253,7 +301,7 @@ magnet:?xt=urn:btih:61DBCCBFC74E54C96033ED399B15E91BADDA7F6D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144085.jpg" />
 </div>
 
 
@@ -277,7 +325,7 @@ Office 2003 SP3 eng vl + conv2007 + updates (16.12.2012) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144086.jpg" />
 </div>
 
 
@@ -303,7 +351,7 @@ Party of Sin [Ru/En/Multi6] (L) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144097.jpg" />
 </div>
 
 
@@ -327,7 +375,7 @@ WindowsPlayer 3.1.1.0 RePack (& Portable) by AlekseyPopovv [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144098.jpg" />
 </div>
 
 
@@ -351,7 +399,7 @@ WinHex 16.8 [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144102.jpg" />
 </div>
 
 
@@ -375,7 +423,7 @@ FL Studio Producer Edition 20.6.0.1458 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144106.jpg" />
 </div>
 
 
@@ -399,7 +447,7 @@ Mozilla Thunderbird 52.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144126.jpg" />
 </div>
 
 
@@ -423,7 +471,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144129.jpg" />
 </div>
 
 
@@ -447,7 +495,7 @@ magnet:?xt=urn:btih:F99893C66707F901A14E29ABA4B8201EA656958A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144131.jpg" />
 </div>
 
 
@@ -471,7 +519,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144139.jpg" />
 </div>
 
 
@@ -495,7 +543,7 @@ Wise Registry Cleaner Pro 10.3.3.692 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144151.jpg" />
 </div>
 
 
@@ -519,7 +567,7 @@ magnet:?xt=urn:btih:7C85739E3A2BF566512BB4A936F8D2BBE3D49417
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144158.jpg" />
 </div>
 
 
@@ -543,7 +591,7 @@ FonesGo Location Changer for Mac 6.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144165.jpg" />
 </div>
 
 
@@ -567,7 +615,7 @@ HandBrake 1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144174.jpg" />
 </div>
 
 
@@ -579,57 +627,6 @@ HandBrake — кроссплатформенное программное обе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5960819713EF9D05D95CE7943E5E74272EF8DE23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535465   (144189) от 16.12.2012
-
-[Программа] (Android 2.2+) 2G,3G,4G Network Monitor (F) 1.20.01 - Раздельный мониторинг трафика /обновлено 15.121.12/
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раздельный мониторинг трафика 2G, 3G, 4G сетей.Разработчик: Michal S.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272325   (144208) от 27.12.2018
-
-Элджей - Sayonara Boy X (2018) Universal Music Russia [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Dance, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Chat (2:50)
- 02. Suzuki (3:05)
- 03. ZEF 2.0 (2:44)
- 04. LEGO (2:43)(   Читать дальше...   )Жанр: Hip-Hop, Dance, DowntempoПродолжительность: 00:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1B5460560C056DD75CB6F30216946BB65DC667
 ```
 
 

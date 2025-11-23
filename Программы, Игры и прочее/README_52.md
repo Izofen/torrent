@@ -6,7 +6,7 @@ VivaVideo Video Editor v9.15.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112193.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by Eco19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112279.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AirBrush: ИИ Фоторедактор v6.3.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112376.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Background Video Recorder Pro v10.0.31 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112387.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A0CB0F462AC9D4594FFCB5489BB77FEDF823C8E6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112422.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Auto blur: Авторазмытие v2.6.7 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112426.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1687D31FC634362FDF924A01B6D1E987499B19C5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112619.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by AppKaMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112875.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Strava: бег, велоезда, хайкинг v351.15 Mod by ReVanced Team [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113189.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Simply Piano: Learn Piano Fast v7.24 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113210.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Strava: бег, велоезда, хайкинг v350.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113891.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.52 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113903.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Moon+ Reader Pro v9.2 b902001 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113912.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ToonMe v0.7.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113926.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:B1626454378356D6523520ACF12B89B36BF11CBF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113932.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:454CF4CB10C763E458A4E972FAD1C21FF90EEE89
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114207.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Grab Photos From Videos / Фото из видео v11.1.5 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114384.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Assistive Volume Button v0.9.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114508.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7048788ABBE2084DFE13F75EADB21D5973DB0894
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114553.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E8E51B45B13C1B1FAEA30E2D5D4DA06F89D241B4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114673.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:0CC1179175BD27B4890D0DFCFC0EA6093A812908
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114710.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:411DE09BAF5C36ACAB767CA50BE893BC687AB014
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114721.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.020.1441 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115185.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ AI Beauty / ИИ Красота v1.52 Mod by CVXUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115220.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ ES File Explorer File Manager v4.4.2.2.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115737.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:EE6198FBEDF04540E50440BFFB14D2851A67028C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115791.jpg" />
 </div>
 
 

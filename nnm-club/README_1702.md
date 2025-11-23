@@ -6,7 +6,7 @@ No Bull - Getting Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44607.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft PowerToys 0.84.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44608.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Spacedance, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44609.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Arab Folk (Arab Vibes of the Middle East) (2023) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44610.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Music Collection 3.7.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44611.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Photo Supreme 2024.2.2.6636 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44612.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (0309) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44613.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Serif Affinity Publisher 2.5.5.2636 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44614.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:1018B9AE040BE98B0D70BD02D4153041B706FD1F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44615.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:608F595912CFC5EFD2ECE4DC2E787D4AD9B46B4C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44616.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:608F595912CFC5EFD2ECE4DC2E787D4AD9B46B4C
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44617.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9AAA190F3199BE4E60A206BA69760BEFC8F08A17
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44618.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Serif Affinity Designer 2.5.5.2636 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44619.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:48746C8C226F5A8176B92371F9CB8472D7A5305A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44620.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:0A99A100BE88A85A42AF692A3AFE5D7E7D2B5EF5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44621.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:73BB955529D3C0286FFDD89C40E7DE0700E206FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44622.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ JetBrains DataSpell 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44623.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Sunset Hills (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44624.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ TechSmith Camtasia 24.0.4 build 2964 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44625.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:2458D33E4915D8BFF234571559031B44C53AF635
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44626.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:4AA963A98F990BEF759C061BF70A93D63F4BEDC4
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44627.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ JetBrains Rider 2024.2.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44628.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44629.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:FB70C8C4BC132C96BAF76D9847D4C3357F214580
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44630.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Sunset Hills (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44631.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Robert Spiece | Двери для шкафов и изысканной мебе�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44632.jpg" />
 </div>
 
 

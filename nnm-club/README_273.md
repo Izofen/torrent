@@ -6,7 +6,7 @@ Carlos Camilo - Allure (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Africa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7181.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A01B9BB18BBF4E87A48F1208E1BD94F9BA8B7D13
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7182.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:95FF45D6659F15B0C52860374BF1D8F32C029E8C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7183.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:A736C66E0F4822C58FEF41052D98079F75F0AFA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7184.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:32AC570A5BC293A23B30F744F4FA1AAB1F013056
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7185.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Спринт (16.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7186.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:D337CDF2CC81F45CB58FA8BAE87F3761D27082D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7187.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3587E0DB81963A71D36A7AE16FE893916050635C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7188.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:5BC90DA9ED71A2284BB3DCD80D6C2CC48A3A694A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7189.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7190.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:159238A539615F7108EC082F53C778DD9E37A0B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7191.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Chillaxonic - Summer Selection (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7192.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Homewreckers - 6th & Union (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7193.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:34CCF83B061A733625A1D2FAC8C9D8BE10108B77
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7194.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Angelique Francis - Not Defeated (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7195.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:BD2CF46F9DF2F21DB5553C4EE554BCD25A70311C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7196.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Rick Habana - The Collaborations II (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7197.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ James Day - Frequencies (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7198.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ DB Cohen - On Target (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7199.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Asking Alexandria - Collection (2009 - 2023) 9CD [FLAC|Lossless|image + .cue|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7200.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:3FB004F5E3867039F5BAF4D30AAEAAB39522260D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7201.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Jelly Ellington - Glow (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7202.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:CB5E8A17A90CDB982ABB37736FB2D9489514D69E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7203.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Al Jones - Still in Charge (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7204.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:041D2AAADC95EB9474569F742693FA058C1FE2ED
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7205.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:2A410DE58911D60905E33BD3FAED79ED6875904C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7206.jpg" />
 </div>
 
 

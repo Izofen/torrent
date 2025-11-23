@@ -6,7 +6,7 @@ CyberHoney (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55121.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A67A92D5E9E5D7FA3C24613F9B63238F889AE41A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55122.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:54CB9AB1D040538B433D561F5BF9F44031403888
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55123.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B63523409B535534C60914C4C694FA0263678F1F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55124.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:443A5823A6B6958DA1D54D07CED3630DCC175901
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55125.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:78CE0D36368764A5EE20FCB2F950997B24C918E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55126.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:96ED6170D445AF521C2F134CE9AD68E879108A73
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55127.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7BED23B526B6385F60A63A23BE1276DFC1DDCBA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55128.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:45B38619B284C29B738B02C5136CB56362B47ED9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55129.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55130.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Sandra - The Platinum Collection (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55131.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:2BCF413024024FA95CB3AAD5B1AB5B17ED9714A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55132.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7F69A67A017AE6827C6B66973A2365E4E448E70F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55133.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F3A5D06CE44887D724AC27B3204990918EF6B1DD
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55134.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Pre Dusk (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55135.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55136.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:5F2ADB7E1EA13AE7B269F9EE6F9054A6F6188ACA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55137.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WinNTSetup 5.3.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55138.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:D5879693ACAC51E452656225A6B9D776A0044C1F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55139.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:53E447DB08F5221CD23DCEC14D11A1809C0F22AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55140.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:247C81934C5D5B84C699189E577D0761B33172F9
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55141.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Cuphead (2017) [Ru/Multi] (1.3.2/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55142.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:A6CCE533BE05B20BC9F4525992C8C59F49AFC72C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55143.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B66CADCE70BB80A09A723E94BC3A4FA8C6C113D2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55144.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:C966BA56A0BF776E47757FB53FAC61914B675470
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55145.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:21CCE343C1D7213E381EA3ECABE71AED55318517
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55146.jpg" />
 </div>
 
 

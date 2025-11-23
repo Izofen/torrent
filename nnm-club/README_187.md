@@ -6,7 +6,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4926.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4A712B3C0FF364D8F20C00D09C2A501775A15412
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4927.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Leroy Vinnegar Quintet - Leroy Walks Again!! (1962, 1963) 1990, Original Jazz Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4928.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Luna Artisan - Ego Rush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4929.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:6F8522E5E396ABDCCFF8C0466D3DDF28427031A4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4930.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Liora Stedman - Spirit of Cobalt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4931.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:ED636063D691D266D28E4572D503458699E1EDDF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4932.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:B3F36435AEDD4F02E53581B70A91E86A113DECD3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4933.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:2E5BAA8D381FCFDC04669AE19D1F2D68C6BF9992
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4934.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:610A21B864223835543B0D38EE20EAC143ACE16D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4935.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Photo Editor v11.9 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4936.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:A93BCF897012CD961A046412FDCC8E1D4580DE33
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4937.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:370E0595D60F350E491C97B7146C22DF39E80127
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4938.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:6866E18A07D24C8600E7AB9CA1A100A711D58BCC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4939.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:A882E7F3C9630C3393966C79BB52560E002CB791
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4940.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:042315293F1F3C1E8A04A706E79AB80CE6B9DA9D
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4941.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:83B55980A615437BF4DB5B27E8811CF4019BD1CD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4942.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:3E5FA1908394E26639B9233660877B9BB7561B68
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4943.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - Musical kaleidoscope part 51 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4944.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:20C93EC523D43CE6015DEC7D22CDEEC9455BC13D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4945.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:D573B52992135EF335372D3D17CB348367043F12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4946.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:1546687C188C3F3E27FBB868D7B1AED27A95256A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4947.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:10D91DFCF7D5C4BA4C1C454E6C6F96F79D1342A5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4948.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - National Pop Dance Music Vol.118 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4949.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:D37DB7F036CA71D5754F49FD3B8B635F5452FE18
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4950.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:6F52AE1B75A32B461EB32291627951FE57843C5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4951.jpg" />
 </div>
 
 

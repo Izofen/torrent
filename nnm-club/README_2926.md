@@ -1,3 +1,83 @@
+###  Публикация: 478009   (86354) от 04.04.2012
+
+Время сумасшедших влюбленных / Zamaana Deewana (1995) DVDRip
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сурадж и Пала по жизни были друзья-не-разлей-вода. И только грязные проделки интригана Сундара возвели между друзьями стену непонимания. А после того как Лалу удалось убедить в том, что якобы Сурадж виновен в смерти жены Лалы, то лучшие друзья превратились в кровных врагов. Да таких врагов, что стычки двух преступных кланов потрясли всех в округе.
+Для того, чтобы стабилизировать обстановку в регионе, полиция штата пошла на необыкновенный шаг. Они решили случайно познакомить и влюбить друг в друга детей двух кровных врагов — любимого сына Сураджа Рахула и элегантную дочь Лала Прию. Через какие только приключения и испытания пришлось пройти молодой влюбленной паре Вы узнаете, только просмотрев фильм до конца.Жанр: Боевик, Драма, КомедияРежиссер: Рамеш СиппиАктеры: Джитендра, Шатругхан Синха, Шахрукх Кхан, Равина Тандон, Анупам Кхер, Тинну Ананд, Киран Джунея, Бина, Ашиф Шейх, Нилима АзимПеревод: Многоголосый закадровыйПродолжительность: 02:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59803C6927ABE6E67B67824A6023EBC22DE29F6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478010   (86357) от 04.04.2012
+
+Патрик Ленсиони | Пять искушений руководителя [2005] [DOC]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название: The Five Temptations of a CEO
+
+Книга Пять искушений руководителя относится к новому жанру - "бизнес-фикшн". В ней в форме притчи излагаются ключевые концепции лидерства. Патрик Ленсиони отказался от привычного стиля изложения материала — теоретической литературы много, все книги повторяют одна другую и давно всем наскучили.
+
+Автор вложил свои идеи в уста "живых" людей и превратил скучную лекцию в захватывающее повествование. Книга рассчитана на руководителей самого разного уровня — от президентов корпораций до скромных клерков, ведь каждому из нас в жизни приходится принимать важные решения, а значит, перефразируя Энди Уорхолла, можно сказать, что каждый из нас имеет право на свои 15 минут лидерства.2005Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7349B1306E8666A8B911C1F1D1F5A120555000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478217   (86358) от 04.04.2012
+
+В.И.Назарова | Бассейны, пруды и фонтаны [2011] [Pdf]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобство искусственных водоемов человек оценил еще несколько тысячелетий назад, когда в странах Древнего Востока появились первые бассейны.
+ Правда, их функция и внешний вид были ограниче­ны: древние бассейны предназначались главным образом для омовений и не выходили за рамки пря­моугольного стандарта. Значительно позже эстеты увидели в этом бытовом архитектурном сооружении
+ранее незамеченные возможности.
+ Вы решили построить на своем участке бассейн или фонтан? В этой книге вы найдете исчерпывающую инфор­мацию о строительных материалах, особенностях работ и прочие полезные советы, которые помогут вам при строи­тельстве найти оптимальный вариант и не потратить лиш­них средств.Жанр: Строительство, дизайн, полезные советыФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1291A0672625FDA20BA5CE1BED71A261C74E382B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477983   (86359) от 04.04.2012
 
 Сердце дракона / DragonHeart (1996) [1080p] BDRemux
@@ -6,7 +86,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86359.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86360.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ magnet:?xt=urn:btih:46A5E4A50F7BDFD617251EA9E21764415093F472
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86362.jpg" />
 </div>
 
 
@@ -78,7 +158,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86363.jpg" />
 </div>
 
 
@@ -102,7 +182,7 @@ magnet:?xt=urn:btih:FB7774CAB809507509046B5A8BEE16ADD4FB7A1E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86366.jpg" />
 </div>
 
 
@@ -129,7 +209,7 @@ magnet:?xt=urn:btih:ED2AB6D5994F79928C10B5742CA4AE0747EF3247
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86367.jpg" />
 </div>
 
 
@@ -155,7 +235,7 @@ magnet:?xt=urn:btih:32FB9F0B609F23D3BDB630364D0AF567E2EBC66C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86370.jpg" />
 </div>
 
 
@@ -181,7 +261,7 @@ magnet:?xt=urn:btih:32FB9F0B609F23D3BDB630364D0AF567E2EBC66C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86371.jpg" />
 </div>
 
 
@@ -207,7 +287,7 @@ magnet:?xt=urn:btih:32FB9F0B609F23D3BDB630364D0AF567E2EBC66C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86372.jpg" />
 </div>
 
 
@@ -231,7 +311,7 @@ magnet:?xt=urn:btih:32FB9F0B609F23D3BDB630364D0AF567E2EBC66C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86373.jpg" />
 </div>
 
 
@@ -255,7 +335,7 @@ magnet:?xt=urn:btih:32FB9F0B609F23D3BDB630364D0AF567E2EBC66C
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86374.jpg" />
 </div>
 
 
@@ -279,7 +359,7 @@ magnet:?xt=urn:btih:32FB9F0B609F23D3BDB630364D0AF567E2EBC66C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86375.jpg" />
 </div>
 
 
@@ -303,7 +383,7 @@ magnet:?xt=urn:btih:F73B7DE477CA14A776572A0F468A61F9ECBC49A5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86376.jpg" />
 </div>
 
 
@@ -329,7 +409,7 @@ magnet:?xt=urn:btih:117AE6E4EA358E423B0E91AC9B7FA1CDC5E60F22
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86377.jpg" />
 </div>
 
 
@@ -353,7 +433,7 @@ magnet:?xt=urn:btih:8E00E0533ADDA0196BE3C9417C0D824502780D35
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86380.jpg" />
 </div>
 
 
@@ -382,7 +462,7 @@ magnet:?xt=urn:btih:0BF3E5FDB2790A1EBF4761A507623E0FEDD58B03
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86381.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ magnet:?xt=urn:btih:547F6B5BC756105EFE76602F211D8DAC21CC8D3A
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86382.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ magnet:?xt=urn:btih:93D6AADC62CC52480AB487FE543ED5CFC300F605
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86384.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ magnet:?xt=urn:btih:93D6AADC62CC52480AB487FE543ED5CFC300F605
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86385.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ magnet:?xt=urn:btih:0CD0A177C0239363076BCC8CFE1B642FFCCF85FE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86386.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ magnet:?xt=urn:btih:1706F6AF934197C58658E63A286DDE10DB5F8F72
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86390.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ magnet:?xt=urn:btih:1706F6AF934197C58658E63A286DDE10DB5F8F72
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86391.jpg" />
 </div>
 
 
@@ -552,7 +632,7 @@ magnet:?xt=urn:btih:B2676FF704CA535A6C3E96F2413FC24397AC281E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86393.jpg" />
 </div>
 
 
@@ -563,81 +643,6 @@ magnet:?xt=urn:btih:B2676FF704CA535A6C3E96F2413FC24397AC281E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA5C9E6B56AB1D13D3F7CF12F1B42B14314B58C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478077   (86394) от 04.04.2012
-
-EASY Deutsch Worterbuch Словарь немецко-русский [2004] [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецко-русский словарь известного издательства, достаточно подробный и простой в обращении.2004Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B626666734214A7328837E77ECA67E41CD128506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477325   (86395) от 04.04.2012
-
-Короткие истории (1963) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киноминиатюры по сюжетам писателей России и зарубежных стран: "Улыбнись, товарищ", "Интересно", "Вопрос о лопнувшей трубе", "Я стучу на машинке", "И так бывает", "Осторожный человек", "Времена года", "Семейный вечер", "Шутки-малютки", "Условия развода", "Калиновский", (   Читать дальше...   )Жанр: КомедияРежиссер: Михаил ГригорьевАктеры: Ростислав Плятт, Георгий Менглет, Борис Чирков, Евгений Леонов, Вера М.Орлова, Мария Миронова, Александр Менакер, Анатолий Папанов, Ольга Аросева, Георгий Вицин, Михаил ПуговкинПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A4BA2D1B00FE4C4AE4FEC0A0B8A79AA1BAD12F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476859   (86396) от 04.04.2012
-
-Goshuushou-sama Ninomiya-kun / My Heartfelt Sympathy, Ninomiya-kun / Примите наши соболезнования, Ниномия-кун [2007, TV, 12] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синго Ниномия живет вместе с сестрой Рёко, непревзойденным мастером боевых искусств и, по совместительству, спецназовцем (Ниномия-старшие сейчас «где-то за границей», и сын уверен, что у родителей всё в порядке, хотя знать о себе они не дают). Не удивительно, что Синго растет, непрерывно совершенствуя свое тело и волю. И вот теперь, наконец, ему потребуются результаты тренировок: бравая Рёко договорилась с семьей суккубов о том, что ее брат возьмет на свое попечение юную Маю Цукимура – суккуба с могучей аурой притяжения и сильнейшей андрофобией (боязнью мужчин).
-
-Так Ниномия-кун оказался телохранителем, гувернером и секс-терапевтом для застенчивой и неодолимо привлекательной Маю. И это ужасно не понравилось президенту школьного совета Рэйке Ходзю, деспотичной маленькой богачке...
-© Анастасия Розанова, World ArtЖанр: комедия, романтика, этти, школаРежиссер: Ёсикава КодзиПродолжительность: ТВ, 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E90F4BD194D7E9BA15CF9F6B556CFA0C9A23286
 ```
 
 

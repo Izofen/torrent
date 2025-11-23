@@ -1,3 +1,125 @@
+###  Публикация: 970686   (139043) от 31.12.2015
+
+Макс Вебер | Избранное. Образ общества (1990) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник работ одного из ведущих западных социологов М. Вебера (1864-1920). В издание вошли следующие работы: «Социология религии», «Введение» к «Хозяйственной этике мировых религий», «Город», «Социальные причины падения античной культуры». «Рациональные и социологические «снования музыки».Жанр: Философия, Обществознание, социологияПеревод: М. И. Левина, А. В. Михайлов, С. В. КарпушинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF76490B75FB651C567DDC6124965EDB8C18E5CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679275   (139044) от 24.11.2023
+
+CCleaner 6.18.10838 Technician Edition (x64) + CCEnhancer Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308BAE90D88D8DEABB52E5393D883ECB640840E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087413   (139046) от 31.12.2016
+
+Хорхе Луис Борхес | Тлён, Укбар, Орбис Терциус (2010) [сборник] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ выдающегося писателя Х.Л. Борхеса, повествующий о "лингвистической" стране Тлёне и всем, что с ней связано.Жанр: ФантастикаПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B71CC549D5669E7799816B1F61F2807E1D3E32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195943   (139047) от 31.12.2017
+
+Журнал | Story [Россия] №1-2 (109) (январь-февраль 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139047.jpg" />
+</div>
+
+
+###  Подробнее
+
+"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
+Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2A0B68C5716FB57E5BBD780A1942741DA1EBBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272818   (139049) от 30.12.2018
+
+Михаил Француз | На пороге мира (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчины, женщины, дети, животные, растения – все здесь таило опасность и несло смерть.
+Во все времена государства тратили огромные финансовые и человеческие ресурсы на создание хладнокровных и безжалостных суперсолдат, однако в основном это были неудачные попытки… Что же будет, если однажды все же получится создать хотя бы одного супербойца? На пороге какого мира (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 12:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7FE7353143CCF523BF1D7BFFD308B24FA74468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505872   (139050) от 30.12.2019
 
 Лузер (2007) DVD5 (2 серии)
@@ -6,7 +128,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139050.jpg" />
 </div>
 
 
@@ -31,7 +153,7 @@ magnet:?xt=urn:btih:D8D891950162BD847B093E7E1AFFA7736E242882
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139051.jpg" />
 </div>
 
 
@@ -55,7 +177,7 @@ magnet:?xt=urn:btih:F0E3DC776611D66ACC634D3AAB3BF3E5F4DF3B38
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139053.jpg" />
 </div>
 
 
@@ -80,7 +202,7 @@ magnet:?xt=urn:btih:81B51F6493EFB08107F21D422BEC99EDF2D34D7C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139054.jpg" />
 </div>
 
 
@@ -104,7 +226,7 @@ Wise Folder Hider Free 3.26.136 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139055.jpg" />
 </div>
 
 
@@ -128,7 +250,7 @@ magnet:?xt=urn:btih:2D5DAA2CCF7996ECED81AA83D22A6C45558D789A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139056.jpg" />
 </div>
 
 
@@ -152,7 +274,7 @@ magnet:?xt=urn:btih:71160F4E7CC7E02685EB98D6B297798A5AEA9895
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139057.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ magnet:?xt=urn:btih:0C56576FBB7BEC4D4EDF3256205F91F1C6BD24C3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139058.jpg" />
 </div>
 
 
@@ -204,7 +326,7 @@ Apollo Motel - Greytown (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139059.jpg" />
 </div>
 
 
@@ -231,7 +353,7 @@ Download Master 6.11.1.1533 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139061.jpg" />
 </div>
 
 
@@ -255,7 +377,7 @@ magnet:?xt=urn:btih:5C88131571D63143555764F87F13B688FA473A05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139062.jpg" />
 </div>
 
 
@@ -279,7 +401,7 @@ magnet:?xt=urn:btih:5C88131571D63143555764F87F13B688FA473A05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139063.jpg" />
 </div>
 
 
@@ -303,7 +425,7 @@ VA - Christmas Box (2015) [MP3|320 кб/с] <Progressive, Psychedelic, Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139065.jpg" />
 </div>
 
 
@@ -330,7 +452,7 @@ Tor Browser Bundle 13.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139066.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ magnet:?xt=urn:btih:F708D14994276429ECCBAEC8A24E654A3AB05B98
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139068.jpg" />
 </div>
 
 
@@ -378,7 +500,7 @@ magnet:?xt=urn:btih:15DDFA9162F6B13B698C1482937349DE3CC2DD73
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139069.jpg" />
 </div>
 
 
@@ -402,7 +524,7 @@ Grotto - Circle of Magi (2017) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139070.jpg" />
 </div>
 
 
@@ -428,7 +550,7 @@ magnet:?xt=urn:btih:6400591E41BA1E5DD92CA64BC19B2105D32F5D15
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139071.jpg" />
 </div>
 
 
@@ -452,7 +574,7 @@ magnet:?xt=urn:btih:EA264D31558F2BDB9441D63984C8BE94F332FF41
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139072.jpg" />
 </div>
 
 
@@ -476,7 +598,7 @@ Craset, TBFM - A Thousand Decays (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Ga
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139074.jpg" />
 </div>
 
 
@@ -503,7 +625,7 @@ SUMo Pro 4.2.5.298 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139075.jpg" />
 </div>
 
 
@@ -514,129 +636,6 @@ SUMo (Software Update Monitor) — последняя версия данной 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68AA745B89B662DB06C1001AC05CB7DE39074085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679173   (139078) от 24.11.2023
-
-Травка / Leaves of Grass (2009) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизненные пути двух братьев-близнецов далеко не так похожи, как они сами. Один – респектабельный профессор философии, второй – вечно обкуренный балагур, выращивающий марихуану на продажу. Но мелкие драгдилерские дела навлекают на него большие проблемы, с которыми он планирует справиться при помощи родного брата. Заманив братца в родной городок в Оклахоме, он вовлекает (   Читать дальше...   )Производство: США, Class 5 Films, Grand Army Entertainment, Millennium Films, Nu-Image FilmsЖанр: драма, комедия, криминал, триллерРежиссер: Тим Блэйк НельсонАктеры: Эдвард Нортон, Кери Расселл, Тим Блэйк Нельсон, Ричард Дрейфусс, Сьюзен Сарандон, Тай Буррелл, Мелани Лински, Люси ДеВито, Кент Джуд Бернард, Амелия Кэмпбелл, Рендал Ридер, Лео Фабиан, Прюитт Тейлор Винс, Тина Паркер, Ли УилкофПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D2426D7D704E4361CE2999DC1073CECDDB2D2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347662   (139079) от 30.12.2019
-
-Новогодние часы (New Year Clock) 1.3.1 Portable by Deodatto [Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устали ждать Новый год! Эта программа покажет точное время сколько осталось до Нового года. Программа не просто показывает время сколько осталось до Нового года, но и красиво мерцает гирляндой добавляя новогоднее настроение. При желании программу можно настроить показывать поверх всех окон, и тогда всегда на виду будет время сколько осталось ждать. Узнайте через (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C5F46B306E322F9A0FDBC9E758983FD83777F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520926   (139080) от 30.12.2021
-
-Убийцы / Killers (2014) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист-неудачник, оставив тщетные попытки добиться правды, решил восстановить справедливость и наказать подлецов, скрывшихся от закона. Однако на пути мщения ему придется противостоять не только мафии, но и убийце-психопату, который за ним следит.Производство: Индонезия, Япония, Guerilla Merah Films, Nikkatsu Corporation, XYZ FilmsЖанр: Ужасы, боевик, триллер, криминалРежиссер: Кимо Стамбол, Тимо ТьяджантоАктеры: Кадзуки Китамура, Ока Антара, Рин Таканаси, Луна Майя, Рэй Сахетапи, Эрсия Аурелия, Тэнсуи Сакаи, Эпи Куснандар, Мэи Курокава, Тара БасроПеревод: Многоголосый профессиональный (ОККО), любительский двухголосый (DeadSno & den904)Субтитры: АнглийскиеПродолжительность: 02:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B618E5248DFBD94E3DAD5772DB51EE21149093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436078   (139081) от 30.12.2020
-
-IObit Driver Booster Pro 8.2.0.308 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DFE9FE3C9E2BBA3754BFCFC993F5F837DB2556
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195849   (139083) от 31.12.2017
-
-Bohren & Der Club Of Gore - Black Earth (2002) [FLAC|Lossless|tracks + .cue] <Future Jazz, Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Black Earth (8:49)
- 02. Crimson Ways (6:44)
- 03. Maximum Black (7:39)
- 04. Vigilante Crusade (7:32)(   Читать дальше...   )Жанр: Future Jazz, AmbientПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26EF496B2397A40971C13568FC1A9BF9129A0516
 ```
 
 

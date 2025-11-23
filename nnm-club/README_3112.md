@@ -1,3 +1,85 @@
+###  Публикация: 480835   (99306) от 11.04.2012
+
+Andreas Vollenweider - Air (2009) [MP3|320 кб/с]<Electronic, New Age, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Airdance
+    02.Prescious Smile
+    03.Oxygenia & Icarus
+    04.Windseeds
+    05.Milonga Magica (Thematic Improvisatoin)
+    06.World Inside A Grain Of Sand
+    07.Tumbleweed Dreams
+    08.One Breath
+    09.Keep On Dancing (For Heavens Sake!)
+    10.Liebeslied(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0E4163BBC2D493F6E7EDA21DDA4A574542D0E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481309   (99308) от 11.04.2012
+
+[Wallpapers] Wallpaper Sexy Girls 0.4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на рабочий стол.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E1A98867791D6D2BAF27893C541E8A2DF2643F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481545   (99309) от 11.04.2012
+
+Ричард Пратер | Дорогой, это смерть [2005] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман из серии о частном детективе Шелле Скотте.
+Шелл Скотт приехал в Акапулько по своим детективным  делам. И надо же такому случиться - именно здесь собрались гангстеры со всей Америки, а объект его расследования погибает загадочной смертью...Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4893FCA754D17071C6FC678A3FD75E8EE142D7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481529   (99310) от 11.04.2012
 
 Журнал | Кухни & ванные комнаты №12-1 [2011 декабрь - 2012 январь] [PDF]
@@ -6,7 +88,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99310.jpg" />
 </div>
 
 
@@ -30,7 +112,7 @@ magnet:?xt=urn:btih:CC138AFC2D673ABF760885F27A08CF846964D126
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99311.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99311.jpg" />
 </div>
 
 
@@ -54,7 +136,7 @@ Wise Disk Cleaner v7.21 build 478 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99313.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99313.jpg" />
 </div>
 
 
@@ -80,7 +162,7 @@ Wise Disk Cleaner - программа для быстрого и легкого
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99315.jpg" />
 </div>
 
 
@@ -104,7 +186,7 @@ magnet:?xt=urn:btih:106FB729C7F81B15D07447B1EB3AD2B7B548FCC1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99317.jpg" />
 </div>
 
 
@@ -132,7 +214,7 @@ Simple Man - Galactic Prophecy (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99320.jpg" />
 </div>
 
 
@@ -165,7 +247,7 @@ magnet:?xt=urn:btih:1070F48FAE4F547C08BE9201B2765600AEF5AD18
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99321.jpg" />
 </div>
 
 
@@ -189,7 +271,7 @@ VA - Klubnye novinki Vol.63 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99325.jpg" />
 </div>
 
 
@@ -222,7 +304,7 @@ magnet:?xt=urn:btih:719F36395203B65D967D9ECBE148AA41454B8B69
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99327.jpg" />
 </div>
 
 
@@ -250,7 +332,7 @@ VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99328.jpg" />
 </div>
 
 
@@ -283,7 +365,7 @@ magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99330.jpg" />
 </div>
 
 
@@ -307,7 +389,7 @@ magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99333.jpg" />
 </div>
 
 
@@ -331,7 +413,7 @@ magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99335.jpg" />
 </div>
 
 
@@ -364,7 +446,7 @@ Solar Spectrum - Source Energy Creations (2011) [MP3|320 кб/с]<Psychedelic / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99336.jpg" />
 </div>
 
 
@@ -396,7 +478,7 @@ magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99340.jpg" />
 </div>
 
 
@@ -420,7 +502,7 @@ magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99342.jpg" />
 </div>
 
 
@@ -444,7 +526,7 @@ Side Winder - Faith (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99343.jpg" />
 </div>
 
 
@@ -477,7 +559,7 @@ VA - Best Of 2012 vol. 1 (2012) [MP3|320 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99348.jpg" />
 </div>
 
 
@@ -510,7 +592,7 @@ magnet:?xt=urn:btih:7D5940FF58BB811BF30A044A3DF2FDC32D700D05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99350.jpg" />
 </div>
 
 
@@ -534,7 +616,7 @@ magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99352.jpg" />
 </div>
 
 
@@ -558,7 +640,7 @@ VA - Клубные новинки Vol.65 from GvertO (2012) [MP3|320 кб/с]<C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99353.jpg" />
 </div>
 
 
@@ -591,7 +673,7 @@ magnet:?xt=urn:btih:CFD146743A6D862E2F1D138A9C16EE73FA02ACE5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99354.jpg" />
 </div>
 
 
@@ -615,7 +697,7 @@ magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99355.jpg" />
 </div>
 
 
@@ -630,95 +712,6 @@ magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA0C49F1FFE509260679D5DA6EF9091AC8B6CC69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481447   (99356) от 12.04.2012
-
-Synasthasia - Style Collector (2012) [MP3|320 кб/с]<Melodic Death/Thrash/Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaking (3:16)
-02. Beyond The Flames (3:32)
-03. Cave Of The Deceased (3:13)
-04. Dead From Inside (3:44)
-05. The Hidden (3:34)
-06. Falling (3:57)
-07. Out Of This World (3:41)
-08. Heaven Shall Burn (3:43)
-09. Take Away My Soul (2:54)
-10. The Saints (4:09)(   Читать дальше...   )2012Жанр: Melodic Death/Thrash/Power MetalПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8ED32A1E51CB9924363707B079240C5AE99EC9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482056   (99357) от 12.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №14
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99357.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers №14
-Название: Girls Desktop Wallpapers №14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7019BAE38D788C07915CC84D06387A0E3BE403F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482051   (99359) от 12.04.2012
-
-[Wallpapers] Avto Wallpapers №3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99359.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers №3
-Название: Avto Wallpapers №3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F4E331CA15739D6FB18700FFDE8E13A0B93254
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1716539   (111332) от 16.04.2024
+
+VA - Urban Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Funk, Downtempo, Soulful House>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anduze - How To Love A Good Man (Those Guys From Athens Radio Remix) (3:23)
+02. Durty Geeks - Dolomyte (4:05)
+03. Funk Revenge - By Our Side (4:18)
+04. Vito Lalinga (Vi Mode Inc. Project) - Funk In A Min (4:44)(   Читать дальше...   )Жанр: Chill Out, Funk, Downtempo, Soulful HouseПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64EF7ADEF76FC965F13707F710C580EF50E058E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716532   (111333) от 16.04.2024
+
+VA - Jazzy Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Puschnig - Naima (3:46)
+02. Benny Carter - If Dreams Come True (5:49)
+03. Oscar Peterson - Come Dance With Me (2:19)
+04. Dinah Washington - Teach Me Tonight (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7F6999B40CA290FF3349F1EF66C15581D9B733
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716529   (111334) от 16.04.2024
+
+VA - Jazz Dinner Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Café Drechsler - And Now…Boogie! (2:48)
+02. Chet Baker - Let's Get Lost (3:44)
+03. Vienna Art Orchestra - Rem Blues (3:54)
+04. Wolfgang Puschnig - Microphone Veteran (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B278B5E0F5A82248AD5788EB5DEA27680AD24D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716548   (111335) от 16.04.2024
 
 VV & The Void - The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
@@ -6,7 +87,7 @@ VV & The Void - The Cage (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111335.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Erroll Garner - Closeup in Swing & A New Kind of Love (1961, 1963) 1997, Telarc 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111336.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:91061BEC676F3F42325A1233FE49C8EE04898266
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111337.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:326E63FA68CFEA64AD7C62F3EEED5DB142DAEA7C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111338.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ DesktopOK 11.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111339.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ Deviated Instinct - As the Crow Flies (2024) [FLAC|Lossless|WEB-DL|tracks] <Crus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111340.jpg" />
 </div>
 
 
@@ -159,7 +240,7 @@ magnet:?xt=urn:btih:7F93CEEFA2C8B2350B29133F8DAF57E59E6768C8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111341.jpg" />
 </div>
 
 
@@ -183,7 +264,7 @@ IObit Driver Booster Pro 11.4.0.57 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111342.jpg" />
 </div>
 
 
@@ -207,7 +288,7 @@ magnet:?xt=urn:btih:6518D98F9D173DDC207575C7A3E50652C4D28446
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111343.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ magnet:?xt=urn:btih:6BAA9226BB22038F25EF1CC22C796556BBA84570
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111344.jpg" />
 </div>
 
 
@@ -255,7 +336,7 @@ magnet:?xt=urn:btih:4458EC24A89EFC6FDB72973D6967F7807D1A394C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111345.jpg" />
 </div>
 
 
@@ -279,7 +360,7 @@ YT Downloader 9.7.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111346.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ magnet:?xt=urn:btih:C93479553B053A1419FF819AF51142E8A59FD2C7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111347.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111348.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ Nick Cave & Warren Ellis - Back to Black (2024) Original Motion Picture Score [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111349.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ Kevin & JD - 10 From 5 - The Best Of Kevin & JD (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111350.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ magnet:?xt=urn:btih:8027D045248B5C0910464B7AC3B2A70CE015640C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111351.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ VA - Spring Lounge 2024 - Sounds Like Sunshine (2024) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111352.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ Dempsey Crenshaw & Danny Banda - The Blues Brought Me Through (2024) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111353.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ magnet:?xt=urn:btih:E12D6A433B217C6F4AAFB0A94EBAE4895A420A3D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111354.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ Susan Santos - Sonora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111355.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ magnet:?xt=urn:btih:D183FE86C10502B035F15A3D32FD8AB79C2CB30F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111356.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ magnet:?xt=urn:btih:A27B21ED5FA76685646D03AD4F3338BE56604D98
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111357.jpg" />
 </div>
 
 
@@ -576,87 +657,6 @@ magnet:?xt=urn:btih:A27B21ED5FA76685646D03AD4F3338BE56604D98
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB457906F29E6D51F8055E61987A5ECDD1FB7FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716329   (111358) от 15.04.2024
-
-Caru de Souza - Amor, Pele e Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move On (2:54)
-02. Me And My Gin (3:42)
-03. Isolamento (3:48)
-04. Like My Desire (7:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E7057D7C92EF54F263FCA709B42F33B6830AD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716336   (111359) от 15.04.2024
-
-Stonehurst - Wild Visions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medicine (3:37)
-02. Whispers (4:58)
-03. Wild Visions (3:03)
-04. Make Believe (6:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994F79CFA5CB8F6ADD539498C1B7755D52E238B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716334   (111360) от 15.04.2024
-
-Starsailor - Where The Wild Things Grow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Wild (5:35)
-02. Heavyweight (3:12)
-03. After The Rain (2:16)
-04. Where The Wild Things Grow (4:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BF250745EB99F1C931909500BBE77C7CC09A24
 ```
 
 

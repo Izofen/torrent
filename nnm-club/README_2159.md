@@ -6,7 +6,7 @@ Modern Talking - Video Collection (2024) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56499.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Planet VPN 2.8.3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56500.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7E1AAA3B00FB3F98331D7A028188C1FFB5814C0E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56501.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A3F1C967B755D728452BC922BCDCAF856FB8A19D
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56502.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ SIV (System Information Viewer) 5.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56503.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VMware Workstation 17 Pro 17.5.2 Build 23775571 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56504.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4E053CD92D941DF66CBCF253DC557BD6842CE4F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56505.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8FEBB872A1964EF3AB2CEF28A387A414EE481A35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56506.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:9444CC51423A9E23B1985FDC95305B749E552FB2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56507.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:63B165761EEFE7794062B0910F13D5F2A5CC3BED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56508.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:D1FFBD47C53A3C5D26E89485A3E55BD9E2F9EA13
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56509.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:F2901E148EEBC69A487384BCC733ABE2D719BEBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56510.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3593]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56511.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:0ECCD9546AADBA4FAC5ABE220DDEB36BEA9D3D0B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56512.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ SketchUp Pro 2024 24.0.484 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56513.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Adobe Acrobat Reader 2024.002.20759.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56514.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:D8F1331B7DC6168DE1922A0E0A3C0866DC467B62
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56515.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kurokami The Animation / Темная богиня [2009, TV,   23 серий] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56516.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by elchupacabra (14.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56517.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:1862CBE006814ED83D035FCDBB61341538D8080F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56518.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4412]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56519.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:39E426DA56AC448490B14340226B5440D076156C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56520.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Undead Inc. (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56521.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Guitardo, Данил Чечеткин | Гитара 30 за 30 (2024) WEB-DL [A
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56522.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56523.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:5FBD419F8957BBCF71D5F479AFBBC04E082DB499
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56524.jpg" />
 </div>
 
 

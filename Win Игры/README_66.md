@@ -6,7 +6,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3p1_85049/dlc) Repack Let'sРlay [Collect
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19532.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.4_30: 1:50) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19537.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Moroi (2025) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19538.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.1.2)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19539.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sports: Renovations (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19544.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Space Grunts (2016) [En] (1.7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19584.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19593.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Space Grunts 2 (2019) [En] (2.0.1b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19605.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19616.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.0517) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19631.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Scarlet Hollow (2021) [En] (1.2l) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19636.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Starless Abyss (2025) [Ru/Multi] (1.011) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19640.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19646.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dinkum (2022) [Ru/Multi] (1.0.0) Repack FitGirl [Official Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19675.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19719.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19719.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.65p2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19721.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Raft: The Final Chapter (2018) [Ru/Multi] (1.1.03 Beta/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19727.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.7.1_15_e769f28c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19741.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ KIBORG (2025) [Ru/Multi] (202.50.4 30:1:50) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19749.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19749.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19777.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7:2369) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19788.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19812.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19813.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19827.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Post Trauma (2025) [Ru/Multi] (1.05.02) Repack Let'sРlay [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19831.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19831.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Mystery of Myths 2: Mystery of the Fjords / Загадки мифов 2: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19881.jpg" />
 </div>
 
 

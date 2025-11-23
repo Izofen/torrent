@@ -1,3 +1,180 @@
+###  Публикация: 1600301   (158968) от 26.12.2022
+
+Infuse PRO 7.4.10 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 26.12.2022Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8E70862D44CEED9B48AAC3C18983F09A32EDA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676305   (158969) от 12.11.2023
+
+Капитанская дочка (1928) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158969.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной повести Александра Сергеевича Пушкина. Мемуары пятидесятилетнего дворянина Петра Андреевича Гринева, написанные им во времена царствования императора Александра и посвященные «пугачевщине», в которой семнадцатилетний офицер Петр Гринев по «странному сцеплению обстоятельств» принял невольное участие…Производство: СССР, СовкиноЖанр: драма, экранизация, немое киноРежиссер: Юрий ТаричАктеры: Николай Прозоровский, Степан Кузнецов, Иван Клюквин, Ксения Денисова, Борис Тамарин, Вера Стрешнева, Иван Арканов, Николай Симонов, Александр Жуков, Пётр РепнинПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A646C145B9934D32DED3947405C467C353BF472
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676005   (158970) от 12.11.2023
+
+VA - The Best Of House 2023 Part 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snipes X Wesley - Devotion (Original Mix) [02:45]
+02. Michael Beltone - I Dont Need You (Original Mix) [02:56]
+03. Eric Chapter - Kiss Like This (Original Mix) [03:56]
+04. Jay Thompson - End Of Time (Empty Rollers Remix) [02:09](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EBCEFAEBB56BB8F904BD21384282FED128083E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600200   (158971) от 26.12.2022
+
+Ночь хомяков из ада / Night of the Hell Hamsters (2006) WEBRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара невольно вызвала злых духов что привело к появлению одержимых хомяков.Производство: Великобритания, Новая Зеландия / Chameleon Pictures, Nimble PicturesЖанр: короткометражка, ужасы, комедияРежиссер: Пол КэмпионАктеры: Айлса Бэйкер, Бет Чарльзуорт, Пол Кэмпион, Пит Коннелл, Райан Ллойд, Пол О’Нилл, Элизабет Пинто, Стефани РэтклиффПеревод: Двуголосый любительский (Галина Васюкова & datynet)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 00:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2314EA26D7FBFE1FF1577AD95BA16600958A5C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676061   (158972) от 12.11.2023
+
+VA - Heavy Queens (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - Cuz I Love You (3:00)
+02. L7 - Freak Magnet (3:15)
+03. Paramore - Pressure (3:06)
+04. Fanny - Lonesome Pine (UK Edit) (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C067D1AD1893F0AAC6E6C7B6BD1F71CE4CE97A5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600216   (158973) от 26.12.2022
+
+Одержимость / Наваждение / Ossessione (1943) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история любви, адюльтера и убийства в итальянской провинции. Джино, бродягу и кочевника по натуре, рассматривающего любую привязанность как обузу, жизнь сталкивает с Джованной и ее мужем, отвратительным до гротеска стариком. Историю этой парочки можно рассказать с первого взгляда - молодая, красивая, страстная женщина вышла замуж ради денег. Вскоре у Джованны (   Читать дальше...   )Производство: Италия / Industrie Cinematografiche Italiane (ICI)Жанр: драма, мелодрама, криминалРежиссер: Лукино ВисконтиАктеры: Клара Каламаи, Массимо Джиротти, Диа Кристани, Элио Маркуццо, Витторио Дузе, Микеле Риккардини, Хуан Де Ланда, Микеле СакараПеревод: Многоголосый профессиональный (Студия "Акцент"), двуголосый профессиональный (Кармен Видео), одноголосый закадровый (Олег Воротилин)Язык озвучки: русский, итальянскийСубтитры: русские (R5), английские (RHV), итальянские (SDH), японскиеПродолжительность: 02:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A082FD08728CE76520E3560BD507B0BA2AA7FCB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600045   (158974) от 26.12.2022
+
+VA - Space Holidays Vol. 14 (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bellatrix - Synthetic Lifeform (5:51)
+02. Mind Vision - The Last Journey (6:45)
+03. Synthesis - Escape (7:15)
+04. Laser Machine - Fast Attack (4:58)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 03:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0D26C0BD9E60CB92FC377970FDB84EAE20484D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676092   (158975) от 12.11.2023
 
 А.Н. Мурин | Химия несовершенных ионных кристаллов (1975) [PDF]
@@ -6,7 +183,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158975.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:060C07356C3667BC66F5954DC0DB232DAD822026
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158976.jpg" />
 </div>
 
 
@@ -56,7 +233,7 @@ magnet:?xt=urn:btih:022118503FAB223ABD0960E68A7E6FA22B21AB1D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158977.jpg" />
 </div>
 
 
@@ -82,7 +259,7 @@ magnet:?xt=urn:btih:6232E786C89DD26C51DEF7B0114F0D3C37D2DF32
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158978.jpg" />
 </div>
 
 
@@ -106,7 +283,7 @@ n-Track Studio Suite 10.0.0.8209 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158979.jpg" />
 </div>
 
 
@@ -130,7 +307,7 @@ magnet:?xt=urn:btih:2A6064DACA706B2C24180ED339FCA9E6106562DB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158980.jpg" />
 </div>
 
 
@@ -154,7 +331,7 @@ MouseBoost pro for Mac 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158981.jpg" />
 </div>
 
 
@@ -178,7 +355,7 @@ magnet:?xt=urn:btih:62FE652120B99E628D7746433B3D655C732114B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158982.jpg" />
 </div>
 
 
@@ -202,7 +379,7 @@ MotoGP. Этап 18. Гран-при Малайзии. Гонка (12.11.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158983.jpg" />
 </div>
 
 
@@ -226,7 +403,7 @@ Cheap Trick - Live At The Whisky (1977) 4 x CD, Limited Edition, Reissue, 2022, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158984.jpg" />
 </div>
 
 
@@ -253,7 +430,7 @@ magnet:?xt=urn:btih:4D1BE3546E6FAFEC5E36C34342E7ECA491213156
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158985.jpg" />
 </div>
 
 
@@ -277,7 +454,7 @@ Wondershare UniConverter 14.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158986.jpg" />
 </div>
 
 
@@ -302,7 +479,7 @@ Beate Zurwehme ft LDX#40 - Fck Sigrid Kárzer (2022) [FLAC|Lossless|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158987.jpg" />
 </div>
 
 
@@ -326,7 +503,7 @@ Manizha - Колыбель для повзрослевшего (2022) [MP3|320 K
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158988.jpg" />
 </div>
 
 
@@ -353,7 +530,7 @@ VA - Fallen Angels: Bad Girl Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158989.jpg" />
 </div>
 
 
@@ -380,7 +557,7 @@ magnet:?xt=urn:btih:96E34934C1E3A534DF883A2F332F83CC8276576D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158990.jpg" />
 </div>
 
 
@@ -404,7 +581,7 @@ magnet:?xt=urn:btih:0F1C041B3AE72D0082189F1A05C97BA901E9337F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158991.jpg" />
 </div>
 
 
@@ -429,7 +606,7 @@ Dawesome - Kult 1.0.0 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158992.jpg" />
 </div>
 
 
@@ -453,7 +630,7 @@ magnet:?xt=urn:btih:470D5C41AC2C37D0135E35112200F45637CF9FD8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158993.jpg" />
 </div>
 
 
@@ -464,185 +641,6 @@ magnet:?xt=urn:btih:470D5C41AC2C37D0135E35112200F45637CF9FD8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8C4FA8E147A726CC49EA2525825E74F903276E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600144   (158994) от 26.12.2022
-
-Найти сына / Momo (2017) BDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь супругов Андре и Лоранс Приу переворачивается с ног на голову, когда в их доме появляется глухонемой молодой человек по имени Патрик, который неожиданно начинает называть их мамой и папой.Производство: Франция / A l'Origine Productions, Canal+Жанр: КомедияРежиссер: Винсент Лобелле, Себастьян ТьериАктеры: Кристиан Клавье, Катрин Фро, Себастьян Тьери, Паскаль Арбийо, Эрве Пьер, Клодин Винсент, Джинн Роза, Мари Колапьетро, Бенуа Ташуар, Эрик ЛарсенПеревод: Многоголосый профессиональный (1 канал)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0EE2EB35B7606379B6EAEA1A3297D2E9843E37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676137   (158995) от 12.11.2023
-
-Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evile — британская трэш-метал-группа, сформированная в 1999 году в городе Хаддерсфилд, Уэст-Йоркшир.2007 - Enter the Grave
-2009 - Infected Nations
-2011 - Five Serpent's Teeth
-2013 - SkullЖанр: Thrash MetalПродолжительность: 05:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600277   (158996) от 26.12.2022
-
-Рудольф — красноносый олень / Rudolph the Red-Nosed Reindeer (1964) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он родился красноносым. Но ведь это - не беда. Нос его, при том, светился, будто яркая звезда. Обижали все олени красноносого юнца. И в игру не принимали. И дразнили без конца. Но однажды, на кануне Рождества, чтоб в метель не заплутать, попросил Рудольфа Санта путь упряжке освещать. И отныне скачет первым красноносый молодец. Все олени его любят. Наш Рудольф – он (   Читать дальше...   )Производство: США, Канада, Япония / Rankin/Bass Productions, Videocraft International, National Broadcasting Company (NBC)Жанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Ларри РемерПеревод: многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A953993ADE059D226F30C63224B8C430BCE235
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676143   (158997) от 12.11.2023
-
-Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks] <Thrash metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angelus Apatrida - трэш-метал группа из Альбасете, Испания, образованная в 2000 году.2006 - Evil Unleashed
-2007 - Give 'Em War
-2010 - Clockwork
-2012 - The CallЖанр: Thrash metalПродолжительность: 06:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676327   (158998) от 12.11.2023
-
-Первая передача на НТВ. Автомобильная передача (12.11.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто и почему требует доплату у покупателей автомобилей? И что означают «вешалки» на сленге автоперекупщиков?
-Как оформить ДТП с помощью смартфона?
- Стоя на месте с ошеломительной скоростью: может ли домосед-геймер крутить руль лучше опытного контраварийщика?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84279ADFD8D750DB841BA77CAA6917A57A1CDF5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600224   (158999) от 26.12.2022
-
-Jonasu - Cutting Through Noise (2022) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Don't We
-02. Black Magic
-03. On My Mind
-04. All Night & Every Day(   Читать дальше...   )Жанр: DanceПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFBC8E81C48F66BEBB751FEC36E26CFCF8E683D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600281   (159000) от 26.12.2022
-
-Apeaksoft iPhone Transfer 2.0.60 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apeaksoft iPhone Transfer может передавать файлы гибко, чтобы удовлетворить различные потребности пользователей. С безопасностью и высокой скоростью, это делает бесплатной передачу данных между устройствами iOS, ПК и iTunes. Это альтернатива, но превосходит iTunes. Вот что он может сделать для вас. Благодаря высокой скорости 60x вы можете быстро передавать фотографии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.12.2022Разработчик: © 2022 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742810900B9ECB53AF76178B17A474DA88A72ACF
 ```
 
 

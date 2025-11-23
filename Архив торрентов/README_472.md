@@ -6,7 +6,7 @@ Advanced Renamer 4.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104760.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Photo Supreme 2024.2.2.6636 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104772.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ YT Downloader 9.10.12 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104773.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ StartAllBack 3.8.7 build 5150 (DC-03-09-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104777.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ InnoExtractor Ultra 8.1.0.615 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104781.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Firefox Browser 130.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104784.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ JetBrains RubyMine 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104785.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PhotoRoom v5.2.9 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104827.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Process Lasso Pro 14.3.0.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104835.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ GeoGebra 6.0.853.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104867.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ YT Downloader 9.10.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104896.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ RJ TextEd 16.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104897.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ FireAlpaca 2.12.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104958.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WinCatalog 2024.8.0.826 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104980.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ XYplorer 26.30.0400 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104985.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ YT Downloader 9.10.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104989.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Fast Video Cutter Joiner 5.3.0.0 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104996.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Cockos REAPER 7.22 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104998.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Beat Find / Распознавание музыки v1.6.3 Mod by NURIK kz [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104999.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ YT Downloader 9.10.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105001.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (2408) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105003.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ CrystalDiskInfo 9.4.2 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105004.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (0809) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105016.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:5EA039D0BBEE00E9072C81D6BB384AD1B271F53F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105024.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (0803) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105027.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ reaConverter Pro 7.822 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105051.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ TuneUp Utilities 2012 12.0.3010.5 RePack by elchupacabra [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82686.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TuneUp Utilities — пакет утилит для полного обслуж�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82688.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Audio Damage - DubStation 1.5.2 by ASSiGN  [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82689.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Audio Damage - DubStation 1.5.2 by ASSiGN  [английский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82695.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VideoCharge Studio 2.12.0.682 [английский, русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82697.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Audio Damage - Eos 1.1 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82704.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Audio Damage - Eos 1.1 by ASSiGN [английский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82717.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Audio Damage - Eos 1.1 by ASSiGN [английский]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82732.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:14D9DD8C217FDC4B233E5CC276B6814A42E0A8BD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82736.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D649C03022D5E2ED3FE6D3F9E26F2389D883C09E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82741.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:189CD593A923922E369A3DE9B92D327717C3F0CF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82747.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FBD5032EDA043C78324EF318292EDF4479FD4350
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82793.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Libera - Peace (2010) [FLAC|Lossless]<Chorus, Classical, New Age>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82794.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:9B59479029C003379E0D882C0904072B5F11D0B6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82795.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:B011F0F52F9AE9F87A266EB2956D98CFBDCE5FDA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82797.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:D8FC68D17ABDF804DD56DD170773DA78DF255F81
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82800.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:90975A04AB90A3C43E49E29797BE53981419E2F6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82801.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:C5C24E1D870E7B16D124B01955A20F1A1CEF8B89
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82806.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E3FAC16BAB0E38B6B85801CE2FEB28FEA14DD6D1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82811.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:C4EB6E012A90100D99A160B2D054B012442C214C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82812.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 от 16.03.2012 года [русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82829.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Olga Kouklaki - I U Need (2012) [MP3|320 Kbps]<Downtempo, Electropop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82842.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:BAEB230B0390BF235F4F889FCD71BD88EAE8B442
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82844.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:BAEB230B0390BF235F4F889FCD71BD88EAE8B442
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82845.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A2CD6DA6FBB59AB73B3698F4C658306C826C6EC9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82848.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:8981F09A21A6FB10E61094F0FD80FB2D68B5697E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82849.jpg" />
 </div>
 
 

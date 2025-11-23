@@ -6,7 +6,7 @@ Russell Ballantine - Delta Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33243.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Moonset - Dim the Lights and Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33244.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mississippi MacDonald - I Got What You Need (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33245.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mojo Minefield - Watch Your Step! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33246.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mitch Woods - Happy Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33247.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mike Hammar and the Nails - Raised in The Dirt (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33248.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:08A8899D6C49116E53227C8201CE880CA71B76DD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33249.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - 50 лучших хитов, Часть 3 (2024) [FLAC|Lossless|WEB-DL|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33250.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:CE718E78F630824590245DB077AF7131097858B8
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33251.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Beyblade Burst | Бейблэйд Бёрст [2016, TV, 51 эп.] WEB-DL 1080p r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33252.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:5C95E123C66E2B4CDA38372E2C59D640CFF9704C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33253.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:787DC672F018B0D333EDED99DA5FFA6155DE237C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33254.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:98F3B88781903CFAF5675AD94AE5696458DD5D8D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33255.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ WinCatalog 2024.9.0.1223 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33256.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ A Kindling Forest v1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33257.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Beyblade Burst God | Beyblade Burst Evolution | Бейблэйд Бёрст Эв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33258.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - A State Of Trance Year Mix 2024 (Mixed By Armin Van Buuren) (2024) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33259.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Zhandou Wang: Jufeng Zhan Hun 5 | Infinity Nado 5 | Инфинити Надо 5 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33260.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33261.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33262.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - The Best Releases 2024 of Enigma Emotions (By Abstract Moon) (2024) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33263.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Instrumental Piano Universe, Marco Rinaldo, Sexual Music Collection, Sexual Pian
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33264.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:B1FD0F8EDEB645FD797F51B991EB65C258C72F3D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33265.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Romantica De La Guitarra, Academia de Música Sensual - Spa Erótico: Relaxing L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33266.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Erotic Jazz Music Ensemble, Jazz Erotic Lounge Collective, Marco Rinaldo, Sensua
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33267.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:7C0259163A218748EFDF821EE0A496F4E7F39DF1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33268.jpg" />
 </div>
 
 

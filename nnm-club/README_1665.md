@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43645.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:642A715415BE9D6CEC19100CA6FCE22901F9460B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43646.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2E1776E7704E7095032EC7C3A26CA6A20B86CB4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43647.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:71BCF054BC1D932F90BCEEF15FF3D3608CEFF194
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43648.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kaspersky Small Office Security 21.18.5.438 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43649.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Memento Database Pro 5.5.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43650.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A1EB045A44EFA75BBD2823E4169CB75DAE5533A2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43651.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F5FF00D0F01B6E54855393D1987A453E14C7FCFC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43652.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:969735C5789D5372BE5A24A016CBA474B1C47F27
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43653.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - Bravo Hits (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43654.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:143A95BEA42EEE324E543EF57E46DA585CAFADC3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43655.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Music News For Forum vol.022 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43656.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43657.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - American Spirit (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43658.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:7332E50541718859D7457DF090E5C2FA5272C3CD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43659.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:084A1F19EB186FA475BC67794CE12F774E09CE7A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43660.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:084A1F19EB186FA475BC67794CE12F774E09CE7A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43661.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:128588BE8F11E596987158326E7EA0FB2532C4C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43662.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Milk & Sugar Beach Sessions 2024 [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43663.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Feel Good Summer (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43664.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Judas Priest - Rocka Rolla (1974) Reissue, 2024, MNRK Music [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43665.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43666.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Danball Senki W | Little Battlers eXperience W | LBX – Битвы малень
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43667.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ The Chelsea Smiles - Nowhere Ride E.P. (2005) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43668.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Van Morrison - Marin, San Francisco, Sept 71 (2024) [MP3|320 Kbps] <Jazz, Funk, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43669.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Bill Leeb - Model Kollapse (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM \ Electro \
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43670.jpg" />
 </div>
 
 

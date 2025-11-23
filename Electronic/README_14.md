@@ -6,7 +6,7 @@ VA - Chillout for Travel (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31994.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Afro House: Deep Roots (M-Sol Deep Essentials) (2025) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32008.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Milchbar Seaside Season 7 (Compiled By Blank & Jones) (2015) [MP3|320 кб/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32017.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Marcus Koch - Chillscapes Vol.1 (2014) [MP3|320 кб/с] <Downtempo, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32018.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blank & Jones - Chilltronica №5 (2015) [MP3|320 кб/с]<Chillout, Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32020.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aes Dana - Pollen (Dec-07-2012) [MP3|320 кб/с]<Downtempo, Ambient, IDM, Progr
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32048.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Schiller - Sonne (Chill Out Edition) (22 Mar 2013) [MP3|320 кб/с]<Electronic,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32050.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Trance Selected, Vol 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32072.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - This Is Bass 2024 (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32084.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [FLAC|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32290.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Schwarz & Funk - Topas Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32293.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Chillout Winter Session 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, El
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32294.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Christmas Trance (Best for the Year 2025) (Happy New Year 2025) (2025) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32300.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Andain - You Once Told Me (2012) Beatport Deluxe Version [MP3|320 kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32330.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cosmic Ally - Twin Sun (2005) [FLAC|Lossless|tracks + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32410.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Gym & Fitness Anthems 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32725.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Dance Hits Winter Selection (2024) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32726.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kyau & Albert - All in Good Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32828.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ De/Vision - Devolution (Limited Edition) 2CD (2003)  [FLAC|Lossless|tracks + .cu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32835.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Armin Van Buuren - A State of Trance, Ibiza 2024 (Mixed by Armin van Buuren) (20
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32856.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Happy New Year 2025 (Mixed by Edvard Hunger) (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32936.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - The Best Of Suanda Voice 2024 [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33026.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Yuri Sosnin - Travel into Space (2024) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33031.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Yuri Sosnin - New Times (2024) [MP3|320 Kbps] <Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33034.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Apashe - Antagonist Remixes (Part I) (2024) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33124.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ DJ Nibzy feat. Chrissie - Stand By Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Scou
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33131.jpg" />
 </div>
 
 

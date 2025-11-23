@@ -6,7 +6,7 @@ VA - Cupid's Heartbeat Sensational Bossa Nova Music, Romantic Latin Jazz, Brazil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119776.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Soft Lights Romantic Night Jazz & Sensual Flamenco Guitar to Ignite Your Se
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119779.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Smooth Jazz Music Academy - Winter's Warmth Relaxing Jazz with Hot Chocolate (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119781.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tom Waits - The Island Years (1983-1993) (2023 Remaster) [FLAC 24/192|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119803.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Soft Jazz Music, Jazz Music Zone - Vintage Jazz at Twilight (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119813.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Romantic Candlelight Orchestra, Love Music Zone - Candlelit Piano Fancy Romantic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119815.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Avenged Sevenfold - Дискография (10 albums) (2001-2023) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119842.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Pet Shop Boys - Loneliness (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119851.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Anbaric - Generator (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120064.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Gianluca De Palo - My Kind Of Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120097.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Reign of Fury - Studio Albums (4 releases) (2011-2019) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120133.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Hiruy Tirfe - 10,000 Hours (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120243.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Felix Tellier Pouliot - Hometown Zero (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120245.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Scheen Jazzorkester, Cortex & Thomas Johansson - Frameworks (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120248.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Qow Trio - The Hold Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120249.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Jonas Cambien - Maca Conu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120250.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalco
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120256.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Beyond Border - Gathering (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120266.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Kinga Glyk (Kinga Głyk) - Real Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120268.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Arve Henriksen - Touch of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120269.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Matthieu Chazarenc - CANTO III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120270.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ The Fried Seven - Late to the Party (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120275.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Chris Buergi - You Make Me Rock (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120278.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ DB & the Soho Nine-Six - DB & the Soho Nine-Six (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120280.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Friends and Neighbors - Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120281.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120408.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Stats 2.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121455.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Smooze Pro 2.0.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121458.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7FFB4D9453EC5DBBFB15452B9BD68320E20C59FF
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121478.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RogueKiller Anti-Malware 15.14.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121503.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VueScan Pro for Mac 9.8.26 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121509.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ RegCool 1.360 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121510.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ HWiNFO 7.69 Build 5335 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121528.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Firefox Browser 122.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121538.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6A9B6D047D85386495C7738275ECEEE88B58D421
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121549.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Imagine 1.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121550.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ TweakPower 2.049 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121552.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Malwarebytes Windows Firewall Control 6.9.9.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121554.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Process Monitor 3.96 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121580.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ uTorrent Pro 3.6.0 Build 47006 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121582.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Process Explorer 17.05 RePack by KLASS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121585.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SIV (System Information Viewer) 5.75 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121592.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ HDCleaner 2.063 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121594.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Download Master 7.1.1.1727 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121599.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shazam 14.9.0-240119 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121600.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ CCleaner Pro: ПО для очистки 24.01.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121602.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ BlueStacks App Player 5.14.21.1004 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121608.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VueScan Pro 9.8.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121610.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ OCCT 12.1.15 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121611.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ GPU-Z 2.57.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121614.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Psiphon 3 build 181 (21.01.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121619.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PotPlayer 240112 (1.7.22077) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121627.jpg" />
 </div>
 
 

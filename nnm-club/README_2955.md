@@ -1,3 +1,81 @@
+###  Публикация: 480948   (87628) от 10.04.2012
+
+Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паутина лжи (P) [Ru] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87628.jpg" />
+</div>
+
+
+###  Подробнее
+
+С тех пор как незадачливый путник провел ночь в заброшенном отеле, прошел целый год. Но один из агентов ФБР уверен, что дело еще не окончено. В поисках истины он решил лично бросить вызов зловещим загадкам. Помогите ему провести собственное расследование и узнать, что на самом деле происходит в мрачном лабиринте коридоров и комнат! (   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAE181F95D1853A397B17132BD74433EA36A2F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480648   (87629) от 10.04.2012
+
+[Игра] [Android 2.1+] Super Stickman Golf
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шлягер физико-головоломка игра теперь доступна на Android! и бесплатно!
+"Супер-гольф Stickman мой новый Angry Birds!" - MTV
+"Одна из моих самых любимых игр всех времен!" - Toucharcade
+"Эта является полным победителем. Сыграв однажды вы уже не оторветесь". - Slapapp
+"Игра основанная на физике , игра-головоломка с гольф-механик» - Appadvice
+Сенсация мобильных игр теперь доступна и на Android!
+Супер Гольф Stickman не обычная игра .. это на самом деле грандиозная физическая головоломка! Пройди свой ​​путь через более чем 280 уникальных уровней. Используйте все ваши особые способности, чтобы пройти курс, включая липкие шары, катание шаров, воздушные тормоза, нитро и яйца! Вы когда-нибудь хотели, ваши удары прилепали к стенам и потолкам? Вы когда-нибудь хотели заморозить эти досадные опасности - водные препятствия? Может вы хотели чтобы мяч завис в воздухе? Теперь вы можете все это попробовать!2011Жанр: Спорт
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480836   (87631) от 10.04.2012
+
+Organic Loops - Real Strings Vol. 2 Disco Strings by Pete Whitfield (Wav | Rex2 | Stylus RMX)[английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Organic Loops - REAL STRINGS  Vol. 2 Disco Strings - новый набор сэмплов высокого качества, содержит лупы струнных в стиле Disco House от Pete Whitfield. От парящих мелодий до ритмических ударов, а также одиночные аккорды для создания своих собственных прогрессий. Все 196 сэмплов записаны в форматы 24 Bit WAV и REX (темп лупов от 106 до 130 ударов в минуту). Подходящие стили: Deep, Disco, Funky, Pop, Rnb или Hip Hop.Название программы: Organic Loops - Real Strings Vol. 2 Disco StringsЯзык интерфейса: английскийФормат: WAV, REX2, Stylus RMX
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480767   (87632) от 10.04.2012
 
 Твин Пикс: Сквозь огонь / Twin Peaks: Fire Walk with Me (1992) [1080p] Blu-Ray
@@ -6,7 +84,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87632.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87635.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ magnet:?xt=urn:btih:3515D18179F595FD59DB36689857ED8A77969339
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87636.jpg" />
 </div>
 
 
@@ -80,7 +158,7 @@ Autodesk Inventor Professional 2013 (x86, x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87638.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ Inventor помогает:
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87639.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:D93AC53881795A9CA98FD30ED1291F5EB6D52E4A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87640.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:9084AB18503072C46FEB66F93F6BB0802D5FD952
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87643.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ magnet:?xt=urn:btih:909E9B34D11CAD7615694782CD1B34AFF43C08C6
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87648.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ magnet:?xt=urn:btih:30EDFDC86D94B5D67D1685C8A272CBA15FC79CB0
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87649.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ Windows 7 Ultimate AUZsoft Metallic x64 v.12.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87653.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ uTorrentPortable 1.8.2 (build 14458) [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87654.jpg" />
 </div>
 
 
@@ -290,7 +368,7 @@ Adobe Acrobat X Professional 10.1.3 Final [Мульти, есть русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87655.jpg" />
 </div>
 
 
@@ -314,7 +392,7 @@ Adobe Acrobat X Professional - создание профессиональных
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87656.jpg" />
 </div>
 
 
@@ -338,7 +416,7 @@ magnet:?xt=urn:btih:8B4430CA60217B411590A7D27DC580C90DE8E02F
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87661.jpg" />
 </div>
 
 
@@ -362,7 +440,7 @@ magnet:?xt=urn:btih:8B4430CA60217B411590A7D27DC580C90DE8E02F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87662.jpg" />
 </div>
 
 
@@ -386,7 +464,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft Longhorn v2.1[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87663.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ Adobe | Adobe Illustrator CS5. Официальный учебный курс [2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87665.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87666.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87668.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87669.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87671.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87672.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87673.jpg" />
 </div>
 
 
@@ -566,78 +644,6 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2587057017BD8996DFD44E956D66E0908657484C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481057   (87675) от 10.04.2012
-
-Симулятор крана / Kran-Simulator (P) [Ru] 2009
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта игра для ПК представляет собой настоящий симулятор крана и с помощью нее вы сможете почувствовать себя в роли настоящего крановщика. При помощи крана Вам придется строить дома, перемещать грузы и выполнять множество различных задач. За точность и скорость размещения груза в назначенное место игроку начисляются баллы. Благодаря этой игре, вы наконец-то сможете побывать в кабине крановщика.Тип издания: RePackЖанр: СимуляторЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD7D3EDFBB0B4CD7D1CCD53745C26ADD1240AC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480952   (87676) от 10.04.2012
-
-Age of Empires Online (L) [En] 2011
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для любителей стратегий и для «всеядных» геймеров название Age of Empires всегда вызывает восторг и ликование. Игры этой линейки были настоящими настольными приложениями к домашним компьютерам, диски передавались по друзьям и знакомым, соседям и одноклассникам, затирались до дыр. Age of Empires Online – это логичное и совершенно иное продолжение великолепной истории, которое призвано вывести идею AOE на новый уровень.Тип издания: ЛицензияЖанр: MMORTSЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481176   (87677) от 10.04.2012
-
-Нежность / La delicatesse (2011) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87677.jpg" />
-</div>
-
-
-###  Подробнее
-
-В один прекрасный день сказочно обворожительная Натали целует молодого коллегу Маркуса. Без особых на то причин, просто так. И даже не придает этому никакого значения. Но Маркус ошеломлен: случайный поцелуй перевернул его жизнь! Теперь он не может думать ни о ком, кроме Натали. Молодому человеку предстоит завоевать сердце коллеги, которая его почти не замечает…Жанр: Мелодрама, КомедияРежиссер: Давид Фонкинос, Стефан ФонкиносАктеры: Одри Тоту, Франсуа Дамиенс, Бруно Тодескини, Мелани Бернье, Жозефин де Мо, Пио Мармай, Моник Шометт, Марк Китти, Александр Павлофф, Виттория СконьямильоПеревод: ДублированныйПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F11FB5035FAD3E9898215D3B7B0BF7079A6EB5
 ```
 
 

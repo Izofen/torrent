@@ -1,3 +1,99 @@
+###  Публикация: 1520884   (138633) от 30.12.2021
+
+Bellingcat. Правда в мире постправды / Bellingcat. Truth in a Post-Truth World (2018) WEB-DL [H.264/1080p]
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбитый «Боинг», отравление Скрипалей и другие громкие журналистские расследования. Документальный фильм о важности фактчекинга.Производство: Нидерланды, SubmarineЖанр: документальный, история, расследованиеРежиссер: Ганс ПулПеревод: многоголосый профессиональный (The Kitchen Russia)Субтитры: русские (Full), английские (Full)Продолжительность: 01:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D576F119DA81D950F86CC941F667B9BD8F4193C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436243   (138634) от 30.12.2020
+
+Sidify Spotify Music Converter 2.2.0 RePack by F4CG [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sidify Spotify Music Converter - программа поможет без особых проблем снять защиту DRM с ваших любимых треков и плейлистов из Spotify. Говоря проще, вы теперь сможете скачивать любую музыку  из данного сервиса при этом преодолевая ограничения накладываемые защитой типа DRM (digital rights management). Установка проходит быстро, тут проблем нет, однако не стоит забывать, (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51321CDC794EDDDCD8EBC251F992B1376E55869D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348970   (138635) от 30.12.2019
+
+BBC: Французские сады с Монти Доном / Monty Don's French Gardens (2013) DVB (серии 3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие образы вызывает Франция в вашем воображении? Телеведущий Монти Дон, описывая путешествие по этой стране, говорит не только о великолепной архитектуре и людях, но и замечательных садах. Он утверждает, что сад - один из лучших способов понять культуру любой страны. Монти Дон погружает зрителя в очаровательный и чрезвычайно увлекательный мир Франции и делится (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, путешествия, архитектура, ландшафтный дизайнРежиссер: Рэйчел БеллПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CB5053BA50D7815B45D3DD6CCF47BDC39292EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430327   (138636) от 30.12.2020
+
+Фантомас против Скотланд-Ярда / Fantomas contre Scotland Yard (1967) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138636.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз злодей с тысячью лицами решает обложить данью богатейших людей мира, а взамен гарантирует им жизнь. Комиссар Жюв со своими верными друзьями, Фандором и Элен, прибывает в шотландский замок для того, чтобы встать на защиту его владельца и снова попытаться поймать Фантомаса.Производство: Франция, Италия / P.A.C.,Fair Film, Gaumont InternationalЖанр: Комедия, Криминал, ПриключенияРежиссер: Андре ЮнебельАктеры: Жан Маре, Луи де Фюнес, Милен Демонжо, Франсуаза Кристоф, Жан-Роже Коссимон, Робер Дальбан, Андре Дюма, Макс Монтавон, Рита Ренуар, Жан Озенн и др.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DAD11B268CED39E77C19309977BA8FA2212DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196056   (138637) от 31.12.2017
 
 Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -6,7 +102,7 @@ Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138637.jpg" />
 </div>
 
 
@@ -33,7 +129,7 @@ Wise Folder Hider Pro 3.30.105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138638.jpg" />
 </div>
 
 
@@ -57,7 +153,7 @@ magnet:?xt=urn:btih:0084D6541B1D70316D03DEE0FF32F27F067D476B
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138642.jpg" />
 </div>
 
 
@@ -81,7 +177,7 @@ magnet:?xt=urn:btih:AFBFFC236057D4136EF58E1B8AFE03A1AEB2C5F0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138643.jpg" />
 </div>
 
 
@@ -105,7 +201,7 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138644.jpg" />
 </div>
 
 
@@ -131,7 +227,7 @@ Udemy| Создание административной панели на React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138645.jpg" />
 </div>
 
 
@@ -155,7 +251,7 @@ magnet:?xt=urn:btih:1249BB4F73B2E93F4115091E7187DB4D7CBAA4B9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138647.jpg" />
 </div>
 
 
@@ -180,7 +276,7 @@ magnet:?xt=urn:btih:1BA1F8FE4C609E62A1F18791EEA30FC4F6136C5E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138648.jpg" />
 </div>
 
 
@@ -205,7 +301,7 @@ Robert Parker - The Singles 2013-2015 (2015) [MP3|320 кб/с] <Synthpop, Synthw
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138649.jpg" />
 </div>
 
 
@@ -232,7 +328,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) WEBRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138650.jpg" />
 </div>
 
 
@@ -256,7 +352,7 @@ magnet:?xt=urn:btih:9F62C33E6CD7C7FF91132F7900F15117704E42C7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138651.jpg" />
 </div>
 
 
@@ -283,7 +379,7 @@ magnet:?xt=urn:btih:14E3629E65EB31FD18151242587D7CED22E53345
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138652.jpg" />
 </div>
 
 
@@ -307,7 +403,7 @@ magnet:?xt=urn:btih:75842C9D090ED475C13902072E26F14B78D924B9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138653.jpg" />
 </div>
 
 
@@ -333,7 +429,7 @@ magnet:?xt=urn:btih:15E53B9F79BAE73556820145DF28625BD457392A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138654.jpg" />
 </div>
 
 
@@ -357,7 +453,7 @@ VA - Singles Chart Hot 100 Billboard (07 January 2017) (2016) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138657.jpg" />
 </div>
 
 
@@ -384,7 +480,7 @@ magnet:?xt=urn:btih:FF685DDFFD91B84286322229624EC16752228C3E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138658.jpg" />
 </div>
 
 
@@ -408,7 +504,7 @@ magnet:?xt=urn:btih:B3E2825AA7640DC74A8D898841F539666149FA5B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138660.jpg" />
 </div>
 
 
@@ -432,7 +528,7 @@ magnet:?xt=urn:btih:CEBFC35FD572E46664D0988A3BB3E1756DAC67F5
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138661.jpg" />
 </div>
 
 
@@ -456,7 +552,7 @@ magnet:?xt=urn:btih:518D9C0AB7CBD215E06E646DBCF3023DD480A384
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138662.jpg" />
 </div>
 
 
@@ -480,7 +576,7 @@ Drakengard 3 (2014) [PS3] [EUR] 3.41 [CFW / HEN] [Repack / 1.01 / DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138664.jpg" />
 </div>
 
 
@@ -505,7 +601,7 @@ BELOFF [dp] 2019
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138665.jpg" />
 </div>
 
 
@@ -532,7 +628,7 @@ Slimjet 17.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138666.jpg" />
 </div>
 
 
@@ -543,105 +639,6 @@ Slimjet 17.0.3.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D11886E161B69E0B938D33D225660B08E3CF2678
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853656   (138667) от 31.12.2014
-
-Африканское сафари / African Safari (2013) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя вместе со съемочной группой от атлантического побережья Намибии до снегов величественной горы Килиманджаро, вы увидите то, что сложно даже представить: купание гигантских слонов, охотящихся хищников, 15 миллионов летучих мышей разом и даже карабкающихся по деревьям львов. С помощью высококачественного видео уникальная экосистема Черного Континента предстанет (   Читать дальше...   )Производство: Бельгия, США / StudioCanal, Umedia, nWave PicturesЖанр: Документальный, семейныйРежиссер: Бен СтассенПеревод: Многоголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 01:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE2F6AA6FAB28A8F6CD979D1E87A0A4C5119A5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590851   (138668) от 18.12.2012
-
-Библия. Новый Завет. Синодальный перевод [2007] [MP3]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библия – вечная Книга и духовный спутник человечества. Она не знает границ во времени и пространстве и обращается к сердцам людей, говорящих на сотнях языков.
- Перевод Библии на русский язык осуществлялся Санкт-Петербургской, Московской, Казанской и Киевской духовными академиями с 1856 по 1876 год. В основу перевода был положен русский текст Нового Завета, Псалтыри и Пятикнижия, появившийся в результате работы Российского Библейского Общества в 1816-1826 годах. Окончательная редакция осуществлялась Святейшим Синодом и лично митрополитом Московским Филаретом (Дроздовым). Полный текст перевода был опубликован в 1876 году.
- Синодальный перевод является основным текстом Библии для всех православных христиан России.Жанр: христианство, религия, философия, богословие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B79F9C438CCE4A8EBDF9F4DEC11EC2424E759C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087947   (138669) от 31.12.2016
-
-Говард Лавкрафт | Притаившийся ужас (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ Говарда Лавкрафта о бедствии, постигшем селение близ возвышенности Темпест-Маунтин, на которой расположен мрачный и давно необитаемый особняк Мартенсов.
-Особняк стал обителью Затаившегося Страха. О нем среди местных жителей ходят самые необычные и ужасные истории. Герой рассказа, узнав об очередном разгуле смерти в одном из селений из газет, отправляется (   Читать дальше...   )Жанр: Mистика, ужасыПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6320B22482013801E6EC10C60835BE863EC20E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436153   (138670) от 30.12.2020
-
-Notepad3 5.20.915.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Notepad3 - удобный текстовый редактор на базе Scintilla с подсветкой синтаксиса для популярных языков программирования и различными опциями. Этот бесплатный редактор будет хорошей заменой стандартному Блокноту встроенному в Windows. В нем есть много различных функций которых не хватает обычному Notepad. Интерфейс Notepad3 интуитивно понятный, все опции четко структурированы. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339921ADB8E500D3410D6040BF5A953F6E2D24D3
 ```
 
 

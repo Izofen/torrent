@@ -6,7 +6,7 @@ Little Bobby - Dealing from the Bottom of the Deck (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110001.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dango Torres - TBI (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110042.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Johan Farjot & Friends - Caravan Party (2021) 2023, Klarthe Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ John Chambers - Searching (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110048.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Luke Krubeck - Ground-N-Center (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110050.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Houston Person - Legends Of Acid Jazz: Person to Person! & Houston Express (1970
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110053.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ben Webster - Ben Webster (1940-e) 2004, Centurion Jazz [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110055.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lennie Tristano - The New Tristano (1960 - 1962) 2013, Warner [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110058.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ UniverMag - Дети дождя (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110062.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Riotous Brothers - The Riotous Brothers (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110066.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Art Davis - Every Day I Have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110069.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ John Haydock - Steal This Too (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110071.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Brad Puckett - Blue Sky Morning (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110073.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Black Jack 21 Blues Band - Devil's Face So Close (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110076.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Intoxigation Blues Band - Boogie Motel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110077.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Eddie Cotton - The Mirror (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110078.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bert Hillesheim - 12 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110081.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Big Wolf Band - Rebel's Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110087.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Val Starr & the Blues Rocket - To the Blues and Back Again (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110089.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Milk Men - Holy Cow! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110091.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Willow - empathogen (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative pop, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110092.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Yusef Lateef - Atlantis Lullaby: The Concert From Avignon (1972) 2CD, 2024, Elem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110101.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110113.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Head Hunters Blues Band - Back from the Delta (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110116.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Judith Hill - Letters from a Black Widow (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110120.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Deep Six Blues - The Devil's Hand (2024) [MP3|320 Kbps] <Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110134.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60685.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Amazon закрыла в США магазины Just Walk Out, где клие�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60686.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60687.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SpaceX запустила две ракеты Falcon 9 менее чем за ч
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60688.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SpaceX запустила две ракеты Falcon 9 менее чем за ч
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60689.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8E5023D41CD5726BEFE7B6D558A63298DB75B879
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60690.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8E5023D41CD5726BEFE7B6D558A63298DB75B879
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60691.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60692.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:69527898F5CC96A853CD1156F7A0AB9E09ACC95D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60693.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BBC: Гении древнего мира / Genius Ancient World (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60694.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:98E583CB6A0061547FC26160B033E7C7871A13F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60695.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:9B6ABB12CF6FC30CFB9D1AE7B79A72FF98CD2A78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60696.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:AF949826F7A187E50045D61EDCE3792B3991E228
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60697.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C46A8B1F1525D18DAEFDB722505540D3688E6427
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60698.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:13C6A8E6512FB7AB3CE2475FC0473A5C99DA6B9A
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60699.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:FEB5842A49B3206E6CE32BDB4DBB969A9B136D29
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60700.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:B7C079FC44B0799C9D3CE4F3479BBEB99675E422
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60701.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B8CDDA54C97251B38547CC9D6596B2DE7EFB3697
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60702.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:B8CDDA54C97251B38547CC9D6596B2DE7EFB3697
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60703.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Ancient Cities (2023) [Multi] (1.0.2.36) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60704.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ SketchUp Pro 2024 24.0.484 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60705.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:49142DB8F753E22A488FE3C14CF78CA16CA3A90B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60706.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:7EB7848DA67E83A806F075C2BA341133A6B298AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60707.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ New Look: Революция стиля / The New Look (2024) WEB-DL [H.264/1080
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60708.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:FB965D6D8A9C33C237292341A44B30B14CB526F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60709.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:D826843A9CC31C131E401D76E7CE38C8A7CD3C52
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60710.jpg" />
 </div>
 
 

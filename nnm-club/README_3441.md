@@ -1,3 +1,75 @@
+###  Публикация: 1724681   (109148) от 21.05.2024
+
+Чингиз Абдуллаев | Дронго (Книга 49). Осенний мадригал (2024) [MP3, Маркиза]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известного тележурналиста убивают на роскошной даче, стоящей на берегу Каспийского моря. И по закону жанра подозреваются все, кто был в этот момент на даче. Ни у одной из многочисленных версий нет убедительных доказательств. Эксперт-аналитик Дронго понимает: дело зашло в тупик. И… он выдвигает собственную – как всегда парадоксальную и непредсказуемую – версию. Может (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57AA74281C9B5BEA1C202360D39612C6749F4F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724802   (109149) от 21.05.2024
+
+Друзья по колледжу / College Chums (1907) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109149.jpg" />
+</div>
+
+
+###  Подробнее
+
+В парке молодая женщина видит, что ее жених прогуливается с другой женщиной. Она тут же звонит ему по телефону и требует объяснений, и этот чудик не придумывает ничего умнее, чем сказать, что это его сестра (никакой сестры конечно же нет). Она недовольна и настаивает на том, чтобы приехать на встречу с его «сестрой». Пока молодой человек размышляет, как выбраться (   Читать дальше...   )Производство: США / Edison Manufacturing CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Эдвин С. ПортерАктеры: Мисс Эктон, Мисс Антониетта, Эдвард Болден, Кэтерин Гриффит, Мистер Кеннеди, Мистер КертисПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0A70A019EAB4CD5E7520B347A7368BFE46F273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724655   (109150) от 21.05.2024
+
+PhotoRoom 4.9.6 (b1398) Mod by Maximoff [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109150.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B667DDB057A3CB89DEB10DF2AA9DB0520B92825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724809   (109151) от 21.05.2024
 
 PhotoRoom 4.9.6 (b1403) Mod by Maximoff [Ru/Multi]
@@ -6,7 +78,7 @@ PhotoRoom 4.9.6 (b1403) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109151.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:166C7323AB3B71A06EEAFBF3AD9986901E3B5EA5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109152.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Xavier Cugat And His Orchestra - Latin Best (1988) Nippon Phonogram [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109153.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ Joe Pass - Better Days (1970 - 1972) 2022, P-Vine Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109154.jpg" />
 </div>
 
 
@@ -109,7 +181,7 @@ VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109155.jpg" />
 </div>
 
 
@@ -136,7 +208,7 @@ Xavier Cugat - The Original Latin Dance King (1940 - 1957) 2002, Columbia [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109156.jpg" />
 </div>
 
 
@@ -163,7 +235,7 @@ Cistvaen - At Light's Demise (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109157.jpg" />
 </div>
 
 
@@ -190,7 +262,7 @@ Howard Alden & George Van Eps - Seven And Seven (1993) Concord Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109158.jpg" />
 </div>
 
 
@@ -217,7 +289,7 @@ Cthulhuss - Cthulhu Cult (2019) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109159.jpg" />
 </div>
 
 
@@ -244,7 +316,7 @@ magnet:?xt=urn:btih:05749A1D8BBA29200260E7BFACE7DBB50D47E33D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109160.jpg" />
 </div>
 
 
@@ -268,7 +340,7 @@ The Jack - Tribute to AC/DC - Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109161.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:740FE80B7FEC8D76B32CE43E412B8A5C11E47576
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109162.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ Dalton Trance Teleport - Trianta (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109163.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:86B1AE415B5B62D5A86E0A2D4709C7A8D3150773
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109164.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ Michael Quatro - Bottom Line (1981) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109165.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:6329108BAFC51C5BB7DC9E8ECFE3A24B9A284D93
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109166.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:FECECA0EC26C529486BF23FCC02289603498273E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109167.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ VA - Dance Playlist Spring 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109168.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ VA - Trance Spring 2024 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109169.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ Acode - code editor | FOSS 1.10.2 (947) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109170.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:22D37DEF13B1F0FDCF22E689EAC44C8474A13B05
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109171.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ magnet:?xt=urn:btih:6DE37CE2DCDA9A9997D0ABDD38BD8561E3C51C3A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109172.jpg" />
 </div>
 
 
@@ -573,7 +645,7 @@ magnet:?xt=urn:btih:2E5291DAC3A37F16AC05CDCC37357BB15ED66895
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109173.jpg" />
 </div>
 
 
@@ -584,84 +656,6 @@ magnet:?xt=urn:btih:2E5291DAC3A37F16AC05CDCC37357BB15ED66895
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A3D888B207738F008FD3F5966D49D972876A05B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724633   (109174) от 21.05.2024
-
-Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prong — американская грув-метал-группа, образовавшаяся в 1986 году в Нью-Йорке. Коллектив основан вокалистом и гитаристом Томми Виктором, который на протяжении всего существования Prong является единственным его постоянным участником.1987 - Force Fed - Primitive Origins (EP)
-1990 - Beg to Differ - The Peel Sessions (EP)
-1991 - Prove You Wrong
-1992 - Whose Fist Is This Anyway (EP)Жанр: Crossover/Thrash/Groove MetalПродолжительность: 11:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724623   (109175) от 21.05.2024
-
-Cthulhuss - Obliteration of Souls (2022) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Visions Of Yog-Sothoth
-02. The Cave
-03. Hubris Hammer
-04. Die In The Dreams Of Dead(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B9BED4CBA2DCA5B4C52752624426E3F86EF78D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724656   (109176) от 21.05.2024
-
-PhotoRoom 4.9.6 (b1401) Mod by CMAPTOC [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109176.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3231328CA65219D3586C41FF60589FDBDF79452
 ```
 
 

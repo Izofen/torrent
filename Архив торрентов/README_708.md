@@ -1,3 +1,75 @@
+###  Публикация: 1519339   (148483) от 24.12.2021
+
+VueScan Pro 9.7.71 (DC 23.12.2021) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148483.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1A4A91D6DFF9C6AAD93B2CC6E371A1B7176CC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271612   (148493) от 24.12.2018
+
+Wise Hotkey 1.2.3.43 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Hotkey программа от известного разработчика WiseCleaner, представляет из себя панель быстрого запуска. После запуска мы видим панель темного цвета с красивыми иконками, нажимаем на нужную или на пустую и можем добавить файл, папку или сайт, выбираем, что интересует и все. Теперь по сочетании определенных клавиш, можно выполнить запуск программы, открытие папки, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2643924924B5257CA95790151DD68A26BB45AECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519458   (148506) от 24.12.2021
+
+Aiseesoft Mac Video Converter Ultimate 10.2.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Aiseesoft StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572427E39765D5A338C42D3CEC24C13D0DB5C753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087197   (148507) от 26.12.2016
 
 Macsome iTunes Converter 2.1.1 [En]
@@ -6,7 +78,7 @@ Macsome iTunes Converter 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148507.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Microsoft Visual Studio 2019 Professional 16.4.0 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148508.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Cockos REAPER 6.43 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148518.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Geekbench 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148525.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Wolfram Mathematica 11.3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148530.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Movavi Screen Recorder 11.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148534.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Glary Utilities 5.112.0.137 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148537.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Allavsoft Video Downloader Converter 3.26.0.8721 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148545.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:E6C5CD637162F87C617C71D82D67E44C55A9C05F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148550.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ pdfFactory Pro 7.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148555.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Lungo 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148565.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ Aiseesoft Screen Recorder 2.1.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148571.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:457DBCF6E3CF94EDEB88BADCCF0FB7A9E30D1342
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148572.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ IP Scanner Pro 3.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148578.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:45F1AB24A01D5E1DE91BA56000CBFE14CAEB8CB7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148584.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148586.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ iToolab SIMUnlocker 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148587.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ magnet:?xt=urn:btih:B0A687390627C34C4D3049A38DA977795BF6EFE1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148588.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ NETGATE Spy Emergency 11.0.505.0 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148592.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ Spy Emergency - программное обеспечение, которое б
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148601.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ Feeder 4 v4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148604.jpg" />
 </div>
 
 
@@ -527,7 +599,7 @@ MetaImage 1.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148617.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ ImageRanger Pro Edition 1.7.8.1690 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148622.jpg" />
 </div>
 
 
@@ -563,78 +635,6 @@ ImageRanger - программа позволит найти все нужные
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D4DDCB9FBE99A92381559D20185AB75708C779A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589471   (148624) от 15.12.2012
-
-[Wallpapers] Обои для рабочего стола "Авто"
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола "Авто". В архиве.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EAF42059EAF0CBB5E811473653161FD3383CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589626   (148629) от 15.12.2012
-
-Ведьмы четырёх стихий / Switch (2012) HDTVRip [1-6 серии из 6]
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история очень современного ковена (магического клана) из четырех лондонских девиц, занимающихся магией. Они могут оживить кота, стереть память зловредного босса и даже приворожить настоящего мачо. В главных ролях заняты Лейси Тернер («Быть человеком», «Бедлам»), Нина Туссен-Уайт («Доктор Кто»), Ханна Тойнтон («Синдбад») и дебютантка Фиби Фокс. Каждая из четырех ведьм обладает силой одной из стихий – земли, воды, воздуха и огня. Switch – это британский ответ на «Тайный круг».Жанр: Драма, мистикаРежиссер: Доминик ЛеклеркАктеры: Лейсли Тернер, Нина Туссен Уайт, Ханна Тойнтон, Фиби ФоксПеревод: Двуголосый закадровый, профессиональныйОзвучка: Виктор Ерёменко и Ольга ГринтиеваПродолжительность: 6 x ~ 00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969308   (148633) от 26.12.2015
-
-Windows System Control Center 2.5.0.4 Portable by Alecs962 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows System Control Center - пожалуй  лучшая оболочка, объединяющая программы двух авторитетных и плодовитых производителей, удобная и красивая замена пакетам Sysinternals Suite и NirLauncher. Представленный набор служит для самых разнообразных целей и не раз пригодится, тем более, что в силу компактности его легко носить с собой на USB или скачать заново. В зависимости (   Читать дальше...   )Язык интерфейса: Русский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA7781DAB4844F14737DF2D756C22447A2CD276
 ```
 
 

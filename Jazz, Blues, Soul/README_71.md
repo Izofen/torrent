@@ -6,7 +6,7 @@ Eddie Reed Big Band - Hollywood Jump (1997) Royal Big Mac Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106551.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cary St Onge - Been Livin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106552.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cristian Luna & the Tock and Blues - After All, Right Now (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106553.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Ex-Hermanites - The Ex-Hermanites (1957) 2001, V.S.O.P. Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106555.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Milt Jackson - To Bags... With Love: Memorial Album (1954 - 1983) 2000, Pablo Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106556.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dy Karamoon - It's Never the Same (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106566.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Budda Power Blues - Walking Shoes & Thinking Hat (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106568.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Renato Sellani Trio - Grand Piano: The Music Of Michel Legrand (2010) Philology 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106569.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dimitris Loizos - Back to the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106571.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Stan Getz - Four Classic Albums (1955 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106579.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Herbie Mann's Californians - Great Ideas Of Western Mann (1957) 2001, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106582.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ernestine Anderson - Hello Like Before (1977) 1989, Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106639.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Playlist for a Picturesque Retreat That Will Rejuvenate Your Mind, Body, An
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106683.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Lounge Playlist for a Picturesque Retreat to Rejuvenate Your Body and Soul 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106685.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Miles Davis - Miles In Tokyo (1964) 2005, Columbia [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106692.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Funky Summer (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz, Dance>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106693.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Jazz House Grooves Volume 2 (The Finest Jazzy Soulful Chill House Selection
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106694.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Vincent Ingala - Escape With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106704.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - The Afro Lounge Bar Vol.2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106708.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Funky Italian  Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106710.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Leo Parker - Rollin' With Leo (1961) 2009, Blue Note [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106720.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Faze-O - Slow Funk: The Atlantic Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106737.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ray Brown, Monty Alexander, Sam Most - A Ray Brown 3 (1982) 2002, Victor Enterta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106762.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ George Shearing Quintet And Orchestra - White Satin & Black Satin (1957, 1960) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106846.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Simone Kopmajer - Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106868.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Royce Campbell - 6 x 6 (1994) King Record [FLAC|Lossless|tracks + .cue] <Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106906.jpg" />
 </div>
 
 

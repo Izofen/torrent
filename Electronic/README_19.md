@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1198 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37878.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Lovers Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37984.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Autumn Car Music Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38081.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Allie X - Girl With No Face (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Indie P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38082.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blondie - Live In Boston 1978 (2024) HQ Remastered [MP3|320 Kbps] <New Wave, Pun
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38086.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - TikTok Billboard Top 50 Singles Chart (26.10.2024) [MP3|320 Kbps] <Pop, Dan
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38211.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mikhail Catan, Tibetania - Secret Garden (Tibetania Records) (2024) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38260.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Markus Schulz - Global DJ Broadcast Afterdark 2024 (4 Hour Techno Mix) (2024-10-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38266.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - In Search of Sunrise 20 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38301.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Power Music Workout - 2024 Ultimate Fitness Tracks [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38388.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Power Music Workout - Workout Top Songs 2024 - Fall Edition [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38482.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Easy Morning Tunes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38484.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Escape with Romeo - Suspicious Bliss (2024) [FLAC|Lossless|WEB-DL|tracks] <New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38486.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Uplifting Only Top 15: November 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38490.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 2 - Extended Versions (2024) [MP3|320
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38582.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Armada Chill - Winter 2024 [MP3|320 Kbps] <Melodic House & Techno, Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38591.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Anjunabeats Essentials 02 (DJ Mix) (2024) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38692.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Nothing But... Trancetopia Vol. 20 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38695.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Power Music Workout - Xtreme Cardio Mix 40 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38721.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Redux Selection Vol. 11 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38905.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 1 - Extended Versions (2024) [MP3|320
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39006.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - 100% EDM Hits (Best of EDM, Future Rave, House, Electro, Techno, Trance & D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39070.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Ibiza Winter Island 2025 (The Deep-House Edition) (2024) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39073.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Diamond Fitness - Best Songs For Cardio Dance (2024) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39077.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Halloween 2024: Best of Dance, EDM, House & Electro (2024) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39078.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Lazy - F.L.O.Y.D A Chillout Experience (2006) [FLAC|Lossless|image + .cue] <Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39091.jpg" />
 </div>
 
 

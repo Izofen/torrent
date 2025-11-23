@@ -1,3 +1,76 @@
+###  Публикация: 1679529   (137525) от 25.11.2023
+
+Кабаре / Cabaret (1972) HDRip  [МVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по пьесе Джона Ван Друтена.
+Американская певица Салли Боулз развлекает Берлин эпохи Веймарской республики на подмостках кабаре Kit-Kat club. За дверями клуба — политический и экономический хаос, восхождение к власти нацистов, еврейские погромы. Внутри — вечный праздник. Перемены в относительно беззаботную жизнь Салли вносят встреча с Брайаном — англичанином, (   Читать дальше...   )Производство: США / ABC Pictures Corporation, Allied Artists Pictures Corporation, Вavaria FilmЖанр: драма, мюзикл, зкранизацияРежиссер: Боб ФоссиАктеры: Лайза Миннелли, Майкл Йорк, Хельмут Грим Джоэл Грей, Фриц Веппер, Мариза Беренсон, Элизабет Нойман-Виртель, Хелен Вита, Сигрид фон Рихтхофен, Герд ВесперманнПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1936410D3733BB646D1F859A570C9CD5AAE989
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273325   (137526) от 31.12.2018
+
+Маленькая ведьма / Die kleine Hexe (2018) HDRezka studio, AC3 5.1 [hand made]
+
+>>Остальное
+>>Звуковые дорожки и субтитры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая ведьма очень хочет повеселиться на вечеринке в честь Вальпургиевой ночи, но ей всего 127 лет, поэтому она еще слишком молода для такого мероприятия. Вопреки правилам, упрямая девушка тайком пробирается на праздник, но оказывается пойманной. В наказание ведьме поручают выучить все заклинания из великой магической книги за один год и доказать всем, что она (   Читать дальше...   )Производство: Швейцария, Германия / Breaking Glass Pictures, StudiocanalЖанр: Фэнтези, Драма, Комедия, СемейныйРежиссер: Мике ШёрерАктеры: Каролина Херфурт, Аксель Праль, Луис Ворбах, Момо Байер, Сюзанна фон Борсоди, Барбара Мелзл, Каролин Списс, Эвелин Холл, Тереза Аффолтер, Ангелика Бёттигер и др.Перевод: Многоголосый закадровый, профессиональный (HDRezka studio)Продолжительность: 01:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382276D0683A7F4BE9917AC1554FDB2CDA7E9D7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511979   (137527) от 31.12.2021
+
+Хит-Манки / Hit-Monkey (2021) WEBRip  (сезон 1, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC04A47C27F771FD7F07531B8764208E0F62A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349300   (137528) от 31.12.2019
 
 Е. Левашева (ред.) | Поварская книга известного кулинара Д.И. Бобринского (2017) [EPUB]
@@ -6,7 +79,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137528.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:7B3547782E2C59144AEF1BE1E7EB2BE98E8D189B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137529.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:C5F5162350D6F8FC41F1ECDD150A553603C38623
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137530.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:66C543CCAE895FE7CF7794A7904B9FE39BB2C20A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137531.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Teslagrad (2013) [Ru/Multi] (1.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137532.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Viber 9.9.5.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137533.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:42444AD3A46E60646A97DDD88FD0EC547E1DA796
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137534.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ Luminar Neo 1.16.0 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137535.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ magnet:?xt=urn:btih:97295B1661A0AD5A1E5B1777182FF87B7E4241AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137536.jpg" />
 </div>
 
 
@@ -222,7 +295,7 @@ magnet:?xt=urn:btih:E70C7529710FAC83DC9B60AA00F5C88CB6580609
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137537.jpg" />
 </div>
 
 
@@ -246,7 +319,7 @@ magnet:?xt=urn:btih:44F1E8451CE8A9D8E2C8D86B9486BB01CE05BB9A
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137539.jpg" />
 </div>
 
 
@@ -270,7 +343,7 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137540.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ magnet:?xt=urn:btih:9E92943ACBA55A6AF7F1E1CE043FDB8CA6F0A0E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137541.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DLRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137542.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:FDCF3F8CE3E5232876A0F00D52887125768A875C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137544.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ magnet:?xt=urn:btih:B9D18B99ABF8D0EFC8234FF204FD384B23FE4DD3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137545.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ magnet:?xt=urn:btih:BF330E19061E537DAE7A8133F751A352BC8FDFDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137546.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ magnet:?xt=urn:btih:4B88FD38358B48BA188F26C313D02C7729DEE29B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137547.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ NEKOPARA vol.1 (2014) [Full] [Multi] (1.0) License
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137548.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ magnet:?xt=urn:btih:581394CEDF6ADCE205607050091202A4A3CE0AA1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137549.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:9CEE28720CDB5C197A3F47A401C2AF4A891FD3D2
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137550.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ One Commander Pro 3.29.1.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137552.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ magnet:?xt=urn:btih:6E8A4E81AB0AF29D85341BFE6A4A72EE74D6E931
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137554.jpg" />
 </div>
 
 
@@ -553,79 +626,6 @@ magnet:?xt=urn:btih:6E8A4E81AB0AF29D85341BFE6A4A72EE74D6E931
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DE6BD6DE060CF9433036898861C9EA83AA5D4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273212   (137555) от 31.12.2018
-
-Герби Бреннан | Таинственный мир кошек (2018) [FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на долгую историю сосуществования, кошкам, получающим уход и заботу человека, удалось сохранить загадочность и дистанцию в этих отношениях. Автор книги раскрывает роль кошек в культуре и мифологии разных стран и эпох, доказывает наличие у кошек сверхъестественных способностей и заставляет читателя по-новому взглянуть на этих привычных существ.
-«Почему кошка (   Читать дальше...   )Жанр: ЭзотерикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7777FB32CBAD18258546C518CB1F402283FA9F95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250959   (137556) от 31.12.2016
-
-Добро пожаловать или соседям вход воспрещен / Deck the Halls (2006) HDTVRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137556.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком североамериканском городке в канун Рождества впору объявлять военное положение: один из жителей решил украсить свой дом иллюминацией, которую было бы можно видеть из космоса. Это не пришлось по душе сельчанам и особенно его ближайшему соседу. Боевые действия готовы разрушить город. Однако в конце концов противоборствующие стороны открывают для себя истинную (   Читать дальше...   )Жанр: Комедия, СемейныйРежиссер: Джон УайтселлАктеры: Дэнни ДеВито, Мэттью Бродерик, Кристин Дэвис, Кристин Ченоуэт, Алиа Шокат, Дилан Блу, Келли Элдридж, Сабрина Элдридж, Хорхе Гарсиа, Фред АрмизенПеревод: ДублированныйПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7655D364DBF541711BCCB6C5BEF94512B41EF8E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349243   (137557) от 31.12.2019
-
-Эдуард Суровый. Слезы Брайтона (2019) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псевдодокументальный фильм о советской легенде – Эдуарде Суровом, барде, который знаком миллионам благодаря миниатюрам Гарика Харламова в Comedy Club. Кем он был на самом деле? Почему его имя вычеркнуто из истории Советского Союза? И как он оказался на одной сцене с ABBA и Джильолой Чинкветти? Последняя большая премьера этого года — документальное расследование ТНТ, (   Читать дальше...   )Телекомпания: ТНТЖанр: Документальный, комедияРежиссер: Роман НовиковСубтитры: ОтсутствуютПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5475CC048C6AA6E92AE37CA6EBA12AA94025FF
 ```
 
 

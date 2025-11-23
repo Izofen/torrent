@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7676C8C58AD061E45A58928F1167A8686E4F04C2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73070.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73073.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kittie - Дискография [6 Альбомов, 3 Ep] (1999-2011) [MP3|320 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73083.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:6399D271718D8A8F190931D2BE5ABD7E31C1C18C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73090.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C176F99DC788D6F0A64E7E30717C7EF6F432D827
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73091.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E9933FCFAACA5DBBBEE0B77E06763CE5A444B777
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73109.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:8AF378D65A386315F3495D9B6697A0D380012EFE
 >>Новости Клуба
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73121.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8AF378D65A386315F3495D9B6697A0D380012EFE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73122.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:8AF378D65A386315F3495D9B6697A0D380012EFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73128.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:8AF378D65A386315F3495D9B6697A0D380012EFE
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73134.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:695B0241A1C7C369385F2EC8ABA15A2FA53FA619
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73140.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ NNM-Club в социальных сетях - присоединяйтесь!
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73143.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ NNM-Club в социальных сетях - присоединяйтесь!
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73144.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:995D0B5DCDA901248009EE661C2BE7A18A112260
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73145.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Talking Tom & Ben News 1.2.1 Full
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73152.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - No Alternative (1993) [MP3|320 kbps]<Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73157.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:2106923861E054938A3C482168A7D2EF485A8764
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73162.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:F3BF603FFC4DE0ECD85982937AC2B58D2F47A61B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73211.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:F3BF603FFC4DE0ECD85982937AC2B58D2F47A61B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73215.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:B1BF33993A36A5D45351DFE01F3BAE9A256FCA1C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73254.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:4FB7A502DD52E781C52FF32A298931DE5C40BA5A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73260.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:461B1DDFA950D9BEAE994C44E74BA66EB81313EB
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73284.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:ADD13A874C125DEAFE8FDA731974241D1F3E8105
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73295.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Zero no Tsukaima: Futatsuki no Kishi / The Familiar of Zero: The Rider of the Tw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73298.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:D1ACC8DB3347DB16D3DABA276D696FDEE2918C0D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73306.jpg" />
 </div>
 
 

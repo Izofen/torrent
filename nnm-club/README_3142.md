@@ -1,3 +1,75 @@
+###  Публикация: 527156   (100796) от 06.10.2025
+
+Беседы с Богом / Conversations with God (2006) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм описывает историю Нила Дональда Уолша, автора книги «Беседы с Богом». Его путешествие началось после того как он сломал шею в автомобильной катастрофе и потерял свою работу. Ему приходится жить на улице, борясь за жизнь, пытаясь найти работу, знакомясь с новыми людьми и смотря на мир по-другому. В конце концов, обессилев от ударов судьбы, он просит у Бога ответы (   Читать дальше...   )Производство: США / CWG Productions LLC, Esq. Cynthia R. Litman, Spritual Cinema CircleЖанр: драма, приключенияРежиссер: Стивен ДьютчАктеры: Генри Черни, Вилма Силва, Т. Брюс Пейдж, Ингрид Боултинг, Зилла Глори, Абдул Салаам Эль Раззас, Джерри МакГилл, Майкл А. Гурджиан, Мишель Мерринг, Бренна ХаукедальПеревод: одноголосый закадровый (любительский)Продолжительность: 01:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C0A198ED5297AE72214F7DE0BD4E4E68206AF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822321   (100797) от 06.10.2025
+
+Звуковые библиотеки - Bigcitiloops - Ghetto Gospel 4 [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100797.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ghetto Gospel 4» содержит десять самых вдохновляющих индивидуальных сэмплов госпел-музыки. Эта проникновенная музыка — настоящий шедевр среди госпел-сэмплов для нарезки. Эти комплекты вдохновлены такими артистами, как Андре Крауч, Смоки Норфул, Марта Муницци, Кирк Франклин и многими другими.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F8E532BD206FE89C7B38C0F645DFEC546A5C95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 4262   (100798) от 07.10.2025
+
+Персонаж / Stranger Than Fiction (2006) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о жизни Гарольда Крика, налогового инспектора. Гарольд ведёт чрезвычайно монотонную жизнь — встаёт и ложится спать в одно и то же время и даже считает движения зубной щетки, когда чистит зубы. Совершенно неожиданно он начинает слышать голос, который комментирует его действия. Гарольд обращается за помощью к психиатру, но диагноз шизофрения его не (   Читать дальше...   )Жанр: фэнтези, драма, мелодрама, комедияРежиссер: Марк Форстер / Marc ForsterВ ролях: Уилл Феррелл, Мэгги Джилленхол, Эмма Томпсон, Дастин Хоффман, Куин Латифа, Линда Хант, Том Халс, Уильям Дик, Гай Мэсси, Марта ЭспинозаПеревод: Профессиональный (дублированный)Субтитры: нетПродолжительность: 01:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F33C66C4B63760C341F487E5E7A0D2733DF05A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822319   (100799) от 06.10.2025
 
 Пресеты - Goodlight presets - Pack 2 - Black & White [XMP]
@@ -6,7 +78,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100799.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:59293E164EE9D9C737E5518290D9C0DB02ADC6BF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100800.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:897C027C4E786CC46CDC0109B6F3BD86C034140E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100801.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Talisman (2014) [Ru/Multi] (84935/dlc) License GOG [Digital Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100802.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.62) License GOG [Original Soundtrac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100803.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:8DF4E760DDF0354F391B9F0A083C55AA6BD897AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100804.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Fast Video Cutter Joiner 6.9.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100805.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ AnyBurn 6.6 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100806.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:7CDAF1BB2183AC60B20D8522BF135ECF5D42C91C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100807.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100807.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100808.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:4E520F1DCAF1EB561122C85CF3D35638DD677249
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100809.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:2B05E114EB1E4391D40E800995EC4E57962D8CCD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100810.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:C8DCE2DE4648EA3E628C12F237D71A194407097C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100811.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:B0F79BF23397F512E3CA25ABDF075DBCEC0D89C9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100812.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ magnet:?xt=urn:btih:C1C7A67AB985F44BBAF0F9A42A32928911956B9B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100813.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ magnet:?xt=urn:btih:B2D8FA05D6B413A4E4FA10F689AEBA657D6B8C68
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100814.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:5D59887E2D1A5B0F7D1ADAC0BF4075282614388C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100815.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:C3CCA40930880D7D3FC138F265D88456AF2CC80B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100816.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:A8E5EAB8FB4E437ABF71D127EEA38A9062E22323
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100817.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:798F3EC8F326A01C26F0B255CB630CAE69623899
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100818.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:EDC0E6B03CDD2C56401CDBA650EF448719D1A9C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100819.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:C40883C5A6A3EE4FB3E34726F78BBBA1F3ED906F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100820.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:3E095D0649FC9AB507E955C739BEA0D29D3BD458
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100821.jpg" />
 </div>
 
 
@@ -549,78 +621,6 @@ magnet:?xt=urn:btih:3E095D0649FC9AB507E955C739BEA0D29D3BD458
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E73FCA5C4678AC2FDA2B5B3D5DBA12F5FDAE14D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822278   (100822) от 06.10.2025
-
-Джон Диксон Карр | Сэр Генри Мерривейл (Книга 8). Окно Иуды (2025) [MP3, Антон Макаров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одно из лучших дел сэра Генри Мерривейла. Загадка "закрытой комнаты", возведённая в абсолют и отточенная до блеска. Он. выступает в роли адвоката Джимми Ансуэлла, обвинённого в убийстве отца своей невесты. Его застали в закрытой комнате, наедине с мертвецом, на орудии убийства отпечатки его пальцев, рассказанная история выглядит несусветной чушью. И лишь (   Читать дальше...   )Жанр: ДетективИздательство: Азбука-АттикусПродолжительность: 10:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BE23B3727E072321423A605A28F03D23F6759E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822277   (100823) от 06.10.2025
-
-Джон Диксон Карр | Сэр Генри Мерривейл (Книга 7). Смерть в пяти коробках (2025) [MP3, Антон Макаров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три человека обнаружены за столом без сознания, под воздействием несмертельной дазы ядовитого препарата. Четвёртый обнаружен здесь же, но мёртвый - заколот зонтиком. Не ясен вопрос, как был использован яд, - пострадавшие клянутся, что ни у кого из них возможности сделать это не было! Так начинается очередное дело сэра Генри Мерривейла, в котором он опять будет соперничать (   Читать дальше...   )Жанр: ДетективИздательство: Азбука-АттикусПродолжительность: 09:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1659C4AC42F5490B23925A00CD171899BB065F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822276   (100824) от 06.10.2025
-
-Джон Диксон Карр | Сэр Генри Мерривейл (Книга 6). Десять чайных чашек, или Убийство павлиньими перьями (2025) [MP3, Антон Макаров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотой век детектива оставил немало звездных имен – А. Кристи, Г. К. Честертон, Г. Леру и др. В этой яркой плеяде Джон Диксон Карр (1906–1977) занимает самое почетное место. «Убийство в запертой комнате», где нет места бешеным погоням и перестрелкам, а круг подозреваемых максимально ограничен, – излюбленный прием автора. Карр заманивает читателя в сети ловко расставленных (   Читать дальше...   )Жанр: ДетективИздательство: Азбука-АттикусПродолжительность: 10:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7BEA208D1936385B8F75507408D723D458592A5
 ```
 
 

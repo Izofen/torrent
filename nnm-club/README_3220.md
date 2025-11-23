@@ -1,3 +1,81 @@
+###  Публикация: 1758385   (103401) от 02.11.2024
+
+Kristin Korb - Sweet Dreams (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Dreams (3:16)
+02. There Must Be An Angel (4:06)
+03. Here Comes The Rain Again (5:36)
+04. We Two Are One (4:01)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A211D51003F1DC2993777EBF255C804E10529C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758427   (103402) от 02.11.2024
+
+Поедем, поедим! Екатеринбург: Уральский Марс, поедание чебуреков на скорость, пикник на тракторе (02.11.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешественник Федерико Арнальди отправился в Екатеринбург, а оказался на Уральском Марсе! Ведущий запустил тарелки в небо, побывал на детской железной дороге и поработал на картофельных полях. А еще Федерико протестировал аппарат по повышению самооценки, поучаствовал в поедании чебуреков на скорость и устроил необыкновенный пикник на тракторе.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F437E32FE070BBF40958EABC13CC9E03D8FE5A63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758433   (103403) от 02.11.2024
+
+Frank Sinatra - Close To You And More (2002) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close To You [3:37]
+02. P.S. I Love You [4:21]
+03. Love Locked Out [2:42]
+04. Everything Happens To Me [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFA183D54FDFC250EF0C4228D3A304F1B5B9B7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758370   (103404) от 02.11.2024
 
 Christophe Goze - My Kind Of Blue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -6,7 +84,7 @@ Christophe Goze - My Kind Of Blue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103404.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Boney James - Slow Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103405.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103406.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:E69B62FF7DA86FDC7284B77075914FF5C76F80AD
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103407.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ Warren Haynes - Million Voices Whisper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103408.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:65C3F73280CC8D9D95C73FE36A0A9225F2956802
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103409.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103410.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103411.jpg" />
 </div>
 
 
@@ -211,7 +289,7 @@ magnet:?xt=urn:btih:B665E8CC4BEAF8C56A8EA224F40D548EF198F868
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103412.jpg" />
 </div>
 
 
@@ -236,7 +314,7 @@ Rosalie Cunningham - To Shoot Another Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103413.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ Aaron Rimbui - Imani (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103414.jpg" />
 </div>
 
 
@@ -290,7 +368,7 @@ Charles Tolliver - New Tolliver (1977) 2009, BMG [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103415.jpg" />
 </div>
 
 
@@ -317,7 +395,7 @@ magnet:?xt=urn:btih:01C866DAE135F76D2BA9AFC789466378502473ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103416.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ magnet:?xt=urn:btih:7544F604591F18B905F97B314D1CA2C734E73BFF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103417.jpg" />
 </div>
 
 
@@ -366,7 +444,7 @@ magnet:?xt=urn:btih:2F7623F7E6E5C7D5884893644ACFD29331FB61A1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103418.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ magnet:?xt=urn:btih:B9B37AFB943BB9CB7771CCC2FEA39957F11B8220
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103419.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ magnet:?xt=urn:btih:4B670FAE4668476733AC3D447562A4C0C1CD6F97
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103420.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ Brad Smith - Broken Bones And Bullet Holes (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103421.jpg" />
 </div>
 
 
@@ -466,7 +544,7 @@ magnet:?xt=urn:btih:7DD500F18072E64BF0DF769DAFC7C01F16746472
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103422.jpg" />
 </div>
 
 
@@ -493,7 +571,7 @@ magnet:?xt=urn:btih:A34733E9B4FB35F9D107FCCC2831F22525ED4AA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103423.jpg" />
 </div>
 
 
@@ -520,7 +598,7 @@ magnet:?xt=urn:btih:63AC35FDC45CBBF0B804725A6F0B4B73DF8131BC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103424.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ Delusions Of Godhood - Salvation's Withdrawal (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103425.jpg" />
 </div>
 
 
@@ -571,7 +649,7 @@ Avi Rosenfeld & Juan Bach - Bz Dz Purple Snake (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103426.jpg" />
 </div>
 
 
@@ -585,85 +663,6 @@ Avi Rosenfeld & Juan Bach - Bz Dz Purple Snake (2024) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94739EDD30A2FDCAF7E160446884E58E4BBB9B92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758094   (103427) от 01.11.2024
-
-Various Artists - ANA - Metal for Charity Project (2017) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103427.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ana - Ana 07:28
-2. Ana - Holy Diver 04:39
-3. Darkest Sins - Domineer 04:12
-4. Marius Danielsen - Lost in a Dream 04:57(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FF40270256DC8EA9B8C6D510E96E8673CE25D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758218   (103428) от 01.11.2024
-
-Сливки - Заморочки  (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Летняя Москва (саундтрек у к/ф Жара)
-03. Заморочки
-04. Хватит(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E45724493F57B6FA4D657D1D125124144211389
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758264   (103429) от 01.11.2024
-
-Евгений Замятин | Русь (2013) [MP3, Дмитрий Савин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Проза Серебряного Века.
-В сборник включены лучшие произведения Евгения Замятина (1884–1937) – сочный, зримый, кустодиевски живописный рассказ «Русь», произведения о русском Севере («Север», «Африка», «Ёла»). На этом же диске – потрясающая, «надрывная» любовная драма «Наводнение», рассказ о первой, осуждаемой взрослыми юношеской любви «Апрель», притча (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 09:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E1ED97FB038323BAECEF9F8A87DA1EBC516873
 ```
 
 

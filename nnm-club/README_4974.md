@@ -1,3 +1,180 @@
+###  Публикация: 1518537   (154108) от 20.12.2021
+
+SolarFlow - Zodiac (2021) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capricom (Original Mix) (4:00)
+02. Aquarius (Original Mix) (5:20)
+03. Pisces (Original Mix) (4:22)
+04. Aries (Original Mix) (4:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DCA7905661A365E0BF61D449D0A4016436959F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086122   (154109) от 23.12.2016
+
+VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Леонид Утёсов - Всюду вас ожидают друзья (02:32)
+02. Людмила Гурченко - Пять минут (03:32)
+03. Майя Кристалинская - Новогодняя песня (02:10)
+04. Нина Бродская - Русская зима (03:05)(   Читать дальше...   )Жанр: РетроПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113639C44A2D0D8661CA4B2A5DFA2030615F81FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600995   (154110) от 29.12.2022
+
+Джудит Герман | Травма и исцеление. Последствия насилия – от абьюза до политического террора (2021) [MP3, Наталья Карпинская]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это основополагающий текст о понимании людей, переживших психологическую травму. Помещая индивидуальный опыт в более широкие политические рамки, психиатр из Гарварда Джудит Герман утверждает, что психологическая травма неотделима от её социального и политического контекста. Опираясь на своё собственное исследование насилия над детьми, а также обширную литературу (   Читать дальше...   )Жанр: клиническая психология, о психологии популярно, психотерапияПеревод: Элеонора МельникПродолжительность: 15:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485ACB2DDC3931861890FADB4EEBE7BECAE6E8A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676855   (154111) от 15.11.2023
+
+Кристина Милославская | Курс по основам композиции «Истина в пятне 3.0» (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154111.jpg" />
+</div>
+
+
+###  Подробнее
+
+КУРС ПОДХОДИТ ДЛЯ ВСЕХ ТВОРЧЕСКИХ ЛЮДЕЙ.
+ЗДЕСЬ ДАЕТСЯ БАЗА, ПЕРВЫЙ ВАЖНЫЙ ШАГ К СОЗДАНИЮ ЛЮБОЙ КАРТИНЫ.
+
+1 Изучение пятна, основ понимания гармонии и красоты больших форм(   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 07:37:29Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580C608AA9BE569E762487E09C4E1F484B18D789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347233   (154112) от 22.12.2019
+
+Сто к одному (22.12.2019) WEB-DL [H.264] [MP4|1280x720]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D6D1D52AEB3BA2C0B0647FCF801953E5D1E899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518655   (154113) от 20.12.2021
+
+Повешение в Джефферсон-Сити / Pendaison a Jefferson City / Hanging at Jefferson City (1910) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три друга — Джо, Бёртон и Билл — работают в шахтёрском посёлке. Биллу поручено доставить зарплату шахтёрам в отдалённый пункт, и он просит Бёртона сопроводить его. Джо уговаривает Бёртона не идти с Биллом, и на обратном пути с Биллом случается несчастье — он тонет в болоте. Теперь Бёртона подозревают в том, что он утопил Билла и украл деньги шахтёров, и только Джо (   Читать дальше...   )Производство: Франция, Société des Etablissements L. GaumontЖанр: Короткометражный, вестерн, немое киноРежиссер: Жан ДюранАктеры: Жоэ Амман, Гастон Модо, Берт Дагмар, Joaquim Renez, Гюстав Хэмилтон, Раймон ЭмосПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские встроенные отключаемые (Gellard)Продолжительность: 00:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D640FC706882962D382AEB17DEBE37306C35E8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676833   (154114) от 15.11.2023
+
+Юрий Москаленко | Перекрёсток судьбы (Книга 2). Пустышка - 2 (2023) [MP3, Вадим Ерофеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бояре анимэ. Альтернативная история России. Приключения почти простолюдина. Антимаг, но какой-то неправильный. Без войн… просто развитие и жизнь по приколу…Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 07:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5942D6E4C77E106AF998979D3C7CADD81C1822D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601033   (154115) от 29.12.2022
 
 Антон Чехов | Интеллигентное бревно (2022) [MP3, Джахангир Абдуллаев]
@@ -6,7 +183,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154115.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:F4BBEA64968082902A3BA3BFD237FA88FF9DF1DF
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154116.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ magnet:?xt=urn:btih:3EF9307127243D23DE3D4F3E5D2D971BAA41DE46
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154117.jpg" />
 </div>
 
 
@@ -78,7 +255,7 @@ magnet:?xt=urn:btih:5703079A3D4F355CF84B4585A4D8008117224449
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154118.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ magnet:?xt=urn:btih:294CD9DC4D4106CD687351ECD93B1F8057E6EBA6
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154119.jpg" />
 </div>
 
 
@@ -129,7 +306,7 @@ magnet:?xt=urn:btih:28BCDF3D1F8B5EBCDFDAD5031CF6431D155CB052
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154120.jpg" />
 </div>
 
 
@@ -153,7 +330,7 @@ Wipr – Ad and Tracker Blocker 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154121.jpg" />
 </div>
 
 
@@ -177,7 +354,7 @@ magnet:?xt=urn:btih:7D54FE697B7CA7693DF04DAFB996EC6193252C14
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154122.jpg" />
 </div>
 
 
@@ -201,7 +378,7 @@ magnet:?xt=urn:btih:634A23825F208E3D8C7AADAB17742D531FFF776D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154123.jpg" />
 </div>
 
 
@@ -227,7 +404,7 @@ VA - Just Dance 2017 - The Playlist Compilation (2016) [MP3|320 Kbps] <Euro Danc
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154124.jpg" />
 </div>
 
 
@@ -252,7 +429,7 @@ Google Chrome 119.0.6045.160 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154125.jpg" />
 </div>
 
 
@@ -276,7 +453,7 @@ magnet:?xt=urn:btih:D167AC08704EF7A044FBAEFF82457613271449C9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154126.jpg" />
 </div>
 
 
@@ -300,7 +477,7 @@ SolarFlow - Eternal Peace (2020) [AAC|~342 Kbps] <Electronic, Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154127.jpg" />
 </div>
 
 
@@ -327,7 +504,7 @@ magnet:?xt=urn:btih:530AACEE66586FB44E749974D86742F33205066F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154128.jpg" />
 </div>
 
 
@@ -351,7 +528,7 @@ magnet:?xt=urn:btih:85422132FE9E4FBEAA054173E488E90C96EC8545
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154129.jpg" />
 </div>
 
 
@@ -378,7 +555,7 @@ magnet:?xt=urn:btih:397BF5D0C87411858F09C777B6F3F2D8F5CB4699
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154130.jpg" />
 </div>
 
 
@@ -402,7 +579,7 @@ Downie 4 v.4.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154131.jpg" />
 </div>
 
 
@@ -428,7 +605,7 @@ Andre Previn - Jazz Milestones Of A Legend (1955 - 1962) 10CD, 2016, The Intense
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154132.jpg" />
 </div>
 
 
@@ -455,7 +632,7 @@ magnet:?xt=urn:btih:5813E3E79F7581BB44529C1F4E9B47DA4AACE03C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154133.jpg" />
 </div>
 
 
@@ -466,181 +643,6 @@ magnet:?xt=urn:btih:5813E3E79F7581BB44529C1F4E9B47DA4AACE03C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D5F784A2C146FBB13E8BE7660A2404E78B45DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194705   (154134) от 26.12.2017
-
-Журнал | Домашние заготовки. Спецвыпуск №10 (октябрь 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Домашние заготовки" от авторов "Кулинария. Коллекция" - лучшие рецепты к вашему столу! Сборник вкусных, традиционных или оригинальных рецептов для каждодневного меню или праздничного стола. А также полезные материалы и советы, тонкости и хитрости кулинарного мастерства.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C9EBE250A2D01FF37D015EAB6EF01B53313D59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518690   (154135) от 20.12.2021
-
-Lost Circus - Lost Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Shadows
-02. Come To Me
-03. She's A Fire
-04. Ashes In Rain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97EF29EEB3FF3A1EE8B602FCD2530A8E42F9D00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270935   (154136) от 21.12.2018
-
-Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Partita No. 1 in B-flat Major, BWV 825
-02 – Piano Sonata No. 30 in E Major, Op. 109: I. Vivace, ma non troppo
-03 – Piano Sonata No. 30 in E Major, Op. 109: II. Prestissimo
-04 – Piano Sonata No. 30 in E Major, Op. 109: III. Andante molto cantabile ed espressivo(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B685EB01507BEDBF583D93C6E6DACAD775208887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600960   (154137) от 29.12.2022
-
-Loop Mash Up Pro 1.2.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте профессиональную музыку с помощью Loop Mash Up. Это приложение представляет собой мощный сэмплер с множеством циклов и пресетов. Все образцы были созданы профессиональными музыкантами и диджеями. Наслаждайтесь созданием мощных ударов, просто нажав на «pads» и получите мгновенный результат!Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 Music TopiaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0EED179B3CDC31F7F31DCAD8034F4C584E76E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518585   (154138) от 20.12.2021
-
-Contacts Journal CRM 3.1.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Contacts Journal CRM представляет собой мощный инструмент, который превратит ваши деловые и личные отношения: сохранять заметки о важных встречах, создавать пользовательские поля контактов, и возможность приложить важные документы для каждого из ваших контактов. Доступно на Mac, iPhone и iPad, с бесшовной iCloud синхронизацией на всех устройствах.
-До тех пор, пока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 zaal LLCПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC89410525D66B1BD8C2A3D47A1C3B32B0322101
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601021   (154139) от 29.12.2022
-
-Жорж Мельес: Первый волшебник кинематографа / Georges Melies: First Wizard of Cinema (1908-1913) DVDRip (диск пятый)
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается коллекция фильмов Жоржа Мельеса, изданная студией "Фликер аллей" на пяти DVD. Жорж Мельес построил первую в мире киностудию в 1896 около Парижа; оттуда увидели свет фильмы фантастические, сказочные, мечтательные, исторические, фантазийные, мелодрамы, комедии положений - даже эротические фильмы. Вы найдёте здесь образчики всех (   Читать дальше...   )Производство: Франция, StarFilmЖанр: немое кино, короткометражныйРежиссер: Жорж МельесАктеры: Жорж Мельес, Клодель, Octavie Huvier, Андре Мельес, Manuel, Луиз Лагранж, Жак Фейдер, Марта ВинотПеревод: НемойСубтитры: Интертитры в некоторых фильмахПродолжительность: 00:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB50C5CF6642F6CCCDE855FED0E33A4A9C00F7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270893   (154140) от 21.12.2018
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (200) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F923F4679BDA6A0B0246584F62A8217E8EB3C7E
 ```
 
 

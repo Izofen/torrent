@@ -1,3 +1,84 @@
+###  Публикация: 479996   (87373) от 09.04.2012
+
+VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<Романсы>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гори, гори моя звезда (Б.Штоколов)
+ 02. Я помню вальса звук прелестный (Н.Брегвадзе & М.Джабуа)
+ 03. Романс о романсе (В.Пономарева)
+ 04. Нищая (А.Малинин)
+ 05. Ямщик, не гони лошадей (С.Захаров)
+ 06. Сердце на снегу (М.Магомаев)
+ 07. Во глубине сибирских руд (Л.Сметанников)
+ 08. Старый муж (Песня цыганки) (Н.Раутио)
+ 09. Я Вас любил (Ф.Царикати)
+ 10. Ночь светла (Т.Синявская)(   Читать дальше...   )1999Жанр: РомансыПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480232   (87375) от 09.04.2012
+
+[Wallpapers Подборка обоев для рабочего стола] Красивые девушки
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская красота спасет мир
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EAF69F15798CFBA789C88A9BAE4F937C00F54F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480666   (87378) от 09.04.2012
+
+Генезис / Genesis (2004) BDRip [H.264/720p] [PR]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм от создателей знаменитого и невероятно успешного "Микрокосмоса" (1996). Созданный в стиле "Микрокосмоса" и "Птиц", "Генезис" гораздо более амбициозный проект, рассказывающий о происхождении Вселенной и жизни на нашей планете: флоры, фауны и человеческой расы. На создание фильма ушло почти 10 лет. То серьезно, (   Читать дальше...   )Производство: Франция, Италия, Les Films Alain Sarde, Les Films de la Véranda, RAI Radiotelevisione ItalianaЖанр: Документальный, история, природаРежиссер: Клод Нуридсани, Мари ПереннуПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:20:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB971C106308B17080586C1254985D7EDEF91DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479895   (87381) от 09.04.2012
 
 Wolfgang Amadeus Mozart - Requiem in D minor, K 626 Transposition for a string quartet: VA, Quatuor Debussy (1791) /2009/[APE|Lossless]<Classsical>
@@ -6,7 +87,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626 Transposition for a string q
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87381.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ magnet:?xt=urn:btih:DB17F687EB2C616C9E9D83C558DADDE5D0EA0CAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87384.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ magnet:?xt=urn:btih:BF7471E0515A5AFC0BBBD2ECFD0126BFED2CF284
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87389.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ magnet:?xt=urn:btih:BF7471E0515A5AFC0BBBD2ECFD0126BFED2CF284
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87390.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ magnet:?xt=urn:btih:BF7471E0515A5AFC0BBBD2ECFD0126BFED2CF284
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87392.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Brick of Consciousness: Dorian Gray Syndrome. Collector's Edition / Край с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87394.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ magnet:?xt=urn:btih:630E07C49C4569FF51ABFF9B6E4F035BF3E70DF0
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87397.jpg" />
 </div>
 
 
@@ -187,7 +268,7 @@ magnet:?xt=urn:btih:49E57E82D050112DEB716C3A6ADD682C25E94491
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87398.jpg" />
 </div>
 
 
@@ -211,7 +292,7 @@ magnet:?xt=urn:btih:7375952E69C98FB3AA58F2046363124D113188DF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87399.jpg" />
 </div>
 
 
@@ -235,7 +316,7 @@ magnet:?xt=urn:btih:9D8EEC4B7F9F55E054AB9C5964FCC2CB5D72AC69
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87400.jpg" />
 </div>
 
 
@@ -259,7 +340,7 @@ magnet:?xt=urn:btih:614F07EB225F8AF0385D2C5EA181A82CB9198202
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87401.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ magnet:?xt=urn:btih:614F07EB225F8AF0385D2C5EA181A82CB9198202
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87403.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ magnet:?xt=urn:btih:4BB8C0412D3AC64CBDC9D155A09D134174CDA5FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87404.jpg" />
 </div>
 
 
@@ -335,7 +416,7 @@ magnet:?xt=urn:btih:4BB8C0412D3AC64CBDC9D155A09D134174CDA5FD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87405.jpg" />
 </div>
 
 
@@ -361,7 +442,7 @@ magnet:?xt=urn:btih:855AE382ECCB45DCFD4926779D2D555C2B6C0061
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87408.jpg" />
 </div>
 
 
@@ -386,7 +467,7 @@ magnet:?xt=urn:btih:BDCFEFE1CEB1640C7C7FE9693648E4A14FCA226F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87409.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ Comfort On-Screen Keyboard Pro 5.1.4.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87411.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ Comfort On-Screen Keyboard - приложение, отображающее ун
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87412.jpg" />
 </div>
 
 
@@ -466,7 +547,7 @@ magnet:?xt=urn:btih:F0D1E22CF33BCD7F06A0CD6919D945E754A4C419
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87413.jpg" />
 </div>
 
 
@@ -493,7 +574,7 @@ magnet:?xt=urn:btih:83C073ACE51EEA27B3737A8761B5ABB7D4ED0F99
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87418.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ magnet:?xt=urn:btih:C452076C01FD70AB2E2E5DE45FEEC9225A72E0EF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87420.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Aaron Crane: Paintings Come Alive / Аарон Крэйн. Картины ожи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87421.jpg" />
 </div>
 
 
@@ -570,7 +651,7 @@ Tacis (Тасис) | Как разработать бизнес-план [1996] 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87422.jpg" />
 </div>
 
 
@@ -585,88 +666,6 @@ TACIS (Technical Assistance for the Commonwealth of Independent States) — те
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD1AB0058AE4FD733A90A3F3937FB2DDBED5E229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480589   (87423) от 09.04.2012
-
-Scorpions - 2 альбома (1974-1975)  [FLAC 2.0 24/192 | tracks (VinylRip)]<hard-rock, heavy-metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: hard-rock, heavy-metalПродолжительность: 00:37:32
-
-01. Dark Lady
-02. In Trance
-03. Life's Like A River
-04. Top Of The Bill
-05. Living And Dying
-06. Robot Man
-07. Evening Wind
-08. Sun In My Hand(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480278   (87429) от 09.04.2012
-
-Москва потратит миллионы рублей на закупку iPad для чиновников
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87429.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Москве объявлен тендер на поставку более сотни iPad 2 для городских чиновников. Эта партия предназначается для работы руководителей различных департаментов местного правительства с системой электронного документооборота. На этот же год запланирована еще одна крупная закупка планшетов – для руководителей префектур.Департамент информационный технологий Москвы (ДИТ) объявил конкурс на закупку планшетов iPad 2 в числе 110 штук. Начальная цена контракта составляет около 2,9 млн руб.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480569   (87431) от 09.04.2012
-
-Stray Souls: Dollhouse Story. Collector Edition / Заблудшие души. Игрушка. Коллекционное издание (L) [Ru] 2011
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помогите Даниэле в поисках ее мужа, пропавшего при загадочных обстоятельствах. Исследуйте заброшенные здания города-призрака — детский приют, полицейский участок, магазинчик игрушек. Поговорите с обитателями этого странного места и разгадайте все головоломки, чтобы спасти Сэма!Тип издания: ЛицензияРазработчик: Alawar Friday's GamesЖанр: Квест, Логическая, Я ищуЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский (официальная версия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDBF442AE2EEF4E11A9CA3D5594BFE4ADCFF80D
 ```
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 966558   (217315) от 18.12.2015
+
+MultiMan Singstar X-Mas Edition (2015) [PS3] 4.xx [Repack] [Ru/En]
+
+>>Консольные Игры
+>>Тех. раздел Консолей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_217315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний Multiman SingStar Replacement данная версия игрового менеджера отображается в PSN как приложение SingStar официальных прошивок, с этим менеджером вы не засветитесь в PSN мультиманом, но всё равно необходимо использовать ПСН патч, для отключения кастомных вызовов. Устанавливайте и наслаждайтесь безопасным доступом в PSN и игре онлайн.Тип издания: RepackРазработчик: Arch, Lightra1nЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7E70FD35FF58BE4AC77A35E72E605E0AB55DDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400758   (218551) от 24.10.2022
+
+Assassins Creed Odyssey (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.56 / DLC] [Ru/En]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершите настоящую одиссею, отправившись в невероятные приключения в мире, где у каждого решения есть последствия. Собственная семья приговорила вас к смерти, вам предстоит пройти долгий путь от изгоя до легендарного героя Греции и раскрыть тайну своего прошлого. Море и горы находятся в вечном противоборстве в охваченном войной мире, облик которого определили и (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft QuebecЖанр: Ролевая игра, Приключение, ЭкшенЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7ECB74B775D9CF9F666E368CFD1B95BDAF5D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582478   (218563) от 24.10.2022
 
 FIFA 23 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
@@ -6,7 +54,7 @@ FIFA 23 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218563.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218563.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Ghostrunner (2020) [Switch] [USA] 10.2.0  [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219531.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219531.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Tony Hawk's Pro Skater 5 (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [P
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219535.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219535.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Hyrule Warriors: Age of Calamity (2020) [Switch] [USA] 10.2.0 [NSZ / 1.0.1] [Lic
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221385.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221385.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ Tony Hawk's Pro Skater 5 (2015) [Xbox360] [RegionFree] FreeBoot [License] [En] |
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221581.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221581.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Eat Lead: The Return of Matt Hazard (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221737.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221737.jpg" />
 </div>
 
 
@@ -151,7 +199,7 @@ Rise of the Argonauts (2008) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221744.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221744.jpg" />
 </div>
 
 
@@ -175,7 +223,7 @@ Battle Fantasia (2009) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221786.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221786.jpg" />
 </div>
 
 
@@ -200,7 +248,7 @@ Legendary (2008) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221829.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221829.jpg" />
 </div>
 
 
@@ -224,7 +272,7 @@ Iconoclasts (2018) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / 1.15] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221990.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221990.jpg" />
 </div>
 
 
@@ -248,7 +296,7 @@ Iconoclasts (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.15] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222027.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222027.jpg" />
 </div>
 
 
@@ -272,7 +320,7 @@ abgx360 1.0.6 + Offline Files (2012) [Xbox360] [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223050.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223050.jpg" />
 </div>
 
 
@@ -296,7 +344,7 @@ Stormrise (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223248.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223248.jpg" />
 </div>
 
 
@@ -320,7 +368,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора (2010) 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223249.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223249.jpg" />
 </div>
 
 
@@ -344,7 +392,7 @@ Mario + Rabbids - Sparks of Hope (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223985.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223985.jpg" />
 </div>
 
 
@@ -368,7 +416,7 @@ L.A. Noire (2017) [Switch] [EUR] 8.1.0 [NSZ] [License / 1.2] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224497.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224497.jpg" />
 </div>
 
 
@@ -392,7 +440,7 @@ Super Mario 3D All-Stars (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.1.0] [E
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224662.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224662.jpg" />
 </div>
 
 
@@ -417,7 +465,7 @@ Serious Sam Collection (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.1] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224783.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224783.jpg" />
 </div>
 
 
@@ -442,7 +490,7 @@ Ori and the Will of the Wisps (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226450.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226450.jpg" />
 </div>
 
 
@@ -466,7 +514,7 @@ SAW: The Video Game / Пила (2009) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228325.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228325.jpg" />
 </div>
 
 
@@ -490,7 +538,7 @@ X-Men: Destiny (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229414.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229414.jpg" />
 </div>
 
 
@@ -514,7 +562,7 @@ Conan (2007) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229486.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229486.jpg" />
 </div>
 
 
@@ -538,7 +586,7 @@ Car Mechanic Simulator 2021 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.13 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230283.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230283.jpg" />
 </div>
 
 
@@ -562,7 +610,7 @@ Monster Energy Supercross - The Official Videogame 5 (2022) [PS4] [USA] 5.05 [HE
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232154.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232154.jpg" />
 </div>
 
 
@@ -573,54 +621,6 @@ Monster Energy Supercross - The Official Videogame 5 (2022) [PS4] [USA] 5.05 [HE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DDE1BB334A57E0447F83FA7D621DBF8AD9E1D98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552908   (233046) от 25.05.2022
-
-The Sims 4 (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.50 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайте волю воображению, придумывая внешность и характеры своим симам, экспериментируя с их стилем одежды или прическами и определяя, каким ценностям они будут следовать. Стройте отношения, поднимайтесь вверх по карьерной лестнице и живите интересной жизнью, полной ярких и незабываемых моментов. Без усилий постройте дом своей мечты в новом строительном режиме, позволяющем (   Читать дальше...   )Тип издания: LicenseРазработчик: Maxis и The Sims StudioЖанр: Симуляторы жизниЯзык озвучки: СимлишЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85648C8D1F578B46A03308A6B9D340F9876E5DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551042   (235423) от 14.05.2022
-
-EFootball PES 2021 Season Update (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это обновленный выпуск, включающий в себя наиболее актуальные данные о футбольных клубах, составе команд и различных игроках. В представленном дополнении были реализованы функции, одобренные критиками, благодаря чему вы буквально не сможете оторваться от прохождения. Ознакомьтесь с самыми знаменитыми футбольными клубами и завоюйте звание абсолютного чемпиона. Создайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Konami Digital EntertainmentЖанр: Sport (Soccer), SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032477A6627ED98932DD3BB5D3EF21FEACA12ED1
 ```
 
 

@@ -1,3 +1,88 @@
+###  Публикация: 477823   (98560) от 04.04.2012
+
+VA - 538 Hitzone 58 2CD (2011) [MP3|320 кб/с]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98560.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1. Время звучания 01:18:10
+-----------------------------
+01.Coldplay - Every Teardrop Is A Waterfall.mp3audio9.17 MB.mp3
+02.Sak Noel - Loca People.mp3audio8.20 MB.mp3
+03.Adele - Someone Like You.mp3audio10.98 MB.mp3
+04.Pitbull Ft. Neyo, Nayer & Afrojack - Give Me Everything Tonight (Radio Edit).mp3audio9.28 MB.mp3
+05.Racoon - No Mercy.mp3audio6.33 MB.mp3
+06.Caro Emerald - Riviera Life.mp3audio8.00 MB.mp3
+07.Blof - Hou Vol Hou Vast.mp3
+08.Anouk - Down and Dirty.mp3audio7.33 MB.mp3(   Читать дальше...   )2011Жанр: DanceПродолжительность: 02:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F7BDFE2C4F5736D8A7BDF3461493236755534E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822179   (98561) от 05.10.2025
+
+NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98561.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смертельной авиакатастрофы, в результате которой четверо юных братьев и сестер оказываются запертыми в глубине колумбийских тропических лесов, разворачивается драматическая спасательная операция, объединяющая следопытов-аборигенов и военных в гонке со временем. Впервые создатели фильма предлагают нам эксклюзивный рассказ об этой невероятной реальной истории (   Читать дальше...   )Производство: США, Великобритания, Перу, Колумбия / Demolition Films, Lightbox, Little Monster Films, National Geographic Documentary Films, Lightbox, Pacha Films, Senal ColombiaЖанр: документальный, катастрофа, спасение, расследованиеРежиссер: Джимми Чин, Хуан Камило Крус, Элизабет Чай ВасархелиПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A299F4F78D4CF0094F4A67797022DA7FA078E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478245   (98562) от 04.04.2012
+
+[Wallpapers] Desktop Wallpapers №1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98562.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №1
+Название: Desktop Wallpapers №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE679129D4BDAFFF7FE74C7E10E19B0A1355AAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822175   (98563) от 05.10.2025
 
 Warhorse - Live At Woods (2025) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
@@ -6,7 +91,7 @@ Warhorse - Live At Woods (2025) 2xCD, Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98563.jpg" />
 </div>
 
 
@@ -36,7 +121,7 @@ magnet:?xt=urn:btih:19A2DE95ACBA1B0E44141EAE983C95A1AA84C969
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98564.jpg" />
 </div>
 
 
@@ -60,7 +145,7 @@ magnet:?xt=urn:btih:EEFA4CB0E9CE0AC1D3C1C296689AB0DB5249575A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98565.jpg" />
 </div>
 
 
@@ -87,7 +172,7 @@ magnet:?xt=urn:btih:75B591DD308FF10D6D6A536178DB86ACFDC26932
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98566.jpg" />
 </div>
 
 
@@ -113,7 +198,7 @@ magnet:?xt=urn:btih:3DB4E4A33408DED96AA8E01318D7430E9C6D2851
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98567.jpg" />
 </div>
 
 
@@ -140,7 +225,7 @@ Vanced Tube v5.5.80.103 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98568.jpg" />
 </div>
 
 
@@ -164,7 +249,7 @@ magnet:?xt=urn:btih:DCDADCAE49549C43E8D6C24E0F8DC8C4F7BBBD89
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98569.jpg" />
 </div>
 
 
@@ -192,7 +277,7 @@ Black Messiah - The Final Journey (2012) [FLAC|Lossless]<Symphonic Black, Folk, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98570.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98570.jpg" />
 </div>
 
 
@@ -225,7 +310,7 @@ DJ Boyko - NO SLEEP! Episode 191 (30 марта 2012) [MP3|320 кб/с]<Electro 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98571.jpg" />
 </div>
 
 
@@ -258,7 +343,7 @@ magnet:?xt=urn:btih:9069B6B820DCFFFF9A8B56E9400752680C2D8986
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98572.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98572.jpg" />
 </div>
 
 
@@ -282,7 +367,7 @@ Windows 11 (v25h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98573.jpg" />
 </div>
 
 
@@ -309,7 +394,7 @@ magnet:?xt=urn:btih:1EC97E2D88111595985B1ACEB0FABD070AB0840F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98574.jpg" />
 </div>
 
 
@@ -337,7 +422,7 @@ Windows 11 (v25h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98575.jpg" />
 </div>
 
 
@@ -364,7 +449,7 @@ magnet:?xt=urn:btih:17FE78C3150F37F7D44E58E890E5260E2F203154
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98577.jpg" />
 </div>
 
 
@@ -388,7 +473,7 @@ magnet:?xt=urn:btih:06EE209B28D97A38C75BA125DFEE7BFEACE3F83B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98579.jpg" />
 </div>
 
 
@@ -413,7 +498,7 @@ Titan Quest II (2025) [Ru/En] (0.2.0-public.102611+win.1879) Repack Let'sРlay [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98581.jpg" />
 </div>
 
 
@@ -437,7 +522,7 @@ magnet:?xt=urn:btih:A122EC0E948DBE7E344320BEADE8A59F2B7EC870
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98582.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98582.jpg" />
 </div>
 
 
@@ -463,7 +548,7 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98583.jpg" />
 </div>
 
 
@@ -487,7 +572,7 @@ Hopelezz - Black Souls Arrive (2012) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98584.jpg" />
 </div>
 
 
@@ -520,7 +605,7 @@ Kitchen Timer / Кухонный мульти-таймер v5.2.2 GP Mod by Alex
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98585.jpg" />
 </div>
 
 
@@ -545,7 +630,7 @@ magnet:?xt=urn:btih:C2C1FAA4E602417854075C43EE87A1756FCA2A56
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98587.jpg" />
 </div>
 
 
@@ -569,7 +654,7 @@ Carter Faith - Cherry Valley (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98589.jpg" />
 </div>
 
 
@@ -596,7 +681,7 @@ Lemongrass - Journey Backwards (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98591.jpg" />
 </div>
 
 
@@ -610,81 +695,6 @@ Lemongrass - Journey Backwards (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:439611E1E0C8E26D5A1FBF1EDCE85B11CE0F1DF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477749   (98592) от 04.04.2012
-
-Тяжелый вторник / Tuesday (2007) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три группировки грабителей решают обокрасть один и тот же банк в один и тот же день. Кому же из них посчастливится уйти с наживой, а кому отвечать по полной за совершенное преступление?..Жанр: Боевик, Триллер, КриминалРежиссер: Саша БеннеттАктеры: Филип Гленистер, Эшли Уолтерс, Кристиан Солимено, Кевин МакНэлли, Джон Симм, Кейт Магован, Кирсти Митчел, Линал Хафт, Алекс МакКвин, Дилан Браун, Эмил Марва, Мик Барбер, Ричард Браун, Вероника Браун, Дэвид Гарри, Бет Годдар, Роджер Лэйтон, Джеймс Миллман, Джонатан Парсонс, Дэвид Гарри, Энди Коуди, Пол Форнел, Найджел Блисс, Джим Александр, Брайан Босли, Делл ТейлорПеревод: Двуголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822131   (98593) от 05.10.2025
-
-Taylor Swift - The Life of a Showgirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fate of Ophelia [00:03:46]
-02. Elizabeth Taylor [00:03:28]
-03. Opalite [00:03:55]
-04. Father Figure [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB95FE375DDECD0EE6B590A098035B1890EF397D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478048   (98594) от 04.04.2012
-
-Журнал | Вяжем сами №7 (апрель 2012) [JPEG]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция модной женской одежды, выполненной на спицах и крючком: жилеты, болеро, пуловеры, жакеты, платья, а также сумочки – красиво, романтично, современно!Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841408AC9DFAE884B9D7E6722C2EA86256013C94
 ```
 
 

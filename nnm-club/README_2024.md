@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52989.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Venise - The Body Trip (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52990.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Calm Horizons 1: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52991.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:08C0990E5496B895C519FB2ED3846D7D9901A2E7
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52992.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:25A249995C89E7E6BA0E20F83AFFE2BD6BDB3FED
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52993.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:EFC24F3B1A0D6506864C87285F30DA80E769DD5E
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52994.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Connolly Hayes - Remember Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52995.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ BAND-MAID - World Domination Tour at Zepp Tokyo (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52996.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:06A467652BEEE43A06520F015B5352425FB67609
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52997.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:05E0D91D4FE29C9FC5107FC294C0CA610EF788C3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52998.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:0A0150B020A5141383BDD8A5656FF6EEEDDB1978
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52999.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - DJ Hits Vol. 58 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53000.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Riff Kitten - Chaos Parade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53001.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:364B279798BA1B874451636F414874F4927D76BC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53002.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Elegant Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53003.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C4CDD803FCEA1824C9C109DC66B8FEBB45478E76
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53004.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:6CDB51CE020A0A9C1B548DE2E7148EDC658A2C47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53005.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Led Zeppelin - Remasters (1990) Japanese Edition, 2 x CD, Compilation, Reissue, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53006.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:8D9853180FFA715664535CC107803A3064D68B4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53007.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ BitTorrent Pro - Torrent App 8.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53008.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ PotPlayer 240509 (1.7.22233) (unofficial) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53009.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Telegram Desktop 5.1.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53010.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ EditPlus 6.0.0 build 0632 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53011.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.3.0 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53012.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ ActivePresenter Pro Edition 9.1.5 (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53013.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:894E7A8247F9DD088836B9E36AC744524EE868F8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53014.jpg" />
 </div>
 
 

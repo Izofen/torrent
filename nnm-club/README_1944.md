@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50899.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Metal Gear Rising: Revengeance (2014) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50900.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:193D91A3B45FA5C0C873E0A176A5AD39F525C3F3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50901.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50902.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Steinberg - Cubase Pro 13 13.0.41 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50903.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D2270EA5D215B67629DB2239995DC66FBE611A0B
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50904.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D2270EA5D215B67629DB2239995DC66FBE611A0B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50905.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50906.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ CCleaner Pro: ПО для очистки 24.13.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50907.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:CAC607E236E78CAB71740EE6BF153296594CE98C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50908.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:22E76B6A06E5D8DA111BE3B1B1DA30FC109F79ED
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50909.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ MotoGP 24 (2024) [Multi] (1356129) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50910.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:500BD21E9C08AE4B9ECCAA8F5B17B981FC235ECC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50911.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:49CEA1DE1BA690575FB59FD524C1955A2C107496
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50912.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:F83CCC933634444F493EF4514365C346B8C3FAB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50913.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:DC1F3F94751820E50B08CB09783882884A6AAE0E
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50914.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:D2BC7C5CE903275A0A79FDFC968D954B68EA4422
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50915.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50916.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:4CF1148C3AD87BF188EF824B45A3D37689C3F751
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50917.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F110EB25D4E56B362E7262A034D883BB8258730D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50918.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:AAC47C3408F62B80712CC3314ECA0AC1126B9B35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50919.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:B248F48B1E160DD592E3C08C34EC83DA4458298E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50920.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:7C2DE4A59531219E3B1FB51FA2E9ADBE66FFACA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50921.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:EF1A6DBD8F1EEBBAEB2C8C79E63BFDFB291D57E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50922.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:7FFC741E22B03463D7EAC9FFA6273C9F0BCBBAA9
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50923.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Circuit Superstars (2023) [Ru/Multi] (1.6.2/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50924.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1709368   (112840) от 24.03.2024
+
+Александр Воропаев | На дорогах четырех королевств. Том 1 (2024) [MP3, Николай Бырев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поездка двух товарищей в Приэльбрусье оборачивается неожиданным приключением. Но то, что их ожидает, не обещает быть приятными. Они попадают в фантастический и жестокий мир Восточного Предела.Жанр: Альтернативная история Боевая фантастика Героическое фэнтезиИздательство: ЛитРесПродолжительность: 15:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5118022B431B7B52207882C85782B9906C88A579
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709344   (112841) от 24.03.2024
+
+Чингиз Абдуллаев | Дронго (Книга 76). Факир на все времена (2024) [MP3, Дмитрий Чистяков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий российский бизнесмен убит в отеле на турецком побережье Черного моря. Никто из тех, кто был в этот вечер в гостях у погибшего, на роль убийцы не подходит, к тому же у всех – железное алиби.
+Эксперт-аналитик Дронго невольно вовлечен в расследование, и именно он обнаружил следы убийцы. Но следы – это еще не сам преступник, тот где-то рядом и хладнокровно (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C873F98605646BC81CDC8D007D897A6D7D85EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709331   (112842) от 24.03.2024
+
+MotoGP. Этап 02 из 22. Гран-при Португалии. Спринт (23.03.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112842.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 марта 2024, суббота. 18:00 МСК. Этап 2, Портимау. Гран-при Португалии. Спринт (12 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726BDECFF803F64F390A909D87C2459C98A79908
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709436   (112843) от 24.03.2024
 
 StaxRip 2.37.3 Portable [En]
@@ -6,7 +79,7 @@ StaxRip 2.37.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112843.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:68CC2A41A5619E7BA7DC779EF8FA417FE008E658
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112844.jpg" />
 </div>
 
 
@@ -58,7 +131,7 @@ magnet:?xt=urn:btih:6BB40223988F5C736D123901D1B04784473E857D
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112845.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ magnet:?xt=urn:btih:6F23E95821560DB5785D9BA8907E758BC72E34F2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112846.jpg" />
 </div>
 
 
@@ -107,7 +180,7 @@ magnet:?xt=urn:btih:86C28DBA9773AF4EFEDF09FA5E21DA4A555DC55B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112847.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112848.jpg" />
 </div>
 
 
@@ -158,7 +231,7 @@ Waveshaper - A Void Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112849.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ Privacy Eraser Free 6.5 Build 4875 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112850.jpg" />
 </div>
 
 
@@ -210,7 +283,7 @@ Therion - Leviathan III (Producers Edition) (2023) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112851.jpg" />
 </div>
 
 
@@ -237,7 +310,7 @@ Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112852.jpg" />
 </div>
 
 
@@ -264,7 +337,7 @@ magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112853.jpg" />
 </div>
 
 
@@ -291,7 +364,7 @@ magnet:?xt=urn:btih:94821FA8F2541846668078D3CE7EF4C1339EE180
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112854.jpg" />
 </div>
 
 
@@ -315,7 +388,7 @@ Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112855.jpg" />
 </div>
 
 
@@ -342,7 +415,7 @@ Sonny Clark - The Complete Blue Note Sessions (1957 - 1962) 6СD, 2023, Mosaic R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112856.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Bea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112857.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ Aktarum - Trollvengers (2022) 2024 Reissue, Troll Studios  [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112858.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ Aktarum - Ragnatroll (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112859.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112860.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112861.jpg" />
 </div>
 
 
@@ -504,7 +577,7 @@ Aktarum - Game of Trolls (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112862.jpg" />
 </div>
 
 
@@ -531,7 +604,7 @@ Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Bl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112863.jpg" />
 </div>
 
 
@@ -558,7 +631,7 @@ Menhir - Buchonia (1998) EP Reissue, 2004, Perverted Taste [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112864.jpg" />
 </div>
 
 
@@ -585,7 +658,7 @@ Menhir - Die ewigen Steine (1997) Reissue, 2003, Perverted Taste [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112865.jpg" />
 </div>
 
 
@@ -599,84 +672,6 @@ Menhir - Die ewigen Steine (1997) Reissue, 2003, Perverted Taste [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE289EC30BDD87699AF61729382D15E57023C424
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709127   (112866) от 23.03.2024
-
-Menhir - Ziuwari (2001) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wotans Runenlied
-02. Die Letzte Schlacht
-03. Herminafrieds Klage
-04. Das Verborgene Reich(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C3D9CE6EA202C54BBA2926342E90CB33681463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709124   (112867) от 23.03.2024
-
-Menhir - Thuringia (1999) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Die Kelten
-03. Schwertes Bruder
-04. Thuringia(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1A686D15A5E2B41E430FF06FB089DA9133D644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709104   (112868) от 23.03.2024
-
-Журнал | SALON-interior №04 (302) (2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51093ED1BA78517C38D2B63ADA10C4036B53579C
 ```
 
 

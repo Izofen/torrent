@@ -1,3 +1,78 @@
+###  Публикация: 1692604   (122330) от 17.01.2024
+
+Sound Storm - Vertigo (2016) [FLAC|Lossless|image + .cue] <Power Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo
+02. The Dragonfly
+03. Metamorphosis
+04. Forsaken(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B38F84971E24EB1A9F671F44709F64CA35D485
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692561   (122331) от 17.01.2024
+
+Color Folder - Custom Icons for Mac 3.8 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122331.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью Color Folder вы сможете задать любой внешний вид выбранной вами папкиТип издания: macOS SoftwareРелиз состоялся: 03.01.2024Разработчик: © 2022 elimisoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD872A4560195F2C4FA30291E8444CB3B39D6C4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692750   (122332) от 17.01.2024
+
+GM CHM Reader Pro for Mac 2.5.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122332.jpg" />
+</div>
+
+
+###  Подробнее
+
+GM EPUB Reader — это полнофункциональное приложение для чтения электронных книг с простым и красивым интерфейсом и хорошим качеством чтения.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E4C431686CEADD15B9B2E07384302CD52A24E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692638   (122333) от 17.01.2024
 
 Вадим Лоткин - Тапер (1997) [FLAC|Lossless|image + .cue] <Шансон>
@@ -6,7 +81,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122333.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Lilith’s Black Lotus - Triple Six Revolution (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122334.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:2A865901FD2DCB1355D649266316D7FDF49BA016
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122335.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ Crossfire - Switch to Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122336.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122337.jpg" />
 </div>
 
 
@@ -138,7 +213,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122338.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ magnet:?xt=urn:btih:583B17F0D3A121D470484583DCA22C28EF7EB266
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122339.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ PaintCode 3 v.3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122340.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ Algid - Catasterismi (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122341.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ Wattagio 1.13.1 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122342.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Greg Puciato - FC5N (2024) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Mathcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122343.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ Bagual - Inhumar (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Psych/Stoner/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122344.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ Freddie Hubbard - Music Is Here (1973) 2022, Wewantsounds [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122345.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ Ran Blake Trio - Sonic Temples (1998) 2CD, 2001, GM Recordings [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122346.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ Blood Lightning - Blood Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122347.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ Chrysis - Borderline (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122348.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ magnet:?xt=urn:btih:8E65E9D2A941854749A13FF38DD1AD4FFE02EF37
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122349.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ VideoProc Converter 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122350.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ magnet:?xt=urn:btih:15C38524631A7DEE2CE8033A832F0CBA281A7FF5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122351.jpg" />
 </div>
 
 
@@ -495,7 +570,7 @@ Fort Firewall 3.10.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122352.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ Battery Indicator for Mac 2.17.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122353.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ magnet:?xt=urn:btih:CC1D8325C07B377E1A549B456D642FB058411AD5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122354.jpg" />
 </div>
 
 
@@ -567,7 +642,7 @@ magnet:?xt=urn:btih:6D973DAF2ED7D8AA30AFE0F4CFFA378CFF0F4578
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122355.jpg" />
 </div>
 
 
@@ -581,79 +656,6 @@ magnet:?xt=urn:btih:6D973DAF2ED7D8AA30AFE0F4CFFA378CFF0F4578
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48B5671FA4C6403A1B53A6FC2AEBD6719E004BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692541   (122356) от 17.01.2024
-
-Unclutter 2.2.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
-Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2024Разработчик: © 2024 Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F81B2260C6BF9B85C0C8F4AF68712209BCF2F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692732   (122357) от 17.01.2024
-
-Aiseesoft Mac FoneTrans 9.2.28 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это программное обеспечение для передачи и управления Mac и iOS, может передавать контакты / фотографии / песни / видео и многое другое между устройствами Mac и iOS. Это позволяет вам редактировать плейлист / подкасты быстро и эффективно. Ваша цифровая жизнь может управляться проще.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2023Разработчик: © 2023 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B6E494BD4F12CF601884B6C5257B064E42E6BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692557   (122358) от 17.01.2024
-
-Чингиз Абдуллаев | Дронго (Книга 48). Крах лицедея (2024) [MP3, Маркиза]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный преступник Петр Дудник скрывается от правосудия где-то в Европе. За ним тянется такой кровавый след, что его ищут лучшие сыщики Интерпола. Да не могут найти. Дудник сменил фамилию, сделал пластическую операцию на лице и даже изменил отпечатки пальцев. Ни один человек в мире не знает, как он выглядит на самом деле. Чтобы его найти, нужен суперпрофессионал, (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 07:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9332CEB0F87EFAA747AC48DAB17ADBD6FDD054D2
 ```
 
 

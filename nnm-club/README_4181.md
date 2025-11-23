@@ -1,3 +1,81 @@
+###  Публикация: 1683511   (128393) от 11.12.2023
+
+группа Эшелон - Струна гитарная (2002) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Что же ты, зараза, бровь себе подбрила...
+02. Передо мной любой факир - ну просто карлик...
+03. Попутчик
+04. Позабыв про дела и тревоги...(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953425B48631E9A7635CE44408851C5FF6B90002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683493   (128394) от 11.12.2023
+
+Topaz Video AI 4.0.6 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68807F117A44334B9E87F4B0945C935622DE396
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683607   (128395) от 11.12.2023
+
+EMIN - 44 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. До тебя
+2. Сказка на ночь
+3. Незаконно
+4. Камин(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB0E4C9F7217E4D39C6384CA51F53C8A6B3DC28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683455   (128396) от 11.12.2023
 
 Квартирник у Маргулиса. Трио «Лойко» (10.12.2023) WEBRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128396.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:52E69D4416A80044C3FF0740ED5BD22D88641F7E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128397.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:F1B07E6A38D5E071E5C4C234040EC431EB3B7C5F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128398.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ magnet:?xt=urn:btih:E64D823CE9560D2E8BA15CC45ED6531B939354C2
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128399.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ magnet:?xt=urn:btih:B8B14751BEFE2A8055F2B1FFEC1B6CF32AEF871C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128400.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ magnet:?xt=urn:btih:A48B846F7CC004418DE45C5C32B5EF697C685846
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128401.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ magnet:?xt=urn:btih:BB709B40F8E5964CD674FE64F9D0256644DFCF68
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128402.jpg" />
 </div>
 
 
@@ -184,7 +262,7 @@ Bananarama - Robert De Niro's Waiting /  Velvet Lies (Remixes) (2023) EP [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128403.jpg" />
 </div>
 
 
@@ -211,7 +289,7 @@ magnet:?xt=urn:btih:B2C41A4D5528D3C45DD834E28BD8FE5A642983BA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128404.jpg" />
 </div>
 
 
@@ -235,7 +313,7 @@ VueScan Pro 9.8.22 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128405.jpg" />
 </div>
 
 
@@ -259,7 +337,7 @@ magnet:?xt=urn:btih:856FE7CD17B6B1A11F5DCA5247F55B6F4DF68BBF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128406.jpg" />
 </div>
 
 
@@ -283,7 +361,7 @@ magnet:?xt=urn:btih:378C6B44D98819FEF2DC60D969B82CE5EB3A1730
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128407.jpg" />
 </div>
 
 
@@ -307,7 +385,7 @@ magnet:?xt=urn:btih:92C2DB70F4DB21FD7C740190F5AF81B2DF3B9678
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128408.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ magnet:?xt=urn:btih:5E6397E6FB357E708EE56819BF70BFC0A738A6D8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128409.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ VA - Radio FM Rock Hits (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128410.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ magnet:?xt=urn:btih:473CE875A921552D98A3F5AB7E29EAD8FE3BBA48
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128411.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ magnet:?xt=urn:btih:DA14953DC46926465286AE182E562138E06D7FE6
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128412.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ magnet:?xt=urn:btih:716B4E74450BEA4F46D108B72D83C71345B48658
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128413.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ magnet:?xt=urn:btih:580C444B5F9D090C21FAD71DBCCF5B48F9548919
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128414.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ magnet:?xt=urn:btih:3D72A294D7DBD1C8FE7598355CDF49543991AC03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128415.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ magnet:?xt=urn:btih:F6424AD7DB204E26233ECB4616CBA6EE5D4C7DEA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128416.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ magnet:?xt=urn:btih:D89644C6DDA3579B641A107B5B01124F1AE7154C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128417.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ Mubert: AI Music Streaming v4.2.2 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128418.jpg" />
 </div>
 
 
@@ -569,83 +647,6 @@ Mubert: AI Music Streaming v4.2.2 Mod by DEXUNPACKER [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37419E1FB3D697C3FE80300D770D9A3A28D79768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683501   (128419) от 11.12.2023
-
-IObit Uninstaller Pro 13.2.0.5 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128419.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2033352F910D61FDFE6928989B4308D9C5802A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683459   (128420) от 11.12.2023
-
-David Gilmour - On An Island (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castellorizon
-02. On An Island
-03. The Blue
-04. Take A Breath(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAAC20EB98475F05B815FB37EF1EAF7218FD24A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683604   (128421) от 11.12.2023
-
-Findroid | Владыка металла (Книга 1) (2023) [MP3, Александр Башков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128421.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Владыка металла» – роман, первая книга одноименного цикла, жанр боевое фэнтези, темное фэнтези, РеалРПГ.
-
-Дрейк Арс всю свою жизнь прожил в небольшом городке, мечтая однажды отправиться в столицу и вступить в один из кланов. Но мечта исполнилась совсем не так как он воображал. Странная находка втягивает юношу в круговорот смертей, предательств и заговоров. Теперь, (   Читать дальше...   )Жанр: Боевое фэнтези РеалРПГ Темное фэнтезиИздательство: ИДДКПродолжительность: 10:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA00C95BF5F6DEFB41BC82C33DA436D03D16509E
 ```
 
 

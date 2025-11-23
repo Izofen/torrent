@@ -1,3 +1,77 @@
+###  Публикация: 1746435   (104884) от 31.08.2024
+
+Газета | Невыдуманные истории №34 (438) (август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104884.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5EB44EA74774BD9D4073E7EA813D528C68BAEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746537   (104885) от 31.08.2024
+
+MotoGP. Этап 12 из 20. Гран-при Арагона. Квалификация (31.08.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104885.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 августа 2024, суббота. 11:50 МСК. Этап 12 Альканьис. Гран-при Арагона. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D52B02B90DA466B07DDF5F5DBBCBAD6A235F0D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746433   (104886) от 31.08.2024
+
+Газета | Невыдуманные истории №33 (437) (август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104886.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D607AEF00A98C5F4990EE1C58098C3A34AF2C4CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746569   (104887) от 31.08.2024
 
 Ousiodes - The Forest (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
@@ -6,7 +80,7 @@ Ousiodes - The Forest (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104887.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ magnet:?xt=urn:btih:24C5DB7C02391B37F6D52416FBDF8DB9804DC71D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104888.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ F.O.R. - Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104889.jpg" />
 </div>
 
 
@@ -84,7 +158,7 @@ magnet:?xt=urn:btih:3518DCE99D021A4C973A9AF81235CF3113F49F1D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104890.jpg" />
 </div>
 
 
@@ -108,7 +182,7 @@ Attaxe - Braving The Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104891.jpg" />
 </div>
 
 
@@ -135,7 +209,7 @@ Conte Candoli & Lee Morgan - Double or Nothin' (1957) 1992, Fresh Sound [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104892.jpg" />
 </div>
 
 
@@ -162,7 +236,7 @@ magnet:?xt=urn:btih:2910E49BC5D50C52AD34EFE6F82304B45D751AE7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104893.jpg" />
 </div>
 
 
@@ -189,7 +263,7 @@ Void of Vision - What I'll Leave Behind (2024) [MP3|320 Kbps] <Electronic Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104894.jpg" />
 </div>
 
 
@@ -216,7 +290,7 @@ Alkonost - Дар саламандры (2024) [FLAC|Lossless|WEB-DL|tracks] <Pag
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104895.jpg" />
 </div>
 
 
@@ -243,7 +317,7 @@ YT Downloader 9.10.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104896.jpg" />
 </div>
 
 
@@ -267,7 +341,7 @@ RJ TextEd 16.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104897.jpg" />
 </div>
 
 
@@ -291,7 +365,7 @@ Bachman-Turner Overdrive - Gold (2005) 2CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104898.jpg" />
 </div>
 
 
@@ -318,7 +392,7 @@ VA - DJ Hits Vol. 18 New (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104899.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ magnet:?xt=urn:btih:28FB7A11562A900032AA79A04BBEC465DFC1B636
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104900.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ Violent Homicidal Slasher (VHS) - For a Few Riffs More (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104901.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ Dust Bolt - Studio Albums (6 releases) (2010-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104902.jpg" />
 </div>
 
 
@@ -423,7 +497,7 @@ magnet:?xt=urn:btih:63126E6DA01FF2C85A9EC030C270FAFE94841AA8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104903.jpg" />
 </div>
 
 
@@ -447,7 +521,7 @@ magnet:?xt=urn:btih:F3D58CEE0C4EA91ECB4F0D19F01705C988EF91C8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104904.jpg" />
 </div>
 
 
@@ -473,7 +547,7 @@ VA - DJ Hits 170 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104905.jpg" />
 </div>
 
 
@@ -500,7 +574,7 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Спринт (31.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104906.jpg" />
 </div>
 
 
@@ -524,7 +598,7 @@ Constancia - IV Evermore (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104907.jpg" />
 </div>
 
 
@@ -551,7 +625,7 @@ Gotham City - The Early Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104908.jpg" />
 </div>
 
 
@@ -578,7 +652,7 @@ magnet:?xt=urn:btih:AF10A7FE74EEA717E92994B86B912148953F0B35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104909.jpg" />
 </div>
 
 
@@ -589,87 +663,6 @@ magnet:?xt=urn:btih:AF10A7FE74EEA717E92994B86B912148953F0B35
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746236   (104910) от 30.08.2024
-
-Sonny Gullage - Go Be Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Kiss Me, Baby (3:17)
-02. Go Be Free (4:15)
-03. Things I Can't Control (3:17)
-04. Separate Ways (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9005221B9B739410BDCC15CCFDD7F12918849D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746243   (104911) от 30.08.2024
-
-The Gerry Hundt Trio - GET HIP! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beer Run (2:49)
-02. Our Love Will Last (3:25)
-03. Blame It on the Blues (3:37)
-04. Coconut Curry Dance (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E3E2C82D123F74FB93DCDB201985CFC4D50917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745878   (104912) от 30.08.2024
-
-Joji - Nectar (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop, Neo-Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ew [00:03:27]
-02. MODUS [00:03:27]
-03. Tick Tock [00:02:12]
-04. Daylight [00:02:43](   Читать дальше...   )Жанр: R'n'B, Hip-Hop, Neo-SoulПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74828FD701D4A05A428284431B0B0F6762FA946
 ```
 
 

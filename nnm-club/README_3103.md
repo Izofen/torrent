@@ -1,3 +1,84 @@
+###  Публикация: 479465   (98849) от 07.04.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34037B6326A7EC36F94E0CE650F39B2D34F6FFA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479154   (98850) от 07.04.2012
+
+Каникулы в Мексике - 2. Выпуск №25 (2012.04.06) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98850.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47074E21C44AC9A7B9D1944CEA662A7E20A72B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478116   (98854) от 07.04.2012
+
+VA - Клубная энергия танцпола (2012) [MP3|160-256 kbps]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siatria - Закрой глаза (prod. by Shaplin)
+02. Mixi - Между Мной И Тобой (Dj Andy Wait Remix)
+03. Akcent - My Passion (Emin K & Ansarov Remix)
+04. Armin Van Buuren feat. Sophie Ellis - Bextor - Not Giving Up On Love
+05. N - Finity - Someone Like You (Kris Mctwain Edit)
+06. Dj Vengerov Feat. Александр Ягья - Потанцуй Со Мной (Club Edit Remix)
+07. Rihanna - Only Girl (In The World)
+08. MF - Все будет хорошо (DJ Rich-Art & DJ Night remix)
+09. Dj Mixer Euro & Nika Belaya Ft Greysound - Зажигаем (Greysound Radio Edit)
+10. Ёлка - На большом воздушном шаре (Viento & Mutti bootleg)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5970025E4858819075F667CA1604C6BE0B605726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479460   (98855) от 07.04.2012
 
 [Wallpapers] Music Wallpapers (07.04.12)
@@ -6,7 +87,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98855.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:3C0012E43631A02E3A6E2222FC1700A51E94B87D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98856.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ VA - The Chillout Lounge 2 (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98857.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:5DAA2D521E3E0E449DAC5101FC936DFCAEBCB1BE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98858.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ magnet:?xt=urn:btih:F6DB8F26E8FE92D189ED8284322376CFF846CFCF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98862.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98862.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industria
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98863.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ Necronomicon - Invictus (2012) [FLAC|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98866.jpg" />
 </div>
 
 
@@ -200,7 +281,7 @@ Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98867.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98867.jpg" />
 </div>
 
 
@@ -233,7 +314,7 @@ Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98869.jpg" />
 </div>
 
 
@@ -257,7 +338,7 @@ VA - Chill Out Essentials: Spring Edition (2012) [MP3|320 kbps]<Chillout | Downt
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98871.jpg" />
 </div>
 
 
@@ -290,7 +371,7 @@ magnet:?xt=urn:btih:B4FC87ADB83DB561F2D7EA3EBBC113C4C9E5B617
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98872.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ magnet:?xt=urn:btih:4468DBD3835FD1193395C2925B359AC91B925356
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98875.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ magnet:?xt=urn:btih:0114DF3C264B838EC705C1BB000ACE2382B6BEC8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98878.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ magnet:?xt=urn:btih:57351C7DFDC32B12E6F0327D8228CEAB8CE95AC1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98880.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:804E62C43A65B0559A0C19769AF8475A2B4344B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98881.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ VA - Kuduro Reggaeton Club (2012) [MP3|320 kbps]<Dance | Kuduro | Reggaeton | Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98883.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ magnet:?xt=urn:btih:479526EC9531ED02A877133C3E355152CFDF3D9E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98884.jpg" />
 </div>
 
 
@@ -473,7 +554,7 @@ Ministry - Relapse (2012) [FLAC|Lossless]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98885.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98885.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ VA - Авто Дискотека Радио Record 50/50 Vol.2 (2012) [MP3|192 k
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98886.jpg" />
 </div>
 
 
@@ -539,7 +620,7 @@ VA - Лучшая 100-ка Весна (2012) [MP3|256 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98887.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ magnet:?xt=urn:btih:466A99E4E591536ADF7FFECD6F237F98BD293FF6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98889.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ VA - Deep Line. Harmony Collection (2012) [MP3|320 kbps]<Relax | Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98890.jpg" />
 </div>
 
 
@@ -633,7 +714,7 @@ magnet:?xt=urn:btih:55CBEB7DADBE5E995ED00B7D3A1A46BC501114BE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98891.jpg" />
 </div>
 
 
@@ -644,98 +725,6 @@ magnet:?xt=urn:btih:55CBEB7DADBE5E995ED00B7D3A1A46BC501114BE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDFFACCE7306C5E1C04E6931ECCEBCA855DC5A5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479798   (98892) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers Pack 41
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98892.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 41 
-Название:  Desktop Wallpapers Pack 41 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х720 - 4885х1560
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8710D88EB5D3C83664BEE31790F065BCEFD5FE73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479535   (98893) от 07.04.2012
-
-VA - MAXI. Только Best Club (2012) [MP3|320 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project 46 & Gemellini feat. Corinne Lee - Crazy (Original Mix)
-02. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix)
-03. Pedro Henriques feat. Giuseppe Viola - Spread The Love (Original Mix)
-04. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia (Club Mix)
-05. Agulo feat. David Berkeley - Fire Sign (Suncatcher Remix)
-06. Northbrook - Move Your Body (Tommie Sunshine Remix)
-07. House Rockerz - Hemmungslos (Extended Mix)
-08. Betsie Larkin with Super8 & Ta - All We Have is Now (Original M
-09. Mohombi - In Your Head (High Level Club Mix)
-10. Glamrock Brothers - Drunken Sailor (Club Mix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 04:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AB17FF19DBDBDA06ACC674F57ACB43F7BA2C9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478759   (98894) от 07.04.2012
-
-OSI - Fire Make Thunder (2012) [FLAC|Lossless]<Progressive Rock,Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Call 7:10
-02. Guards 5:03
-03. Indian Curse 4:42
-04. Enemy Prayer 4:54
-05. Wind Won't Howl 5:05
-06. Big Chief II 3:04
-07. For Nothing 3:18
-08. Invisible Men 9:54Жанр: Progressive Rock,Progressive MetalПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 

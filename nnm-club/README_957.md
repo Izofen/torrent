@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25229.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25229.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25230.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25230.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B1AE2983774D7E1E9CF1809B5580E908098512B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25231.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25231.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5D8B1DC53C198924373B98A44A3154D1D3308C15
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25232.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25232.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DD167297CFDB464EFC10CEFA74457FF989FA81CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25233.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25233.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F3F82AE6FBEA92642CCC5E2821FF8B42F3A1ADD7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25234.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25234.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B31CDB5EAF47270705321E2D6317BEF497A9560A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25235.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25235.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2A278CE64C86B9E1518DD9A2D025E43E5866318B
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25236.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25236.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:D7F38F85718E3C47D4D1C1FB961E92386C98DA00
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25237.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25237.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:D763E47A5FF9F65E12991C2475CEF55CAA774DBE
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25238.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:99A25859CE91B10B68F8CE626A06A1EB62A7CCA9
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25239.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25239.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:599E417E74C1E6144697A70715C35B70FDFB2091
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25240.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25240.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:64010B6A1685DBDB30AAD5BCF58163D5CA3D90F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25241.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25241.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Allavsoft Video Downloader Converter 3.27.9.9194 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25242.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25242.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:18991C7E0702304267214ED4F0D785D175F9C234
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25243.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Worms: The Revolution Collection (2012) [PS3] [USA] 4,50 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25244.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25244.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:72B24BBBFBB54E3F49A12A2E778A6FFE3B181447
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25245.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:12893F3CDCF373954CE5B6D64AD7C60C0F1FF8FF
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25246.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25246.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25247.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ UNCURSED (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25248.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25248.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:7220C4CB3B9A2DE637CD6984E3907C722C12931B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25249.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25249.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:0068865B1B7000CFD316B0E3D74F9C0DB47E29DB
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25250.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25250.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:2B128E2D14FE53F1776709476C9AB3A2BEED09D0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25251.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25251.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ HiPER Calc Pro v11.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25252.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:113912F5F90B685DAF6BE53393C8937327D5476A
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25253.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:5104B95892BCC06FE4B5237E2869D67F4CBDB673
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25254.jpg" />
 </div>
 
 

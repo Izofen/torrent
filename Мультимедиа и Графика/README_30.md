@@ -1,3 +1,27 @@
+###  Публикация: 1761148   (103089) от 18.11.2024
+
+Newfangled Audio - Generate 1.6.9 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите хаос на новый уровень с помощью Generate. Разработанный компанией Newfangled Audio, Generate представляет собой полисинтезатор marquee, сочетающий в себе пять революционных хаотических генераторов со всеми функциями, которые вы ожидаете от первоклассного синтезатора. Создавайте красивые сложные пэды, теплые скользящие клавишные, нервные секвенированные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFE7C228DEC4D7B321D380098663980177639E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755871   (103580) от 18.10.2024
 
 u-he - ColourCopy 1.0.2 VST, VST 3, AAX (x86/x64) [En]
@@ -6,7 +30,7 @@ u-he - ColourCopy 1.0.2 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103580.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Photo Supreme 2025.3.3.8106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104503.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ u-he - Bazille 1.1.3 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104558.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ Aiseesoft Video Converter Ultimate 10.8.68 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105104.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ Nomad Factory - British Bundle 2.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105109.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ Sugar Bytes - DrumComputer 1.3.5 Standalone, VSTi, VSTi 3, AAX (x64) RePack by T
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105132.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ Aiseesoft Video Converter Ultimate 10.8.68 RePack (& Portable) by TryRooM [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105142.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ Surge XT 1.3.4 Standalone, CLAP, VSTi 3 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105523.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ Sonible - pure:verb 1.0.1 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105575.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ Plugin Boutique - Scaler EQ 1.1.3 Standalone, VST, VST 3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105759.jpg" />
 </div>
 
 
@@ -249,7 +273,7 @@ HY-Plugins - HY-Filter4 1.1.62 VST, VST 3 (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106034.jpg" />
 </div>
 
 
@@ -273,7 +297,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106038.jpg" />
 </div>
 
 
@@ -299,7 +323,7 @@ Darktable 4.8.1 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106043.jpg" />
 </div>
 
 
@@ -324,7 +348,7 @@ Darktable 4.8.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106056.jpg" />
 </div>
 
 
@@ -349,7 +373,7 @@ Radiant Photo 1.4.1.501 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106182.jpg" />
 </div>
 
 
@@ -373,7 +397,7 @@ AudioRealism - ABL3 3.3.3.2 Standalone, VSTi, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106189.jpg" />
 </div>
 
 
@@ -399,7 +423,7 @@ FotoJet Collage Maker 1.3.0 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106303.jpg" />
 </div>
 
 
@@ -423,7 +447,7 @@ FotoJet Designer 1.3.5 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106309.jpg" />
 </div>
 
 
@@ -447,7 +471,7 @@ Adobe InCopy 2024 19.5.0.84 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106381.jpg" />
 </div>
 
 
@@ -472,7 +496,7 @@ Exposure X7 7.2.0.25 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106445.jpg" />
 </div>
 
 
@@ -497,7 +521,7 @@ Steinberg WaveLab Pro 12.0.30 build 696 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106470.jpg" />
 </div>
 
 
@@ -521,7 +545,7 @@ Plugin Boutique - DC Snares 1.0.2 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106561.jpg" />
 </div>
 
 
@@ -546,7 +570,7 @@ Mountainroad DSP - Lumina Delay 2.2.0.308 VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106659.jpg" />
 </div>
 
 
@@ -572,7 +596,7 @@ Loomer - Aspect 2.0.3 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106809.jpg" />
 </div>
 
 
@@ -596,7 +620,7 @@ Algonaut - Atlas 2.5.6 STANDALONE, VSTi, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107634.jpg" />
 </div>
 
 
@@ -607,31 +631,6 @@ Algonaut - Atlas 2.5.6 STANDALONE, VSTi, VSTi 3 (x64) RePack by TCD [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FA522C7965E27D869AE6BE4AAAF2C4F514088B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730563   (107874) от 16.06.2024
-
-Moog Music - Mariana 1.2.0 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mariana - это новый программный синтезатор басов от Moog Music, способный достигать самых глубоких уровней низких частот.
-Рожденная из глубин наследия Moog Music в области синтеза басов, Mariana вдыхает новую жизнь в методы электронного саунд-дизайна для современного музыканта или продюсера.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA3C7C0BF00812E3E4411E98A19853324D2398E
 ```
 
 

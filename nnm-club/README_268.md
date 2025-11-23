@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7051.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0FF8DDD3E2264CB241867EE46C25649236338D47
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7052.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Book Of Revelations - Studio Albums (4 releases) (2021-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7053.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Leander Thistle - Ending Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7054.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:2F23ED70EE334C244F6A576029E377F8BF4B73AB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7055.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:C00D3691ADC26E0A293E67FC7A0ED530A4D78D91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7056.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:9AB714676832D9E4EC148FC6A309A9FC1FBF42FB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7057.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:ACE1E34A9DA111409A3A611E5EC6AD0D845FE2A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7058.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Focsker | Не такие как все. Захватчики из другог�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7059.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:007BEEE414EE76299BFEA429F821469043892792
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7060.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:0CE5064B3A382A43962C14739BCB5291F9B64F45
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7061.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:D5C0F8856E2CAD890AB66F34837A6E1D77FD3E52
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7062.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:E0CA7FAA6C63022B692DD071EB3D11C3A220621D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7063.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Focsker | Эпос созидателя. Фермерский этюд. Мист
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7064.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Focsker | Божественный соблазн (Книга 1). Ген под�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7065.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:22BF129ED1E83ACFFF2B86EBEBCBE6898721510B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7066.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:2564C349F4643C0A9ECA15669779E351751CE446
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7067.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Focsker | Чужое небо. Дотянуться до небес (Книги 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7068.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:8114896A2C9FA80CB9F712DE3D114E53742DDBB5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7069.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:C7F9E80946D988ED9CACB2464598851AC3936AAE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7070.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Linkin Park - Papercuts (Singles Collection 2000-2023) (2024) Brazil, 0936248460
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7071.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:60EB406A31B9BCD3B5EADF9426C2463BD60267EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7072.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:8DA1AAF8D4BEC75810D1EC019A96A5539AD5A6D9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7073.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Aquarium (AU) - Evidence Of Absence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7074.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:FBF33D71520144A6CB24E48797E421FC212ECCEF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7075.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:C01DC3ABC76EFBB1B11589034B46C15C707648B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7076.jpg" />
 </div>
 
 

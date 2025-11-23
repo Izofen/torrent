@@ -1,3 +1,111 @@
+###  Публикация: 1539354   (243251) от 27.03.2022
+
+Rolling Stones - Steel Wheels (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243251.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sad Sad Sad
+A2 Mixed Emotions
+A3 Terrifying
+A4 Hold On To Your Hat(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D680485C374BF47113F110DBA13F16E43D63A5F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627034   (243295) от 17.04.2023
+
+Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Golden Age
+02. Run Boy Run
+03. The Great Escape
+04. Boat Song(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BCBDF1BDCA787069819A2385B14439366D9C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633294   (243325) от 15.05.2023
+
+StormWarrior - Studio Albums (6 releases) (2002-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_243325.jpg" />
+</div>
+
+
+###  Подробнее
+
+StormWarrior — пауэр-метал-группа из Германии, основанная в 1998 году вокалистом и гитаристом Ларсом Рамке и барабанщиком Андре Шуманном, к которым позднее присоединились гитарист Скотт Болтер и бас-гитарист Тим Зайнет.2002 - Stormwarrior
+2004 - Northern Rage
+2008 - Heading Northe
+2011 - Heathen WarriorЖанр: Power/Speed MetalПродолжительность: 05:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FA93F21C7CABF936F40DA99D146619844104F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627110   (243370) от 17.04.2023
+
+Karel Zich - The Best Of Karel Zich (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk Rock, Soft Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243370.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Watching Your TV (Na Prvním Programu)
+A2 With Her Glasses On (Měla Na Očích Brýle)
+A3 You Taste Of The Meadow (Máš Chuť Majoránky)
+A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk Rock, Soft Rock, Rock & RollПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633384   (243402) от 15.05.2023
 
 Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
@@ -6,7 +114,7 @@ Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_243402.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_243402.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243585.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243585.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243620.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243620.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243651.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243651.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_243695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_243695.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ Barclay James Harvest - Gone To Earth (1977) [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243704.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243704.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243825.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243825.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243948.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243948.jpg" />
 </div>
 
 
@@ -219,7 +327,7 @@ David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244006.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244006.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244011.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244011.jpg" />
 </div>
 
 
@@ -273,7 +381,7 @@ Robbie Williams - The Heavy Entertainment Show 2LPs (2016)  [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244034.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244034.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244039.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244039.jpg" />
 </div>
 
 
@@ -327,7 +435,7 @@ Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244082.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244082.jpg" />
 </div>
 
 
@@ -354,7 +462,7 @@ ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244688.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244688.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ magnet:?xt=urn:btih:3E63FA16F823187A7A3E7DACF7095CE054BA6042
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244756.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244756.jpg" />
 </div>
 
 
@@ -408,7 +516,7 @@ LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244978.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244978.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244997.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244997.jpg" />
 </div>
 
 
@@ -462,7 +570,7 @@ VA («Червоны гитары», М. Родович, Д. Фардон, Са�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245044.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245044.jpg" />
 </div>
 
 
@@ -489,7 +597,7 @@ Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245169.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245169.jpg" />
 </div>
 
 
@@ -516,7 +624,7 @@ The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245188.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245188.jpg" />
 </div>
 
 
@@ -543,7 +651,7 @@ Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245485.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245485.jpg" />
 </div>
 
 
@@ -570,7 +678,7 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245564.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245564.jpg" />
 </div>
 
 
@@ -581,113 +689,6 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620006   (245766) от 20.03.2023
-
-Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iron Mask — пауэр-метал группа, основанная в 2002 году бельгийским гитаристом Душаном Петросси.2002 - Revenge Is My Name
-2005 - Hordes of The Brave
-2009 - Shadow Of The Red Baron
-2011 - Black As DeathЖанр: Power MetalПродолжительность: 07:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623217   (245973) от 01.04.2023
-
-Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's in the blood [4:50]
-02. Getcha ya ya [4:35]
-03. She broke my heart (in 36 places) [3:40]
-04. She said she loves me [4:17](   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565417   (249436) от 23.07.2022
-
-Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Dance-Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ка́йли Энн Мино́уг (англ. Kylie Ann Minogue (ˈkaɪli ˈæn mɪˈnoʊɡ), также известная под мононимом Ка́йли; род. 28 мая 1968, Мельбурн) — австралийская поп-певица, автор песен и актриса. Наиболее коммерчески успешная австралийская исполнительница, известная частыми сменами сценического образа. СМИ называют её «поп-принцессой» (   Читать дальше...   )1988 - Kylie
-1989 - Enjoy Yourself
-1990 - Rhythm of Love
-1991 - Let's Get to ItЖанр: Dance-Pop, DiscoПродолжительность: 18:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618995   (249796) от 14.03.2023
-
-Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mutiny Within — американская группа из города Эдисон, штат Нью-Джерси, играющая в стиле мелодик дэт-метал. Группа была основана в 2002 году басистом Эндрю Джейкобсом, первоначально, как кавер-коллектив группы Children of Bodom.2010 - Mutiny Within
-2013 - Synchronicity
-2017 - OriginsЖанр: Progressive Melodic Death Metal, MetalcoreПродолжительность: 02:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
 ```
 
 

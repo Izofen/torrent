@@ -1,3 +1,180 @@
+###  Публикация: 1347079   (154056) от 22.12.2019
+
+Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1990 - Strength Of Heart
+1992 - Gary Hughes
+1998 - In Your Eyes (EP)(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 06:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786524471CEF3543DD932E297A11FECE72DC39CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194533   (154057) от 26.12.2017
+
+Формула E. Сезон 2017-18. Этап 1. Гонконг (Китай). Гонка 1 (02.12.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154057.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 этап электрической формулы Formula E на городской трассе в Гонконге.Телекомпания: Eurosport 1 UKЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EE28E55A3B3B0B478FFA9948561400F8AD9E53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518701   (154058) от 20.12.2021
+
+RegCool 1.300 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6D16C90868F1B98665A08BA3B3CB1518A0E3E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601004   (154059) от 29.12.2022
+
+VA - The Christmass Tea: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabrielle Chiararo - Don't Know Why (03:16)
+02. Brazil Beat - Walk On By (02:50)
+03. Alyssa Zezza - Maxine (03:28)
+04. Alyssa Zezza - September (05:11)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A1A04A6FB52B9C5CBD0556474F28BED75872F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676985   (154060) от 15.11.2023
+
+Исчезнувшая в звездах / Xiao shi de ta / Lost in the Stars (2022) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже две недели Хэ Фэй безуспешно разыскивает жену, пропавшую на тайском острове, куда они приехали на годовщину свадьбы. Внезапно объявляется женщина, утверждающая, что она и есть супруга Хэ Фэя и, обидевшись, провела две недели на соседнем острове. Мужчина пытается доказать полиции, что это самозванка, но все её документы в полном порядке, и даже находятся подтверждающие (   Читать дальше...   )Производство: Китай, Beijing Tianhua Huawen Motion Picture Investment Co., Beijing Weimeng Chuangke Network Technology, Beijing Yitong Chuanqi Film CultureЖанр: детектив, триллер, криминалРежиссер: Цуй Жуй, Лю СянАктеры: Чжу Илун, Ни Ни, Дженис Мань, Ду Цзян, Кэй Хуан, Чэнь Мэнци, Скотти Кокс, Юй Чэнцюнь, Мэн Чжисюй, Чжан ИвэньханьПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: английские, китайскиеПродолжительность: 01:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DF092381E71EFB5265B39232FCC3ECEC9E5F64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270956   (154061) от 21.12.2018
+
+Блондин – приманка для убийцы / Blonde Koder fur den Morder (1969) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154061.jpg" />
+</div>
+
+
+###  Подробнее
+
+На пляже отеля убивают молодую женщину и похищают у неё дорогое ожерелье. Её муж нанимает детективов для расследования. Все подозрения падают на молодого художника, живущего по соседству с отелем…Производство: Германия (ФРГ), Италия / Maris Film, PACЖанр: ТриллерРежиссер: Харольд ФилиппАктеры: Дин Рид, Фабио Тести, Ини Ассманн, Леон Эскин, Вернер Петерс, Риккардо Гарроне, Марио Брега, Элен Шанель, Феми Бенусси, Ренато БальдиниПеревод: Одноголосый закадровый (Сибирский)Субтитры: ОтсутствуютПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64868D240880AEFC68263CFE78E3F5039700E4A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347108   (154062) от 22.12.2019
+
+Badhoven - 4 альбома Discography (2001-2019) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2001 - Behind The Masquerade
+2005 - Believe
+2013 - Obsession(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 02:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4B7C8421DFE34110D54FE62F472F64097E0C30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433785   (154063) от 22.12.2020
 
 VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
@@ -6,7 +183,7 @@ VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154063.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ magnet:?xt=urn:btih:6DC41ED0D6FADAECBEF89736D97FC036F42DEC98
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154064.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ VA - Italo Disco Megahits (2018) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154065.jpg" />
 </div>
 
 
@@ -84,7 +261,7 @@ magnet:?xt=urn:btih:0B9724A04C5D03BCC6EDB9BE944A440BD2C317BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154066.jpg" />
 </div>
 
 
@@ -108,7 +285,7 @@ Feuerschwanz - Todsunden (2022) [FLAC 2.0|44/24|tracks|WEB-DL]  <Folk-metal, Med
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154067.jpg" />
 </div>
 
 
@@ -135,7 +312,7 @@ magnet:?xt=urn:btih:DBF1F2E165861465B8872AC4B79FE5E3E47F589E
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154068.jpg" />
 </div>
 
 
@@ -159,7 +336,7 @@ magnet:?xt=urn:btih:5B1F2B0DFB363EC172E5766B63C691C7EE7F6709
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154069.jpg" />
 </div>
 
 
@@ -183,7 +360,7 @@ AVS Audio Software 10.0.4.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154070.jpg" />
 </div>
 
 
@@ -207,7 +384,7 @@ The Far Kingdoms: Awakening Quest (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154071.jpg" />
 </div>
 
 
@@ -231,7 +408,7 @@ Heartland - 13 альбомов Discography 14CD (1991-2011) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154072.jpg" />
 </div>
 
 
@@ -258,7 +435,7 @@ magnet:?xt=urn:btih:5B7AE57668D41FDBB8B910C86D6833E041813F83
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154073.jpg" />
 </div>
 
 
@@ -283,7 +460,7 @@ magnet:?xt=urn:btih:A3FB96B39C56E426019EEFB82D3A04E6CF5A510D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154074.jpg" />
 </div>
 
 
@@ -307,7 +484,7 @@ CADintosh X 8.7 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154075.jpg" />
 </div>
 
 
@@ -331,7 +508,7 @@ magnet:?xt=urn:btih:A4D754C2F7295278706A669B864CD1E84D01E8E0
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154076.jpg" />
 </div>
 
 
@@ -355,7 +532,7 @@ magnet:?xt=urn:btih:E3E154176B620DFA57DE05EAE46F5FFA4B6D411F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154077.jpg" />
 </div>
 
 
@@ -379,7 +556,7 @@ magnet:?xt=urn:btih:131D4A3062530A585C9383C20905DFC49917DB22
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154078.jpg" />
 </div>
 
 
@@ -403,7 +580,7 @@ magnet:?xt=urn:btih:B91DE8B66809766951B31F107242E9F775040B31
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154079.jpg" />
 </div>
 
 
@@ -427,7 +604,7 @@ magnet:?xt=urn:btih:3E2329C7B6FCFC934AB64AB9C49A082E7FD4F0C9
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154080.jpg" />
 </div>
 
 
@@ -451,7 +628,7 @@ magnet:?xt=urn:btih:0EE09F227EA97D46A5401117F2FD910BD7532AFC
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154081.jpg" />
 </div>
 
 
@@ -465,183 +642,6 @@ magnet:?xt=urn:btih:0EE09F227EA97D46A5401117F2FD910BD7532AFC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20079987102DFCBC73B1036596297338D389F7E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600943   (154082) от 29.12.2022
-
-Strike '85 - Tears in Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Cassette (Intro) [00:01:55]
-02. Strike 85 [00:03:18]
-03. Vague Dreams [00:03:36]
-04. Tears in Rain [00:04:18](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645C6E9E10BCB2797D53B6B14D6F7763A3A2E9BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518680   (154083) от 20.12.2021
-
-TechSmith Snagit 2022.0.1 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154083.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 1995 - 2021, TechSmith CorporationПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8715F9ABD071B4ED0B09437DE11157DE181EC4B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194895   (154084) от 26.12.2017
-
-enCAPSULAte (aka Capsula) - Alan Watts Encapsulated (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beep (It’s A Memory Cue Signal) (08:15)
-02. This Is Yourself (It’s A Happening) (09:52)
-03. Relax (It’s The Ultimate Attainment Of The Human Being) (08:47)
-04. It Starts Now (So Cheer Up) (09:23)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02097AE41C9923BFB499D34CCC9001FC621D6167
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434003   (154085) от 22.12.2020
-
-AIMP 4.70.2239 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154085.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9446A74AD5B93CAB898A525FBC04C508B1CBEF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347120   (154086) от 22.12.2019
-
-PhotoScape X Pro 4.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154086.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoScape X Pro – это простой и быстрый инструмент для редактирования фотографий. Помимо основных функций, таких как изменение размера, обрезка и повороты, вы можете применять различные эффекты и корректировки с помощью всего одного клика. Вы также можете украсить свои фотографии с помощью таких инструментов, как фреймы, наклейки (стикеры) и кисти.
-
-В качестве более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2019Разработчик: Mooii TechПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B57CE15E3C7A6A667A3BE19E9A476FB3556BFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086075   (154087) от 23.12.2016
-
-Проекты - Motion Array - Epic Neon In The Night Street - 21707 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Neon In The Night Street - это потрясающий и уникальный шаблон, который легко настроить. Он имеет 2 версии. Добавьте ваш текст, поместите ваш логотип и жмите рендер для получения фантастического результата. Бесплатный VC Saber плагин необходим для данного проекта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C30FB06CBC8B00F86537D30B35FD0BAA6EB89F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676923   (154088) от 15.11.2023
-
-Исповедь / Une confession (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тело Мод лежит у подножия одной из скал горной гряды Сент-Виктуар. На допросе в полиции ее муж Жан объясняет: во время их совместной утренней прогулки она оступилась и упала. Дело закрыто без дальнейших разбирательств. Спустя неделю показания мужа ставят под сомнение...
-Адаптация романа британского писателя Джона Уэйнрайта / John Wainwright "Тупик / Cul-de-sac" (   Читать дальше...   )Производство: Франция / Albertine Productions, France Télévisions, BE-FILMSЖанр: триллер, драма, криминалРежиссер: Элен ФийерАктеры: Лоран Жерра, Катрин Фро, Диана Руксель, Антуан Дюлери, Тео Ожье, Лола Девэр, Гийом Арно, Эммануэль Салинже, Кристель Барде, Клод-Александр Эклар и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: НетПродолжительность: 01:26:57Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97EDA955BC4811EB4D0ACB41EA540F49BD825180
 ```
 
 

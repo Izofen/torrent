@@ -6,7 +6,7 @@ Mortal Kombat vs DC Universe (2008) [PS3] [EUR] 2.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26316.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26316.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ghostbusters: The Video Game (2009) [PS3] [USA] 2.60 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26452.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Max Payne 3 (2012) [PS3] [USA] 4.11 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26765.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26765.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Smurfs 2 (2013) [PS3] [USA] 4.41 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26981.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26981.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Majin and the Forsaken Kingdom (2010) [PS3] [USA] 3.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27005.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Family Guy Back to the Multiverse (2012) [PS3] [USA] 4.25 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27009.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DuckTales: Remastered (2013) [PS3] [USA] 4.46 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27011.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27011.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DuckTales: Remastered (2013) [PS3] [EUR] 4.46 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27052.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Sly Trilogy (2010) [PS3] [EUR] 3.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27731.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vampire Survivors (2023) [Switch] [USA] 18.1.0 [NSP] [License / 1.12.108 / DLC] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29881.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Switch] [USA] 18.1.0 [NSZ] [L
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37317.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2024) [Switch] [USA] 18.1.0 [NSZ] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38559.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Call Of Duty Black Ops 2 (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [En
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38871.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:07972B9935F8D5171E1B822549F0CD2618E7DB21
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39532.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Alien: Isolation (2019) [Switch] [USA] 14.0.0 [NSZ] [License / 1.1.4_60709] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42489.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Legend of Zelda: Echoes of Wisdom (2024) [Switch] [USA] 18.1.0 [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42699.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Comix Zone (1995) [PS3] [EUR] CFW Evilnat 4.91 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51865.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ New Super Mario World (1990) [PS3] [EUR] CFW Evilnat 4.91 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53155.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Super Mario 64 HD (1996) [PS3] [EUR] CFW Evilnat 4.91 [Unofficial] [PT]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54516.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:29991924A049C0C47336514B90D7E3B9423917C7
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59574.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Warhawk (2007) [PS3] [EUR] СFW Evilnat 4.91 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60791.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:F6A02BCED23F3A7CA9CCE85624C86B74EF485321
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64428.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Worms Collection (2012) [PS3] [USA] 4.40 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69648.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:56340BB06D21E9238427138B30CE6EC7EEDC61E9
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72685.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:74779B0599B73DEC875EA59FA1F06903A2DCE296
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73134.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:695B0241A1C7C369385F2EC8ABA15A2FA53FA619
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74774.jpg" />
 </div>
 
 

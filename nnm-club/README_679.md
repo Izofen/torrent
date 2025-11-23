@@ -6,7 +6,7 @@ VA - Music News For Forum vol.086 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17975.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:510F91AA7687E295586A9F53ECE635E2DB294DA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17976.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Undead Unluck | Нежить и Неудача [2023, TV, 24 из 24] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17977.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MobiPDF: Редактор и сканер PDF  v11.5.1.267066 Mod by Balatan [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17978.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9FF43B4B50F06F8A3B7D675E6BF3A32AEBF6E40E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17979.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9FF43B4B50F06F8A3B7D675E6BF3A32AEBF6E40E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17980.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Rush - Rush 50 (2025) 4CD Anniversary Super Deluxe [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17981.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Music News For Forum vol.087 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17982.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Folder Player Pro v5.34 b346 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17983.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:671DBE9BBD3AE0873AC9251495CC9CF4F4FF3FC4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17984.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Squid - рукописные заметки v4.4.0 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17985.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build 18494183/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17986.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:49D7C2E8F7872C9CBCD11D5FE1DB53BD413D061E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17987.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Fleetwood Mac - Like Crying: The Songs of Danny Kirwan (2025) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17988.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17989.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:F4B26AC0EC9D2E5339C34AFDD292086835E68829
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17990.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F293787F1F81DD92451DF01DEA6939D3EFB8F99C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17991.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:F293787F1F81DD92451DF01DEA6939D3EFB8F99C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17992.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:37596CD375445108E5C3E28BFA90E0D4E16D5778
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17993.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ IObit Smart Defrag Pro 10.4.0.441 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17994.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:15BB049DCEEC6001A99AAFE63708F83BA66ADCFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17995.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:15BB049DCEEC6001A99AAFE63708F83BA66ADCFE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17996.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:DCC3DD42D910C8C11DBC21AACE44D4FDF0766C04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17997.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:5DE41677266173A85070A1B95E1AE6C7E09458EA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17998.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10457) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17999.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:1A2360167C328B8FD997A5926FF79554022ABE12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18000.jpg" />
 </div>
 
 

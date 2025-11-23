@@ -6,7 +6,7 @@ Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45117.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:67E58821F388FACD107C8F045359518230F9F66C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45192.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E387AEFACF82D52B66CD8CA631283EACA7665291
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45209.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6E120F94186EF2BBB0CC959D4DDFC791C55CA2D9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45221.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C3A19FE726ECD2EA1520DD50869D7E236471BE4E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45324.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:2C8D67658A680D7A3D901FD43A1CF603470AF3F7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45326.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45404.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AC/DC - Stiff Upper Lip Live 2001 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45425.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:505B846DFE00C86935F344D0BB4B7E36A2CD66B1
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45426.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45526.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45615.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kiss: "Rock the nation. Live!" (2005)  DVD9x2
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45636.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45640.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45712.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Party at The Palace (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45718.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Pink Floyd. The Wall (1982) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45844.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Deep Purple - History, Hits & Highlights '68-'76 (1968-1976) 2*DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45847.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:FE24428D9BE6BA9A70D2C2837A09C2F7390075DA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45853.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Rainbow - Live In Japan 1984 (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45927.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:496604699D986EAF94CD8665174EA2C7576A62E6
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45929.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:94BBF987A01122638B258AC1D3440483A37A1561
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45944.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Guns N' Roses - Use Your Illusion Ultimate (1998) 2 x DVD9/5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45955.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:680D371936FF0916B876A88CF294CB844A6354AC
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45959.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45963.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:037D34E0EB41E1597AA9C93161F3287BD84852F8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46021.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:E5EAE96166F6119DCD1DABB152E462A426542AAC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46028.jpg" />
 </div>
 
 

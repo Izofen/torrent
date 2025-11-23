@@ -1,3 +1,84 @@
+###  Публикация: 1626401   (243696) от 15.04.2023
+
+Нуки - 10 лет в космосе (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Исключения (Live) [00:05:02]
+02. 451 (Live) [00:03:26]
+03. Реальность (Live) [00:03:00]
+04. Измерения (Live) [00:03:40](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4192DBE97EB5592556CDE53BBA48365840374B7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401744   (243773) от 04.08.2022
+
+Ауткаст - Ультра (2020) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2020 (1:43)
+02. Не забывай (4:09)
+03. Один из нас (3:54)
+04. Невесомость (4:41)(   Читать дальше...   )Жанр: Nu Metal, Alternative RockПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC15DD4EC33B8C577504A522B9844412838D68D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610816   (243905) от 11.02.2023
+
+МультFильмы - F либо А (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По законам галактики [00:03:04]
+02. Цветы любви [00:04:20]
+03. F либо А [00:02:45]
+04. Белые годы [00:03:07](   Читать дальше...   )Жанр: Indie, BritpopПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E35218E078A1BBA4D747CB271C3031D4A57BB71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454071   (244201) от 13.03.2021
 
 ПсиХХХо - Молиться, умирать, молчать... (Часть 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
@@ -6,7 +87,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244201.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244201.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:52336055CA197952E6F1E6217F1E6D51A6571388
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244209.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244209.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ Sweetlee - К​р​у​г р​а​з​у​м​а (2023) EP [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244357.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244357.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ Insidious One - Н​и​ч​т​о​ж​е​с​т​в​о (2023) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244429.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244429.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ magnet:?xt=urn:btih:5634D43AC4CB50F71ADD1FF73261088A636BD589
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244520.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244520.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ magnet:?xt=urn:btih:35423B0D1FE1BD98E62F604194C3DFEAE1A63850
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244645.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244645.jpg" />
 </div>
 
 
@@ -170,7 +251,7 @@ Wildways - Симптомы (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244685.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244685.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ magnet:?xt=urn:btih:BD9BFF065EF4D24E6D5E24EDEB459A065D785BB9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244903.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244903.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ magnet:?xt=urn:btih:1A73C5B422487B2576681C4DABE0D562A0B23E87
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244918.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244918.jpg" />
 </div>
 
 
@@ -251,7 +332,7 @@ Forces United - Hits From Metal Musicals vol.2 (2022) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244994.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244994.jpg" />
 </div>
 
 
@@ -278,7 +359,7 @@ Re-Animator - Re-Animator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245130.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245130.jpg" />
 </div>
 
 
@@ -305,7 +386,7 @@ magnet:?xt=urn:btih:7E9E72786790A4C5BAC67185754C4390BA8257AC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245186.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245186.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ magnet:?xt=urn:btih:C4F730FC9B81846677A4AF5C50D0C28D48230CE5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245352.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245352.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ magnet:?xt=urn:btih:58E3F2AB9743FB7CEDE8EA969F2C27D2B63B4FA4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245404.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245404.jpg" />
 </div>
 
 
@@ -386,7 +467,7 @@ magnet:?xt=urn:btih:80E513DC5AD2A5C4AA4C0303B12C1714D303D1C1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245419.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245419.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ Forces United - Hits From Metal Musicals vol.3 (2023) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245558.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245558.jpg" />
 </div>
 
 
@@ -440,7 +521,7 @@ magnet:?xt=urn:btih:0E81C050A6F1420D8B61B75D018029A46FE47E0B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245966.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245966.jpg" />
 </div>
 
 
@@ -468,7 +549,7 @@ magnet:?xt=urn:btih:D1217643AF0840E4C420592C03D2E0A63333FF7E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246139.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246139.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ magnet:?xt=urn:btih:66FAEFB78CFD0B0D1A23B1CA8141E463E0A9F291
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246741.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246741.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ magnet:?xt=urn:btih:7BB18682E36B277A80744339A38FEDA1A84E36B4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246747.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246747.jpg" />
 </div>
 
 
@@ -555,7 +636,7 @@ magnet:?xt=urn:btih:6CC063CAA8E423108164500EBA59EDF5692F8FF1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247456.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247456.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ Jane Air - 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248590.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248590.jpg" />
 </div>
 
 
@@ -606,7 +687,7 @@ Zmey Gorynich - Странствiя Рукоблуда и сестры его М
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248592.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248592.jpg" />
 </div>
 
 
@@ -620,87 +701,6 @@ Zmey Gorynich - Странствiя Рукоблуда и сестры его М
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDBF36F0A146DFBF8A82F40D7DF957C9CB98FA1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619745   (249497) от 18.03.2023
-
-Дельфин - Прощай оружие (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Synth-Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты [00:03:47]
-02. Прощение [00:05:35]
-03. ∞ [00:04:41]
-04. Прекрасно [00:05:28](   Читать дальше...   )Жанр: Alternative Rock, Synthpop, Spoken Word, Trip-HopПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF056748BD3DB86EB11831B4652B2A8F60C0A2D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618693   (249777) от 14.03.2023
-
-Колдстрим (София Карева) - Новогодний онлайн концерт, часть 1-2 (2023) Live, 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (Live) [00:00:43]
-02. Как ты там (Live) [00:03:31]
-03. Подводка раз (Live) [00:00:50]
-04. Рыбка (Live) [00:04:51](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 2 CD, 01:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FDE9E4EE0A831BBB3E48526D5AE3C344ABC023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618777   (249798) от 14.03.2023
-
-Brave Rockets - Привет (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гудбай [00:03:00]
-02. Бой с самим собой [00:03:03]
-03. Бег в мешках [00:05:15]
-04. Быть, а не казаться [00:04:00](   Читать дальше...   )Жанр: Ska Punk-RockПродолжительность: 00:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFA1919AB610AAD69E5055426D6E8AB0862AC7E
 ```
 
 

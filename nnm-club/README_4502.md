@@ -1,3 +1,129 @@
+###  Публикация: 1435982   (139314) от 30.12.2020
+
+VA - Say, Turn It Up! (2020) [MP3|320 Kbps] <Hip-Hop, Rap, Trip>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139314.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной компиляции,неформат,андеграунд и реалии нашего времени! Очень разнообразный саунд под лирический трип-речитатив и широкий спектр тематики для взыскательных музыкальных предпочтений!001. Dirt Vonnegut - 1000 Ways To Die
+002. Visual Visions - Airwalk
+003. Mr.Mono - Never Sleeps
+004. 2 Chainz - Southside Hov(   Читать дальше...   )Жанр: Hip-Hop, Rap, TripПродолжительность: 08:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE9CEF1649CDF4549A637903C235B89B3FCFEAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195691   (139316) от 30.12.2017
+
+Тайна 7 сестер / Seven Sisters (2017) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139316.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где семейным парам разрешено иметь только одного ребенка, рождается семь сестер-близняшек. Родители решают сохранить всех и дают малышкам имена в честь дней недели. Так девочки и появляются на людях — каждая в свой день. Но однажды Понедельник пропадает…Производство: Великобритания, Франция, Бельгия, СШАЖанр: фантастика, триллерРежиссер: Томми ВирколаАктеры: Нуми Рапас, Марван Кензари, Уиллем Дефо, Роберт Вагнер, Гленн Клоуз, Лара Дэкаро, Пол Сверре Валхейм Хаген, Адетомива Едун, Кристиан РубекПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5400D9BF9F3BB280886A8014AF4720AFDB965E2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970614   (139317) от 31.12.2015
+
+В. Татаркевич | Античная эстетика (1977) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги на большом фактическом материале даёт систематическое изложение эстетических учений античности, начиная с периода архаики вплоть до эпохи эллинизма. Не ограничиваясь общей философской эстетикой, исследователь рассматривает также воззрения теоретиков искусства, теорию поэзии, музыки, пластики, архитектуры, даёт анализ эстетического смысла художественной (   Читать дальше...   )Жанр: История, философия, эстетика, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F09501C1F841D60EB484BF2F5AD11582DC1F98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591104   (139319) от 18.12.2012
+
+Рисованная графика - Artworks by Greenfeed
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Greenfeed.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6ECE2AB741046F26889F4A3C915673FD5BCA15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520921   (139320) от 30.12.2021
+
+VA - UNDERGROUND VIBES Compilation (2021) [AAC|~313 Kbps] <Tech House, House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chapter & Verse - Dreams (5:39)
+02. Kala'An - Envision (Club Mix) (7:14)
+03. David Penn, KPD - Why Don't (6:19)
+04. Jo Crimaldi - Like Somebody (5:45)(   Читать дальше...   )Жанр: Tech House, HouseПродолжительность: 04:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5323252510D1F85666C4F50E56CD72739A30613
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970755   (139321) от 31.12.2015
 
 Футбол. Чемпионат Англии 2015-2016. 19 тур. Сандерленд - Ливерпуль (30.12.2015). [H.264/720p-LQ]
@@ -6,7 +132,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139321.jpg" />
 </div>
 
 
@@ -33,7 +159,7 @@ magnet:?xt=urn:btih:496CB13ED658DD0E5DBE3FE6B30348B87701A1D4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139322.jpg" />
 </div>
 
 
@@ -57,7 +183,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.0 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139323.jpg" />
 </div>
 
 
@@ -81,7 +207,7 @@ VA - Зарубежные Хиты-Декабрь (2018) [MP3|320 Kbps] <Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139324.jpg" />
 </div>
 
 
@@ -108,7 +234,7 @@ magnet:?xt=urn:btih:E2EC0B944FC1E280E159ED7B48CC546537611DB4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139325.jpg" />
 </div>
 
 
@@ -132,7 +258,7 @@ magnet:?xt=urn:btih:49807B24E2D597C52293C48FF9F0FE9246D1EF18
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139326.jpg" />
 </div>
 
 
@@ -156,7 +282,7 @@ magnet:?xt=urn:btih:206B76D358B07C25EE24CD0C19B39B5C90530999
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139327.jpg" />
 </div>
 
 
@@ -182,7 +308,7 @@ magnet:?xt=urn:btih:4A1AA303AFB19E50C0D21EAC3501434290FFF00F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139330.jpg" />
 </div>
 
 
@@ -206,7 +332,7 @@ magnet:?xt=urn:btih:6C0A64975FD678DC7E41F02DF53C45EF2205DC8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139331.jpg" />
 </div>
 
 
@@ -230,7 +356,7 @@ VA - Gateways, Vol. 2 (2021) [AAC|~335 Kbps] <Melodic House & Techno, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139332.jpg" />
 </div>
 
 
@@ -257,7 +383,7 @@ magnet:?xt=urn:btih:F82695E7824EF260954E5253CAF0354632106373
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139333.jpg" />
 </div>
 
 
@@ -281,7 +407,7 @@ magnet:?xt=urn:btih:3894143A8A3FCA66701B2BAB888F5654BAB0BEB5
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139335.jpg" />
 </div>
 
 
@@ -305,7 +431,7 @@ magnet:?xt=urn:btih:40593BE4255F126DD5E602A1255B68B7E75D2DBA
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139336.jpg" />
 </div>
 
 
@@ -329,7 +455,7 @@ magnet:?xt=urn:btih:AA7C7E39E964ADA2F1E33E4B9415BADA0F5D1B29
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139338.jpg" />
 </div>
 
 
@@ -356,7 +482,7 @@ magnet:?xt=urn:btih:FC05425572AD0DB6245C70ACA02631AC201F6E1A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139339.jpg" />
 </div>
 
 
@@ -380,7 +506,7 @@ magnet:?xt=urn:btih:4DF92E5B5DB4CE98C15A4B6111077977C5B90E51
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139340.jpg" />
 </div>
 
 
@@ -404,7 +530,7 @@ magnet:?xt=urn:btih:50E8BE0171E11AD780FB8EEB7659BE7317DCBA1B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139341.jpg" />
 </div>
 
 
@@ -428,7 +554,7 @@ magnet:?xt=urn:btih:CCE401EBAD31DAF62B3D89FCC3ECE27E6D90AFB1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139343.jpg" />
 </div>
 
 
@@ -452,7 +578,7 @@ Alex Harvey - The Last Of The Teenage Idols (2016) 14 CD Box Set, Limited Editio
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139344.jpg" />
 </div>
 
 
@@ -478,7 +604,7 @@ magnet:?xt=urn:btih:4F0E0935701A310A483DDDC94CA6F59DEDCC99F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139345.jpg" />
 </div>
 
 
@@ -502,7 +628,7 @@ magnet:?xt=urn:btih:C7EC7F51FD999D1ACCEBE30AF609E7533C3164E4
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139346.jpg" />
 </div>
 
 
@@ -513,133 +639,6 @@ magnet:?xt=urn:btih:C7EC7F51FD999D1ACCEBE30AF609E7533C3164E4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58445EF6C152996580AE13EB910C2D1BA62996CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970726   (139347) от 31.12.2015
-
-Китайский "охотник за темной материей" DAMPE начал сбор первых научных данных
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно мы рассказывали о том, что на поле "охоты на темную материю" появился новый игрок, китайский исследовательский аппарат Dark Matter Particle Explorer (DAMPE), который был запущен в космос 17 декабря 2015 года. И буквально на днях наземные станции начали получать первые научные данные, собираемые всеми четырьмя научными инструментами этого космического (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520913   (139349) от 30.12.2021
-
-VA - Sharam Jey pres. BEST OF BUNNY TIGER 2021 (2021) [AAC|~328 Kbps] <Dep House, House, Indie Dance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuran - Intent (Highlite Remix) (7:10)
-02. Micaele - Need No Stop (5:44)
-03. Xandl - Closer (5:48)
-04. Kinky Sound - Feel So Right (ArtSky Remix) (5:48)(   Читать дальше...   )Жанр: Dep House, House, Indie DanceПродолжительность: 02:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3934ED264E14F54A903F8A8C91B79DCA423EE38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088594   (139350) от 31.12.2016
-
-John Jenkins, Cliff Jordan and - Bobby Timmons (1957) [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cliff's Edge [06:33]
- 02.Tenderly [07:06]
- 03.Princess [06:20]
- 04.Soft Talk [10:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3E1B35731B97D7E273A337564B2DFCAC39D447
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195610   (139352) от 30.12.2017
-
-AV Uninstall Tools Pack 2017.12  [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139352.jpg" />
-</div>
-
-
-###  Подробнее
-
-AV Uninstall Tools Pack - это бесплатный пакет утилит, предназначенных для полного удаления более 40 антивирусных программ. Они необходимы в тех случаях, когда не удаётся полностью удалить антивирусную программу стандартным путём, или в процессе удаления возникают ошибки. Данные утилиты полностью удаляют все файлы, драйвера, службы и записи реестра, оставленные антивирусными (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F984B92CB2BC9123989FD3F6D1BDBC0D3238E5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436090   (139353) от 30.12.2020
-
-Дмитрий Галабир | Хроники несчастных (2020) [MP3, Сергей Вышегородцев]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они мчали по пустынному шоссе. Солнце клонилось к закату. Говорить было не о чем. Руслан дремал. Анна внимательно следила за дорогой – она была за рулем. Их отношения давно охладели. Они были уже почти чужими друг другу. Может, эта поездка на свадьбу к друзьям реанимирует их чувства?
-Руслан проснулся, словно от толчка. Вокруг была кромешная тьма. Машина стояла. Жена, (   Читать дальше...   )Жанр: ТриллерПродолжительность: 09:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F9FDADCFF7AF38939AE10C26083D7D721A8DE7
 ```
 
 

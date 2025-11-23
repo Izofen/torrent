@@ -6,7 +6,7 @@ BBC. Шедевры мировой архитектуры / Adventures in Archit
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63337.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ FxSound Pro 1.1.22.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63338.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ CrossOver Linux 24.0.0 [x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63339.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:25BC807C88334867D62D62FA8B6F8CF21617713B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63340.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:AD9D329AAC8C54A732A5C15E58074137D9948B60
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63341.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:E5A60372FD9BF12DEA863DFE2DDD6C0636F2A39D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63342.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:81E92BC0364DF6A55C2C4D651B0651FE8F21A03C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63343.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4029FCAEE51D01EE72F426672654A33A09A0F611
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63344.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:589DCA5D739545A25E90E2DA5131F4E015BA9C91
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63345.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:8038995FA469B81141EE7183A3CB634521B00CAB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63346.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ RollBack Rx Professional 12.5 Build 2709703338 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63347.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:349C1E522087997E9EE06F7A8F5C1623E8FB1592
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63348.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:C54A80D64F7BC71F9F9A2E8167735D748D44A9C7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63349.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:ACA334BC4A603E43AA7304A6D3B5DD402D58C489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63350.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:DE818AE50F41E4AA4300016AB1B6C64E006865F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63351.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:402EDCD0E213667F91ED21ECECB33842AEA06FDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63352.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CorelDRAW Graphics Suite 2024 25.0.0.230 (x64) Portable by conservator [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63353.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:B13C38D43755A124F11644D72ED8C656759F241A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63354.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:826BB84BEDEBCB3E9A39FD769BFB693F8E2F0220
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63355.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VMware Workstation 17 Pro 17.5.1-23298084 [x64] (bundle)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63356.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:B5EA9CCEB5AFF23671FDCEF904F101CA791B5CB0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63357.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:3FBB0F021AAAB281AEA415413185758A1A4A2A9F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63358.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Windows 10 PRO AIO 20H1 / 20H2 / 21H1 / 21H2 /22H2 by Ghost Spectre 1904X.4046 x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63359.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:65529AB51C9FC60B8A05FF72A426708D8FEA25BC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63360.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ NASA показало послание к внеземному разуму, к�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63361.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ NASA представило памятную табличку, которая о
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63362.jpg" />
 </div>
 
 

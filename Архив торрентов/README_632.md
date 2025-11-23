@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134740.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134740.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134744.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CrystalDiskInfo 9.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134753.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Internet Download Manager 6.42 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134757.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ James Newton Howard - Blood Diamond / Кровавый Алмаз (2006) [MP3|12
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134762.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ USB Safely Remove 7.0.4.1319 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134763.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D47722FAA2168E21F1A637DCB37F413F53EC8B38
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134764.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ CCleaner Pro: ПО для очистки 23.22.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134766.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Новогодний подарок от Взрослого Радио (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134775.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Winter Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134780.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:6B70E9D05ABD20E94713FD0AEEC94D6FF88858D2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134782.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ New year wallpapers 2013 (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134784.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ WinTools.net Premium 23.12.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134785.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Wise Registry Cleaner Pro 11.1.2.717 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134789.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ New year wallpapers 2013 (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134796.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Glary Utilities Pro 6.2.0.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134808.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ CareUEyes 2.2.10.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134810.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ AlDente Pro fo Mac 1.24 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134812.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:73C2F861A881DB58DAD905862BD1DFA19D3D766B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134833.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:E5702A5DBDD7B2B6DDEBEE9EE2700830F3AE12FC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134836.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ FileOptimizer 16.40.2781 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134839.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ City Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134840.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Wise Care 365 Pro 6.6.3.633 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134845.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:64230FF31194330B4DF6B7EDBD45EC74AAB14CFA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134847.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ K-Lite Codec Pack Update 17.9.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134850.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:981D27BD532DC6DC1D45A5436FDD9F37B7D2A8F3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134856.jpg" />
 </div>
 
 

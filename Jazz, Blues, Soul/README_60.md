@@ -6,7 +6,7 @@ Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103505.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103507.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103513.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rosie's Smokehouse Deluxe - Welcome To The Smokehouse (2024) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103525.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Big Creek Slim - Going to Germany (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103527.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103529.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103534.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sarah Vaughan - Great Women of Song (2023) Verve Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103554.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103557.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Erskine Hawkins - 1941 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103578.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Jazz Para Trabajar Y Estudiar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103595.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ BoomChank - GobabyGO! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103596.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mama's Blues Joint - Happy Dude (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103597.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Khalif Wailin’ Walter - Phoenix Risin (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103598.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Michelle Malone - Southern Comfort (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103599.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ James Cooke - Halfway There (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103600.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mr Hardearly - Redemption & Bad Habits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103601.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tas Cru - Tas Cru Band LIVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103602.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103603.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Joe Pass Quartet - Nuages: Live At Yoshi's, Vol. 2 (1992) 1997, Pablo [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103613.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jim Hall - Live! (1975) 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103615.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Barney Kessel & Herb Ellis - Poor Butterfly (1976) 2002, Victor [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103617.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Joe Pass - Live In Vegas (1988) 2018, Hi Hat [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103618.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Just Jazz (Luxurious Smooth Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103650.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Dinner Jazz Instrumentals_ The Ultimate Collection, Vol. 1 (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103653.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Just Jazz (Luxurious Smooth Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103654.jpg" />
 </div>
 
 

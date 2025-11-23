@@ -6,7 +6,7 @@ Vinci J Rufus | Building Micro Frontends with React 18 (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132504.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Oswald Campesato | Python for Absolute Beginners (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132509.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:65E4158257DD6AD3D4349847606C53885D7F9330
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133870.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Maximiliano Contieri | Clean Code Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134131.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ James Reinders, Ben Ashbaugh | Data Parallel C++, 2nd Edition (2023) [PDF, EPUB]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134171.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5800FE1F66D6348AD99868F0E0873B4B301CD02D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134431.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Brij Kishore Pandey, Emily Ro Schoof | Building ETL Pipelines with Python (2023)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134743.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Bruce M. Van Horn II, Quan Nguyen | Hands-On Application Development with PyChar
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135153.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:7A50D2C575D4A5FD029C26FE6B9E307A9FEF82DB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135594.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136901.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Tim Peters | Practical Python Backend Programming [Build Flask and FastAPI appli
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136945.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:544CE98240B3297C938A130EE3AE9ADA48053A17
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136959.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:B31C0D28168E4A89DC6F66C3FF4A34B25A91637A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136983.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:4E7AAB1E35EFE9D01BB613FF5DF1D197AA9441DB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137429.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:8CF79F9820EA64F9A9584AEDBD92C384D955BEC6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138532.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Sec
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138800.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138847.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:8ABE78ADB9F23127928988876853ADF060101C31
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139834.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:214AB0B42021440E8761BC964667D7C5534756ED
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140022.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:2D1214ABF64BD2A15CFA31BDA1D831A16CD74F7C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140117.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:E8E950A60383FA2388E07B422D6263556357A5B9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140596.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:B7F8F49D136F1830C694ED0D4BBB1D4C321F8E02
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141283.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:2C1740668EF9E1A4301B3078CA171121130CDA15
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141836.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:FFBACE8FA6BC08055CF998F16A26F0A0EA98A443
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142469.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:4FAB71C15E73589535635047FD9AFAB0603EEB01
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143164.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:9393464B78FDC3FD6F64D11459A2DBD80D7B85A9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143198.jpg" />
 </div>
 
 

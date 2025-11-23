@@ -6,7 +6,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16316.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.15.1/dlc) Repack Let'sРlay [Complete Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16322.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Megaquarium (2018) [Ru/Multi] (4.2.5g/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16330.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack FitGirl [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16335.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DA88929708977E48913B9502E788AA543739E87A
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16336.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16341.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Artifact Seeker Resurrection (2024) [Ru/Multi] (1.4.12/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16343.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.9.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16362.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.104) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16393.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16397.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack FitGirl [Last Wish Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16401.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Little Brave (2025) [Ru/En] (1.0.6) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16436.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.13.112/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16437.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16451.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ GUILTY GEAR -STRIVE- (2021) [Ru/Multi] (1.46/dlc) Repack Let'sРlay [Ultimate Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16458.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Atomic Heart (2023) [Ru/Multi] (Dev Build) Repack Chovka
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16488.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack FitGirl [Deluxe Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16497.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tennis Manager 25 (2025) [Multi] (5.0.775) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16549.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fuga: Melodies of Steel 3 (2025) [Multi] (Build 29182614) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16575.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16579.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/Multi] (1.24.01/dlc) Repack FitGirl [Special
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16582.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16599.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16616.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (0.199.7) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16623.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.28.4665/dlc) Repack Let'sРlay [Definitive Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16635.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16693.jpg" />
 </div>
 
 

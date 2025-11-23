@@ -1,3 +1,101 @@
+###  Публикация: 1668048   (175213) от 10.10.2023
+
+RadioMaximus 2.32.1 RePack (& Portable) by TryRooM[Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11BE4EFFAF9CB34B2847C8BC02C09E15B90255E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668024   (175217) от 10.10.2023
+
+Auslogics Duplicate File Finder 10.0.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Duplicate File Finder поможет Вам избавиться от ненужных дубликатов. С помощью этой бесплатной программы Вы сможете очистить до 50% дополнительного пространства на жестком диске! Сколько абсолютно одинаковых файлов хранится на Вашем компьютере? Вы, возможно, удивитесь, как много места они занимают. Файлы-дубликаты могут накапливаться вследствие повседневного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC44C0CBF9DB905136D6D76988321DED3A3A4A50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667971   (175220) от 10.10.2023
+
+App Cleaner & Uninstaller Pro 8.2.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175220.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Cleaner - это приложение для просмотра установленных приложений и деинсталлирования пакета файлов для полного удаления.
+App Cleaner - лучшее приложение для удаления файлов приложения службы на macOS X и деинсталляции приложений.
+Удалить служебные файлы приложения. Убедитесь, что они не съедают драгоценное пространство на вашем Mac с этим полезным приложением, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AF10ADF8A0D58A6EFF398B1E947F5B601CFD70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667949   (175224) от 10.10.2023
+
+Auslogics Disk Defrag Pro 11.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2A8D0BA8EBD163B421132800ED5766E3D05D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430022   (175225) от 08.12.2020
 
 Morph Age 5.1 [Multi]
@@ -6,7 +104,7 @@ Morph Age 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175225.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175225.jpg" />
 </div>
 
 
@@ -31,7 +129,7 @@ Fission 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175228.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175228.jpg" />
 </div>
 
 
@@ -55,7 +153,7 @@ BurnAware Professional 17.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175229.jpg" />
 </div>
 
 
@@ -79,7 +177,7 @@ Bootstrap Studio 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175232.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175232.jpg" />
 </div>
 
 
@@ -105,7 +203,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.1 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175233.jpg" />
 </div>
 
 
@@ -129,7 +227,7 @@ Find Same Images OK 5.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175236.jpg" />
 </div>
 
 
@@ -153,7 +251,7 @@ Auslogics Duplicate File Finder 10.0.0.4 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175241.jpg" />
 </div>
 
 
@@ -177,7 +275,7 @@ Kerish Doctor 2022 4.90 (Update 05.12.2022) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175242.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175242.jpg" />
 </div>
 
 
@@ -201,7 +299,7 @@ Topaz Video AI 3.5.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175249.jpg" />
 </div>
 
 
@@ -225,7 +323,7 @@ Exposure Software Blow Up 3 v3.1.4.360 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175252.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175252.jpg" />
 </div>
 
 
@@ -250,7 +348,7 @@ PDF-XChange Editor Plus 9.5.365.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175258.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175258.jpg" />
 </div>
 
 
@@ -274,7 +372,7 @@ Xmas snow 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175263.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175263.jpg" />
 </div>
 
 
@@ -300,7 +398,7 @@ Macrorit Data Wiper 6.9.9 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175271.jpg" />
 </div>
 
 
@@ -324,7 +422,7 @@ Radiant Photo 1.1.2.315 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175274.jpg" />
 </div>
 
 
@@ -348,7 +446,7 @@ Serif Affinity Designer 1.10.6.1665 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175277.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175277.jpg" />
 </div>
 
 
@@ -372,7 +470,7 @@ Viber 21.1.0.6 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175282.jpg" />
 </div>
 
 
@@ -399,7 +497,7 @@ Motion 5.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175284.jpg" />
 </div>
 
 
@@ -423,7 +521,7 @@ Rogue Amoeba Farrago 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175291.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175291.jpg" />
 </div>
 
 
@@ -447,7 +545,7 @@ Format Factory 5.13.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175299.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175299.jpg" />
 </div>
 
 
@@ -471,7 +569,7 @@ VideoDuke 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175308.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175308.jpg" />
 </div>
 
 
@@ -497,7 +595,7 @@ Revo Uninstaller Pro 5.0.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175309.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175309.jpg" />
 </div>
 
 
@@ -521,7 +619,7 @@ Valentina Studio Pro 10.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175312.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175312.jpg" />
 </div>
 
 
@@ -532,106 +630,6 @@ Valentina Studio - это идеальный инструмент управле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E160431E39878CB9602E9C4AB2CC3854417F6AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595412   (175317) от 05.12.2022
-
-Core Temp 1.18.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Core Temp - программа для контроля температуры процессора. Core Temp может показывать температуру каждого отдельного ядра в каждом процессоре, имеющемся в системе. С помощью этой утилиты можно в реальном времени наблюдать, как меняется температура ядра процессора в зависимости от нагрузки. Core Temp позволяет записывать изменения температуры процессоров в течение (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4758AE2CC65E0FAE64328FF5D91559D830910B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430025   (175320) от 08.12.2020
-
-PhotoSweeper X 3.9.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175320.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoSweeper — отличный способ поиска дубликатов изображений
-Проблема очистки компьютера остро стоит у многих пользователей. При «обычной» эксплуатации жесткий диск забивается ненужными файлами не очень быстро, но у тех, кто активно работает с определенными типами файлов, проблема с появлением дубликатов файлов весьма актуальна. Наиболее острую необходимость в приложениях (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07.12.2020Разработчик: Gwinno Software IncПоддерживаемая ОС: OS X 10.12.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B25F22CB51B0E30332C7436D6A30726C57947EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430026   (175324) от 08.12.2020
-
-Posterino 3 v3.9.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
-
-Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897836B4066C465C1F41D2EEA6EA52B68732A737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595528   (175327) от 05.12.2022
-
-Sticky Password Premium 8.6.2.1258 (промо SharewareOnSale) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sticky Password Premium – менеджер паролей, который позволяет хранить ваши учетные данные локально или в облаке, синхронизируя их с компьютерами Windows, Mac, Android-устройствами, iPhone и iPad, гарантируя, что вы можете создавать безопасные пароли и автоматически вводить их, где бы вы ни находились.
-Sticky Password Premium для Windows может осуществлять автоматический (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD972997BE364CDE61E6E6E7FA9D54B910BA860
 ```
 
 

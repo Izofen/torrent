@@ -1,3 +1,84 @@
+###  Публикация: 1718534   (110630) от 28.04.2024
+
+Cousin Kula - Vitamin D (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clothes Off [00:05:42]
+02. Poisoned [00:04:05]
+03. Staying With You [00:04:48]
+04. Hangin' On Your Lips [00:02:50](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90625947A7B6F9EF4B04B40069636962AFA3754
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719142   (110631) от 28.04.2024
+
+Judy Wexler - Under A Painted Sky (2011) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Wonderful [4:35]
+02. And How I Hoped for Your Love [4:38]
+03. An Occasional Man [4:20]
+04. Don't Wait Too Long [3:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D228868D53758834FE6CC9F41572A7EEFBAAA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719233   (110632) от 28.04.2024
+
+Attic - Return of the Witchfinder (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Covenant (00:01:47)
+02 - Darkest Rites (00:05:35)
+03 - Hailstorm And Tempest (00:05:32)
+04 - The Thief's Candle (00:06:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A403C06D816B3F005152C2E739CA6D45A146602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719186   (110633) от 28.04.2024
 
 Danko Jones - Electric Sounds (2023) Deluxe Version, 2024, AFM Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +87,7 @@ Danko Jones - Electric Sounds (2023) Deluxe Version, 2024, AFM Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110633.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Chilled Jazz Masters - Mocha Rythm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110634.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110635.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Vanden Plas - The Empyrean Equation Of The Long Lost Things (2024) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110636.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:A6242D8D6355BC2594566585F9E5895744E507F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110637.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ magnet:?xt=urn:btih:A6242D8D6355BC2594566585F9E5895744E507F8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110638.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ magnet:?xt=urn:btih:B1393F781AE68469159A3EAA9DE3B20FE0511565
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110639.jpg" />
 </div>
 
 
@@ -187,7 +268,7 @@ Text Editor Pro 29.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110640.jpg" />
 </div>
 
 
@@ -211,7 +292,7 @@ magnet:?xt=urn:btih:4AEE79890F363065A72E31F26E66CC8B7F5DF453
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110641.jpg" />
 </div>
 
 
@@ -235,7 +316,7 @@ File & Image Uploader 8.4.2 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110642.jpg" />
 </div>
 
 
@@ -259,7 +340,7 @@ MotoGP. Этап 04 из 21. Гран-при Испании. Гонка (28.04.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110643.jpg" />
 </div>
 
 
@@ -283,7 +364,7 @@ magnet:?xt=urn:btih:301A8F230F07405C1FB6E6A7228D5A92DA6AE7C4
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110644.jpg" />
 </div>
 
 
@@ -307,7 +388,7 @@ magnet:?xt=urn:btih:E97FBDFA98E3BEBBA51C2CE29344823DE5026D3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110645.jpg" />
 </div>
 
 
@@ -331,7 +412,7 @@ magnet:?xt=urn:btih:39C82009CD71B00E8B686F20E38085DABBD6A1B8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110646.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ magnet:?xt=urn:btih:228DFCAE1B1E386DF47D6B8D838BDC0C0D479423
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110647.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ Transatlantic - Live at Morsefest 2022: The Absolute Whirlwind (2024) Live at Mo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110648.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ Stephen Sanchez - Angel Face (2024) Club Deluxe [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110649.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ magnet:?xt=urn:btih:FC839A05F7F77E6246FFACF656DA11E1724691F6
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110650.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110651.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ magnet:?xt=urn:btih:2A17C6A911F069B3B9E951E1991B7638C8C94D4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110652.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ magnet:?xt=urn:btih:2A17C6A911F069B3B9E951E1991B7638C8C94D4F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110653.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ Half Past Two - Talk Is Killing Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska-Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110654.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ Marina Kaye - Heavenbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110655.jpg" />
 </div>
 
 
@@ -576,79 +657,6 @@ Marina Kaye - Heavenbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EBBBB5F789A2608025BBB01DCBF04E04FEC01D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719319   (110656) от 28.04.2024
-
-НашПотребНадзор (28.04.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проверка куриных яиц самых популярных брендов: яйца от каких брендов меньше, чем написано на коробке и яйца какой категории брать экономичнее всего? Мясо диких лосей, оленей и кабанов действительно натуральнее, безопаснее, полезнее чем обычные свинина и курятина и что находится в банках с консервированной дичью. Жевательный мармелад: от каких брендов сладкое угощение (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2537830807EE7ACFBF13E3DEF6ACB9E650D08BF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703063   (110657) от 28.04.2024
-
-Перекоп (1929) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпущенный к годовщине взятия Перекопа, фильм состоит из некоторого числа эпизодов, на первый взгляд не связанных напрямую друг с другом...
-Крестьянин-бедняк тщетно пытается приделать к сохе нож, чтобы заменить им лемех. Грустно смотрят на невспаханное поле крестьянки. Бездействует завод, но приходят рабочие и пускают его. Восстанавливаются шахты, движутся вагонетки, (   Читать дальше...   )Производство: СССР, Украинфильм (Одесса)Жанр: драма, история, немое киноРежиссер: Иван КавалеридзеАктеры: Сергей Минин, В. Поддубный, Степан Шагайда, Семён Свашенко, Иван Твердохлиб, Екатерина Осмяловская, Степан ВасютинскийСубтитры: украинские (интертитры), русские отдельным файломПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26485D0C10C2F5772E2D2C8C75D51D0849DD839C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717356   (110658) от 28.04.2024
-
-4K Video Downloader + 1.5.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.04.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55870C0C42C686B0D45FC2B751C8EF94D8A2229D
 ```
 
 

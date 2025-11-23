@@ -1,3 +1,76 @@
+###  Публикация: 1684568   (127691) от 16.12.2023
+
+Трактир «Черная дыра» / Demon Pit (2022) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то далеко-далеко, посреди пустыни, вот уже много лет стоит небольшая постройка, внешний вид которой напоминает то ли бар, то ли стриптиз-клуб. На пороге обитает вечно голодный мужчина, а внутри — несколько очаровательных женщин-демонов в обтягивающих нарядах. Каждый, кто заходит внутрь, вынужден стать частью игры. Если ты живешь праведной жизнью, то местные накормят (   Читать дальше...   )Производство: США / Bulldog Brothers Entertainment, Enhanced Media, Hannibal Films, Tadross Media GroupЖанр: ужасыРежиссер: Лэнс КауэсАктеры: Рэнди Кутюр, Роберт Дави, Дин Кэйн, Майкл Мэдсен, Ричард Греко, Минди Робинсон, Чак Цито, Джанни Капальди, Джон Орр, Марк ДжастисПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: РусскийСубтитры: Русские (forced hardsub на испанскую речь)Продолжительность: 01:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305CCC98F8AB0619BA148B44E1FEB23D794E9C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684520   (127692) от 16.12.2023
+
+JetBrains PhpStorm 2023.3.1 Repack by Sitego [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127692.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
+поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1, 8.2 и PHP 8.3 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание языков. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000698918D35DB5538ACAD5E73E587347F197F21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684696   (127693) от 16.12.2023
+
+За короля! / Vaincre ou mourir (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, 1793 год. Гнев крестьян, обманутых обещаниями Французской революции, растет. Они призывают Шаретта, бывшего офицера Королевского флота, возглавить восстание. За несколько месяцев моряк становится харизматичным лидером и прекрасным стратегом, увлекая за собой крестьян, женщин, стариков и детей, из которых он создает грозную и неуловимую армию. Борьба за свободу (   Читать дальше...   )Производство: Франция / Puy Du Fou FilmsЖанр: боевик, военный, историяРежиссер: Пол Миньо, Венсан МоттезАктеры: Юго Бекер, Валентин Пиффар, Тристан Студер, Од Студер, Тадрина Хокинг, Жак Милаццо, Вилли Ле Дрюийенек, Пьер-Феликс Гравье, Дамьен Жуйро, Франсис РеноПеревод: Многоголосый профессиональный (КиноПоиск HD)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F570A224492177F902B4775A31D2ED3A60187886
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684617   (127694) от 16.12.2023
 
 Microsoft Visual Studio 2022 Enterprise 17.8.3 (Offline Cache) [Ru/En]
@@ -6,7 +79,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127694.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:101F8BF572AED99FE3E549406C317E884E434327
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127695.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:1CF09D2E3D244123EE3BB08600773F1B9E30CE1E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127696.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:2327044462E87D4DDEC5E9EFD8ADF0CE9333A90F
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127697.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:1ACE66FA15CD9D3E92F2C66E88ADC1A1D33C01DB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127698.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:AC58AC55990FAB6B7E71F9DB3C17E606218E95DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127699.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:FC2514B054401A701AD37771633D2DCE7D9F3C75
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127700.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:E9527ED596546C75FC6B6DF837DC29FD4A60D163
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127701.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:A5515C9B644A1DBEC29570BBC128594D37712D77
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127702.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:BAE44790BCE08923AAE3DEFBFA2251EFBE945574
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127703.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ magnet:?xt=urn:btih:B29059C85BAF188FDC8474FE57238E463EE9ABC3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127704.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ magnet:?xt=urn:btih:9156BA4D4B88A7C611238744F6982866E1B81494
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127705.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ magnet:?xt=urn:btih:EC781914FEE4D372DD8C7D530063FD0598EFCFFA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127706.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ magnet:?xt=urn:btih:233F67B060B3515FDA800E351C0350D36FB918F2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127707.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ Air: Большой прыжок / Air (2023) WEB-DL [H.265/2160p] [4K, HDR10+, 
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127708.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ magnet:?xt=urn:btih:E457EE500D5CE9096002E83AAFC01C8F756C7274
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127709.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ magnet:?xt=urn:btih:EA12BCEFA34A5540DD65DD4E252E00B764EFB2E2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127710.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ magnet:?xt=urn:btih:104C12191B49FFE66A75A0499B16C771D8B5B02D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127711.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ magnet:?xt=urn:btih:FFAAFE9BB7DC723633D5FB960964EC72F3407C9B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127712.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:CB6F64713C55974A3171D70296EBA69C25452000
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127713.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ magnet:?xt=urn:btih:EEF3B1ED8F5C6390F6738EEEF2755D5CF598AC68
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127714.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ magnet:?xt=urn:btih:3475DFD91C0EA8BE63A4A0F86B313C4DFB0DA663
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127715.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ LiteManager 5.1 (5180) Free/Pro [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127716.jpg" />
 </div>
 
 
@@ -558,78 +631,6 @@ LiteManager Free - бесплатная программа для удаленн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4D805CB8FA6EA7CA57CD3936C985E90B1F41175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684542   (127717) от 16.12.2023
-
-Нефариус / Nefarious (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127717.jpg" />
-</div>
-
-
-###  Подробнее
-
-В день запланированной казни осужденного серийного убийцы к нему в тюрьму приезжает врач, чтобы провести психиатрическую экспертизу. Тот с порога заявляет, что умереть всё равно не сможет, так как является демоном, а психиатр перед уходом совершит три убийства.Производство: США / Believe Entertainment (II)Жанр: ТриллерРежиссер: Чак Конзелман, Кэри СоломонАктеры: Джордан Бэлфи, Шон Патрик Флэнери, Том Омер, Гленн Бек, Дэниэл Мартин Берки, Марк Де Алессандро, Камерон Арнетт, Джеймс Хили мл., Сара Эрнандес, Джаррет ЛеМастерПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (SDH), Английские (Full, SDH)Продолжительность: 01:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808D76007AF6E86603107C6440CE360FF9A058E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684634   (127718) от 16.12.2023
-
-Topaz Photo AI 2.2.1 (x64) Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA3489E033BD929430097B2B0E6DA8EDEDC13BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655452   (127719) от 16.12.2023
-
-BikeComputer Pro v8.10.2 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127719.jpg" />
-</div>
-
-
-###  Подробнее
-
-BikeComputer Pro - возможно, одно из лучших приложений для велоспорта. Версия Pro содержит все необходимые функции:Тип издания: ModРелиз состоялся: 11.12.2023Разработчик: Robert OehlerПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947D17D7B0A786C3556898B7BB8EF925E601256B
 ```
 
 

@@ -1,3 +1,86 @@
+###  Публикация: 468533   (82410) от 16.03.2012
+
+Эрл Стэнли Гарднер | Сигнал смертельной опасности [2010] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «Приключения Пола Прая» The Adventures of Paul Pry
+Сигнал смертельной опасностиЖанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF34762AF0070D37B05E3A0B8296A6AA5E0EDBF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468120   (82412) от 16.03.2012
+
+Selfplayers - Vibrations (2012) [MP3|320 кб/с]<reggae, ragga-jungle, electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82412.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Intropetition (1:12)
+2 - No War (2:41)
+3 - Будь Свободен (5:11)
+4 - Дым (3:25)
+5 - Live Dictaphone Jam 1 (1:40)
+6 - Gusli (4:29)
+7 - Счастье (3:29)
+8 - Time Is Right (feat. V-Joint) (3:34)
+9 - Live Dictaphone Jam 2 (1:02)
+10 - Who Can Tell Me (feat. Gala Ga) (3:38)(   Читать дальше...   )2012Жанр: reggae, ragga-jungle, electronicПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DD169EBAE9760D81CB69D983C062C9C99A5213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468537   (82413) от 16.03.2012
+
+Эрл Стэнли Гарднер | Убийца вышивающий крестом [2010] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «Приключения Пола Прая» The Adventures of Paul Pry
+Убийца вышивающий крестомЖанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E6030D73C3CEB596BCD0697C2C94C13D6A9DF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468671   (82414) от 16.03.2012
 
 Saori Yano - BeBop at The Savoy (2010) [FLAC|Lossless]<Jazz,  Be Bop>
@@ -6,7 +89,7 @@ Saori Yano - BeBop at The Savoy (2010) [FLAC|Lossless]<Jazz,  Be Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82414.jpg" />
 </div>
 
 
@@ -39,7 +122,7 @@ Mozilla Firefox 12.0  Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82417.jpg" />
 </div>
 
 
@@ -63,7 +146,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82420.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ magnet:?xt=urn:btih:5B10AC2D9F8CE4A69878869C2043A939C9F0D547
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82424.jpg" />
 </div>
 
 
@@ -112,7 +195,7 @@ magnet:?xt=urn:btih:9E7D1EB771C9BF2A492637D0EDA765E859A3FC63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82426.jpg" />
 </div>
 
 
@@ -136,7 +219,7 @@ magnet:?xt=urn:btih:9E7D1EB771C9BF2A492637D0EDA765E859A3FC63
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82429.jpg" />
 </div>
 
 
@@ -162,7 +245,7 @@ magnet:?xt=urn:btih:EC053AFCC169F42FB3EE675621545B8A6AF964C1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82431.jpg" />
 </div>
 
 
@@ -186,7 +269,7 @@ magnet:?xt=urn:btih:738ABD473C840194037112F6ED360A504BB4462B
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82437.jpg" />
 </div>
 
 
@@ -212,7 +295,7 @@ magnet:?xt=urn:btih:A53D2644E610CAD942EE216366EE0F5E07F15CAB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82439.jpg" />
 </div>
 
 
@@ -238,7 +321,7 @@ magnet:?xt=urn:btih:A94E5C45B0A4024D404BA0BDC6B18AD95B6DBF0F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82442.jpg" />
 </div>
 
 
@@ -262,7 +345,7 @@ magnet:?xt=urn:btih:A94E5C45B0A4024D404BA0BDC6B18AD95B6DBF0F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82446.jpg" />
 </div>
 
 
@@ -286,7 +369,7 @@ magnet:?xt=urn:btih:080734693CF9211D6A0F0F35776AF26650BFDAB3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82447.jpg" />
 </div>
 
 
@@ -310,7 +393,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82450.jpg" />
 </div>
 
 
@@ -335,7 +418,7 @@ magnet:?xt=urn:btih:2F4D8BD01415AE83814682FE57861A9B286D482D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82451.jpg" />
 </div>
 
 
@@ -361,7 +444,7 @@ magnet:?xt=urn:btih:CEC8F06F4568D23DE212C5AD3792C6D41463D233
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82457.jpg" />
 </div>
 
 
@@ -387,7 +470,7 @@ magnet:?xt=urn:btih:6750413E3CD20FF9E1B65AFC42C3C28F60CB13CF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82460.jpg" />
 </div>
 
 
@@ -411,7 +494,7 @@ magnet:?xt=urn:btih:6750413E3CD20FF9E1B65AFC42C3C28F60CB13CF
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82462.jpg" />
 </div>
 
 
@@ -435,7 +518,7 @@ magnet:?xt=urn:btih:397C68E2B15D1C008253D651D47C054BC0C8644F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82465.jpg" />
 </div>
 
 
@@ -459,7 +542,7 @@ magnet:?xt=urn:btih:3BB2FF6DFD1E7BD6C7F984B9C2A9AA1AF0135D1C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82467.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ magnet:?xt=urn:btih:3FD1F0C6FAAB8499C1DEB8E291C15C1D094D5E65
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82468.jpg" />
 </div>
 
 
@@ -509,7 +592,7 @@ magnet:?xt=urn:btih:3FD1F0C6FAAB8499C1DEB8E291C15C1D094D5E65
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82469.jpg" />
 </div>
 
 
@@ -533,7 +616,7 @@ magnet:?xt=urn:btih:F9F702229E510619006F671DDF1A3648E9F3FEF5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82478.jpg" />
 </div>
 
 
@@ -558,7 +641,7 @@ Caravan Palace - Panic (2012) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82482.jpg" />
 </div>
 
 
@@ -574,78 +657,6 @@ Caravan Palace - Panic (2012) [FLAC|Lossless]<Swing>
 08. Glory of Nelly (3:43)
 09. Dramophone (3:23)
 10. Cotton Heads (3:38)(   Читать дальше...   )2012Жанр: SwingПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468477   (82483) от 16.03.2012
-
-Игра смерти / Game of Death (1978) [H.264] BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преступный синдикат зловещего доктора Лэнда контролирует гонконгский шоу-бизнес: все артисты обязаны отчислять мафии немалые суммы со всех своих доходов. Молодой актер Билли Ло вступает в борьбу с преступным синдикатом.Жанр: Боевик, Триллер, КриминалРежиссер: Роберт Клауз, Саммо Хунг Кам-Бо, Брюс ЛиАктеры: Брюс Ли, Коллин Кэмп, Дин Джэггер, Гиг Янг, Таи Чунг Ким, Юэнь Бяо, Роберт Уолл, Карим Абдул-Джаббар, Мел Новак, Хью О’Брайен и другие.Перевод: Профессиональный, многоголосый (Продолжительность: 01:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18DE4A00F28FAEB14ACCBD519A3E8248A43539E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468776   (82487) от 16.03.2012
-
-Ю. Подольский | Уличные очаги, грили, барбекю [2011] [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практические руководства по возведению хозпостроек, различных садовых строений, ограждений, ворот, калиток и организации уличных очагов, барбекю, грилей на участке. Пошаговое описание и подробные рисунки позволят выполнить эти работы даже начинающему хозяину.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA642DF3930EDBABBE4A2B07C2FE124EF02D6C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468530   (82488) от 16.03.2012
-
-Игра смерти / Game of Death (1978) [720p] BDRip
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преступный синдикат зловещего доктора Лэнда контролирует гонконгский шоу-бизнес: все артисты обязаны отчислять мафии немалые суммы со всех своих доходов. Молодой актер Билли Ло вступает в борьбу с преступным синдикатом.Жанр: Боевик, Триллер, КриминалРежиссер: Роберт Клауз, Саммо Хунг Кам-Бо, Брюс ЛиАктеры: Брюс Ли, Коллин Кэмп, Дин Джэггер, Гиг Янг, Таи Чунг Ким, Юэнь Бяо, Роберт Уолл, Карим Абдул-Джаббар, Мел Новак, Хью О’Брайен и другие.Перевод: Профессиональный многоголосый (Superbit), Авторский одноголосыйПродолжительность: 01:41:33
 
 ## Скачать торент
 ```bash

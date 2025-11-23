@@ -1,3 +1,76 @@
+###  Публикация: 1707709   (113282) от 17.03.2024
+
+Мартин Лейвиц | НЛП в бизнесе (2016) [MP3, Алексей Мужицкий]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая эффективная методика достижения успеха, опробованная миллионами людей!
+НЛП в бизнесе – это универсальное средство, которое можно использовать для решения всех возникающих деловых вопросов. Наладить работу коллектива, провести результативные переговоры, добиться повышения бизнес-показателей – все это по силам тому, кто владеет технологиями НЛП. Можно сказать, (   Читать дальше...   )Жанр: Зарубежная психология, НЛПИздательство: AB PublishingПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809AD754E0E9722418B1294FBE0E09EF862D7CD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707614   (113283) от 17.03.2024
+
+Газета | Азбука вязания №2 (февраль 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство “Газетный мир” представляет вашему вниманию журнал “Азбука вязания”. Если ваше хобби - рукоделие или вы всегда мечтали научиться вязать, то в этом журнале вы найдете множество полезных советов и техник. В каждом номере разбирается отдельная тема, и освещается вязание как на спицах, так и крючком.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA39B7B28A331D3293D79D36F2899016B31D8ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707751   (113284) от 17.03.2024
+
+Я – капитан / Io capitano (2023) WEBRip [H.264] [UKR звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два подростка из Сенегала решают сбежать из дома и отправиться в Европу за лучшей жизнью. Однако путь к мечте лежит через суровую пустыню и недружелюбное море, где им придется столкнуться не только с полицией, но и с охотниками за рабами. Им может помочь только чудо.Производство: Италия, Бельгия, Франция / Archimede, Rai Cinema, TarantulaЖанр: драмаРежиссер: Маттео ГарронеАктеры: Сейду Сарр, Мустафа Фолл, Исака Савадого, Ишем Якуби, Дуду Санья, Ндейе Кади Си, Венус Гуай, Умар Диау, Джо Лассана, Мамаду СаниПеревод: Профессиональный многоголосый (укр. звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 02:01:30Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707666   (113285) от 17.03.2024
 
 Когда я вырасту маленьким / Quand je serai petit (2012) DVDRip [АVO]
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113285.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:95EBB6291C5C81FC98FB6B9F6E9752E2C44DDE10
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113286.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Thin Lizzy - A Song For While I’m Away (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113287.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:BDE3EC1EE7C03F3F6B15A7FA242DC91745E1DD56
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113288.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:2A56F4B67AE193F4550A380A8F87B113122DD863
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113289.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ VA - Calm Piano Study Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113290.jpg" />
 </div>
 
 
@@ -158,7 +231,7 @@ VA - Dance Chart 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113291.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ magnet:?xt=urn:btih:D65F617019829288CDC7A4D87A60CB9AEC40C913
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113292.jpg" />
 </div>
 
 
@@ -211,7 +284,7 @@ Zhu - Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Bas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113293.jpg" />
 </div>
 
 
@@ -238,7 +311,7 @@ Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113294.jpg" />
 </div>
 
 
@@ -265,7 +338,7 @@ Lyre le temps - Compilation (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Rap, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113295.jpg" />
 </div>
 
 
@@ -292,7 +365,7 @@ Navicat for MySQL for Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113296.jpg" />
 </div>
 
 
@@ -316,7 +389,7 @@ Photo Studio PRO 2.7.3.2413 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113297.jpg" />
 </div>
 
 
@@ -340,7 +413,7 @@ magnet:?xt=urn:btih:5B0452394348270AAF0628CB772591E128A9E863
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113298.jpg" />
 </div>
 
 
@@ -365,7 +438,7 @@ DigiKam 8.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113299.jpg" />
 </div>
 
 
@@ -389,7 +462,7 @@ magnet:?xt=urn:btih:0B693B95ECB3DFB3149B6AF6907E27551C85FC04
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113300.jpg" />
 </div>
 
 
@@ -413,7 +486,7 @@ VA - Music News vol.353 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113301.jpg" />
 </div>
 
 
@@ -440,7 +513,7 @@ magnet:?xt=urn:btih:171083B014F2AF210CF6AA89A2CACE92468A7465
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113302.jpg" />
 </div>
 
 
@@ -464,7 +537,7 @@ LibreWolf 123.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113303.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ VA - Electro Swing, Nu Jazz Compilation part 64 (2024) [MP3|320 Kbps] <Electro S
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113304.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ Cherry Laine - The Singles Collection - B’ Sides (2023) [FLAC|Lossless|image +
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113305.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:145E39D9DEDFA6D7D17BC4C2EB9F39BFB5ACA6ED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113306.jpg" />
 </div>
 
 
@@ -568,7 +641,7 @@ magnet:?xt=urn:btih:9EB4CEA5EF26747F842E905EF74CBF3116E0B4C6
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113307.jpg" />
 </div>
 
 
@@ -579,81 +652,6 @@ magnet:?xt=urn:btih:9EB4CEA5EF26747F842E905EF74CBF3116E0B4C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4071D21CB59030345DD5DB0C47BB3408E0E549AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707577   (113308) от 17.03.2024
-
-Emurasoft EmEditor Professional 24.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113308.jpg" />
-</div>
-
-
-###  Подробнее
-
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9030B11BFC022BC2464324C35D7DF894E2659E22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707675   (113309) от 17.03.2024
-
-TuneIn Radio 33.6.1 Paid [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113309.jpg" />
-</div>
-
-
-###  Подробнее
-
-СПОРТ В ПРЯМОМ ЭФИРЕ. МУЗЫКА. НОВОСТИ. ПОДКАСТЫ.
-TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении.
-Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 13.03.2024Разработчик: TuneIn IncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B58834C4C3B2011F63DA950106B7FFBCC240813
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707592   (113310) от 17.03.2024
-
-Я слон, мадам / Ich bin ein Elefant, Madame (1969) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бремен, 1968, старшеклассники бунтуют против тоталитарного обучения под музыку Уорхола и Velvet Underground, но проблемы у главного героя начинаются, когда он в полемическом задоре рисует на стене свастику как приглашение к дискуссии.Производство: Германия (ФРГ) / Iduna Film ProduktiongesellschaftЖанр: драма, комедияРежиссер: Петер ЦадекАктеры: Хайнц Бауманн, Вольфганг Шнайдер, Гуидо Бауманн, Марго Троогер, Гюнтер Людерс, Танкред Дорст, Петер Палитцш, Рольф Беккер, Вернер Дамс, Роберт ДитльПеревод: авторский (Юрий Муравский)Язык озвучки: русский, немецкийСубтитры: отсутствуютПродолжительность: 01:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3C9AC66F4599D88A04E88B09705BD72A5361D6
 ```
 
 

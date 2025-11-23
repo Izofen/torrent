@@ -1,3 +1,150 @@
+###  Публикация: 1425518   (219985) от 21.11.2020
+
+Сборник - WD-Free-Deals [JPG, PNG, PSD, AI, EPS, PAT, ABR, CSH, GRD, ASL, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромный сборник стоковых изображений и дополнений для photoshop.Формат: JPG, PNG, PSD, AI, EPS, PAT, ABR, CSH, GRD, ASL, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3CBA966727C4F020011E33AFAD547FF1CCC6C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425506   (220034) от 21.11.2020
+
+Векторный клипарт - Vector Floral Ornaments [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные орнаменты. Независимо от того, что было средой творчества, цветочный дизайн всегда занимал особое положение в мире искусства. Лучшая коллекция качественной цветочной векторной графики.Формат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95B04457AD9535A5D156AF5A3AC4D5C1A8F3103
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425496   (220192) от 21.11.2020
+
+Паттерны - 1000+ Pixel Patterns [PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам нужны фоны? Используйте этот пакет, и вы сможете создавать бесшовные шаблоны, которые можно использовать для создания потрясающих фонов веб-сайтов. Создавайте потрясающие фоны в Photoshop с помощью этого набора.Формат: PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E139E0B04B6BB39D30DAD575E0A0AEA1C20FFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425491   (220371) от 21.11.2020
+
+Растровый клипарт - 1000 Stock Photos [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ищете подходящее изображение для подходящей работы? Увеличьте свой набор графических инструментов с помощью этой удивительной коллекции стоковых изображений. В этом наборе много категорий.Формат: JPGРазрешение файлов: 1728x2672-4288x2848
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2146854E662DAA3777D8726FD1452430F6BC2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084389   (220487) от 18.12.2016
+
+Шрифты - Phantom Regular [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Количество: 2 шт.
+Разработчик: Identikal
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская)
+(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2A3567F64820BF6FCAFBEB9360A78FDFE69AC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737198   (220881) от 21.12.2013
+
+Растровый клипарт - Новогодняя распродажа / Christmas Sale [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_220881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодняя распродажаФормат: JPEGРазрешение файлов: 4800х3700-6400х6700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C280E6B2DDC2B7E2DDB15358707F92A05F35FF6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832887   (221271) от 30.10.2025
 
 Шрифты - MyFonts - Gunko Street [OTF, TTF, WOFF, WOFF2]
@@ -6,7 +153,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221271.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221271.jpg" />
 </div>
 
 
@@ -30,7 +177,7 @@ magnet:?xt=urn:btih:AA2D36BF749AA4F83E187F95907216C7E8179841
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221631.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221631.jpg" />
 </div>
 
 
@@ -56,7 +203,7 @@ magnet:?xt=urn:btih:0F39962B8AD853EC9C658DECDF427DE607C61E61
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221775.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221775.jpg" />
 </div>
 
 
@@ -82,7 +229,7 @@ magnet:?xt=urn:btih:C4BFC0E09BD7DDEB579252308103B471A423292F
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221935.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221935.jpg" />
 </div>
 
 
@@ -107,7 +254,7 @@ magnet:?xt=urn:btih:05D1D31FA09B0D1BB33FF8897D1835D879E2E1B5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221938.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221938.jpg" />
 </div>
 
 
@@ -132,7 +279,7 @@ magnet:?xt=urn:btih:43F07FB9FE20B5B8BBC8CD0FA82CE9A052800E8F
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221977.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221977.jpg" />
 </div>
 
 
@@ -158,7 +305,7 @@ magnet:?xt=urn:btih:CF826A39FD986B07DF389F4753E0A1007474E397
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222778.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222778.jpg" />
 </div>
 
 
@@ -185,7 +332,7 @@ magnet:?xt=urn:btih:8E407C8098FA73EED26F97542FC8DA785DE4235B
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223110.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223110.jpg" />
 </div>
 
 
@@ -209,7 +356,7 @@ magnet:?xt=urn:btih:8DE6569E3D26055AB55D04A93332F82268C34815
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223306.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223306.jpg" />
 </div>
 
 
@@ -236,7 +383,7 @@ magnet:?xt=urn:btih:7E8947734898B549D56ED05432E8812C01825E6E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223328.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223328.jpg" />
 </div>
 
 
@@ -260,7 +407,7 @@ magnet:?xt=urn:btih:7F9114F5E9ED2F13FD4088401C385D0A591AE97A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223344.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223344.jpg" />
 </div>
 
 
@@ -285,7 +432,7 @@ magnet:?xt=urn:btih:3D71174D6B6CFAF8C3E685FAD85B4CF75B08F161
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223515.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223515.jpg" />
 </div>
 
 
@@ -309,7 +456,7 @@ magnet:?xt=urn:btih:43C07351D922E1C10D8272882A5760693F2A21C1
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223523.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223523.jpg" />
 </div>
 
 
@@ -333,7 +480,7 @@ magnet:?xt=urn:btih:1F3CBC528E22D136377317239BC9E82E3F303465
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223578.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223578.jpg" />
 </div>
 
 
@@ -357,7 +504,7 @@ magnet:?xt=urn:btih:3EA7EC61233ED3C75C8DD66641B9CA1E9BC7E962
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223729.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223729.jpg" />
 </div>
 
 
@@ -381,7 +528,7 @@ magnet:?xt=urn:btih:D22CBDC977CAB1558D2840C027DA4C3C45AEBE09
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223741.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223741.jpg" />
 </div>
 
 
@@ -405,7 +552,7 @@ magnet:?xt=urn:btih:9EB150BE9CD8F64D449E0D35EBA5BAC86BE4E8AF
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224005.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224005.jpg" />
 </div>
 
 
@@ -429,7 +576,7 @@ magnet:?xt=urn:btih:89258A60D8421892E9CA714D9C7B6D0ED6C6914E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224036.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224036.jpg" />
 </div>
 
 
@@ -453,7 +600,7 @@ magnet:?xt=urn:btih:400821B93DBD50F02B163C6B6EDED52C58595AFC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224846.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224846.jpg" />
 </div>
 
 
@@ -477,7 +624,7 @@ magnet:?xt=urn:btih:C8260194DECC8DB79AEFA038FB4615EBA5848142
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224857.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224857.jpg" />
 </div>
 
 
@@ -489,150 +636,6 @@ magnet:?xt=urn:btih:C8260194DECC8DB79AEFA038FB4615EBA5848142
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73D536F3D1EA1F8E00CC65A3283F0A0C1BA9DBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424874   (224926) от 18.11.2020
-
-Экшены - Adobe Photoshop Actions [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photoshop может творить чудеса. Если вы хотите добавить творческих способностей к своему набору инструментов Photoshop, этот пакет для вас. Не тратьте время на повторение одних и тех же утомительных шагов для достижения эффекта.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E178F5D376B6F2599244FB129D3185B637C4474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424898   (224987) от 18.11.2020
-
-Шаблоны - Photoshop PSD Layouts [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте сайты в мгновение ока. Этот набор файлов PSD позволит вам легко и быстро создать привлекательный веб-сайт, привлекающий внимание посетителей. Файлы PSD - это безмерно полезная часть набора инструментов любого веб-дизайнера.Формат: PSDРазрешение файлов: 1020x1300-1220x1800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679E4602AC7520241769AD0D41363AF5904EBD1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424910   (225062) от 18.11.2020
-
-Текстуры - Royalty Free Misc Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Качественные текстуры. Они добавляют удивительный реализм в ваши проекты без особых усилий. Хотите добавить популярности своим проектам, не внося масштабных изменений?Формат: JPGРазрешение файлов: 3488x2616
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E8155965D9058E37717F00382D85B9CB72157A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424870   (225121) от 18.11.2020
-
-Векторный клипарт - 421 Awesome Vector Files [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы найдете самые разные формы и категории, включая листву, круги, ромбы, печать, солнечные лучи, стрелки, указатели и многое другое! Расширьте свой дизайнерский арсенал с помощью этого векторного набораФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E164B2C5640B0F581421958D37D8D020945A2867
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424962   (225128) от 18.11.2020
-
-Текстуры - Textures and flower stock images [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавляйте потрясающие фоны в свои проекты. Текстуры и изображения цветов сделают ваш веб-сайт или дизайн более профессиональным. Креативная библиотека вдохновляющих изображений цветов и фактур.Формат: JPGРазрешение файлов: 3488x2616-4288x2848
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B1EE38AFC9D392C6F44CA40633E5855990D883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342183   (225157) от 01.12.2019
-
-Экшены - Creative Market - Smoke Color Action - 4263734 [ATN, ABR, GRD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smoke Color - простой в использовании экшен фотошоп даст вашим изображениям удивительный эффект с яркими цветами клубов дыма. После того, как действие закончит работу, вы получите структурированный файл со слоями, для улучшения конечного результата.Формат: ATN, ABR, GRD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B07417C66FDFBC523D7B63FA49FB48315E459C2
 ```
 
 

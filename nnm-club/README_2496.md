@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65644.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KORG - ARP 2600 1.1.5 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65645.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B9ACA3C1B9A7D6B784DC10017A73E4B45DBC4C2F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65646.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6E169EE27F4F8540840B196A344E025D25CBEB23
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65647.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:810DC4AD1025D021AC91F7540E81FE6D6CBC8B52
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65648.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Musical kaleidoscope part 45 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65649.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CE9DA883715CF62835645097D7618C28FD69D618
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65650.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7C981CE8D931AB398FFD47436B8ACB1EE218F88B
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65651.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ PicWish: AI Photo Editor v2.1.6 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65652.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:6D9A00635CC49D56E0A901A718B34001B32CE3D4
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65653.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:C88C5D4E9B0FBCCDF783ED2F7EEF12A64604140E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65654.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Screenshot touch v2.5.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65655.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65656.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E1BF3DF2841A37A8C3B6598BF5C9202C15129A6D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65657.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:7D39C3F6AE13CB3002711AC416AEC632EB8F9759
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65658.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:350C73D2B5B473F8289C6DB420C36A7E62ED9917
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65659.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Soundtheory - Kraftur 1.2.3 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65660.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65661.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65662.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Papers, Please (2013) [Ru/Multi] (1.4.11.124) Repack EXROW
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65663.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65664.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Rod Stewart - Ultimate Hits (2025) 2CD [FLAC|Lossless|WEB-DL|tracks] <Rock, Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65665.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Smart AudioBook Player Pro v11.4.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65666.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Global Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65667.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:0A8C900CE45BE8CC10F1A378E2D52466711AA148
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65668.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:4150DF08809BA73EC59D375059C94D1A27C7EE8B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65669.jpg" />
 </div>
 
 

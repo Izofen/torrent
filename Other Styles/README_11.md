@@ -6,7 +6,7 @@ VA - There With Me: Intimate Soundtracks for Lovers (2024) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120310.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Adult Smooth Jazz: Sax for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120857.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ennio Morricone - 100 Movie Themes Hits/Original Versions - Super Gold (2005) Bo
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121342.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dj Eroticamila, Ibiza Sexy Chill Beats - Deep Sexual Satisfaction (2023) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121723.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121727.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dancing Fantasy - California Grooves (1991) [OGG Vorbis|480 Kbps] <New Age/Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122164.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122188.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Rel
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122196.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:4ECDC6273B67419CEC173F907D737ACFC8CB891A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123311.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123315.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Бременские музыканты (2023) Официальный са�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123585.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Deva Premal - Deva (2018) [FLAC|Lossless|tracks + .cue] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123806.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:406CB4E6BF5E0073021EFB3C4D6327107EB6E4BF
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124182.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kirill Pokrovsky - Music from the Divinity Universe (2004) Limited Edition Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124383.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124542.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Бременские музыканты (Официальный саунд�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125097.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sambodhi Prem - Sunlight Rain River (1995) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125322.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Leo Rojas - Best Of (2023) [FLAC|Lossless|WEB-DL|tracks] <Panflute, Native ameri
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125612.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126113.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sex Music Zone - Bad Romance: Sexy Girl, Sensual Sounds for Erotic Massage (2023
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126967.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127601.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sexy Chillout Music Specialists - Lustful Bubble Bath (2023) [FLAC|Lossless|WEB-
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127642.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Doggy Style: Sexy Chillout Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127854.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lauluyhtye Rajaton - Nova (2001) [FLAC|Lossless]<A Capella, Harmonic Voices>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128787.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sect - 4 albums (2007-2011) [FLAC|Lossless] <Neoclassical, Martial Industrial, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129102.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129190.jpg" />
 </div>
 
 

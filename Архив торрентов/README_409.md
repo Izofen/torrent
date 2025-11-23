@@ -6,7 +6,7 @@ Zavod - Industrial City (2012) [MP3|192 кб/с]<Industrial Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96695.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Mozilla Thunderbird 10.0.3 Final (Extended Support Release) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96698.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96698.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96703.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ magnet:?xt=urn:btih:6C3E763BD0B96036EA71C6A1C976313D34A80BA6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96704.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:6B07C238B92625E73A3EA5A662B434E9C32C9D96
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96706.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96706.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ SIV (System Information Viewer) 4.27 + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96707.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96707.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - DESTINATIONS 2 - compiled by DJ Murus & Cubixx (2008) [FLAC|Lossless]<Psych
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96711.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96711.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ GOM Player 2.1.39.5101 Final [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96712.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96712.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ GOM Player - мультимедиа-плеер, подерживающий мн�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96718.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96718.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ GOM Player - мультимедиа-плеер, подерживающий мн�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96722.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96722.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ GOM Player - мультимедиа-плеер, подерживающий мн�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96724.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Dj Alex Spark - Onle the Dark Sound (2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96725.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:D17A17DE3A3DDDEA02F6575AACC5A3F5C9F8F680
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96727.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:CD91140EC7D9436CD024F1C5EC62ED1DB40796E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96732.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96732.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:CD91140EC7D9436CD024F1C5EC62ED1DB40796E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96733.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96733.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:CD91140EC7D9436CD024F1C5EC62ED1DB40796E2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96739.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:4E3F2AA95AD5274917D25C03775C1206461B6618
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96742.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:2EF05ABB7FBEB5A9C6531E7E195F862B94E71FC5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96743.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96743.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:2EF05ABB7FBEB5A9C6531E7E195F862B94E71FC5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96746.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:92A0C4E98CD250139C761AADA5C5DCA18417AFA0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96752.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:34A21EBCE9A5345872CEE80FFD7CFAD4F9D79C7C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96756.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Sense - Дискография 4 альбома (2002-2007) [MP3|320 кб/с]<Cr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96760.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Танцевальная Горячка. Весенний Выпуск (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96761.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ InnerWish - 4 альбома (1998-2010) [MP3|320 кб/с]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96767.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:E2560C2327193E06FBC03B9CC647115C2E36C4F3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96770.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ magnet:?xt=urn:btih:19A8605B0A2CEBD7E13CD0E3A528B391D106D266
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96771.jpg" />
 </div>
 
 

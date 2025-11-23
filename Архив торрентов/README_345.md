@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83802.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83819.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83820.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83821.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83830.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:419DAAE01DBB8EEE00E0CBEC992A6A7BBF52A23E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83831.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:419DAAE01DBB8EEE00E0CBEC992A6A7BBF52A23E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83833.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:44C202BFCFC09DF9032AB4544F4D488D7A96CE84
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83837.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:3467E5A9D967C921635833C62836988D7C45984A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83839.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ True Sound Midi - Huge outbreak [MIDI Pack][английский]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83841.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Madonna - MDNA (Deluxe Edition) (2CD) (2012) [MP3|~245 кб/с (V0)]<Pop,  Vocal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83843.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83844.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83845.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83848.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83849.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:9F147974AA523CF3E87BAC528E40FA8BEA1116D3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83854.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:5C6C545DD6A573DE57CA850A9AED5171DE13BC70
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83857.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:3785CFF9335CF4904E9248173971E59FA17944A2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83863.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3785CFF9335CF4904E9248173971E59FA17944A2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83870.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Cамые Качающие Треки для Авто - Tоп 55 / 9 (2012)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83873.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:A3767EE3D22DDD4EC0690B15C1DADE5A72690F8D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83874.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:A3767EE3D22DDD4EC0690B15C1DADE5A72690F8D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83878.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:262718CF8327CE51CD64D414BA357B2D807B52F7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83879.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:3D74157AAA89B7F485128C41C780EF6077DA966E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83881.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83882.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:840886D562A499B140DCE4B2D067DF35DDFF166D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83884.jpg" />
 </div>
 
 

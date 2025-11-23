@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52338.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CAA94213F11F096422F5C06F4F6C54FC1915050A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52339.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B0E64014465019327E1CF801EE87D49DC21057A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52340.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life / Непринуж
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52341.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Shuumatsu Train Doko e Iku? / Train to the End of the World / Куда идет 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52342.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4CC1A71D0663996946C151773A0E380927EEE629
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52343.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:197429D306F1E96A22EC740F7CA59F28BD3BC89B
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52344.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VНУК (2022) WEBRip [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52345.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:69EF485A1D3CEE8F3E690D091C7B25FC9B3BE5B7
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52346.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:DB22DBDCD893E63DDD9F98CB22F53619D3A29969
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52347.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ CCleaner Pro: ПО для очистки 24.12.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52348.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - РАДИО БАТЯ - 013 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52349.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ JetBrains DataGrip 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52350.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:331F0C4F32E7F7489D8EEAB71BBB29DCCA938F06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52351.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:331F0C4F32E7F7489D8EEAB71BBB29DCCA938F06
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52352.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ JetBrains GoLand 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52353.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:22DD650C2D37E5465C1A45E7DC8D507831AC8E4F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52354.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Motion Portrait v1.7.1 Mod by APKMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52355.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:97C2CEA526AAE145167B62FCFFD11C9F713D8990
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52356.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ FreeFileSync 13.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52357.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:47C4FF224BEDF67DEF9AB6BE56FC819AD4A729BC
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52358.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:3D3120744D8789EAA703CA288600DB2DCB7F9FEC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52359.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:A3F2A7AF00F468BBB96C0098EA651CCF4E71A9A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52360.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Plugin Alliance & Lindell Audio - All Bundle 2024.6 VST, VST 3, AAX (x64) RePack
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52361.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:BFDCD6146AF8ACC9573AB0C40F6CCE64090AD7AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52362.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:D3BC938C32913ECB56C051C09EBC6656D2CFFED4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52363.jpg" />
 </div>
 
 

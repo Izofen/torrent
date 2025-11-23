@@ -1,3 +1,81 @@
+###  Публикация: 1738044   (106418) от 20.07.2024
+
+Falcon Trails - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fastlane (3:32)
+02. Feel (4:16)
+03. The Way We Want (4:28)
+04. Soul Satisfaction (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B871CCFAC6438DC232C9CF805763851E0B05E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737952   (106419) от 20.07.2024
+
+Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106419.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sunshine
+A2 Goodtime Liberator
+A3 Ruben James
+A4 Always Leaving, Always Gone(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737975   (106420) от 20.07.2024
+
+4K YouTube to MP3 5.5.0.0108 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106420.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA12DC1C4453272C6D93DD1ADE86D9B91B0F27D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738000   (106421) от 20.07.2024
 
 VA - 9 Years, Pt. 1 (2024) [MP3|320 Kbps] <Progressive House, Organic House, Deep House, Melodic House & Techno>
@@ -6,7 +84,7 @@ VA - 9 Years, Pt. 1 (2024) [MP3|320 Kbps] <Progressive House, Organic House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106421.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Photo Supreme 2024.2.2.6590 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106422.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ VA - Dance Zone Level 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106423.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106424.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ magnet:?xt=urn:btih:1328047DF4BACDCEFD4A798871C2B0452FDC9B3A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106425.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:44796AE074CA1AB8E967E72E23E5A39508C6C809
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106426.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:EFF909C4CD011F9846C0BF6C213AFA7A65E72113
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106427.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ magnet:?xt=urn:btih:B071E1CFA425231902DB3B0F3382756463B69911
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106428.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ magnet:?xt=urn:btih:4EBF1B6F78E7E3F1904633720466849D84CF3862
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106429.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ R-Wipe & Clean 20.0.2465 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106430.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ R-Studio Network 9.4 Build 191340 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106431.jpg" />
 </div>
 
 
@@ -282,7 +360,7 @@ magnet:?xt=urn:btih:B7D71CE3D0A3CA367564F5DC9A8D896422A4F4F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106432.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106433.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ Santana - House Of Blues - Las Vegas, NV / May 23, 2024 (2024) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106434.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ R-Studio Network / Technician 9.4 Build 191340 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106435.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ magnet:?xt=urn:btih:22FFC69D916EC634C877375AACDA596C02355E22
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106436.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106437.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ Santana - Santana's Greatest Hits (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106438.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ magnet:?xt=urn:btih:4A15D39BD18C031583CF1CD31F6ACEC3100D84B0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106439.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:F566DCACDDF4FA3CB664F09E781EEAF9D7A26C67
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106440.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ T.S. Monk - The Charm (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106441.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ magnet:?xt=urn:btih:9E0921BCA5CCE1685F788B0CCB435E8AD0A1C0A1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106442.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ Space 92 - Live @ Musée Aeroscopia Toulouse, France 2024-06-01 (2024-06-01) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106443.jpg" />
 </div>
 
 
@@ -578,81 +656,6 @@ Space 92 - Live @ Musée Aeroscopia Toulouse, France 2024-06-01 (2024-06-01) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6F8D7C05480A401E8E72D4C59C6E6644D2EE89D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737984   (106444) от 20.07.2024
-
-С.И. Туманов | Поиски решения задачи (1969) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106444.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно разобрано много задач и примеров по всему курсу математики старших классов средней школы. Показаны приемы и методы решения различных задач алгебры, геометрии и тригонометрии. Около 500 задач для самостоятельной работы, в конце к ним даны ответы, указания или полные решения. Из оглавления. 1. Алгебра. Уравнения в целых числах. Задачи на делимость. (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEB624C8D22F3F3667AABBC57CA7797F9623FCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737855   (106445) от 20.07.2024
-
-Exposure X7 7.2.0.25 (x64) Portable by 7997 [Multi]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exposure X7 сочетает в себе профессиональную настройку фотографий, огромную библиотеку великолепных изображений и эффективный дизайн, которым приятно пользоваться.
-Exposure X7 понравится всем тем, кто ценит фотоискусство, ведь теперь вы сможете очень легко изменить фотографии добавив к ним различные эффекты, например имитацию кадра из художественного фильма, а можно (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие (Русский отсутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE18FC8848FFCFC999AE24FD834E1E443447A1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737919   (106446) от 20.07.2024
-
-Фантастическое путешествие / Fantastic Voyage (1966) BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь ученого в опасности. Спасти его может только хирургическое вмешательство. Но обычная операция на мозге вряд ли приведет к какому-то положительному результату.
-И потому специальная подводная лодка с экипажем из врачей-ученых уменьшается до размеров молекулы и шприцем впрыскивается в вену.
-Задача экспедиции - сделать все возможное для ликвидации тромба в мозгу (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: фантастика, приключенияРежиссер: Ричард ФлейшерАктеры: Стивен Бойд, Рэкел Уэлч, Эдмонд О’Брайен, Дональд Плезенс, Артур О’Коннелл, Уильям Редфилд, Артур Кеннеди, Жан Дель Вэл, Бэрри Коу, Кен СкоттПеревод: Многоголосый профессиональный, одноголосый любительский (Кузнецов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D4795A3F02552444EB178A3AAECFA14E5F7CC0
 ```
 
 

@@ -6,7 +6,7 @@ Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11817.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ozzy Osbourne - Night Terrors (2024) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12033.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Slade - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12047.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12066.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12236.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12418.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Sel
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12438.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Warkings - Studio Albums (5 releases) (2018-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12519.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Coheed And Cambria - Studio Albums (11 releases) (2002-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12546.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Pop Evil - Studio Albums (8 releases) (2009-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12565.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sodom - Studio Albums (17 releases) (1986-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13315.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F2CCC08F48EB63226F419B6061A47285E48372F5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13571.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13718.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Pow
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13990.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14222.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Smoulder - Times of Obscene Evil and Wild Daring (2019) [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14412.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Dante - Studio Albums (5 releases) (2007-2022) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14413.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Katatonia - Studio Albums (15 releases) (1993-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14545.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14715.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15041.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Sanctorium - Studio Albums (3 releases) (2014-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15124.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Volbeat - Studio Albums (9 releases) (2005-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15417.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Linkin Park - Studio Albums (10 releases) (2000-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15506.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15539.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ The Mamas & The Papas - Best Of The Mamas & The Papas: California Dreamin' (1977
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15620.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Manowar - Kings Of Metal (1988)[APE|24/96|image + .cue|Vinyl-Rip]  <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15642.jpg" />
 </div>
 
 

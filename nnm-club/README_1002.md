@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26400.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ELSA 6.0 VW - 01.2017 6.0 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26401.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26401.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9B84885F395E9BDF1AA0068677241358FE412F68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26402.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26402.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Gnomon Workshop, Josh Docherty | Modeling For Film & TV Hard-Surface Vehicle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26403.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:BFC04AD66FC367C166A8C96D73CB9A11950AA464
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26404.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26404.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ WinRAR 7.11 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26405.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26405.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A140D6B4868CADCA24F412E4E175C6F5C8B1002B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26406.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:36F630506B3CFF072E82F53EE2B99256926C27B8
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26407.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26407.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:026584AF21EBD001946B75E204F30880506BA30E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26408.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:800CBD691E9953DE51D27A081202DADD6F630B22
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26409.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:5AE3F69A9BD3F727E41836924671904E87DEB8B3
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26410.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:6BAA0D20F1585D5204C847D67741A00395F9A7CC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26411.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26412.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Need for Speed: Carbon (2006) [Ru/Multi] (1.4) Repack Wanterlude [Collector's Ed
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26413.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ableton - Live 12 Suite 12.1.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26414.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26414.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:5161E13BA6E8FF83A7A386F1FD4B2E04A893CE79
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26415.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26415.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:014225DB1EAE67BF5415E755E5A85E020C34A81C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26416.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:014225DB1EAE67BF5415E755E5A85E020C34A81C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26417.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:014225DB1EAE67BF5415E755E5A85E020C34A81C
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26418.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Topaz Gigapixel AI 8.2.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26419.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26419.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:127FA037F828D0C52AC2F455E2A745F7A4E52CDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26420.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:127FA037F828D0C52AC2F455E2A745F7A4E52CDE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26421.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:88CFCB148C4F0AA86DD1BEC3EB550AB27788E23F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26422.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VueScan Pro 9.8.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26423.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ ZWCAD 2025 SP1.4 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26424.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26425.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26425.jpg" />
 </div>
 
 

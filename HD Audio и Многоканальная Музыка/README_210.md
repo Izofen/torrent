@@ -1,3 +1,108 @@
+###  Публикация: 1301237   (211271) от 03.08.2022
+
+Григорий Лепс - Баллада о борьбе (2008) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Баллада о борьбе
+02. Падают листья
+03. Шелест(   Читать дальше...   )Жанр: Pop Rock, ChansonПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585962   (211272) от 27.10.2022
+
+Lenny Kravitz - Greatest Hits (2000) Reissue, 2022, Virgin;Universal Music Hong Kong [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Gonna Go My Way 3:31
+02. Fly Away 3:42
+03. Rock And Roll Is Dead 3:24
+04. Again 3:49(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFCE7AC8A2DA71D31BB7019BF279EC650370079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640068   (211409) от 16.06.2023
+
+Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Black/Viking Metal, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black/Viking Metal, Thrash MetalПродолжительность: 07:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639869   (211473) от 15.06.2023
+
+Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Sunrise (The Magician Birthday)
+02. July Mornin' (Look At Yourself)
+03. Return To Fantasy (Return To Fantazy)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585636   (211570) от 24.10.2022
 
 Massimo Farao And The Jazz Magicians Orchestra - Magic Swing: Tribute To The Music Of Count Basie (2022) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
@@ -6,7 +111,7 @@ Massimo Farao And The Jazz Magicians Orchestra - Magic Swing: Tribute To The Mus
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211570.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211570.jpg" />
 </div>
 
 
@@ -35,7 +140,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211804.jpg" />
 </div>
 
 
@@ -62,7 +167,7 @@ Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211882.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211882.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211934.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ Hiromi - Spectrum (2019) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Ja
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211987.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211987.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ Sweet - Легенды Зарубежного Рока (2000) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212054.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_212054.jpg" />
 </div>
 
 
@@ -169,7 +274,7 @@ Brahms - Piano Quartet No. 1 Op. 25 · Schumann - Fantasiestücke Op. 88 (Martha
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212559.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212559.jpg" />
 </div>
 
 
@@ -196,7 +301,7 @@ Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Hea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213384.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213384.jpg" />
 </div>
 
 
@@ -223,7 +328,7 @@ magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213390.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213390.jpg" />
 </div>
 
 
@@ -250,7 +355,7 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213540.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213540.jpg" />
 </div>
 
 
@@ -277,7 +382,7 @@ Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213660.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213660.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphon
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213667.jpg" />
 </div>
 
 
@@ -331,7 +436,7 @@ Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213671.jpg" />
 </div>
 
 
@@ -358,7 +463,7 @@ Gloria Gaynor/Глория Гейнор - Love Tracks/Пути Любви (1978/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213843.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213843.jpg" />
 </div>
 
 
@@ -385,7 +490,7 @@ Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213969.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213969.jpg" />
 </div>
 
 
@@ -412,7 +517,7 @@ Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213980.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213980.jpg" />
 </div>
 
 
@@ -439,7 +544,7 @@ ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214043.jpg" />
 </div>
 
 
@@ -466,7 +571,7 @@ Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214264.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214264.jpg" />
 </div>
 
 
@@ -493,7 +598,7 @@ Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphoni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214374.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214374.jpg" />
 </div>
 
 
@@ -520,7 +625,7 @@ Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214597.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214597.jpg" />
 </div>
 
 
@@ -547,7 +652,7 @@ Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214672.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214672.jpg" />
 </div>
 
 
@@ -574,7 +679,7 @@ Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214753.jpg" />
 </div>
 
 
@@ -588,114 +693,6 @@ Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649764   (216114) от 13.08.2023
-
-Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Middle Eastern Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orphaned Land — израильская рок-группа, объединяющая в своем творчестве элементы европейского метала и народной музыки Ближнего Востока.1993 - The Beloved's Cry
-1994 - Sahara
-1996 - El Norra Alila
-2004 - MaboolЖанр: Doom/Death/Middle Eastern Folk MetalПродолжительность: 11:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652456   (216793) от 12.08.2023
-
-VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216793.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Маут И Мак Нийл - Скажи Мне Что-Нибудь • Кажи Ми Нещо
-А2 Лефт Сайд - Добро Пожаловать Домой • Добре Дошла У Дома
-А3 Кристоф - Рука За Руку • Ръка За Ръка
-А4 Ню Сийкърс - Никогда Не Кончится Песня Любви • Никога Няма Да Свърши Песента На Любовта(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651801   (216910) от 12.08.2023
-
-Rock House - Rockin' With Rock House (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216910.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Shake, Rattle & Roll
-A2 See You Later Alligator
-A3 Be Bop A Lula
-A4 Good Rockin' Tonight(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D96FA5D25F62C8B3C9AEC976E2B649BE935301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651323   (217708) от 11.08.2023
-
-VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217708.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Диана Експрес • Наследство
-A2 Вокална група ''Трик'' • Ако Държиш На Мен • Если Я Тебе Нужна
-A3 Трамвай №5 • Старият Град • Старый Город
-A4 Дует ''Акварел'' • Обич Неизбежна • Неизбежная Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
 ```
 
 

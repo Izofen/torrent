@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35999.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:96CB25FC3E453E172B2FCBAABAC22A1FE328AF57
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36000.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Be Your Cat (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36001.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:A281A58A5633D822E8097A7279D50E0BC14EDEE7
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36002.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A281A58A5633D822E8097A7279D50E0BC14EDEE7
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36003.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Opera One 115.0.5322.68 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36004.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VueScan Pro 9.8.40 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36005.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:81DF4851DE7E36EE533401382E084D6C9E6ACD8B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36006.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:7FE6A9BD4F81BC969781206BC265988C14F89F6E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36007.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.5 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36008.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36009.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D47AC1AC89730C44BEF83FF6BD065985102F9CF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36010.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:33F0462416C4048E10291A67964B2F4E5070C750
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36011.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:EFB9A191D069C900E36A3E32E148485D6D689E03
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36012.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36013.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:930593D59FB601A7C6A5B13312F10A4D0A17179B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36014.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:8EFD409B4E9D80D88CF50C0ED7E72181D04E4B7A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36015.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:7F10B0E3D18A615A8754B51929A64C2D83C85093
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36016.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:4DE7E095EB3186E1B3CF88D4F7866C810C171679
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36017.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:10411AD9C25B38FFE0C7268376BF53982819570C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36018.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E08D5F68871795CF94CEC0AEBE32D46DE0670192
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36019.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B0A37C2A8CCACE94844A1E22D656C13298E5C7C5
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36020.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ JustDjango | Basic & Advanced Django Roadmap (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36021.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36022.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:4897948992F5B504E80D084C69046AB1A1D8EB49
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36023.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:4897948992F5B504E80D084C69046AB1A1D8EB49
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36024.jpg" />
 </div>
 
 

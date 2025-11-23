@@ -6,7 +6,7 @@ VA - Blues In My Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103790.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103797.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cannonball Adderley - Burnin' In Bordeaux: Live In France (1969) 2CD, 2024, Elem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103798.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ CultistOne - Blues from the Abyss (A Lovecraftian Blues Journey) (2024) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103799.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Catfish John Tisdell - I Hear the Blues Calling Me (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103802.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Blue Moon Marquee - New Orleans Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103810.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Doctor Velvet - New Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Rhythm & Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103811.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Daniel Morais - Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103812.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Carta Oro - Make a Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103813.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ John Scofield - Live (1977) 2020, Solid [FLAC|Lossless|tracks + .cue] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103814.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Anov Blues One - Self Titled 2019 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103815.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Andy Peake - Pocket Change (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103817.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Amy Helm - Silver City (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103818.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Canned Heat - Dog House Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103830.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chick Corea / Miroslav Vitous - Tones for Joan's Bones & Mountain in the Clouds 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103858.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jeanie Lambe And The Danny Moss Quartet - The Blue Noise Session (1999) Nagel He
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103859.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Erotica - Serene Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103872.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sonny Stitt - Stitt's Bits: The Bebop Recordings (1949 - 1952) 3CD, 2006, Presti
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103878.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jesse "The Rad Hatter" Bedard - Lonely Busker Blues (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103905.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Glenn Gatsby - Mission Prohibition (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103906.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Aisha Khan - The Magnificent Twelve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103908.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Greg Nagy - The Real You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103910.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Chick Corea & Bela Fleck - Remembrance (2024) Thirty Tigers [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103911.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cannonball Adderley - Poppin' In Paris: Live At L'Olympia (1972) 2024, Elemental
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103912.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Harry James & His Orchestra - Embraceable You (1946) 1987, The Compact Selection
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103927.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Betty Carter - 'Round Midnight (1963) 2012, Atlantic [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103929.jpg" />
 </div>
 
 

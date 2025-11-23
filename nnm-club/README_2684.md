@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70532.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ W.A. Production - ChopBeast 1.0.0 VSTi, VSTi 3, AAX (x86/x64) RePack by BUBBiX [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70533.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Jan Blomqvist - MUTE (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70534.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ W.A. Production - KickShaper 1.0.1 VST, VST 3, AAX (x86/x64) RePack by BUBBiX [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70535.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:814B7496C2CC7B9CC466BF09CE95FA1316720576
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70536.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:EB1A3C52BA7C54389A645844B67E08235F31817A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70537.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ O&O DiskImage Professional 20.2 Build 345 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70538.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:709B668A59EBE30C6A3B5B7DFB4261DE1FF05C2A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70539.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Billboard Top Hits 1978 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70540.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:7ACF89801BAF9CE8D134B63201B47860DFA251C8
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70541.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ The Chordettes - 2015 - The Greatest Hits (2025) Remaster, 2025, ZOROTY[FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70542.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Uplifting Only Top 15: February 2025 (Extended Mixes) (2025) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70543.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:67765CE66E9717CCE73F2C3D5104F6FA98AD9B92
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70544.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:7FBEB4420575B5DC8466E46FD5B802F402DF93F4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70545.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Tiesto - Live @ Club Space Miami, United States (2025-01-24) [MP3|320 Kbps] <Tec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70546.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:753206705E694FABBA2A3049B4669A39B69FBCD4
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70547.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:C322431535A5BB539A0B6FBC3E5226C0BBC70EE1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70548.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:BAC34FAA5344E57A8B060853CA8FEDCAD0972C13
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70549.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Fort Firewall 3.16.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70550.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Process Lasso Pro 15.1.0.45 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70551.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:C1BF2D4DCEBE9EFB37A9CBEC9BECF1DCB0342A58
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70552.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:24852DEADD42B9D22EBDB1AA6E30B4B80DA46BD8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70553.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Photo Editor v11.3 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70554.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70555.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Xreveal 2.7.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70556.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70557.jpg" />
 </div>
 
 

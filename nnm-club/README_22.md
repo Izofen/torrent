@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 47 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_606.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4C8F6ABB90C043525B312D5035E33B5E66CEC2D7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_607.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D6C3ECA94E3B6D6E9394EFD9F6599ED9FA582B28
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_608.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4D747EC27DA854D3E247470D9D07B54492EDEE5B
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_609.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:96B9569A59971A22455570A0257FBAF24A9C2661
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_610.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FF61D9CB020175DF8C92DF92437FD8634DA4B70F
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_611.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arctic Awakening (2025) [Ru/Multi] (Build 20032483) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_612.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3337225C5936EB0B3BA38DE6AF0AD8A63F72A7FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_613.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Internet Download Manager 6.42 Build 48 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_614.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_615.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9854B1F30D43785A508A1667C6FB63E7D0FEB943
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_616.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:BFE9CD70AF9E1B6B78429774171701E8E9F67CBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_617.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:F2ED5D0B2D01300A21BF130D228F7C61B09AF338
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_618.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2025) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_619.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:6F3138BDD91A73EB02920B7F341CF7A90190FA99
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_620.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:9133215D06AF6EE0CFE85A74657DC8828C6DE3C3
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_621.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.4/dlc) Repack Decepti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_622.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Topaz Video 1.0.1 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_623.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:6323949411B91D119B21C7AAD56EC8E9D95C8A59
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_624.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ The Mystery Of Woolley Mountain (2019) [Multi] (14.3/dlc) License GOG [Complete 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_625.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_626.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:C37AEDAF823457E8E37089CD86E0064F14BED89C
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_627.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 23.09.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_628.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:C7DE8A46A73DB48D0E903DBFDF628548673F363F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_629.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:AF57378ACBCB3D61BFA0F64B3904CADEAC6E868F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_630.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_631.jpg" />
 </div>
 
 

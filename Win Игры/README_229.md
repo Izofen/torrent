@@ -6,7 +6,7 @@ WARNO (2024) [Ru/Multi] (169014/dlc) Repack Other s [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124456.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Eternal Dread 3 (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124459.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124491.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124578.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Six Ages 2: Lights Going Out (2023) [En] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124606.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Gone Rogue (2023) [Ru/Multi] (1.14) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124615.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Darkwood (2017) [Ru/Multi] (1.4a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124626.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Fort Solis (2023) [Ru/Multi] (20231228) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124640.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Islanders (2019) [Ru/Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124704.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124724.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124796.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Submachine: Legacy (2023) [En] (20231015) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124813.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124815.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Small Saga (2023) [En] (20231130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124822.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Bluey: The Videogame (2023) [Multi] (0.20.4) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124934.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Oriental Dynasty - Silk Road defense war (2023) [Ru/Multi] (2.6.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124937.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Stellar Warfare (2021) [En] (29112023) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124948.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124955.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53385) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125125.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Merchant of the Six Kingdoms (2023) [En] (5.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125126.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125221.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Christmas Fables 2: The Magic Snowflake / Рождественские небы�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125331.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53394) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125396.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Strayed Lights (2023) [Ru/Multi] (Build 11697504) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125406.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ghost Trick: Phantom Detective (2023) [Ru/Multi] (11038113/dlc) Repack Deceptico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125488.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Peaks of Yore (2023) [En] (1.3.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125512.jpg" />
 </div>
 
 

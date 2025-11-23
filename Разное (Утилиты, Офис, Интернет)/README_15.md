@@ -1,4 +1,4 @@
-###  Публикация: 1837210   (256577) от 
+###  Публикация: 1837210   (256577) от 17.11.2025
 
 Activation Program 1.15 Portable by Ratiborus [En]
 
@@ -6,7 +6,7 @@ Activation Program 1.15 Portable by Ratiborus [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256577.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256577.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ WinCatalog 2024.15.0.1114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256693.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256693.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ PIDKey Lite 1.64.4 b52 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257493.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257493.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Kalmuri 4.1.4 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257548.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257548.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Microsoft Activation Scripts (MAS) 3.9 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257627.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257627.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ StartAllBack 3.9.18 build 5338 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257641.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257641.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ StartAllBack 3.9.18 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257644.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257644.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Office Installer & Office Installer+ 1.33 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257832.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257832.jpg" />
 </div>
 
 

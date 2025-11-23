@@ -1,3 +1,80 @@
+###  Публикация: 1273350   (137721) от 31.12.2018
+
+VA - Italo Disco Extended  Versions Vol. 10 - Italo Holiday (2018) [MP3|320 Kbps] <House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137721.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beach Club Band - Italian Girl (Extended Vocal Mix) 05:57
+2. Lana Love - Tell Me Why (Extended Vocal Disco Mix) 05:50
+3. Captain Apollo - When Time Went By (Extended Vocal Mix) 06:54
+4. Prima Ballerina - Don't Say Goodbye (Extended Vocal Mix) 06:03(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349242   (137722) от 31.12.2019
+
+Очередное достижение: 3000 релизов от hali1960 !!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 3000 релизов от hali1960 !!!Друзья!
+Рад сообщить - что наш одноклубник и мой коллега, Активный Релизер, Верный Сид hali1960 скромно перешагнул рубеж 3000 релизов!!!
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970853   (137723) от 31.12.2015
+
+Новогодняя ночь на Первом (2015.12.31-2016.01.01) SATRip (части 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такого зрелищного и захватывающего шоу еще не было! Подробности праздничного эфира держатся в строжайшем секрете, и лишь 31 декабря, за час до боя Курантов, все тайны будут раскрыты, а главные герои торжества снимут маски.Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 04:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BDCD30519A91A21C43492CDBF096A3417B2D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601503   (137724) от 31.12.2022
 
 Ли Хардинг - Эхо | Ли Хардинг - Эхо (2022) [MP3, Puffin Сafe]
@@ -6,7 +83,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137724.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ magnet:?xt=urn:btih:E4A86BA6B9B19602AE842F5910378DD2E76510BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137725.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ magnet:?xt=urn:btih:93994A7FD3214D968000C13BD17ED5B74281A2D0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137726.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ magnet:?xt=urn:btih:0492816466AF4A04FA70D8EB0EEF5D541F9C1F23
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137727.jpg" />
 </div>
 
 
@@ -102,7 +179,7 @@ XMind Pro 2023 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137728.jpg" />
 </div>
 
 
@@ -126,7 +203,7 @@ magnet:?xt=urn:btih:8C9C56A2640621613073172CD81E0C85B8E2E871
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137729.jpg" />
 </div>
 
 
@@ -150,7 +227,7 @@ magnet:?xt=urn:btih:850BF948754A3AE0C243F7822A148155B3EDCB6F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137730.jpg" />
 </div>
 
 
@@ -174,7 +251,7 @@ Armin van Buuren - 20 Albums , 117 Compilations (1999 - 2014) [MP3|320 кб/с]<
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137731.jpg" />
 </div>
 
 
@@ -198,7 +275,7 @@ Armada Music - Armada Night Radio 001-085 (2014-2015) [MP3|128 кб/с]<Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137732.jpg" />
 </div>
 
 
@@ -225,7 +302,7 @@ magnet:?xt=urn:btih:B88D4B01D2EAE90EB01C05E6E14BB87786F72D3D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137734.jpg" />
 </div>
 
 
@@ -253,7 +330,7 @@ VA - Record Super Chart Final (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137735.jpg" />
 </div>
 
 
@@ -280,7 +357,7 @@ magnet:?xt=urn:btih:9855B70480D9D63C5F56F5DEB32C70354E0396E2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137736.jpg" />
 </div>
 
 
@@ -304,7 +381,7 @@ magnet:?xt=urn:btih:424C456599299A085B767053289D48A2F1BA9023
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137737.jpg" />
 </div>
 
 
@@ -328,7 +405,7 @@ magnet:?xt=urn:btih:EAFE44EE4C2E08D8704657138AEB2AE4FB5CE7D5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137738.jpg" />
 </div>
 
 
@@ -352,7 +429,7 @@ Baccara - When I'm With You (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Dance, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137740.jpg" />
 </div>
 
 
@@ -376,7 +453,7 @@ magnet:?xt=urn:btih:2C6455FF780848CE603C465F778FD7029266697C
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137742.jpg" />
 </div>
 
 
@@ -400,7 +477,7 @@ magnet:?xt=urn:btih:C6D7F9587CC3DE8CCBE61ED037075A7CFDB5D30B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137743.jpg" />
 </div>
 
 
@@ -426,7 +503,7 @@ Telegram Desktop 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137744.jpg" />
 </div>
 
 
@@ -451,7 +528,7 @@ magnet:?xt=urn:btih:2F4C3454D5A79EBF7655C261CD8D48B83FFD11AE
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137746.jpg" />
 </div>
 
 
@@ -475,7 +552,7 @@ XYplorer 19.50.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137747.jpg" />
 </div>
 
 
@@ -499,7 +576,7 @@ ICQ 10.0 Build 38922 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137748.jpg" />
 </div>
 
 
@@ -523,7 +600,7 @@ magnet:?xt=urn:btih:9687B457FDEC1065ECD008FD114D823CD604D00B
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137749.jpg" />
 </div>
 
 
@@ -548,7 +625,7 @@ Bloop Animation, Dillon Gu | Курс по анимации в Blender 2.83 / Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137750.jpg" />
 </div>
 
 
@@ -561,81 +638,6 @@ Bloop Animation, Dillon Gu | Курс по анимации в Blender 2.83 / Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74201EF719C558661617D8C3DFC9FB563D4F7723
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273279   (137752) от 31.12.2018
-
-Roy Orbison & The Royal Philharmonic Orchestra - Unchained Melodies (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137752.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Unchained Melody
-2. Blue Bayou
-3. She's a Mystery to Me
-4. Heartbreak Radio(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC291E038C46146BD80066618D92F49FE4C63001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195397   (137753) от 31.12.2017
-
-СашаТаня. Новогодняя серия (2017.12.28) WEB-DL [H.264/720p-LQ]
-
->>Отечественные сериалы
->>Универ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Производство: Россия / "Comedy Club Production", ТНТЖанр: комедияРежиссер: Михаил Старчак, Сергей КазачанскийАктеры: Андрей Гайдулян, Валентина Рубцова, Алексей Климушкин, Елена Бирюкова, Татьяна Орлова, Андрей Лебедев, Ксения Хаирова, Олег Новиков, Сергей Рудзевич, Сергей Мурзин и др.Продолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4FA86C2731C8F96BCBE5CD919694637CB13DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349372   (137754) от 31.12.2019
-
-Comedy Woman (31.12.2019) WEB-DLRip (сезон 9, выпуск 15)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юморАктеры: Наталья Еприкян, Екатерина Скулкина, Екатерина Варнава, Мария Кравченко, Полина Сибагатуллина, Татьяна Морозова, Надежда Сысоева, Надежда Ангарская, Марина Федункив и др.Субтитры: ОтсутствуютПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEBC29E74D51188D01BC886030F4B539D8E90C2
 ```
 
 

@@ -1,3 +1,153 @@
+###  Публикация: 1520233   (143233) от 27.12.2021
+
+MAGIX Sound Forge Pro 15.0 Build 161 (x86/x64) [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143233.jpg" />
+</div>
+
+
+###  Подробнее
+
+SOUND FORGE Pro вот уже 25 лет представляет собой удобный программный инструмент для работы с музыкой и другими звуковыми файлами на самом высоком профессиональном уровне. Последняя версия убедительно продолжает славные традиции, может похвастаться улучшенным пользовательским интерфейсом, большей эффективностью, стабильностью и скоростью работы. Постоянно совершенствуемый (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B641AA6588CB235D6ED428AD20759FD9BEE14BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088155   (143234) от 29.12.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (29.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A241179952C7D2A509C9BE8863C67DA0037B75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434963   (143235) от 28.12.2020
+
+Udemy, Sandor Kiss и др. |  Полный Курс Личностного Развития - 22 курса в 1 / The Complete Personal Development Course - 22 Courses in 1 (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый всеобъемлющий мастер-класс по личностному развитию - начни расти сегодня!
+Чему вы научитесь:
+Освободите себя от эмоциональной боли и разочарования, узнав, как на самом деле работают эмоции и как вы можете достичь большего мастерства
+Разрушьте личные иллюзии и раскройте свой скрытый потенциал(   Читать дальше...   )Производство: UdemyЖанр: Психология, саморазваитиеЯзык озвучки: АнглийскийПродолжительность: 53:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5947A84094441A2A58ABDBFBC9E726E3CA9A8932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272701   (143236) от 28.12.2018
+
+Jimmy Eat World - Static Prevails (1996) [FLAC|Lossless|tracks + .cue] < Alternative Rock, Emo >
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking, That's All (2:52)
+ 02. Rockstar (3:48)
+ 03. Claire (3:40)
+ 04. Call It In The Air (3:00)(   Читать дальше...   )Жанр: Alternative Rock, EmoПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8FB18D4B166E28489D9DD2779D5848B165E7CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348688   (143237) от 28.12.2019
+
+Флоренция и Галерея Уффици / Florence and the Uffizi Gallery/ Firenze e gli Uffizi (2015) DVBRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флоренция и галерея Уффици - это неповторимый кинотур по городу, который когда-то был колыбелью, а сейчас является главным музеем Ренессанса. Этот поразительный город, который и сам по себе может по праву называться музеем под открытым небом, стал альма-матер для легендарных творцов: Микеланджело, Брунеллески, Рафаэля, Леонардо да Винчи и Сандро Боттичелли. Этот (   Читать дальше...   )Производство: Италия, Magnitudo, Sky ItaliaЖанр: Документальный, архитектура, искусствоРежиссер: Лука ВиоттоПеревод: Одноголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 01:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A695C212A683103B0AA9D6ABEC50009A80816DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150778   (143238) от 28.12.2017
+
+Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Элегантная жизнь в общежитии с монстрами [2017, TV, 26 из 26] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители Инабы Юси умерли во время первого года его учёбы в средней школе, и ему пришлось переехать к своим родственникам. Хоть они и заботились о нём, он мог бы сказать, что был обузой. После выпуска из средней школы, он с радостью приготовился к переходу в старшую школу, где было общежитие. К несчастью, общежитие сгорело дотла, прежде чем он успел переехать! Юси (   Читать дальше...   )Производство: Япония / Shin-Ei AnimationЖанр: Повседневность, мистика, детективРежиссер: Хасимото МицуоПеревод: AniPlay.TV перевод: MsHolloweenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ, 26 серий по 23 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFC3012A616E6D4CFEDB645D9929EDB4B728300
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970232   (143239) от 29.12.2015
 
 R-Studio 7.8 Build 160621 Network Edition RePack (& portable) by D!akov [Multi/Ru]
@@ -6,7 +156,7 @@ R-Studio 7.8 Build 160621 Network Edition RePack (& portable) by D!akov [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143239.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ magnet:?xt=urn:btih:4ED9F0FDD95163930678A62724910A850028B9B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143242.jpg" />
 </div>
 
 
@@ -54,7 +204,7 @@ Avidemux 2.8.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143243.jpg" />
 </div>
 
 
@@ -78,7 +228,7 @@ VA - After Shopping Lounge (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143244.jpg" />
 </div>
 
 
@@ -105,7 +255,7 @@ magnet:?xt=urn:btih:06C9D13BBC82279345857688E61994F92DEB7779
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143245.jpg" />
 </div>
 
 
@@ -129,7 +279,7 @@ magnet:?xt=urn:btih:B12B29193E51FFE58A483A368FCB939E366BC123
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143246.jpg" />
 </div>
 
 
@@ -153,7 +303,7 @@ VA - The Official UK Top 40 Singles Chart (28-12-2014) [MP3|320 кб/с]<Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143247.jpg" />
 </div>
 
 
@@ -182,7 +332,7 @@ The Bronx - The Bronx (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143248.jpg" />
 </div>
 
 
@@ -209,7 +359,7 @@ Code:Realize Sousei no Himegimi | Код понимания: Страж пере
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143249.jpg" />
 </div>
 
 
@@ -233,7 +383,7 @@ magnet:?xt=urn:btih:157264B685CB89BBCEC400B482A67065496B8E94
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143250.jpg" />
 </div>
 
 
@@ -257,7 +407,7 @@ VA - Monster Tunes: Best Of (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143251.jpg" />
 </div>
 
 
@@ -290,7 +440,7 @@ magnet:?xt=urn:btih:9D614C6F9ABC3CFC8BF1CFBDC95BEAF0522E0441
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143252.jpg" />
 </div>
 
 
@@ -314,7 +464,7 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143253.jpg" />
 </div>
 
 
@@ -341,7 +491,7 @@ magnet:?xt=urn:btih:79A65E2F3D0B3922C294693C9C45B47A3180C839
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143254.jpg" />
 </div>
 
 
@@ -365,7 +515,7 @@ Capture One Pro 9.0.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143255.jpg" />
 </div>
 
 
@@ -390,7 +540,7 @@ magnet:?xt=urn:btih:6843CDA175910A27E02A7D9C3C54BD2932A9A089
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143256.jpg" />
 </div>
 
 
@@ -414,7 +564,7 @@ magnet:?xt=urn:btih:94D52248382D36E0B0970510897EFE8C36643D31
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143258.jpg" />
 </div>
 
 
@@ -441,7 +591,7 @@ Andre Rieu - Happy Together (2021) [MP3|320 Kbps] <Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143259.jpg" />
 </div>
 
 
@@ -468,7 +618,7 @@ magnet:?xt=urn:btih:C652F79415293745E6B2AAEC004BC89471D291A1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143260.jpg" />
 </div>
 
 
@@ -493,7 +643,7 @@ magnet:?xt=urn:btih:D043DD427479152FCDCCC83A989865CB9E8612CD
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143261.jpg" />
 </div>
 
 
@@ -505,161 +655,6 @@ magnet:?xt=urn:btih:D043DD427479152FCDCCC83A989865CB9E8612CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D08BAFF276E298902B0215A3C056BB9E4A150B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195317   (143262) от 28.12.2017
-
-Проекты - Проект ProShow Producer - Golden Wishes [PSH]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк проекта АЕ от Form Studio. Проект пересохранён в PSP-9.
-Проект может быть использован в оригинальном исполнении, либо набором стилей и переходов для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью, переход и саундтрек - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE19879DB4D82D6AFEFF6BEA7DDEA144B4D3CB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969868   (143263) от 29.12.2015
-
-Квартирник у Маргулиса. 2 выпуск. Несчастный случай (2015) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня в гостях у Евгения Маргулиса участники группы Несчастный случай исполнят свои самые известные и любимые песни: У меня есть график, Снежинка, Овощное танго, Нет-нет и многие другие. Заодно расскажут историю создания творческого дуэта и о том, как проводят необычные «халатные концерты» в пижамных нарядах. Дата эфира: 15.11.201501. У меня есть график
-02. Слезы мужчин
-03. Шла Саша по шоссе
-04. Овощное танго(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8490D7084F58F4940DDB7BA7101D19C0E3B5AE1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520099   (143264) от 27.12.2021
-
-Три мушкетера / Les 3 Mousquetaires (1953) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический случай, когда молодость и присущая ей бесшабашность — не порок, а дорога к славе. Бедный гасконский дворянин, благодаря безрассудной храбрости, сумел спасти со своими друзьями-мушкетерами честь королевы Франции. Несмотря на все козни, чинимые кардиналом Ришелье руками своих подручных.Производство: Франция, Италия / Pathé Consortium Cinéma, Pathé-Cinéma, Produzioni Atlas Consorziate (P.A.C.), Société Générale de Cinématographie, TitanusЖанр: ПриключенияРежиссер: Андре ЮнебельАктеры: Жорж Маршаль, Ивонн Сансон, Джино Черви, Бурвиль, Клод Дофен, Даниэль Годе, Жан Паредес, Луи Арбесье, Жорж Шамара, Поль ДеманжПеревод: Профессиональный многоголосый (Киностудии «Фильм-Экспорт»)Субтитры: английскиеПродолжительность: 01:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF5FA71E9BD2A300D953BA22EBE90FBF492C52A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435450   (143265) от 28.12.2020
-
-Кисти - Creative Market - 3000 Photoshop Stamp Brushes Bundle - 5657270 [ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внутри - самые популярные художественные кисти и кисти с эффектами для фотошопа (файлы .abr также можно открывать в приложении Procreate) Только полезные инструменты и рисунки, широкий спектр разнообразия. Эти кисти сэкономят ваше время на каждом проекте. Просто загрузите эти кисти в свой фотошоп и наслаждайтесь! Добавьте реалистичные и абстрактные эффекты в свою (   Читать дальше...   )Формат: ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E574B42854A46153872F997D4D8BACB9629E4BD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678604   (143266) от 22.11.2023
-
-AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143266.jpg" />
-</div>
-
-
-###  Подробнее
-
-AC/DC (Эй-си/ди-си; сокращённо от англ. alternating current/direct current «переменный ток/постоянный ток») - австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами.01. Live Wire
-02. Shot Down In Flames
-03. Hell Ain't A Bad Place To Be
-04. Sin City(   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: Hard Rock, концерт, музыкаУчастники: Bon Scott (lead vocals)
-Angus Young (lead guitar)
-Malcolm Young (rhythm guitar, backing vocals)
-Cliff Williams (bass, backing vocals)(   Читать дальше...   )Продолжительность: 01:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8F0974BBC1A367AC6E218D3B47C6DD174B1673
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172960   (143267) от 28.12.2017
-
-Kino no Tabi: The Beautiful World - The Animated Series | Kino`s Journey: The Beautiful World - The Animated Series | Путешествие Кино: Прекрасный мир [ТВ-2] [2017, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме рассказывает о путешествии девушки Кино по вымышленному миру, напоминающему Европу начала ХХ века. Государства этого мира практически не взаимодействуют друг с другом и находятся на разном уровне развития: где-то позднее средневековье, где-то только что изобрели паровой двигатель, а где-то укротили гравитацию и создали искусственный интеллект. Одновременно (   Читать дальше...   )Жанр: приключенияРежиссер: Тагути Томохиса / Taguchi Tomohisa / 田口智久Перевод: 1)YakuSub Studio; 2)Dotonbori Roma / nippaЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AA59A53C5B244ECC54E66668DC9868EC020CA5
 ```
 
 

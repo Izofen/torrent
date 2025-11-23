@@ -6,7 +6,7 @@ Room Arranger 9.8.2.644 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119686.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AIDA64 Extreme Edition 7.00.6738 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119695.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Gigapixel AI 7.0.2 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119696.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Photo AI 2.3.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119697.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Total Commander 11.03 RC4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119706.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Teorex Inpaint 10.2.4 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119708.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PDF-XChange PRO 10.2.1.385 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119722.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Topaz Photo AI 2.3.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119729.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PDF-XChange Editor Plus 10.2.1.385 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119749.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Texifier 1.9.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119754.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sandboxie 5.67.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119759.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Room Arranger 9 fo Mac 9.8.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119765.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Serial Box & SerialSeeker 02-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119767.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MediaInfo for Mac 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119771.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Soul Browser 1.4.03 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119777.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Sandboxie plus 1.12.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119778.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ StaxRip 2.34.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119784.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:C19B45A752368347FA91571E530B63A2D23110E9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119785.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Topaz Gigapixel AI for Mac 7.0.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119794.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Draw.io 23.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119796.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Emurasoft EmEditor Professional 23.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119814.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ PDF24 Creator 11.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119818.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ MediaInfo 24.01.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119819.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ NoMachine 8.11.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119820.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119821.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ FanControl V180 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119822.jpg" />
 </div>
 
 

@@ -1,3 +1,79 @@
+###  Публикация: 1734709   (107094) от 04.07.2024
+
+Auslogics Disk Defrag Pro 11.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C36C8FEBEF0B64A20D5D24ADCD5060C474ABCDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734617   (107095) от 04.07.2024
+
+Friends - Trans Am Dancing (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Handsome Man (4:52)
+02. L'amour C'est bon (3:22)
+03. This Song (3:47)
+04. Trans Am Dancing (4:16)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07FA1E376F37AD64C8EE99E0DEEE94E9E15D24B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734568   (107096) от 04.07.2024
+
+Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (2022) [FLAC|Lossless|tracks] <Techno, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix edit) (3:32)
+02. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (8:09)Жанр: Techno, Tech TranceПродолжительность: 00:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6376AA6C0D30BD0B743265FA9381CB69FCA97119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734578   (107097) от 04.07.2024
 
 VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -6,7 +82,7 @@ VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107097.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:77C9E0629C3EA5B0BBB305C7DACDEE3F397062FC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107098.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:DDD811BEE0D967682857D2C6F53A2F138257248F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107099.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ Charlotte de Witte - Power Of Thought EP (2023) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107100.jpg" />
 </div>
 
 
@@ -107,7 +183,7 @@ Tommy Crane - Dance Music For All Occasions (2024) [FLAC 24/88.2|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107101.jpg" />
 </div>
 
 
@@ -134,7 +210,7 @@ Visions Of Atlantis - Pirates II Armada (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107102.jpg" />
 </div>
 
 
@@ -161,7 +237,7 @@ Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107103.jpg" />
 </div>
 
 
@@ -186,7 +262,7 @@ Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107104.jpg" />
 </div>
 
 
@@ -213,7 +289,7 @@ Plugin Boutique - DC Snares 1.0.1 VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107105.jpg" />
 </div>
 
 
@@ -238,7 +314,7 @@ magnet:?xt=urn:btih:6A4CA4C721A147CD6CE54E20A4DA49BD3D650B06
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107106.jpg" />
 </div>
 
 
@@ -265,7 +341,7 @@ Jason Lane Band - Full Steam Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107107.jpg" />
 </div>
 
 
@@ -292,7 +368,7 @@ Josie Field - Blue Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107108.jpg" />
 </div>
 
 
@@ -319,7 +395,7 @@ Carole Stott, Sam Priddy, Jolyon Goddard, SusaMcKeeve, Bernadette Crowley (еdit
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107109.jpg" />
 </div>
 
 
@@ -344,7 +420,7 @@ magnet:?xt=urn:btih:1125515EEEE5AC287A39BCD61D62AE03B3733AB7
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107110.jpg" />
 </div>
 
 
@@ -371,7 +447,7 @@ Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Indepen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107111.jpg" />
 </div>
 
 
@@ -398,7 +474,7 @@ Joe Clark - Hillbilly Voodoo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107112.jpg" />
 </div>
 
 
@@ -425,7 +501,7 @@ John Woodward | Horses (2014) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107113.jpg" />
 </div>
 
 
@@ -450,7 +526,7 @@ John Albert - Down the Rabbit Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107114.jpg" />
 </div>
 
 
@@ -477,7 +553,7 @@ Charlie Gardner, Jennifer Quasha (еditors) | Butterfly (2004) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107115.jpg" />
 </div>
 
 
@@ -504,7 +580,7 @@ Louis Prima - The Very Best Of Louis Prima (1956 - 1962) 2CD, 2016, Not Now Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107116.jpg" />
 </div>
 
 
@@ -531,7 +607,7 @@ James McKinley - Working Class Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107117.jpg" />
 </div>
 
 
@@ -558,7 +634,7 @@ Jasper & Jade - The Copper God (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107118.jpg" />
 </div>
 
 
@@ -585,7 +661,7 @@ magnet:?xt=urn:btih:4DE1487C19C3D84B6475B2196E9E0C929BE5799A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107119.jpg" />
 </div>
 
 
@@ -598,84 +674,6 @@ magnet:?xt=urn:btih:4DE1487C19C3D84B6475B2196E9E0C929BE5799A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE16A60CC07115CF8F1C64D07932BD7712AB1273
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734277   (107120) от 03.07.2024
-
-Jacek Siciarek - In Yo Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What For Blues (3:17)
-02. In Yo Soul (3:33)
-03. Jose Maria (4:43)
-04. Slow Jam (3:51)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C6F276FD983CEB83283919200C9D8C02467DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734313   (107121) от 03.07.2024
-
-Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107121.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Kembatinan Premaster
-A2 Pious Breath
-A3 Bloud And Souls
-A4 Melancholike(   Читать дальше...   )Жанр: Black Metal, ExperimentalПродолжительность: 00:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734434   (107122) от 03.07.2024
-
-Владислав Конюшевский | Попытка возврата (Книга 3). По эту сторону фронта (2024) [MP3, Виктор Бабков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107122.jpg" />
-</div>
-
-
-###  Подробнее
-
-До конца войны остаются считанные месяцы и бойцы Особой группы Ставки, нацеленные на поиск объектов Аненербе, неожиданно получают другой приказ. На этот раз действовать им придется не в немецком тылу, а на освобожденной территории. Недовольный Илья Лисов считает это «отрывом от основной работы», не предполагая, во что может вылиться выполнение нового задания.Жанр: Историческая фантастика, Альтернативная историяИздательство: Издательство (АСТ)Продолжительность: 11:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6EAD9E68F379EC5EE168BE20AF07AED55C34675
 ```
 
 

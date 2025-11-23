@@ -1,3 +1,178 @@
+###  Публикация: 1194705   (154134) от 26.12.2017
+
+Журнал | Домашние заготовки. Спецвыпуск №10 (октябрь 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Домашние заготовки" от авторов "Кулинария. Коллекция" - лучшие рецепты к вашему столу! Сборник вкусных, традиционных или оригинальных рецептов для каждодневного меню или праздничного стола. А также полезные материалы и советы, тонкости и хитрости кулинарного мастерства.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C9EBE250A2D01FF37D015EAB6EF01B53313D59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518690   (154135) от 20.12.2021
+
+Lost Circus - Lost Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Shadows
+02. Come To Me
+03. She's A Fire
+04. Ashes In Rain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97EF29EEB3FF3A1EE8B602FCD2530A8E42F9D00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270935   (154136) от 21.12.2018
+
+Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Partita No. 1 in B-flat Major, BWV 825
+02 – Piano Sonata No. 30 in E Major, Op. 109: I. Vivace, ma non troppo
+03 – Piano Sonata No. 30 in E Major, Op. 109: II. Prestissimo
+04 – Piano Sonata No. 30 in E Major, Op. 109: III. Andante molto cantabile ed espressivo(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B685EB01507BEDBF583D93C6E6DACAD775208887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600960   (154137) от 29.12.2022
+
+Loop Mash Up Pro 1.2.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте профессиональную музыку с помощью Loop Mash Up. Это приложение представляет собой мощный сэмплер с множеством циклов и пресетов. Все образцы были созданы профессиональными музыкантами и диджеями. Наслаждайтесь созданием мощных ударов, просто нажав на «pads» и получите мгновенный результат!Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 Music TopiaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0EED179B3CDC31F7F31DCAD8034F4C584E76E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518585   (154138) от 20.12.2021
+
+Contacts Journal CRM 3.1.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Contacts Journal CRM представляет собой мощный инструмент, который превратит ваши деловые и личные отношения: сохранять заметки о важных встречах, создавать пользовательские поля контактов, и возможность приложить важные документы для каждого из ваших контактов. Доступно на Mac, iPhone и iPad, с бесшовной iCloud синхронизацией на всех устройствах.
+До тех пор, пока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 zaal LLCПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC89410525D66B1BD8C2A3D47A1C3B32B0322101
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601021   (154139) от 29.12.2022
+
+Жорж Мельес: Первый волшебник кинематографа / Georges Melies: First Wizard of Cinema (1908-1913) DVDRip (диск пятый)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается коллекция фильмов Жоржа Мельеса, изданная студией "Фликер аллей" на пяти DVD. Жорж Мельес построил первую в мире киностудию в 1896 около Парижа; оттуда увидели свет фильмы фантастические, сказочные, мечтательные, исторические, фантазийные, мелодрамы, комедии положений - даже эротические фильмы. Вы найдёте здесь образчики всех (   Читать дальше...   )Производство: Франция, StarFilmЖанр: немое кино, короткометражныйРежиссер: Жорж МельесАктеры: Жорж Мельес, Клодель, Octavie Huvier, Андре Мельес, Manuel, Луиз Лагранж, Жак Фейдер, Марта ВинотПеревод: НемойСубтитры: Интертитры в некоторых фильмахПродолжительность: 00:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB50C5CF6642F6CCCDE855FED0E33A4A9C00F7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270893   (154140) от 21.12.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (200) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F923F4679BDA6A0B0246584F62A8217E8EB3C7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194690   (154141) от 26.12.2017
 
 Вечерний Ургант (2017.12.25) SATRip
@@ -6,7 +181,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154141.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ magnet:?xt=urn:btih:D6B4BFC5DC1C5898DF4AD4B5532BD0A5B431AED0
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154142.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ magnet:?xt=urn:btih:3466493BC63FED621CF85BBB0C418CA1E8787120
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154143.jpg" />
 </div>
 
 
@@ -78,7 +253,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154144.jpg" />
 </div>
 
 
@@ -102,7 +277,7 @@ magnet:?xt=urn:btih:824F16F44B67CDA1116862A4E59CF36E5D86CBDD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154145.jpg" />
 </div>
 
 
@@ -126,7 +301,7 @@ magnet:?xt=urn:btih:F7C2C4EE739A729215D6BB1A383D7C411A65B6A6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154146.jpg" />
 </div>
 
 
@@ -152,7 +327,7 @@ magnet:?xt=urn:btih:786076446AC8E1CA72344979B703CBE5667DE7AA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154147.jpg" />
 </div>
 
 
@@ -176,7 +351,7 @@ magnet:?xt=urn:btih:126949207C6177F429A35DF2FBB79498D231CE38
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154148.jpg" />
 </div>
 
 
@@ -200,7 +375,7 @@ magnet:?xt=urn:btih:77D3B0628C3A407AC9FDAC0A83E4D702347F13FE
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154149.jpg" />
 </div>
 
 
@@ -224,7 +399,7 @@ magnet:?xt=urn:btih:3B644A9885648260DA941A8925CB2D501CA3562D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154150.jpg" />
 </div>
 
 
@@ -248,7 +423,7 @@ GhosteMane - Rituals (2016) [FLAC|Lossless|tracks] <Hip-Hop, Underground Rap, Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154151.jpg" />
 </div>
 
 
@@ -275,7 +450,7 @@ VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154152.jpg" />
 </div>
 
 
@@ -302,7 +477,7 @@ magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154153.jpg" />
 </div>
 
 
@@ -326,7 +501,7 @@ magnet:?xt=urn:btih:47D1FB093D8E8B32FBADBAB0C1C1238CB861B0C3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154154.jpg" />
 </div>
 
 
@@ -350,7 +525,7 @@ Skarlett Riot - Regenerate (2017) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154155.jpg" />
 </div>
 
 
@@ -377,7 +552,7 @@ magnet:?xt=urn:btih:CA1500F196CEC7D2167E7758BB4CC027C42C221D
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154156.jpg" />
 </div>
 
 
@@ -401,7 +576,7 @@ magnet:?xt=urn:btih:520FFC754E763F4705E419D0553BC03E21AC0E8B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154157.jpg" />
 </div>
 
 
@@ -425,7 +600,7 @@ magnet:?xt=urn:btih:9D80A54BBB517471AF5BD10F77D49E3D85031859
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154158.jpg" />
 </div>
 
 
@@ -449,7 +624,7 @@ AIMP 4.70 Build 2239 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154159.jpg" />
 </div>
 
 
@@ -462,176 +637,6 @@ AIMP 4.70 Build 2239 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75131DC51891D6C7E58B30C374BB33670F8E3B08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347194   (154160) от 22.12.2019
-
-Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Ванкувер Кэнакс (21.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154160.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 декабря 2019 года, воскресенье 06:00 МСК
-Стадион: Роджерс-Арена (Ванкувер, Канада), 18 285 зрителей (97 % при вместимости 18 910)
-Главный судья: Том Хмелевски (Канада); Главный судья: Стив Козари (Пентиктон, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24EB17BC42F007DCCF2447C9206D07C767852EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676051   (154161) от 15.11.2023
-
-Названы топ-5 эмодзи используемых в почтовых рассылках
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сервис почтовых рассылок проанализировал использование эмодзи в электронных письмах российских компаний.Эмодзи со значком огня — самые распространённые в электронных письмах российских компаний, по результатам анализа сервиса Unisender, который изучил более 3 миллиардов сообщений. Примерно 10,2% электронных писем содержат этот символ. Второе место занимает молния (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270892   (154162) от 21.12.2018
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (201) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C02BE280D8C920CB8DC28325747F9F2A4F58D68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194869   (154163) от 26.12.2017
-
-Яндекс.Браузер 17.11.0.2191 Final DC 20.12.17 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4C3FCC83BC0C7DAE3461A6150BC9D91BCFDF40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086110   (154164) от 23.12.2016
-
-Сергей Шумилов | Нунчаку (1991) [DJVU]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нунчаку - это, наверное, самое популярное оружие востока. Широкую известность получили благодаря фильмам с участием Брюса Ли. Небольшая брошюра расскажет об основных приёмах с нунчаками.Жанр: Физкультура, СпортФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94D337188E2D0D4F38BE967055F9BFC3D3A6220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433852   (154165) от 22.12.2020
-
-Егор Андросов | Криптотрейдинг от практика (2017) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криптотрейдинг: Торги на криптобирже Bittrex – целый комплекс операций c учениками.Жанр: КриптовалютыПродолжительность: 26:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F940ED2238E963088241AF140D84F82CCAE8ADBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086183   (154166) от 23.12.2016
-
-Пресс-конференция Президента России В. В. Путина (2016.12.23) WEB-DL [H.264/720p-LQ]
-
->>След.
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодная большая пресс-конференция Президента РФ Владимира Путина, в ходе которой он отвечает на вопросы представителей СМИ мирового сообщества...Телекомпания: RTЖанр: Пресс-конференцияСубтитры: ОтсутствуютПродолжительность: ~ 03:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE67BC4B20E9C2F7E3FDB4252663EB4BF8ED5A3
 ```
 
 

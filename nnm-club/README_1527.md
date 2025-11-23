@@ -6,7 +6,7 @@ Rufus Du Sol - Inhale / Exhale (2024) [MP3|320 Kbps] <Electronic, Breaks, House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40056.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rufus Du Sol - Inhale / Exhale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40057.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nationwide - Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40058.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:3703A9F855D9015B24E753AFC69E2453E720FE58
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40059.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chris Daniels & The Kings - 40: Blues with Horns, Vol. II (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40060.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:57781A6F9774D05879C038BE8192B7E8271D5C13
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40061.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Acid Retro Soul Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40062.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Bywater Call - Shepherd (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40063.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:2635F47DD0D1A6777ACEC41104B60AA771359606
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40064.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Steve Lacy - Only Monk (1985) 1993, Soul Note [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40065.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Widespread Panic - Warfield 2000 #4 (2024) [MP3|320 Kbps] <Southern Rock, Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40066.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:D09EDE222BC966CA7C8B1D5F47FC355ECD871C1D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40067.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Chesterfield Kings - We're Still All The Same (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40068.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Tom Mansi & the Icebreakers - Eyeball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40069.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40070.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Ellen Edwards - A Beautiful World (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40071.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Swallow The Sun - Shining (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic-Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40072.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40073.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Airborne Blues Virus - Minnie Water Music (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40074.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Delta Generators - The Lost Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40075.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:56C71508591FE7551420F7F98BB3A8EBF8743A11
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40076.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Process Lasso Pro 15.0.2.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40077.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:52C57147DCB225E7B5A8A3B29F1E37438BFBEC0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40078.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:B668A3DD39064900FD2E8252EC7FE57272A69E02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40079.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:A32024B3220020B7C165F55B2573A3F0911AA956
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40080.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Google Chrome 130.0.6723.59 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40081.jpg" />
 </div>
 
 

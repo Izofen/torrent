@@ -1,3 +1,81 @@
+###  Публикация: 1702949   (115310) от 27.02.2024
+
+Twilight Tapirs - Great Lake Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Clipper Ships (0:58)
+02. Wolverine Train (3:34)
+03. Thy Fearful Symmetry (3:08)
+04. Koi Fish Shangri-La (3:39)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4105BAFB632C7C64A32955F009E4BA45F59934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703033   (115311) от 27.02.2024
+
+Марина Серова | Частный детектив Татьяна Иванова. Женщина-ловушка (2024) [MP3, Ирина Азимова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Татьяна Иванова расследует убийство Алика Прокопьева. Молодой человек после смерти брата возглавил рекламную фирму. Дела в «Зебре» шли неважно, и Алику пришлось взять кредит в банке. Но деньги вскоре исчезли, а самого Прокопьева убили прямо в рабочем кабинете… Подозреваемых несколько. Однако Татьяна чувствует, что истинный злоумышленник слишком умен (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BCF59C048697487A54F6693E9C7EB7B14F21B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702991   (115312) от 27.02.2024
+
+Einar Haavik Kvartett - On A Sentimental Journey (1999) Bjarne Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cobra [3:37]
+02. Sentimental Journey [4:19]
+03. How Insensitive [3:53]
+04. Don't Explain [6:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1E39F5D1047ECC961EBBF26A109958E616464E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703035   (115313) от 27.02.2024
 
 Марина Серова | Частный детектив Татьяна Иванова. Не рой другому яму (2024) [MP3, Наталья Дымочко]
@@ -6,7 +84,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115313.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Theragon - Where The Stories Begin (2020) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115314.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Vircolac - Veneration (2024) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115315.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:D3BA8E5B6CA886C02C05C38562670CE3B41F5B2A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115316.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ Accept - Humanoid (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115317.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ YT Downloader 9.6.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115318.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ magnet:?xt=urn:btih:4EEEDBAB8D4925E3C89375DF81E63994BC050970
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115319.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ magnet:?xt=urn:btih:21A68ABD4F1BDE3B70C21ACA69AC0D21D10516FE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115320.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ The Samurai Of Prog Featuring Marco Grieco - A Quiet Town (2024) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115321.jpg" />
 </div>
 
 
@@ -233,7 +311,7 @@ Accept - Humanoid (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115322.jpg" />
 </div>
 
 
@@ -257,7 +335,7 @@ magnet:?xt=urn:btih:F280275C2205B0895F03FAD506EEB72DD0945D3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115323.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ Brave Browser 1.63.162 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115324.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ magnet:?xt=urn:btih:DB0A13B5450333C301CC32971E0641B12095433F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115325.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115326.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ GeoGebra 6.0.827.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115327.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ Romantic Moods Academy, Jazz Music Collection Zone - Jazz Music for a Romantic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115328.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ Jazz Sax Lounge Collection, Smooth Jazz Sax Instrumentals - Summer Saxophone Rel
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115329.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ magnet:?xt=urn:btih:3626FE25F970C01E516D588DF4734AFDFD256FFE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115330.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ magnet:?xt=urn:btih:67E46F8C546C5D8EE3C44DEDECF5AEC87710B87D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115331.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ magnet:?xt=urn:btih:2B35F7EF637A3F9907EB265368A754B4D727D307
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115332.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ magnet:?xt=urn:btih:F8A0E701B5CB9C207914418386FECFBAEEA7D5C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115333.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ Rogue Johnsen Project - HOME (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115334.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ Emilie Schiott (Schiøtt) - Like a Sunday (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115335.jpg" />
 </div>
 
 
@@ -574,79 +652,6 @@ Emilie Schiott (Schiøtt) - Like a Sunday (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02C0BE525ADDF18CF16EF2C39451F90CF910E651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703026   (115336) от 27.02.2024
-
-А.П. Баскаков (ред.) | Теплотехника (1991) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы технической термодинамики и теории тепло- и массообмена. Приведены основные сведения по процессам горения, конструкциям топок и котельных агрегатов. Рассмотрены принципы работы тепловых двигателей, паровых и газовых турбин, двигателей внутреннего сгорания и компрессоров. Описаны компоновки и технологическое оборудование тепловых электрических станций, (   Читать дальше...   )Жанр: ТеплотехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8E0C1C98929A2587BB407C055499A862629604
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702971   (115337) от 27.02.2024
-
-Н.Н. Мансуров, В.С. Попов | Теоретическая электротехника (1966) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115337.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются физические процессы, происходящие в электрическом и магнитном полях, в электрических линейных и нелинейных цепях постоянного и переменного тока. Излагаются основные методы расчета, принятые в электротехнике. Даны описания лабораторных работ. Изложение поясняется большим количеством примеров с решениями.
-Книга предназначается для лиц, изучающих (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF94BC8727DDADC4160A091A3F4ADB730FE90DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703028   (115338) от 27.02.2024
-
-Мэнди и силы зла / Mandy und die Machte des Bosen (2023-2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115338.jpg" />
-</div>
-
-
-###  Подробнее
-
-На вечеринке в честь Хэллоуина с Мэнди Пёппль происходит несчастный случай, после которого у неё появляются агорафобия и панические атаки. В квартире, где Мэнди живёт со своей матерью Тиффани, она устраивает спиритические сеансы, чтобы заработать себе на жизнь. Однако, когда во время одного из надувательских сеансов внезапно появляется призрак её соседки Сельчан, (   Читать дальше...   )Производство: Австрия / Caligari Film- und Fernsehproduktions, Samsara FilmproduktionЖанр: ужасыРежиссер: Франциска Мейер Прайс, Андреас ШмидАктеры: Giovanni Funiati, Bayan Layla, Eli Riccardi, Ребекка Иммануэль, Рафаэль Гарайзен, Михаэль Пинк, Инге Маукс, Томас Пон, Christina Trefny, Сафира Робенс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBF8F58827C047B5D0CF6C854DC635B46981150
 ```
 
 

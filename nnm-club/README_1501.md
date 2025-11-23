@@ -6,7 +6,7 @@ Smokie - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Pop Rock, Rock, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39379.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WizTree Enterprise 4.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39380.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Baccara - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39381.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:F9C4F162F305B07CC52E30B601C1BA66CF6232D1
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39382.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F9C4F162F305B07CC52E30B601C1BA66CF6232D1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39383.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ V.A. - Vintage Cafe Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39384.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Ocenaudio 3.14.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39385.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Take It Easy Friday (2024) [MP3|320 Kbps] <Disco, Funky, House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39386.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:E6ADC4D1ECC479C82FE82937A8E177B1B4ADE444
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39387.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Sarah Vaughan & Clifford Brown - Sarah Vaughan With Clifford Brown (1954) 2003, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39388.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Ferrari Challenge Europe. Copa Shell AM. 7-й этап. Имола. Гонка 2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39389.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Sarah Vaughan & Quincy Jones - You're Mine You (1962) 2016, Jazz Images [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39390.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Sarah Vaughan - The Divine One (1961) 2017, Hallmark [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39391.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Samantha Fox - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39392.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:37941AC1DAAB480B1FDA8B881DDB824A6392C55A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39393.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:3D2D946B90D2ABF12721E7CEF93914DBC01A5738
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39394.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:D672A55F3DD49B77C05C703BD3D1DC1BF2B9BA70
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39395.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:2CB3C0AD2212312F2C19574230F1021E49D80AA9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39396.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Queen - Queen 1 (Collector's Edition) (1973) Reissue, Remastered, 2024, Hollywoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39397.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:243D0183F380DB4AE9BAB3162AF88242A1ABA67F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39398.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ StartAllBack 3.8.12 build 5190 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39399.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:B38DC13B417EB03804C65794FB877A13D1843DD1
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39400.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ AllDup 4.5.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39401.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39402.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:CA518A24EF0BE322A36CF60ACC2A7BE8715C602C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39403.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ ISO Workshop 13.1 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39404.jpg" />
 </div>
 
 

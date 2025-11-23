@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173784.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173784.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:94A40E137769FD32CA94FECAE33049C8A2BB1AC2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:242588977C2FEDB8FCD45E9D71F2DCC99BD86283
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174031.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DB335F93F6F0ECD19B0E1656D225E3C4CD95BB03
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174723.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174723.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:82B893536C82F71BBC9407326B453762C0A7B324
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174774.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174774.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5C44E175C0F58DDEA314586E8B4A58D3D929C8EB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174843.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174843.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:21C01F1E83E1CF56388E47553B5C3B6557CB947B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174888.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:B599709FF3A2D5FBAC064A7B83F7E7171FDE7EED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174900.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174900.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:6E3A8FCC2676797927EFBF01AA61F589D832E142
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174914.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:4DF75D63D0DAB80C8ED37D77DD2BB3471E6C3FC0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174989.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Kaкoй oтпуcк! / Vaya vacaciones! (2023) WEB-DLRip [MVO] [AD]
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175069.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kaкoй oтпуcк! / Vaya vacaciones! (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175109.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ LG демонстрация 4К-ТВ / 4K-LG ULTRA HD Landscape demo (2013) Ultr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175506.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175506.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:39BB70201504293B62FCB97ECF06D832D9E157CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175615.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:C9449ED87A6DF70613DD690DE28E95DA777511A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175637.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:9C1B1C899FA591EDDDEA09BC19FF4F6DC780AEA7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175735.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:7F1A21097F87371B2A40679869B81AA5251DBED8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176221.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176221.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:2F4A72CEE2CD4B26FAEA3E008CEB9F292DECE1B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176224.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176224.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:E23591223311BD81FC41D0B3EA1E9CD9D915F1B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176243.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176243.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6FBBB8FC9B01ADF1FFACF93A9B895B14857DCE61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176269.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176269.jpg" />
 </div>
 
 
@@ -483,6 +483,30 @@ magnet:?xt=urn:btih:606AAB8DCD15CFED324F544E13349D4CEEDFA1C9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503991   (176298) от 08.10.2023
+
+Терминатор: Чугунное рыло / The Terminator (1984) DVDRip [Пародия, Смешной перевод, Держи Морда]
+
+>>Остальное
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_176298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темное беспросветное настоящее. США. Одна несчастная официантка из дешевой забегаловки - Сара Корнефф - внезапно обнаруживает в себе скрытую страсть к подводному плаванию и находит вдохновение, слушая тяжелый дэз-металл. Внезапно, из еще более темного и забитого будущего, в ее жизнь врывается ярый тупоголовый гопник, вооруженный до зубов и защищенный титановым скелетом (   Читать дальше...   )Производство: США, Великобритания, Cinema '84, Euro Film Funding, HemdaleЖанр: Боевик, Фантастика, КомедияРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Майкл Бин, Линда Хэмилтон, Пол Уинфилд, Лэнс Хенриксен, Рик Россович, Бесс Мотта, Эрл Боэн, Дик Миллер, Шон ШеппсПеревод: Одноголосый закадровыйЯзык озвучки: РусскийПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80A61076B7E63912F1D4FCC9B91F6FB59B6EB9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 354905   (176302) от 08.10.2023
 
 Путь Иуды  (2011) DVDRip[Пародия]
@@ -491,7 +515,7 @@ magnet:?xt=urn:btih:606AAB8DCD15CFED324F544E13349D4CEEDFA1C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176302.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176302.jpg" />
 </div>
 
 
@@ -515,7 +539,7 @@ magnet:?xt=urn:btih:654C5284029BF91B328F9F6D7CD11B853D758F47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176305.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176305.jpg" />
 </div>
 
 
@@ -539,7 +563,7 @@ magnet:?xt=urn:btih:D68E8A9068631AA7D7CA819FC7BB1763D9E305CA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176440.jpg" />
 </div>
 
 
@@ -566,7 +590,7 @@ magnet:?xt=urn:btih:3C7330CC47FE647CCF1E59A5E97F070F6DCAE7A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176464.jpg" />
 </div>
 
 
@@ -590,7 +614,7 @@ magnet:?xt=urn:btih:D1FE7A7E01BA9D8FCB37F991A2B5B39064FD3720
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176472.jpg" />
 </div>
 
 
@@ -601,30 +625,6 @@ magnet:?xt=urn:btih:D1FE7A7E01BA9D8FCB37F991A2B5B39064FD3720
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E10273FBEAE84B690FE31B6697AE435B799EF3C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667439   (176544) от 08.10.2023
-
-Хочу в тюрьму (1998) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семён Лямкин, разработчик и конструктор «Запорожца», легко обгоняющего «Мерседесы» и плавающего не хуже моторной лодки, попал в неприятную историю. Когда с его помощью ограбили банк, Семён не стал дожидаться ареста. Сев в «Запорожец», он отправился в тюрьму. Но не российскую, а голландскую, поскольку тюрьмы за границей намного комфортабельнее.Производство: Россия, НТВ-ПрофитЖанр: КомедияРежиссер: Алла СуриковаАктеры: Владимир Ильин, Наталья Гундарева, Алла Клюка, Сергей Баталов, Борис Щербаков, Кира Сурикова, Олег Бочаров, Наталья Коренченко, Егор Акмен, Игорь МигуновСубтитры: отсутствуютПродолжительность: 01:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9489E0FFB69C6D768934267A1094746D756EE76F
 ```
 
 

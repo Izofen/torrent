@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161750.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cubebrush, Marc Brunet | ULTIMATE Guide Drawing The Human Anatomy (2019) WEB-DLR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161800.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3358D314B93DB99554493A7783E850649AC3309F
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161815.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F5A3DE57FFA332AD88139A439990D2A93DDD9311
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161817.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:97FBE6A4089C8D8467E2B5E24C0B46F43FFE1B9F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161827.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Learn Squared, Pablo Dominguez | Vehicle Concept Art (2020) PCRec [EN, ES]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161899.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Schoolism, Craig Mullins | Painting Sci-Fi from Start to Finish (2020) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161950.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:841238C219CE8EC645FA44743D7BDED1D041AF78
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161956.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ New Masters Academy, Glenn Vilppu | Многофигурная композиц�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161964.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Schoolism, Djamila Knopf | Story-Driven Illustrations (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162030.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Schoolism, Jason Seiler | Realistic Portraits (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162037.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Schoolism, Jonathan Hardesty | Essentials of Realism (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162044.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ KkartSchool, Карина Кино | Создание книги (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162055.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Schoolism, Thomas Fluharty | Oil Painting (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162074.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ PBS, Джозеф Кэмпбелл, Билл Мойерс | Сила Мифа (1
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162128.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Kalachevaschool, Виктория Акулова | Эмоциональная а
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162135.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:20DF798A6610460ED42ED70B3A3B542866308C5A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162197.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162228.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create the military Black Hornet d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162260.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ XYZ School, Женя Пак | Hard Surface (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162477.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Gumroad, Duard Mostert | AAA Game Assets with Fusion 360 Tutorial (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162488.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Udemy, Visadi Khalikov | Этичный хакинг с Metasploit для нач
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162508.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Skillbox, Марина Брагинская и др. | Декорировани�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162520.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:07F79586F765C5466AB237A96211C7E78D3919E3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162638.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Udemy, 3D Tudor | Blender Beginner’s Bootcamp (2023) WEB-DL [AD] [EN, RU / EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162690.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Udemy, А_мир Хамитов | AutoCAD с нуля и до очень даж�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162697.jpg" />
 </div>
 
 

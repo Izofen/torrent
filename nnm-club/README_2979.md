@@ -1,3 +1,75 @@
+###  Публикация: 483851   (88902) от 16.04.2012
+
+Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (RePack) 2000 | mike1986
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая и ужасная игра Carmageddon TDR 2000 произвела фурор и вызвала у многих настоящий шок! Игрокам предложили экстремальную гонку, главным условием которой было жестоко и беспощадно давить прохожих, размазывая по асфальту кровь и разбрасывая части тел во все стороны. Игра моментально стала сверхпопулярной, а моралисты в один голос стали утверждать, что насилие в компьютерных играх перешло на запредельный уровень. Благодаря официальному изданию той самой аркадной гонки у тебя вновь появилась возможность оценить кровавое очарование игры «Кармагеддон: Колеса смерти». Погрузись в хаотичную бойню, используй свое авто в качестве смертоносного оружия! К победе ведут три пути – нужно прийти к финишу первым, раздавить всех пешеходов на карте или уничтожить машины соперников. Выбор действий за тобой! Собственный адский автомобиль можно заменить или улучшить – навесить новые инструменты уничтожения, броню и прокачать двигатель. Смертельные заезды начинаются. Ты готов? На старт, внимание… Дави!(   Читать дальше...   )Тип издания: RePackЖанр: Action / Arcade / Racing (Cars / Futuristic) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BB2C40757D52BFE0B700D845327315B717B2F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484045   (88904) от 16.04.2012
+
+Dead Mountaineer Hotel / Отель "У погибшего альпиниста" [Ru] (RePack/1.3) 2007 | R.G. ReCoding
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная приключенческая игра, создаваемая по мотивам одноименного романа братьев Стругацких. Инспектор, застигнутый врасплох внезапно сошедшей лавиной, прибывает в отдаленный горный район, в отель «У погибшего альпиниста». Он еще не знает, что приготовила ему судьба. Снежная буря парализовала движение и герою приходится остаться в гостинице надолго. Незаметно для себя полицейский оказывается в самом центре таинственных событий. В старом отеле, где он поселился, происходят странные, шокирующие события. В надежде вычислить убийцу одного из постояльцев, он постепенно открывает для себя ужасные тайны, которые хранит отель «У погибшего альпиниста». Подозрение падает на всех, с кем приходится общаться герою, но преступник может быть только один. Дальнейшее расследование только сильнее запутывает его, заставляя искать ответы там, где их, казалось, и быть не должно. Кажется, разгадка уже совсем близко, но сумеет ли главный герой найти ее?! Ведь от этого зависит и его собственная жизнь. Вас ждет захватывающее приключение, в котором удивительная атмосфера книги знаменитых фантастов и интригующий сюжет дополняются великолепной графикой.(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483489   (88905) от 16.04.2012
+
+Команда «А» [Расширенная версия] / The A-Team [Extended Сut] (2010) [1080p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа ветеранов войны в Ираке, несправедливо обвиненных в преступлении, пытается найти истинных виновников и вернуть себе честное имя.Жанр: Боевик, Триллер, Комедия, ПриключенияРежиссер: Джо КарнахаАктеры: Лиам Нисон, Брэдли Купер, Джессика Бил, Куинтон Джексон, Шарлто Копли, Патрик Уилсон, Джералд МакРэйни, Генри Черни, Юл Васкез, Брайан Блум, Джо КарнаханПеревод: ДублированныйСубтитры: Русские (forsed), Русские, Английские - (UTF-8)Язык субтитров: Русские, АнглийскиеПродолжительность: 02:13:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483756   (88906) от 16.04.2012
 
 С. Келби | Система "великолепная семерка" Скотта Келби для Adobe Photoshop CS3 [2008] [PDF]
@@ -6,7 +78,7 @@
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88906.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:3312C05626F81A49AE4750413D801797F24845E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88907.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Guitar Pro [3.0+Jailbreake]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88909.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Guitar Pro [3.0+Jailbreake]
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88910.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88912.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88916.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Aero Crystal - набор тем для Windows 7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88917.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88918.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:B2A2FE1973166E5FB1360F6D2C4F0CC1CB8CDDD1
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88919.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:AFE53436F9242C6140BDBB968E9C4DB59C4E0558
 >>25
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88920.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ The Lord of the Rings: The Battle for Middle-earth 2 The Rise of the Witch-king 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88923.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:8B99454AB7BE20732625EB6EBAEE3A68735FFBA6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88926.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88927.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88928.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:060A32D3F9C7BBDEB644FB7A8753E323F7C68F54
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88932.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88933.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88934.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88936.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88938.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ magnet:?xt=urn:btih:08E9C8E73FA7DD06596D29F9BFB0EF0311684A24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88941.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ Abakus - We Share The Same Dreams (2008) [FLAC|Lossless]<Chillhouse / Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88942.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88949.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88952.jpg" />
 </div>
 
 
@@ -568,89 +640,6 @@ magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7277CCA4695B6498D341ADB061688A0B358A5E4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484368   (88963) от 17.04.2012
-
-Оберег - Настроение личности (2011) [MP3|320 кб/с]<Psyhodelic,Ethnic,Punk,Folk,Metall>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88963.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Каждое утро
-2 Зверь
-3 Глобальный кризис
-4 Время
-5 Утренняя сказка
-6 Подземная война
-7 Крик
-8 Шаман
-9 Убегающему
-10 В.З.С.П.(   Читать дальше...   )2011Жанр: Psyhodelic,Ethnic,Punk,Folk,Metall,Post-HardcoreПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7D2A1929EC8F8B30A0E37EFDBBE0559401CCEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484253   (88966) от 17.04.2012
-
-Наоми Кляйн | No Logo. Люди против брэндов [2005] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88966.jpg" />
-</div>
-
-
-###  Подробнее
-
-«No Logo» — это одновременно серьезное экономическое и культурологическое исследование, политический манифест, научная монография и увлекательное журналистское расследование, критикующее глобализацию, неолиберализм и современный экономический порядок, при котором мир, опутанный сетями глобальных брэндов, лишен возможности свободного выбора и не может полноценно развиваться.
-«No Logo» — это «евангелие антикорпоративного движения» («The New York Times»), книга, которую называют новым «Капиталом». Наоми Кляйн раскрывает истинные причины основных конфликтов современности и объясняет, почему некоторые известные и уважаемые компании становятся объектами открытой ненависти миллионов людей, которые выходят на улицы, пытаясь изменить мировой порядок и сделать его более справедливым.2005Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484350   (88968) от 17.04.2012
-
-Сергей Кара-Мурза | Россия под ударом. Угрозы русской цивилизации [2010] [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88968.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом тысячелетии, когда средства массовой информации превратились в оружие массового поражения, главным полем боя становятся умы и сердца, а главной мишенью врагов России - сами основы нашей цивилизации. Вслед за экономической и военной мощью нас хотят лишить еще и корней, самобытности, самоуважения, собственного уклада жизни - всего того, что делает нас особым народом. Отдавая себе отчет, что Россию невозможно завоевать извне, грубой силой, Запад сделал ставку на культурную и идеологическую экспансию, исподволь разрушая наши фундаментальные ценности и связи между людьми, подтачивая несущие конструкции русского общества. Именно так был разрушен Советский Союз. Теперь те же грязные методы применяются и против России.
-Как противостоять этим системным угрозам? Как защитить матрицу нашей цивилизации? Как спасти свою страну и свое будущее? Новая книга ведущего историка и публициста патриотических сил подскажет ответы на все эти вопросы.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B066DCE7A01DF41281D8BAF256410B21BF0141FE
 ```
 
 

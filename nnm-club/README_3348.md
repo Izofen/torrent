@@ -1,3 +1,84 @@
+###  Публикация: 1736221   (106730) от 11.07.2024
+
+Travis - L.A. Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bus (3:24)
+02. Raze the Bar (3:05)
+03. Live It All Again (3:24)
+04. Gaslight (3:24)(   Читать дальше...   )Жанр: Soft Rock, Alternative RockПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749B059EE5746808402B8708C693663110C1B624
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736127   (106731) от 11.07.2024
+
+Bart Graft - Jewel in the Crown (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Electronic, Synthpop, Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soshu (2:00)
+02. Capital West (4:24)
+03. Jewel in the Crown (4:50)
+04. Ground Floor Lobby (5:08)(   Читать дальше...   )Жанр: Alternative, Electronic, Synthpop, SynthwaveПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6CB0AF616F06E49DAF557000F543E465342A84B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736269   (106732) от 11.07.2024
+
+Sebastian Barbosa - Burning on the road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning on the road (3:00)
+02. Hey Man! (2:12)
+03. Ride the blues highway (3:00)
+04. Two Wolves (2:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BFE362E6B69ED28C65169777C733BBBF1A4B11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736087   (106733) от 11.07.2024
 
 High-Logic FontCreator Professional 15.0.0.2993 Portable by 7997 [En]
@@ -6,7 +87,7 @@ High-Logic FontCreator Professional 15.0.0.2993 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106733.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:22B67B016A1AE79B11EA73E443A8B98989471B14
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106734.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ Photo Supreme 2024.2.1.6560 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106735.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ Testament - The Legacy (1987) Remastered, 2024, Rhino Atlantic; Nuclear Blast [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106736.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ Faze-O - Slow Funk: The Atlantic Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106737.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ Forbidden Society - Lonely Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106738.jpg" />
 </div>
 
 
@@ -159,7 +240,7 @@ Arctic Rise - Voyager III (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106739.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ Jacob Banks - Our Time Together: The Live Album (2024) (Live) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106740.jpg" />
 </div>
 
 
@@ -213,7 +294,7 @@ Wallop - Hell On Wheels (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106741.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ QOwnNotes 24.7.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106742.jpg" />
 </div>
 
 
@@ -264,7 +345,7 @@ Eleanor - Effigy Of The Flowing Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106743.jpg" />
 </div>
 
 
@@ -291,7 +372,7 @@ magnet:?xt=urn:btih:211FDEBD98B0DECCE412228BA95BAC1430A59902
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106744.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ magnet:?xt=urn:btih:C82D7C9542CFE6AFEA03AA08269865177B9421C8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106745.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ VA - Lo-Fi Lounge Sessions: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106746.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ magnet:?xt=urn:btih:C286C7F77AC4635AA8BB85618236CE343C674B75
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106747.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ FontLab 8.3.0.8895 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106748.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ magnet:?xt=urn:btih:8589DFD682E68D98529DADFEB54D9DB8A02666D1
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106749.jpg" />
 </div>
 
 
@@ -444,7 +525,7 @@ Firefox Browser 128.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106750.jpg" />
 </div>
 
 
@@ -468,7 +549,7 @@ magnet:?xt=urn:btih:BA92DAE5BB69EF34A25F67F4A1DE15805C8BEEFE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106751.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ magnet:?xt=urn:btih:4DF846F86D1A82177B444C911EC5384D45C61016
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106752.jpg" />
 </div>
 
 
@@ -516,7 +597,7 @@ n-Track Studio Suite 10.1.0.8705 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106753.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ Ammify - Lost, Not Hiding (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106754.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ VA - Time for Summer Chillhouse: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106755.jpg" />
 </div>
 
 
@@ -581,85 +662,6 @@ VA - Time for Summer Chillhouse: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0A4F1ED84E70A50AD010C140BD28567EFF9E9F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736027   (106756) от 11.07.2024
-
-Glis - Phoenix (2013) Deluxe Edition, 2024 , Glis [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Industrial, Futurepop>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse Parties [00:05:19]
-02. Insomniac [00:05:30]
-03. Dead Set 7AM [00:03:46]
-04. Keep the Memory [00:02:56](   Читать дальше...   )Жанр: EBM, Industrial, FuturepopПродолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4E16B2DCC9D33E27B5870CA7CA7C2DBB2F250B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735889   (106757) от 10.07.2024
-
-Empyre One Feat. Scarlet - I Turn To You 2k20 (2020) [FLAC|Lossless|tracks] <Electro Pop, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empyre One Feat. Scarlet - I Turn To You 2k20 (3:00)
-02. Empyre One Feat. Scarlet - I Turn To You 2k20Жанр: Electro Pop, Electro HouseПродолжительность: 00:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7350A6082340831592A23BA2CB8EEF56A90EE90C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735656   (106758) от 10.07.2024
-
-Troyen - Unfinished Business (2024) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Used To Be (03:42)
- 02. Twist Of Fate (04:27)
- 03. Hoax (03:38)
- 04. On The Outside (Don't Go!) (04:15)(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4F427548219FF34C8139A60C1F1C3424EC3200
 ```
 
 

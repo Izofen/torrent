@@ -6,7 +6,7 @@ VA - Uplifting Only Top 15: October 2024 (Extended Mixes) (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40093.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Paris La Nuit, Vol 1 (A Premium Lounge Collection) (2024) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40094.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fever Ray - Live at Troxy (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40160.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Mo
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40163.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - FSOE ADE Compilation (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40169.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Anjunabeats presents Progressive House 01 (DJ Mix) (2024) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40170.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Ibiza Closing 2024 (Chillout & Lounge Music) (2024) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40257.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Fashion Show Best Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40288.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Armada Electronic Elements - ADE 2024 (2024) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40473.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bassnectar (Lorin Ashton) - No Colors (2024) [FLAC 16/44.1|Lossless|WEB-DL|track
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40495.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Lounge Empire (25 Afterwork Anthems), Vol 2 (2024) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40530.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Lounge Empire (25 Afterwork Anthems) Vol 1 (2024) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40531.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Pet Shop Boys - Album Collection (1986-1996) 1st UK Press [APE|Lossless|image + 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40581.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Shadowrunner - The Stranger (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40869.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA -  Dance to Trance Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40872.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Our Graves - System Overload (2024) [MP3|320 Kbps] <EBM, Industrial, Dark Electr
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40873.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Poolside Grooves Chillout Hits Edition (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40957.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_40957.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Slow Down Sessions: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41017.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41017.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Moby - quiet home: remixes (DJ Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41166.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Chill Sessions: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41559.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Milk & Sugar House Nation Ibiza (2024) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41599.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Top 10 August 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41702.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Alphaville - Forever! Best Of 40 Years (2024) [MP3|320 Kbps] <Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41713.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Eguana - Invisible Civilization, Vol. 6 (2024) [MP3|320 Kbps] <Ambient, Psychill
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41871.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Entrance Music Legends Top 25 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41882.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - ADE Behind Scenes (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41883.jpg" />
 </div>
 
 

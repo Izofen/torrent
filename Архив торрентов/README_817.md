@@ -1,3 +1,75 @@
+###  Публикация: 1432146   (165160) от 16.12.2020
+
+Lacey Free Music & Video Downloader 2.49 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lacey -  простой инструмент для поиска и скачивания мультимедийного аудио и видео контента. Поскольку найти в интернете популярные хиты обычно не составляет труда, вот только скачать их не всегда предоставляется возможным. Впрочем, и это не является проблемой, поскольку есть программы, которые позволяют, что называется, выпрямлять ссылки, а если проще — скачивать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB36D7E3BF938417ABCD1F8C97A99582DE78CCD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345949   (165163) от 17.12.2019
+
+One Chat Pro - All In One Messenger 4.9.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165163.jpg" />
+</div>
+
+
+###  Подробнее
+
+One Chat объединяет чаты и службы обмена сообщениями в одно простое приложение для Mac. WhatsApp, Facebook Messenger, Hangouts, Telegram, Skype, Slack, WeChat, Twitter, YahooChat, ICQ-чат, HipChat, Discord, GroupMe, QQ, Facebook, VKChat и др. Одно приложение для всех служб обмена сообщениями.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBA393F7C5544EDD92892CE02DD3C6740F50AC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432265   (165164) от 16.12.2020
+
+Autorun Organizer 5.0 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autorun Organizer - простое в использовании приложение, позволяющее управлять программами, которые запускаются при старте системы. Инструмент является надежным менеджером автозагрузки, который позволяет просматривать и управлять программами, запускающимися автоматически при старте системы. Вы можете просмотреть свойства программ, проверять на вирусы с помощью онлайн-антивируса (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3903550E6926EE64056DAD43BB9EA11BD526A8F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432225   (165166) от 16.12.2020
 
 MuseScore 3.5.2 + Portable [Multi/Ru]
@@ -6,7 +78,7 @@ MuseScore 3.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165166.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ JixiPix Premium Pack 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165177.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ IceCream Ebook Reader Pro 6.40 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165179.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Apeaksoft iPhone Transfer 2.0.58 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165181.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ App Tamer 2.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165184.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Resource Hacker 5.2.4.386 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165185.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ PullTube 1.8.4.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165187.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.0.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165188.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ LunaRave - Transmigration (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance, Full
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165192.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Emurasoft EmEditor Professional 20.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165196.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Extreme Picture Finder 3.65.11.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165198.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ Topaz Photo AI 2.0.7 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165204.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ Sketch 61.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165209.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ BluffTitler Ultimate 15.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165216.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ Das EFX - Real Hip-Hop (2019) Reissue, Compilation [FLAC|Lossless|Web-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165227.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ Adobe Media Encoder 24.0.2.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165228.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Mp3tag 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165230.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ Topaz Video AI 4.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165234.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Listen Audiobook Player v5.2.1 (972) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165243.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ djay - DJ App & AI Mixer 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165245.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ Icecream Screen Recorder Pro 7.31 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165249.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Freddie Gibbs & Amerigo Gazaway - A Freddie Christmas Album (2019) [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165250.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ WinTools.net Premium / Professional / Classic 23.11.1 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165254.jpg" />
 </div>
 
 
@@ -556,79 +628,6 @@ WinTools.net – набор инструментов для оптимизаци
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C40DE4F30BD88E6D7D2918C38CBF66DFCD922A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432122   (165255) от 16.12.2020
-
-Privacy Eraser Free 5.6.0 Build 3756 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFEE721DD41020252D4F004F2FB51AEBD6AC76B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345944   (165256) от 17.12.2019
-
-iTrash 5.0.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165256.jpg" />
-</div>
-
-
-###  Подробнее
-
-iTrash - утилита для удаления приложений с вашего Mac, которая использует специальный алгоритм поиска (расстояние Левенштейна), чтобы найти все связанные файлы для последующего удаленияТип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: OSXBytesПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE7C0051FAB9DECBDC595B2FB04E72E4CA2B842
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673401   (165257) от 01.11.2023
-
-WinTools.net 23.11.1 Classic / Professional / Premium RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165257.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1074E5DE1EBB1562194EA7DF7249C0E86AFF68
 ```
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1348453   (145301) от 27.12.2019
+
+Газета | Запретная история №26 (2019) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная газета для широкого круга читателей.
+
+Собственный скан.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75350D2D55B1D1E7EA30BFF737B246CCE6314302
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678300   (145303) от 21.11.2023
+
+CyberLink PowerDirector Ultimate 22.0.2313.0 (x64) Portable by 7997 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145303.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Французский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC694EBCF17001345E8A1912F2EEBFC0699252F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087658   (145323) от 28.12.2016
+
+Хоккей. Молодёжный Чемпионат мира 2017. Группа B. 2-й тур. Латвия - Россия. (27.12.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145323.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 декабря 2016, среда. 00:00 МСК
+Группа B. 2-й тур
+
+Стадион: Эйр Канада-центр (Торонто, Канада) , 6 789 зрителей (34 % при вместимости 19 800)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский / ИнтершумПродолжительность: 01:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD8F124B032A470CBEC3AFEBF63AF12B1C21B16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969863   (145329) от 28.12.2015
 
 StatusBar Pro - 3DTouch Gestures 3.0 [Ru/Multi]
@@ -6,7 +83,7 @@ StatusBar Pro - 3DTouch Gestures 3.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145329.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ VA - Uplifting Heroes 2017 (2016) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145337.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:4D4B4DFA7ED92CF1DC017BB13615BE11E067CF6E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145344.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ Hector Zazou - Songs From The Cold Seas (1994 / 2015) [FLAC 2.0 24/44.1|tracks (
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145348.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ magnet:?xt=urn:btih:6E56A33C542B3ECC36B47E28ED6A5C5D8A5E20A8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145368.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ ApowerREC 1.6.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145374.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ DVDFab 9.2.2.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145379.jpg" />
 </div>
 
 
@@ -183,7 +260,7 @@ magnet:?xt=urn:btih:7068773912EBF99A8DA86D09506BB25277B5E17D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145380.jpg" />
 </div>
 
 
@@ -207,7 +284,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145383.jpg" />
 </div>
 
 
@@ -231,7 +308,7 @@ RapidWeaver 6.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145392.jpg" />
 </div>
 
 
@@ -258,7 +335,7 @@ magnet:?xt=urn:btih:8A9392444218FB804B5BA01F2516728528F754AD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145394.jpg" />
 </div>
 
 
@@ -284,7 +361,7 @@ ToonMe 0.6.94 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145396.jpg" />
 </div>
 
 
@@ -308,7 +385,7 @@ ScreenToGif 2.35.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145407.jpg" />
 </div>
 
 
@@ -332,7 +409,7 @@ Aiseesoft Screen Recorder 2.9.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145410.jpg" />
 </div>
 
 
@@ -356,7 +433,7 @@ Firefox Browser 120.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145420.jpg" />
 </div>
 
 
@@ -380,7 +457,7 @@ magnet:?xt=urn:btih:9BD7C8316FD4A0A58459E15B5F8EE7F37A06123B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145424.jpg" />
 </div>
 
 
@@ -407,7 +484,7 @@ magnet:?xt=urn:btih:911D8E0D46DA84AA6278B5EE34EB6B2D167FECFF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145429.jpg" />
 </div>
 
 
@@ -434,7 +511,7 @@ Melon VPN - Secure Proxy VPN 7.9.612 Mod By Derrin [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145430.jpg" />
 </div>
 
 
@@ -461,7 +538,7 @@ magnet:?xt=urn:btih:7C33CEF9837B440B182ABB9052EFE7A72C0C31F3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145435.jpg" />
 </div>
 
 
@@ -488,7 +565,7 @@ xrecode II + portable Build 1.0.0.198 + xrecode2 shell 1.0.0.7 [Multi/Русск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145436.jpg" />
 </div>
 
 
@@ -515,7 +592,7 @@ PicLab - Photo Editor v2.2.9 [En] - фоторедактор с поддержк
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145446.jpg" />
 </div>
 
 
@@ -539,7 +616,7 @@ Adobe AIR 20.0.0.233 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145448.jpg" />
 </div>
 
 
@@ -563,7 +640,7 @@ TapinRadio 2.15.96.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145453.jpg" />
 </div>
 
 
@@ -575,79 +652,6 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1252E03D0AB0E0A5A5501209E874A6B76F133EEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678508   (145458) от 21.11.2023
-
-Firefox Browser ESR 102.15.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C42244CC9299F58517D37997B18C82835FF4484
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678297   (145465) от 21.11.2023
-
-Apowersoft Screen Capture Pro 1.5.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apowersoft Screen Capture Pro – многофункциональная программа для создания снимков экрана.
-Программа предоставляет широкий выбор режимов скриншотов, начиная с полноэкранного снимка и заканчивая снимком окон прокрутки. При необходимости, вы можете редактировать скриншот с помощью встроенного мини-редактора или полнофункционального редактора изображений. Кроме этого, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7280116B1446D4F715C9F82CE000A43833119AB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678301   (145475) от 21.11.2023
-
-Cyberlink ColorDirector Ultra 12.0.11.3503 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145475.jpg" />
-</div>
-
-
-###  Подробнее
-
-CyberLink ColorDirector Ultra 11 - профессиональные инструменты коррекции видео. ColorDirector дает возможность регулировать цвета и их оттенки, настраивать интенсивность и «температуру» тонов, изменять цвета отдельных областей изображения с учетом движения на картинке. Доступны предварительно настроенные цветовые темы, и пользователь может загружать дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6193932878BC2695AA31A307F891572C037A7D
 ```
 
 

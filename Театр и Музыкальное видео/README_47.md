@@ -1,3 +1,83 @@
+###  Публикация: 1628474   (238924) от 23.04.2023
+
+Квартирник у Маргулиса. Посвящение Николаю Арутюнову (22.04.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт памяти популяризатора блюза и рока Николая Арутюнова, вокалиста групп «Лига блюза», «Четверг Арутюнова», Funky Soul, The Booze Band, «Николай Арутюнов & The Blues Barbarians» и «Арутюнов & Quorum». Легендарный музыкант участвовал в записи саундтреков ко многим популярным рок-операм, неоднократно пел вместе с мировыми звездами, а также написал музыку (   Читать дальше...   )00:00:04  Развяжи мне руки
+00:07:22  Июльский блюз
+00:14:18  Скоро домой
+00:19:37  Рок-н-Ролл Мяу-Мяу(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8971BD904D290ACBD1F3E94DC3C7462E021A467E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626816   (240345) от 16.04.2023
+
+Квартирник у Маргулиса. Юбилей Валерии (15.04.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_240345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Народная артистка России Валерия отмечает юбилей — 55 лет!
+Эстрадному мастерству ее обучали Иосиф Кобзон и Гелена Великанова. Каждое выступление артистки сравнимо с настоящим спектаклем: сильный голос, проникновенное исполнение и яркие голубые глаза делают Валерию одной из самых ярких представительниц российской эстрады. Артистка выпускает как сольные композиции, (   Читать дальше...   )00:00:04  Осени дым
+00:07:08  Жаль
+00:14:51  Небеса
+00:21:48  Нежность моя(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D185D39836C7F9CD7553A80CC3EC3B490F8F82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636143   (241178) от 28.05.2023
+
+Delain - Hunter's Moon (2019) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_241178.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске Blu-Ray концертные треки, записанные 31.10.2017 вживую в Тиволи, Утрехт (Нидерланды).
+Delain - нидерландская группа, исполняющая музыку в стиле «симфонический метал», была основана Мартейном Вестерхольтом, бывшим клавишником Within Temptation. Группа провела в 2016 году свой десятый юбилей - с выпуском своего пятого полноформатного альбома Moonbathers и (   Читать дальше...   )Производство: Австрия / Napalm RecordsЖанр: Heavy Metal, Symphonic RockПеревод: ОтсутствуетПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FCFA7693108E5FF04677AE17089256265D9470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625182   (241930) от 09.04.2023
 
 Квартирник у Маргулиса. День цыган (08.04.2023) WEBRip [H.264/1080p]
@@ -6,7 +86,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241930.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241930.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ magnet:?xt=urn:btih:CDB03D1E7E370368B6F0E1F875055DE7536C3CC8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242712.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242712.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ magnet:?xt=urn:btih:B712BEF77347D25F09C50DB841F2AC012E785B3B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243126.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243126.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ magnet:?xt=urn:btih:84F061B5D845A9B5ADEFD2F65EE7EAF88F3ACED8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243327.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243327.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ magnet:?xt=urn:btih:5AE9471AC6B9D669C4DA53260404FC96596EFD66
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243336.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243336.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ magnet:?xt=urn:btih:BC491492CF178155588B6E2EFE574CE55779AB0E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243718.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243718.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ magnet:?xt=urn:btih:DE74EDC024CD7DE8800C670E12B68AA87F4D32CE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244470.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244470.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ magnet:?xt=urn:btih:8BCA0952F464635F4D97F15AE754B0EA5D0EDDC9
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244491.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244491.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ magnet:?xt=urn:btih:0D8DCFBF467E35CDFAC1DDD959F6DAD9C520E0DF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246029.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246029.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ magnet:?xt=urn:btih:332035987F30127BB46E2EFAA863E5BF24E12098
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246208.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246208.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ magnet:?xt=urn:btih:35C14928F8474978D72F80A3A7FE23DD5F3AAAE1
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246413.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246413.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ magnet:?xt=urn:btih:2E652A21371CEDA788E5C6EEE9D219B58843E75F
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247453.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247453.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ magnet:?xt=urn:btih:B3A8C7131284AF215536AAE03CAF8532DE62E450
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247655.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247655.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ magnet:?xt=urn:btih:C7101F8CE80D42BCE8D0943398A13BF17C5D0898
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247705.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247705.jpg" />
 </div>
 
 
@@ -369,7 +449,7 @@ NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247835.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247835.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ magnet:?xt=urn:btih:0E218E3628B47727B4236519D289BD42271DE237
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248202.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_248202.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | K
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248236.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248236.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ magnet:?xt=urn:btih:16C9704141D6AE486D774B3EF0AFCA2F1D30129D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248302.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_248302.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ Black Sabbath – Undead And Alive (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248491.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248491.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ Black Sabbath – Undead And Alive (2004) DVD5
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250122.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250122.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ Metallica - Live in Moscow (2019) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250162.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250162.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ magnet:?xt=urn:btih:1B5A00CF8281E8C365871C0E0639B1FA85A57141
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251044.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251044.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251223.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251223.jpg" />
 </div>
 
 
@@ -599,85 +679,6 @@ magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7991F065E16AC43C61ACFF6E91FCF0A5FAFA22C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495314   (251276) от 11.05.2012
-
-На-На, эй! Юбилейное шоу (2012.05.11) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сольный концерт группы "На-На" в честь 65-летия легендарного деятеля шоу-бизнеса, продюсера Бари Алибасова.
-Группа "На-На" на протяжении всей своей творческой деятельности удостоилась массы наград и премий – так, в 2010 году коллектив в 12-й раз получил премию "Овация"! Известно, что своей огромнейшей славой группа обязана Барии Алибасову, (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46042CDAB92600A0107349E358B7119FAA12A112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334360   (252049) от 25.05.2023
-
-Тина Тернер - лучшее / Tina Turner - ALL THE BEST - The Live Collection (2005) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее от Королевы рока за 15-летний период с 1985 по 2000 год.01. Steamy Windows
-02. Show Some Respect
-03. I Can't Stand the Rain
-04. River Deep Mountain High(   Читать дальше...   )Жанр: RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 02:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E4710E8089F3FE572E07E4B28332EFC83F1542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489281   (252159) от 19.05.2023
-
-Песни военных лет. Караоке (2006) DVD5
-
->>Театр и Музыкальное видео
->>Караоке
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252159.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вставай, Страна Огромная (Кр. Апп Са)
-002. Три Танкиста (Из К/Ф "Трактористы")
-003. Товарищ Песня (Из К/Ф "Как Закалялась Сталь")
-004. Темная Ночь (Из Кф "Два Бойца")(   Читать дальше...   )Жанр: КараокеПеревод: ОтсутствуетПродолжительность: 05:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D710091AFB256F6A68771F7F4D8A0CF3C9BAF4B
 ```
 
 

@@ -6,7 +6,7 @@ VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109008.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:93C3B433B52B9E44F5E6365A3423626D087E1D71
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109162.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Baran Yildiz - Bridging Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109288.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Combichrist - No Redemption (Official DMC Devil May Cry Soundtrack) (2013) [FLAC
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109395.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Asian Meditation - Meditationsmusik (2007) [WavPack|Lossless|image + .cue] <Rela
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109551.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mark Ashley - Instrumentals Vol. 3 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109601.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mark Ashley - Instrumentals Vol. 2 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109604.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109797.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109889.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110325.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111205.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Kitaro - Warme-Cosmic Love (1985) [FLAC|Lossless|tracks + .cue] <New Age, Ambien
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111484.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111824.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112473.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Spiritual Seasons - Villeman (2022) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112475.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Spiritual Seasons - Metal Age (2017) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112484.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka Two Colors (1989) [
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112653.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka (1980) [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112682.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F7D5FAAD4D5AA61DEE6541E2C0703ABD25C025EF
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112986.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113192.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113294.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113915.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114180.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114831.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114849.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115011.jpg" />
 </div>
 
 

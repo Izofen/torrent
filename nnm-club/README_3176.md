@@ -1,3 +1,79 @@
+###  Публикация: 488835   (101708) от 27.04.2012
+
+Techsmith Snagit Portable 11.0.0 Build 323 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_101708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Techsmith Snagit Portable - Oсновное назначение программы - снятие скриншотов с экрана монитора, причем SnagIt умеет делать не только статичные графические "снимки" выбранной области, но и, например, записать в видео то, что происходит на экране, а также захватить картинку из приложений, использующих Direct X, DirectDraw и Direct 3D. Встроенный редактор аннотаций позволяет добавить к скриншоту, описание, что-то подчеркнуть, вставить при необхоимости в нужное место, например, стрелку и т.п. Кроме этого, программа позволяет "выдергивать" текст оттуда, откуда он не перемещается с помощью команд Копировать/Вставить. Из дополнительных функций: поддержка работы со сканерами и цифровыми камерами, а также возможность автоматической отправки сделанных программой скриншотов на веб-сайт. И еще множество других мелочей: управление горячими клавишами, возможность использования преднастроек, выдергивание иконок и другой графики из EXE и DLL, снятие скриншота с веб-страницы, требующей для просмотра прокрутки, (   Читать дальше...   )Название программы: Techsmith Snagit PortableЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822669   (101709) от 07.10.2025
+
+Дж.Ф. Мастерсон | Поиск реального Я. Личностные расстройства нашего времени (2023) [PDF, DOCX]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Личностные расстройства — пограничные, нарциссические и шизоидные — стали классическими психологическими проблемами нашего времени. Люди с такими нарушениями внешне успешны и обаятельны, и это сбивает с толку их коллег, родственников и партнеров, а нередко и психологов.
+Второе издание этой книги поможет читателю понять таких пациентов. В ней описывается развитие (   Читать дальше...   )Жанр: Общая психологияПеревод: А. БагрянцеваИздательство: Институт общегуманитарных исследованийФормат: PDF, DOCXКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85AE132328EE650821801A228784B768B230E54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822673   (101711) от 07.10.2025
+
+Hot Rod Frankie - Stitched together (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black as sin [00:03:32]
+02. Six feet under [00:03:00]
+03. Unbreakable [00:03:37]
+04. Feeding time [00:03:07](   Читать дальше...   )Жанр: RockПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15FF7D0256CB91E8D6787A3F975232884F724F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488801   (101712) от 27.04.2012
 
 Мишень (2011) BDRip
@@ -6,7 +82,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101712.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101712.jpg" />
 </div>
 
 
@@ -32,7 +108,7 @@ Mare Incognitum - Тени грехов (2025) [MP3|320 Kbps] <Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101713.jpg" />
 </div>
 
 
@@ -59,7 +135,7 @@ Feel My Vibe - Feel My Vibe (2025) [MP3|320 Kbps] <Electronic, Easy listening, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101715.jpg" />
 </div>
 
 
@@ -86,7 +162,7 @@ Vladar - The Angel of the Abyss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101716.jpg" />
 </div>
 
 
@@ -113,7 +189,7 @@ Native James - Confessions Of A Sinner (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101717.jpg" />
 </div>
 
 
@@ -140,7 +216,7 @@ VA - Italo Disco Dance Party Collection Part 4 (2025) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101718.jpg" />
 </div>
 
 
@@ -167,7 +243,7 @@ magnet:?xt=urn:btih:F6695FCCD43B3357BDB517CE8CB11FCE8BE081E2
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101719.jpg" />
 </div>
 
 
@@ -191,7 +267,7 @@ Ultra Raptor - Fossilized (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101720.jpg" />
 </div>
 
 
@@ -218,7 +294,7 @@ magnet:?xt=urn:btih:46438E0C72238EB4B259DAE42D6EE1B65538FC6B
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101721.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101721.jpg" />
 </div>
 
 
@@ -242,7 +318,7 @@ magnet:?xt=urn:btih:46438E0C72238EB4B259DAE42D6EE1B65538FC6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101725.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101725.jpg" />
 </div>
 
 
@@ -266,7 +342,7 @@ magnet:?xt=urn:btih:46438E0C72238EB4B259DAE42D6EE1B65538FC6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101727.jpg" />
 </div>
 
 
@@ -290,7 +366,7 @@ Creedence Clearwater Revival - Bad Moon Rising: Shadows on the Bayou (2025) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101729.jpg" />
 </div>
 
 
@@ -317,7 +393,7 @@ magnet:?xt=urn:btih:7B0F26A6657C424D715E2138A113D557EDA4EB0A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101731.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101731.jpg" />
 </div>
 
 
@@ -341,7 +417,7 @@ Dead Island + 2 DLC [Ru/En]  (Lossless RePack/1.3) 2011 l R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101732.jpg" />
 </div>
 
 
@@ -367,7 +443,7 @@ Star Wars: Empire at War [Ru] (RePack) 2006 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101737.jpg" />
 </div>
 
 
@@ -391,7 +467,7 @@ VA - Лучшие Зарубежные Треки (2012) [MP3|224 кб/с]<Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101744.jpg" />
 </div>
 
 
@@ -424,7 +500,7 @@ VA - The Flavours Vol.1 (2011) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Ju
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101745.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101745.jpg" />
 </div>
 
 
@@ -451,7 +527,7 @@ VA - The Flavours Vol.1 (2011) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Ju
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101746.jpg" />
 </div>
 
 
@@ -475,7 +551,7 @@ magnet:?xt=urn:btih:5FEC13FFFC5FD729B8723D7D43ADB0496AAF7043
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101747.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101747.jpg" />
 </div>
 
 
@@ -500,7 +576,7 @@ magnet:?xt=urn:btih:5FEC13FFFC5FD729B8723D7D43ADB0496AAF7043
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101748.jpg" />
 </div>
 
 
@@ -524,7 +600,7 @@ Dropbox 1.4.1 Stable [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101753.jpg" />
 </div>
 
 
@@ -550,7 +626,7 @@ Dropbox позволяет пользователю размещать файл�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101755.jpg" />
 </div>
 
 
@@ -577,7 +653,7 @@ magnet:?xt=urn:btih:AE55B562295395966A1E6AB5E17A536A9D58ED21
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101761.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101761.jpg" />
 </div>
 
 
@@ -588,87 +664,6 @@ magnet:?xt=urn:btih:AE55B562295395966A1E6AB5E17A536A9D58ED21
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489360   (101766) от 28.04.2012
-
-At Vance - Facing Your Enemy (2012) [MP3|320 кб/с]<Neoclassic Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is Calling (4:51)
- 02. Facing Your Enemy (4:32)
- 03. Eyes Of A Stranger (3:44)
- 04. Fear No Evil (3:52)
- 05. Live & Learn (3:33)
- 06. Don t Dream (5:27)
- 07. See Me Crying (6:06)
- 08. Saviour (3:39)
- 09. Tokyo (4:09)
- 10. March Of The Dwarf (1:53)(   Читать дальше...   )2012Жанр: Neoclassic Power MetalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0551CB7A840403895DA3681DB06EB1A51FA5693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489185   (101769) от 28.04.2012
-
-Подснежники и эдельвейсы (1982) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенью 1942-го года отряд бойцов во главе с инструктором-альпинистом получает задание — убрать свастику, прикрепленную на одной из вершин Кавказа. Преодолев полный опасностей путь, герои сталкиваются на вершине с моторизованной колонной дивизии «Эдельвейс» и вступают в неравный бой с врагом.Жанр: ВоенныйРежиссер: Левон ГригорянАктеры: Лоренц Арушанян, Аршак Оганян, Араик Едигарян, Анаида Агаджанян, Андрей Ростоцкий, Александр Январёв, Виктор Мамаев, Павел Ремезов, Альберт Затикян, Нартай Бегалин, Мартын Погосян, Сергей Лоздейский, Георгий Мартиросян, Афанасий Тришкин, Левон Григорян, Нина Дмитрюк, Гамлет МартиросянПродолжительность: 01:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF5BA9F28EED8C8FAFC888DE93198CACBD03A20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489146   (101771) от 28.04.2012
-
-[Wallpapers] Обои для Рабочего стола - Оружие [1740 шт.] (2012)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола:Разрешение файлов: 450x600 - 2128x4256
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57EEB7C5E3B9C1E60C7E12DD2917857D1EB2E20
 ```
 
 

@@ -1,3 +1,180 @@
+###  Публикация: 1433051   (157684) от 20.12.2020
+
+Скайлайн 3 / Skylin3s / Skylines (2020) WEB-DLRip [H.264/720p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестный вирус угрожает хрупкому сосуществованию дружественных инопланетных гибридов и людей. Чтобы спасти человечество, команда элитных наёмников под предводительством бравой капитанши отправляется на самоубийственную миссию.Производство: Франция / Artbox, Fasten Films, Media Finance Capital, Mirabelle Pictures ProductionsЖанр: фантастика, боевикРежиссер: Лайам О’ДоннеллАктеры: Линдси Морган, Рона Митра, Александр Сиддиг, Джеймс Космо, Дэниэл Бернхард, Джонатан Ховард, Яян Рухьян, Иева Андреевайте, Саманта Жан, Жиэдре БондПеревод: Многоголосый любительский (@MUZOBOZ@)Субтитры: Английские (hardsub - на речь инопланетян)Продолжительность: 01:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE981976BBE1709B8EFFAE8500755454C27F266
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346761   (157686) от 20.12.2019
+
+Mike Shinoda - Post Traumatic (2019) Deluxe Version, RE. [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hip-Hop, Trap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Place to Start (2:13)
+ 02. Over Again (3:51)
+ 03. Watching as I Fall (3:31)
+ 04. Nothing Makes Sense Anymore (3:34)(   Читать дальше...   )Жанр: Alternative Rock, Hip-Hop, TrapПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850FA73531F296392ACF9F8D9F22397C72B6743D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518113   (157687) от 18.12.2021
+
+The Beatles в Индии / The Beatles and India (2021) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальная историческая хроника нескончаемого романа между The Beatles и Индией, который начался более полувека назад. Редкие архивные кадры, фотографии и свидетельства очевидцев, а также натурные съемки в разных уголках Индии возрождают к жизни невероятное путешествие привыкшей к роскошной жизни ливерпульской четверки — Джорджа, Джона, Пола и Ринго, в уединенный (   Читать дальше...   )Производство: Великобритания, Renoir Pictures, Silva ScreenЖанр: документальный, история, музыкаРежиссер: Аджой Бос, Питер КомптонПеревод: многоголосый профессиональный (по заказу Первого канала)Субтитры: отсутствуютПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1590B2EA3CE63DE48E26465CA268224B7D47DE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270549   (157688) от 19.12.2018
+
+Журнал | Story [Россия] №1-2 (120) (январь-февраль 2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157688.jpg" />
+</div>
+
+
+###  Подробнее
+
+"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
+Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F2E1D620BC8C9EB046428012B35EFFC74DCF81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518159   (157689) от 18.12.2021
+
+Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient, Choir>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Little Welsh Home
+02. Kyrie Victoria
+03. Waiting for Life
+04. Pie Jesu (Ft. Narcis)(   Читать дальше...   )Жанр: New Age,  Ambient, ChoirПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433414   (157691) от 20.12.2020
+
+Зависнуть в Палм-Спрингс / Palm Springs (2020) AC3 5.1 AVO Д. Пучков (Гоблин) [hand made]
+
+>>Остальное
+>>Звуковые дорожки и субтитры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внимание! В этой раздаче присутствует только аудиодорожка к фильму.
+
+9 ноября неподалёку от Палм-Спрингс идёт подготовка к свадьбе. Найлз, парень одной из подружек невесты, не торопится облачаться в смокинг - в шортах и гавайской рубашке он запрыгивает в бассейн и целый день расслабленно выпивает, а вечером произносит трогательную речь для молодожёнов. Последнее (   Читать дальше...   )Производство: США, Гонконг / Limelight, Sun Entertainment Culture, The Lonely IslandЖанр: Комедия, Мелодрама, ФантастикаРежиссер: Макс БарбаковАктеры: Энди Сэмберг, Кристин Милиоти, Дж.К. Симмонс, Питер Галлахер, Мередит Хагнер, Камила Мендес, Тайлер Хэклин, Крис Пэнг, Жаклин Обрадорс, Джун СкуибПеревод: Авторский, Д. Пучков (Гоблин) (ненормативная лексика)Язык озвучки: РусскийПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D240AC52B9EBD649E860CF59A0A1C20E0E504D14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968103   (157692) от 22.12.2015
+
+Дети 90-х (2015) WEBRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история начинается в далёком 98-м году, когда её главные герои были еще детьми. Случайно оказавшись на месте расправы — они спасают жизнь человека. Спустя 15 лет после этого случая друзья оказываются вовлеченными в опасную игру, на кону которой стоит жизнь, волею судьбы автором их неприятностей оказывается некогда спасённый ими мужчина…Производство: Россия / Chaka ProductionЖанр: Криминал, драмаРежиссер: Максим Юсупов, Михаил НоскоАктеры: Никита Юдаев, Максим Юсупов, Михаил Носко, Вадим Леонтьев, Сергей Степанов ...Перевод: Не требуется (язык русский)Продолжительность: 01:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFBFA5E60B6C3D2AF9C254443BBFB7E0D55FB24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194223   (157693) от 24.12.2017
 
 Танцы (2017.12.23) WEB-DLRip (сезон 4, выпуск 21)
@@ -6,7 +183,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157693.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ Daniel Roeth & Koan - Nothing, Nobody, Never (2018) Blue Tunes Chillout [FLAC|Lo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157694.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:1E90E3F0DCD57E641C14783E23E7571B9A2C41D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157695.jpg" />
 </div>
 
 
@@ -82,7 +259,7 @@ VA - Dancehall Dirty Beats (2018) [MP3|320 Kbps] <Dancehall, Dance, Latin>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157696.jpg" />
 </div>
 
 
@@ -109,7 +286,7 @@ magnet:?xt=urn:btih:A8E15EA90A82BD4A0065B8CECC7114187D0A3737
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157698.jpg" />
 </div>
 
 
@@ -134,7 +311,7 @@ VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157699.jpg" />
 </div>
 
 
@@ -161,7 +338,7 @@ WinAutomation 3.1.6.676 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157700.jpg" />
 </div>
 
 
@@ -185,7 +362,7 @@ magnet:?xt=urn:btih:D6E9F82E6A2B532DE9BB948082F63F1D566ECE68
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157701.jpg" />
 </div>
 
 
@@ -209,7 +386,7 @@ magnet:?xt=urn:btih:9BCDB74B3A269331B72C36FBEB014E7F91FC5E1F
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157702.jpg" />
 </div>
 
 
@@ -233,7 +410,7 @@ magnet:?xt=urn:btih:9952EAA01F6E06AAF60C5330EF146D95F8FBF0E4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157703.jpg" />
 </div>
 
 
@@ -257,7 +434,7 @@ Koan - Esbat: Exilio (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <E
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157704.jpg" />
 </div>
 
 
@@ -284,7 +461,7 @@ magnet:?xt=urn:btih:46033623F3C9C9431FA305C973AB4806EEFBAA86
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157705.jpg" />
 </div>
 
 
@@ -308,7 +485,7 @@ magnet:?xt=urn:btih:EE4338F6EBD29967C2DB64CBB85A36D11EECED44
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157706.jpg" />
 </div>
 
 
@@ -332,7 +509,7 @@ Calibre 5.34.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157707.jpg" />
 </div>
 
 
@@ -356,7 +533,7 @@ magnet:?xt=urn:btih:292FF5D1C6611C77250839ADA5462F5E8AFBD444
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157708.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_157708.jpg" />
 </div>
 
 
@@ -380,7 +557,7 @@ magnet:?xt=urn:btih:292FF5D1C6611C77250839ADA5462F5E8AFBD444
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157709.jpg" />
 </div>
 
 
@@ -404,7 +581,7 @@ magnet:?xt=urn:btih:E13574A019F4D0FD893F917701CF4D48685E57C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157710.jpg" />
 </div>
 
 
@@ -428,7 +605,7 @@ magnet:?xt=urn:btih:A0541977F02DFA59AA0B65F145B64C268F8B987D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157711.jpg" />
 </div>
 
 
@@ -452,7 +629,7 @@ magnet:?xt=urn:btih:2B08EDD8904D20F8DC55E797C2049668AF49B85F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157712.jpg" />
 </div>
 
 
@@ -463,177 +640,6 @@ magnet:?xt=urn:btih:2B08EDD8904D20F8DC55E797C2049668AF49B85F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61C60F2113CA4A331E5B215C507DFAF753A231EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420546   (157714) от 20.12.2020
-
-Мандалорец / The Mandalorian (2020) WEB-DL [H.264/720p-LQ] (сезон 2, серии 8 из 8) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дэйв Филони, Дебора Чоу, Рик ФамуйиваАктеры: Педро Паскаль, Карл Уэзерс, Джина Карано, Джанкарло Эспозито, Мерседес Кестнер-Варнадо, Рио Хэкфорд, Кайл Пацек, Вернер Херцог, Ник Нолти, Тайка Вайтити и другие.Перевод: Многоголосый закадровый (NewStudio)Продолжительность: ~00:51:00 серияРеклама: Присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE72606E1DD5E584120DC7C5E63F48D318FA43F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588735   (157715) от 13.12.2012
-
-Церемония преступления / La ceremonie (1995) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157715.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Рут Ренделл "Хладнокровный суд" ("A Judgment In Stone"), основанного на реальных событиях. Несколько странное поведение новой служанки с самого начала удивляет членов семьи Лельевр. Может быть, абсолютное бесстрастие — только маска, скрывающая нечто загадочное? Ясно одно — с появлением Софи в доме начинается цепь необычайных событий, в которые вольно или невольно вовлечены все.Жанр: Триллер, Драма, КриминалРежиссер: Клод ШаброльАктеры: Изабель Юппер, Сандрин Боннэр, Жан-Пьер Кассель, Жаклин Биссет, Виржини Ледуайен, Валентен Мерле, Жюльен Рошфор, Доминик Фрот, Жан-Франсуа Перрье, Людовик Брийян, Клер Широн, Пенни Фэйрклаф, Ален Франсуаза, Давид Габисон, Клер Ифран, Филипп Ле Кок, Кристоф Лемойн, Серж РуссоПеревод: Двуголосый закадровый (профессиональный)Продолжительность: 01:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BD69EB498D681578C8D3E7F68FD9FEE93416D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270552   (157716) от 19.12.2018
-
-Газета | АиФ. На даче №24 (520) (декабрь 2018 - январь 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157716.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA45AC740D10F892DE970E886155ADFE1433238
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346593   (157717) от 20.12.2019
-
-Koan - Esbat: Initiatio (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Drum & Bass, Breakbeat>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entra! (4:00)
- 02. Cacería Salvaje (Esbat Mix) (9:16)
- 03. Brokken (Esbat Mix) (9:36)
- 04. Goseck Circle (8:10)(   Читать дальше...   )Жанр: Electronic, Ambient, Drum & Bass, BreakbeatПродолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8A486D5A6708898316F264749BCA13172F5455
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085425   (157718) от 21.12.2016
-
-Cumulative Update KB3213522 for Windows 10 [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумулятивное обновление KB3213522 для x86-x64 платформ, повышающее номер сборки Windows 10 Anniversary Update до 14393.577Язык интерфейса: Русский,Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F97713B53611553BDB936030188298D472B4143
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518166   (157719) от 18.12.2021
-
-Мэтт Хранек | Часы. Истории культовых марок и их знаменитых владельцев (2021) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарные, самые популярные, коллекционные часы, представленные в этой книге, - больше, чем просто устройства для определения времени. Они хранят память об особых событиях и знаменитых людях, которые их когда-то носили: Франклине Рузвельте, Джоне Кеннеди, Ральфе Лорене и многих других, чьи жизни и победы навсегда запечатлелись на циферблатах эксклюзивных часов. (   Читать дальше...   )Жанр: Популярно об истории, ПублицистикаПеревод: Г. С. БаробинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE39FFAA40283A3708F7B275D3DBC2F4220039C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518238   (157720) от 18.12.2021
-
-R-Wipe & Clean 20.0.2340 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157720.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Wipe & Clean - программа от разработчика популярного R-Studio служит для очистки локальных дисков от различного системного мусора (временные интернет файлы, историю посещенных веб-страниц, Cookie, автозаполняемые формы и пароли, файлы подкачки, список недавно использовавшихся документов, список наиболее используемых компонентов, хранящихся в системном реестре, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1D35C256CE76C0F62FD7BBCC830F480CC7883B
 ```
 
 

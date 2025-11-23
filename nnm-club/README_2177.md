@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56967.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Photo AI 3.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56968.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - РАДИО БАТЯ - 002 (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56969.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Red Button 5.99 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56970.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:949CAFEF5B8B8E552829567AA0204928EC101B96
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56971.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F5EFE214269232F688262CBC12269AAE31C70EA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56972.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:C3F7AE2EC8C4DC65EEE1A6C79596DF4B6716B3B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56973.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7092D1B77070355BDE4C476A30F50879F60E2836
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56974.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Topaz Photo AI 3.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56975.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - РАДИО БАТЯ - 003 (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56976.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D9DE5019736D209F2DE3F4D9EE59E3E3FC915E9A
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56977.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:C6FA2FA84E624E5D5938852596945F47EDE8BF93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56978.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C6FA2FA84E624E5D5938852596945F47EDE8BF93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56979.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:C6FA2FA84E624E5D5938852596945F47EDE8BF93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56980.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:C6FA2FA84E624E5D5938852596945F47EDE8BF93
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56981.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PotPlayer 240510 (1.7.22225) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56982.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:4B44D23C56B410A8DD5E658F5BAB50B4C8D3AD21
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56983.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NVIDIA GeForce Desktop Game Ready 552.44 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56984.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:0236385E5FE217C7F76463766B8F7D5522B95A3E
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56985.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:9A100E821ECA76B0CD5FB0CCAC5235BD3A24121B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56986.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:294294AFA706A658EFF65AD2821056E96C688DF7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56987.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ LibreOffice 7.6.7.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56988.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:5F8FD08D43A8D135B6049A76E76D2B492D26751F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56989.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2021) WEB-DLRip (сез�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56990.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Hachi-nan tte, Sore wa Nai deshou! | The 8th Son? Are You Kidding Me? | Вось
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56991.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:CF19586D17B623C6DC895A5A5BB6DD947AF2EFA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56992.jpg" />
 </div>
 
 

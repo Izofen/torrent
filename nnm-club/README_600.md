@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15910.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9F7B431F5F696795CEEB765299E60C2954A768AA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15911.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1A6BDBB13909BD1973C4B83475F835B5589FC695
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15912.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0955E477065D0A5981BB4BEF4E1160D5BD8B1797
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15913.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0955E477065D0A5981BB4BEF4E1160D5BD8B1797
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15914.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5DAA95AE6B89260CD948F68164C45881E598EECB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15915.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.684.745/dlc) Repack seleZen [Premium Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15916.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ PurpleSchool, Антон Ларичев | Основы Git (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15917.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D3DE6BE201170710F09529E334BCEC1F98B528BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15918.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:41691045A296F83EF93D3B3B60AF28EAC22883E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15919.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F8ACE74D21DD7790B816FEAF577BE3EBE9271F26
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15920.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Microsoft Activation Scripts (MAS) 3.3 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15921.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:250234BA917B0972E55EA9390709D2344AC74621
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15922.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:BB523BB2A2554E57BD5BC28962A81EACBE7588F3
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15923.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VRadio - Online Radio App v2.8.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15924.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:19CB19DFD1845763947DED9E175594D69BAE4819
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15925.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:EE8ADFA0243D8195E7869F03CF5F676CFDD7DB74
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15926.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:A09825EFFA157185E0EB3D00C70CFB1EA93D4EE5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15927.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:ACB1982AEEF93487827662B7D88E6D4CFDCF7ED1
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15928.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:B3A43CAFCACEA2FDA4CF1701190F459E3BB176E8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15929.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:760612B304D3EC94B3170D7FBAE51928104CF9DB
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15930.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Groove3, Thomas Cochran | Serum 2: Making Synthwave (2025) WEB-DL [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15931.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:C0452811FF012681BC2024188908F5BFD328E32E
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15932.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:2D2D402619DE3455342001D7004109E4214F5429
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15933.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Шансон премьера 2025 май (Новые песни. Новы�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15934.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Berserk: Ougon Jidai Hen | Berserk: The Golden Age Arc | Берсерк: Зол�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15935.jpg" />
 </div>
 
 

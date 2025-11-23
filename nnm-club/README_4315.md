@@ -1,3 +1,76 @@
+###  Публикация: 595257   (132817) от 28.12.2012
+
+HQ Wallpapers for a desktop (26.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09020B95492984719794DEC26FB19B5DF598C553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346382   (132818) от 02.12.2023
+
+Льюис Кэрролл | Алиса в стране чудес (Аудиоспектакль) (2007) [MP3, Александр Клюквин, Рената Литвинова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Детская литература.
+«Алиса в стране чудес» Льюиса Кэрролла уже многие годы в числе самых любимых книг во всем мире. В англоязычных странах эта волшебная сказка занимает одно из первых мест по количеству упоминаний, цитат и ссылок. Да и у нас все дети знают, что «от уксуса – куксятся, от горчицы – огорчаются, от лука – лукавят, от вина – винятся, а от сдобы (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаВ ролях: Александр Клюквин, Рената Литвинова, Николай Фоменко и др.Издательство: Издательский дом «Союз»Продолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653D10000899F65F8D432BEBE3AAFCF1E6A92A21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595270   (132819) от 28.12.2012
+
+Best HD Wallpapers Pack (27.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79285B4AE45B2C871EA0148815F985B8D0DD274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627076   (132820) от 02.12.2023
 
 20 лучших советских сериалов для взрослых и детей
@@ -6,7 +79,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132820.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Best HD Wallpapers Pack (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132821.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:6998712B3CCAE54FF0D1684F58E92B8689AD975C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132822.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132823.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Another Day (2023) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132824.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:010A65937D0F138C60269BEE1A7B26E37B588027
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132825.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:02FCFAEE4753132F4ABFA93C5F89AEA52670B197
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132826.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ Nature Wallpapers (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132828.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ Sexy Girls Wallpapers (27.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132829.jpg" />
 </div>
 
 
@@ -222,7 +295,7 @@ Nature Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132830.jpg" />
 </div>
 
 
@@ -246,7 +319,7 @@ Sexy Girls Pack Wallpapers (27.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132831.jpg" />
 </div>
 
 
@@ -270,7 +343,7 @@ The Flower Kings (Roine Stolt) - 21 albums, 2 Box-sets, 44CD (1994-2023) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132832.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ magnet:?xt=urn:btih:4C174C7E4777DBA317F97C775AE6E728EFB470BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132834.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ Sexy Girls Pack Wallpapers (26.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132835.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:3E5AF434CF385C27E56029480E0AB0B7107844EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132836.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ VA - Housepital's Secret Club Weapons Vol.2 (2012) [MP3|320 кб/с]<Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132837.jpg" />
 </div>
 
 
@@ -402,7 +475,7 @@ magnet:?xt=urn:btih:191B3D62355720F64EE417276CDB04CC73982F9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132838.jpg" />
 </div>
 
 
@@ -426,7 +499,7 @@ magnet:?xt=urn:btih:ADF60C259547975AA5F4E3EE32B2708AEE9D376D
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132839.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ magnet:?xt=urn:btih:7AE24AA5B367B32624392D9665EA5563566EB917
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132840.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ magnet:?xt=urn:btih:1842088EE906B774FE792F10E588B8BBBC3FDF2F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132842.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ Sexy Girls Wallpapers (26.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132843.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ magnet:?xt=urn:btih:03FEFD82BDC88B9DB3538F8BB9D7B6D85A66F105
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132844.jpg" />
 </div>
 
 
@@ -548,7 +621,7 @@ Gumroad, Polygonpen | Advanced Bottle Modeling and Rendering in Cinema 4D and Re
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132846.jpg" />
 </div>
 
 
@@ -562,81 +635,6 @@ Gumroad, Polygonpen | Advanced Bottle Modeling and Rendering in Cinema 4D and Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A449E5BE4C05C18920D783F9DA215D324031A420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681098   (132848) от 02.12.2023
-
-Журнал TIME выбрал 10 лучших игр 2023 года
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редакция журнала TIME опубликовала традиционный список лучших игр года. Первое место в десятке у Alan Wake 2 — хоррора от Remedy Entertainment, который стал прямым продолжением первой части, вышедшей в 2010 году.Второе место у самой громкой новинки этого года — ролевой игры Baldur’s Gate 3. Замыкает тройку Marvel’s Spider-Man 2 от Insomniac Games, Marvel и Sony.Весь (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681357   (132850) от 02.12.2023
-
-Иван Зылёв | Создание семейств в Autodesk Revit для дизайнеров и архитекторов (2018) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс о том, как научится создавать параметрические семейства и c их помощью увеличить скорость создания проектов в Revit
-
-Вопросы которые будут решены:
-Тратите много времени на поиск семейств?(   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 45:27:23Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06BC5627C02C3265320ADBEEEBA126990743473
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681224   (132852) от 02.12.2023
-
-Робин Гуд: Мужчины в трико / Robin Hood: Men in Tights (1993) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робин и его компания в трико, срывая с себя регалии вместе со штанами, должны свергнуть злобного принца Джона и найти ключ к сердцу прекрасной девы Мэриан и к поясу верности.Производство: США, Франция / Brooksfilms, GaumontЖанр: мюзикл, мелодрама, комедия, приключенияРежиссер: Мэл БруксАктеры: Кэри Элвес, Ричард Льюис, Роджер Рис, Эми Ясбек, Марк Блэнкфилд, Дэйв Шаппелл, Айзек Хейз, Меган Кавана, Эрик Аллан Крамер, Мэттью ПорреттаПеревод: многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9A58D729F6BE1C7F8ADA25672820F3519A50DC
 ```
 
 

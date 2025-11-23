@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25802.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p27.1/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25803.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Rangers In The South (2025) [Ru/Multi] (1.2.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25804.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25804.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F02B7136742F461BF8EFDD22F4A1FBA567BE6BA8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25805.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25805.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Johnny Winter - 55 Albums, 2 Box Set (1968 - 2016) 74 CD [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25806.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Microsoft признала замедление работы проводник�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25807.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ The Smashing Pumpkins - 13 Studio Albums, 1 Live, 4 Compilation, 5 EP, 1 Box Set
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25808.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:931C0781B37D1843A7137EF7B1CA26BA5F3FDF52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25809.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25810.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25810.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Age of Defense (2019) [Ru/Multi] (1.19) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25811.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25811.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:488768E3A804AF894DF0C91C90D38BE42C71F50F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25812.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Toyota провела тайные переговоры с бывшими авт
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25813.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Adobe Acrobat Pro 2024.005.20421 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25814.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25814.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D12B9477CDAC30336026D8F56E9D6F2DA3F3410D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25815.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25815.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:5066EC20BD99FFB0518AE6D23590B6AE6472EA74
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25816.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:E02952C240EA179CCA62D70F9419FF3FC4ACE7AC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25817.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25817.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Del
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25818.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25818.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:722473AE9AFC6CCD8FBC830FE3FA911B149DD0AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25819.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25819.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ My Hotel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25820.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25820.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:B0EB364F3CF15896A433A0890032FD3429A374AE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25821.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25821.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:03E75EDC401B6A3CCDE2714841302324940E7235
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25822.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25822.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:337099B3D02C77CE5F1BC232C6DBF96638CE10B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25823.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25823.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:933716C6C5784FFC92BE8A83E152184C5D639D14
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25824.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25824.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ O&O DiskImage Professional 20.2 Build 353 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25825.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25825.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:B14ADD56D2C03A61C6F4494565C4D8CEDEA3083C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25826.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25826.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wise Disk Cleaner 11.2.0.837 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25827.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25827.jpg" />
 </div>
 
 

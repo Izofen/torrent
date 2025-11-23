@@ -1,3 +1,78 @@
+###  Публикация: 592887   (134341) от 24.12.2012
+
+Record of Lodoss War [Dreamcast] [PAL] [RUS] [CDI] (2001)
+
+>>Консольные Игры
+>>Другие приставки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры Record of Lodoss War начинается вскоре после концовки первого сезона аниме, и включает в себя несколько главных героев оттуда. Ты был возрожден Wart'ом с единственной целью - помешать Wagnard'у вернуть к жизни Kardis, Богиню Разрушения. Во время игры ты получишь помощь со стороны таких знакомых персонажей, как Parn, Deedlit, Slain, Leila, Pirotess, Ashram, и черного дракона Narse. Поклонники аниме должны чувствовать себя как дома, но и поклонники игры Диабло II должны испытать то же самое чувство. В то время как игра происходит во вселенной Lodoss War, она играетcя на подобие Диабло II.Жанр: RPGЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3752A1D455CBF98067778BC2925F9255C4BA0C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680305   (134343) от 29.11.2023
+
+Meija - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, progressive metal, trip-hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grim [00:04:10]
+02. Aporia [00:04:02]
+03. Limbo [00:05:47]
+04. Penelope [00:04:26](   Читать дальше...   )Жанр: Alternative, progressive metal, trip-hopПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21C2806B3F4C70AE7ADA5443E7AD9F3A8D0D300
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680543   (134345) от 29.11.2023
+
+JaSFTP13 for Mac 13.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134345.jpg" />
+</div>
+
+
+###  Подробнее
+
+JaSFTP - автоматизированный протокол безопасной передачи файлов (SFTP). Безопасный протокол передачи файлов (SFTP), разработанный с учетом требований автоматизации, чтобы вам не приходилось тратить время на интерактивную передачу файлов. Для Windows, Mac OSX, Linux и других Unix-платформ.Тип издания: macOS SoftwareРелиз состоялся: 11.10.2023Разработчик: © 1999 - 2014 Hitek Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92E4DFD58A2FF473B15C5F590563F25088023B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534140   (134346) от 24.12.2012
 
 Отбросы / Misfits [Season 1-4] (2009-2012) [MP3|128-320 Kb/s]<Unofficial Soundtrack>
@@ -6,7 +81,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134346.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ FontXChange 6.0 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134347.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:F229D3D845D8A1F75435EB8959149E40CDC4C5E6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134348.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134348.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ RightFont 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134349.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ Recovery DVD for Acer Aspire V5-531G / Windows 7 Home Basic (х64) SP1 [русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134351.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134351.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ Easy Photo Recovery 6.9 Build 947 [MULTi / Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134353.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134353.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ Berlitz | Французский язык. Базовый курс [2006] [MP3+P
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134354.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ Verdath - Полярная ночь навсегда (2023) [FLAC|Lossless|WEB-D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134355.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ K-Lite Codec Pack 9.6.5 Mega/Full/Basic/Standard/Update + x64 [Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134357.jpg" />
 </div>
 
 
@@ -239,7 +314,7 @@ WonderPen 2.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134358.jpg" />
 </div>
 
 
@@ -263,7 +338,7 @@ Nifty File Lists 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134360.jpg" />
 </div>
 
 
@@ -287,7 +362,7 @@ Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134361.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134362.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ magnet:?xt=urn:btih:FC590A231177FE6E3E6834C643D79D845809D3F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134363.jpg" />
 </div>
 
 
@@ -360,7 +435,7 @@ Cranio - 11:11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134364.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134365.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ Shadowspawn - Blasphemica (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134366.jpg" />
 </div>
 
 
@@ -441,7 +516,7 @@ AutoKrypt13 for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134367.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ Sacrifire - The Art of Decay (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134368.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ magnet:?xt=urn:btih:E4BA5DEAB471E654DFD56DA2B58D600A68238E74
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134369.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ Cal Tjader - Gozame! Pero Ya... (1980) 1987, Concord Picante [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134371.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ magnet:?xt=urn:btih:C3BF9C618575887A19EAC288266A0CE87B97E037
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134372.jpg" />
 </div>
 
 
@@ -567,7 +642,7 @@ AbleFTP13 for Mac 13.07 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134373.jpg" />
 </div>
 
 
@@ -578,84 +653,6 @@ AbleFTP - это не просто еще один FTP-клиент. AbleFtp р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A876D6EFC59AA7BDF18177980FD583FBE6745890
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593847   (134374) от 24.12.2012
-
-Bandicam 1.8.5.303 Portable by dinis124 [MULTi / Русский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.
-
-(   Читать дальше...   )Название программы: BandicamЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680338   (134375) от 29.11.2023
-
-batchCONVERTER for Mac 2.00 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134375.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью batchCONVERTER все изображения в папке определенного формата можно пакетно конвертировать и скопировать в другую папку. Теперь поддерживается еще десять форматов, включая иконки (.icns) и даже PDF.
-Являясь частью серии пакетных программ от dragonBTV, batchCONVERTER, несомненно, унаследовал традиции обеспечения безопасности исходных файлов и эффективности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.02.2023Разработчик: © 2011-2023 dragonBTVПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C615A59D33720B7DC4E240B47B4058A93D95E94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680435   (134377) от 29.11.2023
-
-Scarblade - The Cosmic Wrath (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Die In The Night
-2. Point Of No Return
-3. Escape
-4. Power Of Hate(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA6FFCF2237DC60F6AD7832A2FA3255779831AC
 ```
 
 

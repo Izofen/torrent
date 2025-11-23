@@ -6,7 +6,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.66 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145828.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blocs 5.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145999.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ TunesKit Screen Recorder 2.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146008.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Print to PDF Pro for Mac 4.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146092.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Integrity Plus 12.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146301.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AnyMP4 PDF Converter for Mac 3.2.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146398.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Cisco AnyConnect Secure Mobility Client for Mac 4.10.04071 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146608.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ uDesktop NEXT - vast wallpaper collection 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146609.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ iLock 3.2.0 [Mulri/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146653.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ClamXav v2.11 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146673.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ WebVideoHunter Pro 6.2.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146713.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ PDF Checkpoint 1.9.11 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146851.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Mac FoneLab iOS Unlocker  1.0.56 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147130.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Keyboard Maestro 11.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147170.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ iBoostUp Premium 9.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147340.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Apeaksoft iPhone Transfer 2.0.68 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147482.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Tipard Blu-ray Player for Mac 6.2.60 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147490.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mirror for LG TV 3.8.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147497.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Mac FoneLab FoneEraser for iOS 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147513.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Energiza Pro for Mac 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147518.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Mirror for Samsung TV 3.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147535.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Mac FoneLab for iOS 10.2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147549.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Coherence Pro 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147608.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Wolf 2 - Responsive Designer Pro 2.30.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147622.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Spotless 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147625.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ FoneLab iPhone Password Manager for Mac 1.0.16 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147650.jpg" />
 </div>
 
 

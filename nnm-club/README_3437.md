@@ -1,3 +1,78 @@
+###  Публикация: 1725160   (109044) от 23.05.2024
+
+Malachi Thompson - Freebop Now! (1998) Delmark Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Nile [6:17]
+02. Goree Island [5:25]
+03. Flight to Senegal [5:59]
+04. Freebop Now! [5:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2042E00D88782BC96A3C86C1C971273247B32300
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725137   (109045) от 23.05.2024
+
+Журнал | Трудовые споры №3 (231) (март 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудовые споры — это журнал о разрешении трудовых конфликтов. В каждом номере — десятки разобранных до мелочей трудовых споров, секреты оформления документов, пошаговые алгоритмы проведения кадровых процедур, оценка рисков работодателя, аргументы для того, чтобы выиграть спор в суде.Жанр: Популярный журналИздательство: ООО "Актион Цифровое издательство"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D76A3CC83BF343D810845824DF4679D4879208F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725169   (109046) от 23.05.2024
+
+Fort Firewall 3.12.11 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E9FE75D1B343BC1757F788ED8510DBA9EE32B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725185   (109047) от 23.05.2024
 
 Люсье Макия | Год жнеца (2024) [MP3, Егор Сазыкин]
@@ -6,7 +81,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109047.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:F2A2C3104DE6E3C8D962927175E69A65119E7493
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109048.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:A0E919BECA21D9BEA8D646FBE4445BD652DD2ACF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109049.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:410224477F735A85784643E4050EDE8B3D4EFF78
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109050.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:56FDB4C38FA65E25CE61C793FDA66993C0C745B5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109051.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Focsker | Из черни в аристократы. История одного
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109052.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:60A63DC3B39F1057C477183E17EE196A9E3C1F84
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109053.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ Opera GX 109.0.5097.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109054.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109055.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ VA - Шансон премьера 2023 октябрь (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109056.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ Focsker | Из черни в аристократы. История одного
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109057.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ magnet:?xt=urn:btih:CF3B9BAEEB0CAD91E09767489DE77A456FC86FB2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109058.jpg" />
 </div>
 
 
@@ -305,7 +380,7 @@ magnet:?xt=urn:btih:33E3C0BC08929916AB871B7154CA2BBE322D358C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109059.jpg" />
 </div>
 
 
@@ -329,7 +404,7 @@ magnet:?xt=urn:btih:0404C637A653E3DA5F150983A7A8225B1D7D23E1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109060.jpg" />
 </div>
 
 
@@ -353,7 +428,7 @@ magnet:?xt=urn:btih:4B8838C32FACABCAF3F0160538847F5484994329
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109061.jpg" />
 </div>
 
 
@@ -377,7 +452,7 @@ FIZICA - Что, если…? – Часть 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109062.jpg" />
 </div>
 
 
@@ -404,7 +479,7 @@ magnet:?xt=urn:btih:DFCD061E1A140BEBD442FF61F8D6DE50D2382BAA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109063.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ magnet:?xt=urn:btih:485665C8E5B12E9CE2135FACBF6502FA95B2940B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109064.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ Files Inspector Pro 4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109065.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ magnet:?xt=urn:btih:BC557D23B78B1A8CCBC8440E4ADEEC93C7753BE4
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109066.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ magnet:?xt=urn:btih:411BFB89F2311A8879CA54A6BDB80C90318CBB56
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109067.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ magnet:?xt=urn:btih:A60941A0C29E7AA8635F775CBD6FF174C93B9C84
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109068.jpg" />
 </div>
 
 
@@ -549,7 +624,7 @@ Wondershare UniConverter Ultimate 15.5.9.86 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109069.jpg" />
 </div>
 
 
@@ -560,78 +635,6 @@ Wondershare UniConverter - простой в использовании виде
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA820DC3BD23428F467FA5DD5BF0815C3CEB581D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725237   (109070) от 23.05.2024
-
-Opera One 110.0.5130.35 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B35D107A8DEED51ACB76868BA41CF1D9AF908C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725135   (109071) от 23.05.2024
-
-Выкуп / Bigongsikjakjeon / Ransomed / Unofficial Operation (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец 1980-х. Сотрудник дипломатической службы внезапно получает зашифрованное сообщение от своего похищенного коллеги, которого долгое время считали погибшим. Он решает отправиться на поиски своего сослуживца и спасти его любой ценой, вступив в смертельную схватку с отъявленными преступниками.Производство: Южная Корея / B&C CONTENT, ShowboxЖанр: боевикРежиссер: Ким Сон-хунАктеры: Ха Джон-у, Чу Джи-хун, Ю Сын-мок, Ким Ын-су, Лим Хён-гук, Ким Джон-су, Пак Хёк-квон, Берн Горман, Со Ён-сам, Чхве Джон-уПеревод: Дублированный (Видео Продакшн)Субтитры: русские, английскиеПродолжительность: 02:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B422BC555D561F9918EBF9C08A5EE85D2D4B03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725224   (109072) от 23.05.2024
-
-Илья Рэд | Инвестиго (Книга 4). Из медика в маги. Том 4 (2024) [MP3, Александр Потеряев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Боевое фэнтези, Героическое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 08:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2D1471911BEDC1ACAE6CB3112651990579229F
 ```
 
 

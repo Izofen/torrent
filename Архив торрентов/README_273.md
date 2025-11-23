@@ -6,7 +6,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60687.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SketchUp Pro 2024 24.0.484 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60705.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JetBrains PyCharm Professional 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60723.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Uninstall Tool 3.7.4 Build 5725 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60729.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ WinToHDD 6.5 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60744.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Change MAC Address 24.03 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60747.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ChrisPC Win Experience Index 7.24.0404 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60761.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Dict Box - Английский словарь v8.9.3 Mod by Alex.Strannik [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60762.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ XtraTools Professional 24.3.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60765.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ JetBrains PhpStorm 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60770.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Uninstall Tool 3.7.4 Build 5725 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60771.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Office Installer & Office Installer+ 1.12 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60773.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Megacubo 17.4.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60783.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NVIDIA GeForce Desktop Game Ready 552.12 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60788.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Capture One 23 Enterprise 16.3.8.2038 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60795.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Planet VPN 2.7.65.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60801.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Adobe Acrobat Pro 2024.001.20643 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60815.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:43648F00FAC786F47937155757DA406DE09F3C11
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60840.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Uninstall Tool 3.7.4 Build 5725 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60843.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Duplicate File Finder Pro 2402 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60858.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ ProfiCAD 12.4.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60861.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ MiniTool Power Data Recovery 11.9 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60863.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ FBReader Premium v3.6.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60864.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Kingston SSD Manager 1.5.4.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60875.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ StartAllBack 3.7.8 build 4901 (DC-02-04-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60876.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Acrobat Reader 2024.001.20643.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60881.jpg" />
 </div>
 
 

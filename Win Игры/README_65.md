@@ -6,7 +6,7 @@ Stellar Outpost Commander (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19403.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.404.43827/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19404.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BrokenLore: DON'T WATCH (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19405.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (30.04.2025/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19427.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ My Party Needs An Alchemist (2025) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19450.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ A Haunting Novel 2: Surfaced Secrets (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19451.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (build 18316498/dlc) Repack sel
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19461.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Super Raft Boat Together (2023) [Ru/Multi] (1.4.1s1) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19466.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ship of Fools (2022) [Ru/Multi] (1.5.0_d7a95f1a/dlc) Repack FitGirl [Completely 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19470.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19476.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Astral Ascent (2023) [Ru/Multi] (1.10.1/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19477.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Pocket and Zooom (2025) [Multi] (1.0.1.1841) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19479.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19484.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19485.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Wartales (2021) [Ru/Multi] (1.0.41212/dlc) Repack FitGirl [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19486.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19487.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19498.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19504.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19505.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Badlands Crew (2025) [Ru/Multi] (30737) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19513.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19514.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Skin Deep (2025) [Ru/Multi] (2025.04.27.1441) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19515.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19516.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19518.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ theHunter Call of the Wild (2017) [Ru/Multi] (2989309/dlc) Repack Let'sРlay [Ul
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19519.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19525.jpg" />
 </div>
 
 

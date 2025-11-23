@@ -6,7 +6,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43697.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sunrise GP (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43698.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ StartAllBack 3.8.8 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43699.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3C9AAA4112F735A43E82A043654D38F82DB6902E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43700.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kanji Legends (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43701.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ USC: Counterforce (2023) [Multi] (1.01.0a1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43702.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5E3FC96C77E4A82C9E0955AE42F0E18673A80958
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43703.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Alfa eBooks Manager 8.6.38.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43704.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C11F93ACA41B44A37B76E9E4FB208AEB9EEC0F5A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43705.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8758971D77B2C4E109F4BE359A25E747E80B65AA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43706.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Беззабот
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43707.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:654BA5D85249FA6BC910B0A0218A096CEBB286D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43708.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43709.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ We Heist Too (2024) [En] (5.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43710.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Display Driver Uninstaller 18.0.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43711.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:D53EA87CCDD66F0E9869112F31643CC43D695BE1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43712.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:E07AB5DCA6E5F2AAD3300EE50A4FBBCBC329C8DD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43713.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Memento Database Pro 5.5.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43714.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:F53C0A5001CAB5FDA5A9082EFA4AEA876C813A4F
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43715.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bye Bye, Earth / Пока, Земля [2024, TV, 10] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43716.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:D15CE858FA87C43329960B5B383099CED3370B5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43717.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:9D80B9E62A99BE8CE3BEE395A77E8EEFC34EF913
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43718.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:ADBACEE8795C610B34B0C964A492C2E2A69C9BC0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43719.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ RollBack Rx Professional 12.7 Build 2710121211 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43720.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Euphoric Vocal (2024) [MP3|320 Kbps] <Vocal Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43721.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Super 13 Launcher (Super13 Launcher for Android13) 1.9 Mod by Oflarm [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43722.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Office Tab Enterprise 16.00 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35683.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E8DA489907E1873189A52B86C4AA165781EDFDE7
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35691.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ YT Saver Video Downloader & Converter 9.2.2 Portable by zeka.k [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35787.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RJ TextEd 16.35 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35948.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Simple Sticky Notes 6.7.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36067.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ashampoo UnInstaller 15.00.22 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36111.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ NIUBI Partition Editor 10.0.9 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36878.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Macrorit Partition Expert 8.3.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37015.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ WinDjView Extended 4.0.1 Portable [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37025.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Download Master 7.1.3.1733 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37248.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ PingPlotter Pro 5.25.7.9052 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38010.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:168C8E0D16EDAC327925385C786F07A4E792E01D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38127.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ DriverStore Explorer 0.11.92 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38145.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mailbird Pro 3.0.24.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38747.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:724E7D54745D52953AA0B10484B573558CBF97F1
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38855.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Caramba Switcher Corporate 2024.08.01 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38964.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ NIUBI Partition Editor 10.0.0 Technician Edition RePack (& Portable) by elchupac
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39971.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ KMSAuto++ Portable 1.9.9 b06 by Ratiborus [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40036.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Macrium Reflect 8.1.8017 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40244.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.5.1  + Portable  [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40510.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ IObit Driver Booster Pro 12.0.0.356 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40823.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Activation Program 1.13 Portable by Ratiborus [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40950.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_40950.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ DameWare Remote Support & DameWare Mini Remote Control 12.3.2.5 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41001.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Chromium 141.0.7390.55 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41002.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Adobe Acrobat Pro 2025.001.20756 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41005.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Vivaldi 7.6.3797.58 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_41009.jpg" />
 </div>
 
 

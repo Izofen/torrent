@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53223.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Nick Stanchev | Unreal Engine 5 - The Complete Automotive Cinematic Cours
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53254.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:043F927B73E7A9A49CC6E1BEC49625E2DF276AC6
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53264.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ fxphd, Liam Whitehouse | Automotive Cinematography in Unreal Engine, Part 1 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53267.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DoubleJump Academy, Post Processed | Unreal Engine Complete Automotive Mastercla
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53285.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:65B94A0B9F2F134DE24F782A18ABE4246C1633BC
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53286.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Udemy, 3D Tudor | Blender Basics Geometry Node Brick Walls Workshop (2024) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53396.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:964B22678947256865D2CC7E9A108CDCBF44C1E9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53444.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ ArtStation, Milad Kambari | Substance Painter Master Course (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53808.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:3B97933F30AC2B3610304B719297C16B250FAB1B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54007.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:7C6D6AE0EEC50C3CB9178C1AA4EA8E646FF53339
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54554.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:257B6293E74FEE13691FEF2E1E0BD720D51EBB1A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54590.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:67FE0D6F4996D3BDBEB7315F2CEC169DA17DFE92
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54613.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:CE4ABBB8C82827AC2DA9712F930C3929AEF4CCFD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54616.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:1D1CEAC5EF5F59D7D3E5229D4358DE181B8CE161
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54657.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:3E9A9DCDE700DA7192CD1079170D636D3558DC97
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54671.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Skillbox, Анастасия Полякова, Давид Медведик | А�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54745.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ CORS Academy, Илья Отькало | Мини-курс «Начинающий
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54751.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:E6D544AA662CE462BA5E8127B89C08A7778318E5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54761.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:E56E8E78C9878F03ED867F2119BD61D23E7957C4
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54961.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:0E7A031F5219386530A78AE00C68F364E588F7AB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55029.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Network for Everyone (NFE, N4E) | Open Shortest Path First (2024) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55050.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Udemy, Алексей Леонтьев | Магия сводных таблиц 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55067.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Josh W Comeau | CSS for JavaScript Developers (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55147.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:C2F689363D3CF5366E5FDF3CAD0EF12538CB3F32
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55176.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Nebula: Learn Volumes, GeoNodes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55454.jpg" />
 </div>
 
 

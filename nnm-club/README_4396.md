@@ -1,3 +1,95 @@
+###  Публикация: 592585   (135666) от 22.12.2012
+
+Rosemary Clooney - Forever Girl Singer (2002) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way We Were [05:03]
+02. Danny Boy [03:07]
+03. Sweet Kentucky Ham [03:54]
+04. Do You Know What Is Means To Miss New Orleans [03:52]
+05. Mambo Italiano [02:32]
+06. They Can't Take That Away From Me [03:28]
+07. The Glory Of Love [03:36]
+08. As Time Gose By [04:01]
+09. Brazil [06:54]
+10. Bewitched, Bothered And Bewidered [04:32](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592829   (135667) от 22.12.2012
+
+VA - Guitar Con Guitarra Vol.1 (Acoustics Chill Out & Sunset Pearls) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - First Floor Lobby
+02. Jeff Aug - Diving Into the Autumn Deep
+03. Marga Sol - No One Who Loves Me
+04. Anthya - Patience and Love
+05. Guenter Haas - The Pilot's Dance
+06. Weathertunes - Bikini
+07. Jeff Aug - Listen Up, Jazzhole!
+08. Taco-Town - Con Su Permiso
+09. Jeff Aug - 7 Ate the Cat (And Called It a Boogie)
+10. Aimee Sol - Girl in the Gallery(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1F534DDE1CE93FA5CB4960161D68B9ACBD1421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592772   (135672) от 22.12.2012
+
+"Крылов" | Книжная серия "Boutique" [2004-2005] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Boutique: модное чтение при любой погоде!
+Стильные, остроумные и современные книги на любой вкус, кроме плохого.
+В проект входят следующие серии:Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DE2990C8425BD0791018F41BC496322BBFDB3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592806   (135675) от 22.12.2012
 
 Журнал | Похудей. Спецвыпуск №1 [январь-февраль 2013] [PDF]
@@ -6,7 +98,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135675.jpg" />
 </div>
 
 
@@ -30,7 +122,7 @@ magnet:?xt=urn:btih:99D781DF268E378205A0DA6BEFB33C01AD376A8C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135676.jpg" />
 </div>
 
 
@@ -54,7 +146,7 @@ VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135677.jpg" />
 </div>
 
 
@@ -87,7 +179,7 @@ E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135678.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135678.jpg" />
 </div>
 
 
@@ -116,7 +208,7 @@ E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135679.jpg" />
 </div>
 
 
@@ -140,7 +232,7 @@ Various Artists - Essential Delta Blues (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135683.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135683.jpg" />
 </div>
 
 
@@ -173,7 +265,7 @@ VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135684.jpg" />
 </div>
 
 
@@ -206,7 +298,7 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135688.jpg" />
 </div>
 
 
@@ -237,7 +329,7 @@ Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135690.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135690.jpg" />
 </div>
 
 
@@ -270,7 +362,7 @@ Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135692.jpg" />
 </div>
 
 
@@ -294,7 +386,7 @@ VA - Bed Time Christmas Stories (Sensualism compiled by DJ MNX) (2012) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135696.jpg" />
 </div>
 
 
@@ -327,7 +419,7 @@ magnet:?xt=urn:btih:04D119DF4A6D4297C1CC0BC76267DE81FB985E93
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135700.jpg" />
 </div>
 
 
@@ -354,7 +446,7 @@ magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135704.jpg" />
 </div>
 
 
@@ -378,7 +470,7 @@ Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/death
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135706.jpg" />
 </div>
 
 
@@ -409,7 +501,7 @@ Margie Gibson - Say it with Music (1993) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135708.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135708.jpg" />
 </div>
 
 
@@ -442,7 +534,7 @@ Butterfly - Favorite Colors Episode 063: End of Year 2012 (Part. 1) (22.12.2012)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135709.jpg" />
 </div>
 
 
@@ -475,7 +567,7 @@ magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135712.jpg" />
 </div>
 
 
@@ -499,7 +591,7 @@ Animal Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135713.jpg" />
 </div>
 
 
@@ -523,7 +615,7 @@ Freddy Todd - Sick in the City, Alive in the Woods (2012) [MP3|320 kbps]<Dubstep
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135719.jpg" />
 </div>
 
 
@@ -550,7 +642,7 @@ VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135721.jpg" />
 </div>
 
 
@@ -583,7 +675,7 @@ VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135722.jpg" />
 </div>
 
 
@@ -616,7 +708,7 @@ Windows 8 x64 Pro Reactor v2 [Русский]
 >>38
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135727.jpg" />
 </div>
 
 
@@ -641,7 +733,7 @@ magnet:?xt=urn:btih:24FB0DF03A78B92758921786DB5101FB4B274879
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135731.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135731.jpg" />
 </div>
 
 
@@ -649,80 +741,6 @@ magnet:?xt=urn:btih:24FB0DF03A78B92758921786DB5101FB4B274879
 
 В четвертом сезоне появятся три новых персонажа: Джесс — умная, острая на язык девушка, своего рода Ларри Дэвид в юбке. Такие люди как она говорят на табуированные темы, нарушают социальные нормы и этикет. Джесс ненавидит людей, которые врут ей и несут ахинею.
 Финн — наивный оптимист, всегда старается угодить всем. Очень много болтает, что частенько помогает ему (   Читать дальше...   )Жанр: Драма, Фантастика, КомедияРежиссер: Ховард ОверманАктеры: Джозеф Гилган (Rudy Wade), Натан Стюарт-Джарретт (Curtis Donovan), Нейтан МакМаллен (Finn), Карла Кроум (Jess), Мэтт Стокоу (Alex), Мэттью МакНалти (Seth), Шон Дули (Greg)Перевод: Двуголосый закадровый, профессиональный |Кубик в кубе|Язык субтитров: английскиеПродолжительность: 8 x ~00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592155   (135734) от 21.12.2012
-
-Кон-Тики / Kon-Tiki (2012) HDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135734.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кон-Тики» — норвежский исторический фильм, посвященный экспедиции Кон-Тики 1947 года.Производство: Великобритания, Норвегия, Дания / Recorded Picture Company (RPC), Nordisk Film Production, DCM ProductionsЖанр: Боевик, драма, приключения, биография, историяРежиссер: Хоаким Роннинг, Эспен СандбергАктеры: Пал Сверре Валхейм Хэйген, Андерс Баасмо Кристиансен, Густаф Скарсгард, Одд Магнус Уильямсон, Тобиас Зантелман, Якоб Офтебро,  Киттелсен, Томас Арнольд, Йорген Бертаге, Элинор Бурк, Мануэль Коши, Сэм Чэпман, Стефан Кронуолл, Катинка Эгрес, Йен Кнауэр, Оле Слетнер, Ричард ТриндерПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: (А.Карповский)Субтитры: ОтсутствуютПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278CBD2FD1007F68829B89C42D5580529842AA0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572066   (135735) от 21.12.2012
-
-Hikaru no Go / Хикару и Го (2001, TV, 75 + Special) DVDrip raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученик последнего класса средней школы Синдо Хикару, забравшись однажды со своей подружкой Акари на чердак дедушкиного дома в надежде найти что-нибудь полезное, находит старый гобан (доску для игры в го). После этой находки ему является дух человека по имени Фудзивара Сай — величайшего мастера игры го эпохи Хэйан. Возродившийся дух Сая поселяется в сознании мальчика, в результате Хикару обзаводится постоянным спутником и собеседником, которого никто, кроме самого Хикару, не видит и не слышит. Сай, как и при жизни, больше всего любит и желает играть в го, но сам, естественно, не может этого делать. Поддавшись на его уговоры, Хикару, никогда раньше не игравший в го, начинает играть (играет, естественно, Сай, а Хикару только ставит камни на доску) и, неожиданно для себя, сам увлекается игрой.
-
-Wiki, World-ArtЖанр: спорт, повседневностьРежиссер: Нисидзава СусумуПеревод: Горбачев Е. (Altay)Продолжительность: 75 эп, ~23 мин. серия + 76 мин Special
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592153   (135736) от 21.12.2012
-
-Кон-Тики / Kon-Tiki (2012) [1080p] BDRip
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135736.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кон-Тики» — норвежский исторический фильм, посвященный экспедиции Кон-Тики 1947 года, когда норвежский путешественник Тур Хейердал пересёк Тихий океан от Перу до Полинезию на бальсовом плоту и хотел доказать свою теорию о заселении Полинезии из Южной Америки, а не из Азии, как тогда считалось.Жанр: Боевик, Драма, Приключения, Биография, ИсторияРежиссер: Хоаким Роннинг, Эспен СандбергПродюсер: Ааге Ааберге, Джереми Томас, Кристоф ДэниэлАктеры: Пал Сверре Валхейм Хэйген, Андерс Баасмо Кристиансен, Густаф Скарсгард, Одд Магнус Уильямсон, Тобиас Зантелман, Якоб Офтебро, Агнес Киттелсен, Томас Арнольд, Йорген Бертаге, Элинор Бурк, Мануэль Коши, Сэм Чэпман, Стефан Кронуолл, Катинка Эгрес, Йен Кнауэр, Оле Слетнер, Ричард ТриндерПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: (А.Карповский)Язык субтитров: АнглийскийПродолжительность: 01:58:48
 
 ## Скачать торент
 ```bash

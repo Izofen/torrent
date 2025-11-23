@@ -1,3 +1,27 @@
+###  Публикация: 1679275   (139044) от 24.11.2023
+
+CCleaner 6.18.10838 Technician Edition (x64) + CCEnhancer Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308BAE90D88D8DEABB52E5393D883ECB640840E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970756   (139055) от 31.12.2015
 
 Wise Folder Hider Free 3.26.136 [Multi/Ru]
@@ -6,7 +30,7 @@ Wise Folder Hider Free 3.26.136 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139055.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Download Master 6.11.1.1533 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139061.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Tor Browser Bundle 13.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139066.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ Craset, TBFM - A Thousand Decays (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Ga
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139074.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ SUMo Pro 4.2.5.298 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139075.jpg" />
 </div>
 
 
@@ -129,7 +153,7 @@ IObit Driver Booster Pro 8.2.0.308 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139081.jpg" />
 </div>
 
 
@@ -153,7 +177,7 @@ Icecream PDF Editor PRO 2.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139097.jpg" />
 </div>
 
 
@@ -177,7 +201,7 @@ magnet:?xt=urn:btih:1B5FF7B2533DDC5CBDC4D8FD8F786C3A29B4C0FB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139109.jpg" />
 </div>
 
 
@@ -201,7 +225,7 @@ magnet:?xt=urn:btih:14AA7E954825F2E60A258FBDD92CEC78DBDA6AA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139112.jpg" />
 </div>
 
 
@@ -225,7 +249,7 @@ SonicPhoto Silver 1.26 (sharewareonsale) + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139115.jpg" />
 </div>
 
 
@@ -249,7 +273,7 @@ magnet:?xt=urn:btih:F23A30442C3DD6D4CA419EAE29563498746B37AA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139117.jpg" />
 </div>
 
 
@@ -273,7 +297,7 @@ IObit Software Updater Pro 3.5.0.2051 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139122.jpg" />
 </div>
 
 
@@ -298,7 +322,7 @@ magnet:?xt=urn:btih:FE45E45D3A98BF08D87672F91C3122548FABC365
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139130.jpg" />
 </div>
 
 
@@ -325,7 +349,7 @@ Brutal Combat v1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139156.jpg" />
 </div>
 
 
@@ -349,7 +373,7 @@ QQ Browser 9.2.1.5748.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139157.jpg" />
 </div>
 
 
@@ -373,7 +397,7 @@ Room Arranger 9 v9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139170.jpg" />
 </div>
 
 
@@ -397,7 +421,7 @@ Adriano Celentano - Star-Discothek (1978) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139181.jpg" />
 </div>
 
 
@@ -430,7 +454,7 @@ MathType 7.7.1.258 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139186.jpg" />
 </div>
 
 
@@ -454,7 +478,7 @@ AIMP 4.60 Build 2167 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139200.jpg" />
 </div>
 
 
@@ -478,7 +502,7 @@ ChronoSync 4.7.2 & ChronoAgent 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139219.jpg" />
 </div>
 
 
@@ -505,7 +529,7 @@ PatshTeodorStyle 0.1.2.0 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139241.jpg" />
 </div>
 
 
@@ -529,7 +553,7 @@ Mac FoneTrans for iOS 9.0.30 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139248.jpg" />
 </div>
 
 
@@ -553,7 +577,7 @@ Soft Organizer Pro 7.41 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139253.jpg" />
 </div>
 
 
@@ -577,7 +601,7 @@ Luminar 4.1.0.5135 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139254.jpg" />
 </div>
 
 
@@ -604,7 +628,7 @@ K-Lite Codec Pack Update 16.6.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139275.jpg" />
 </div>
 
 
@@ -615,30 +639,6 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F00D56D9438A68C9C062EBFC8FC4566BCB151752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590510   (139278) от 18.12.2012
-
-Benvista PhotoZoom Pro 5.0.4 [Multi/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139278.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoZoom Professional - программа является лучшей из имеющихся технологий для увеличения цифровых фотографий! Фирменная технология масштабирования S-Spline, используемая в PhotoZoom Professional, основана на запатентованной адаптивной методике, которую можно отнести к категории революционных. Сохраните качество Ваших снимков! Теперь Вы сможете увеличивать Ваши фотографии не переживая о потере качества. PhotoZoom Professional - это крайне необходимая программа для увеличения цифровых изображений, используемых для DTP, Internet и цифрового фото. Программа имеет мультиязычный интерфейс, включая Русский.Название программы: Benvista PhotoZoom ProЯзык интерфейса: Multi/Rus
-
-## Скачать торент
-```bash
-нет
 ```
 
 

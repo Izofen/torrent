@@ -6,7 +6,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11394.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Photo Editor v11.7 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11395.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EE8169E51050806FC2E319D6A341D0DCC182664E
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11396.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1697830406EF441DA53F902FFCF715490DA5FB9A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11397.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:FF0CF24D84673C953ED41BEAA30605E176C408CF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11398.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C5E03DCF3A9B53CC1068F8A029518E45A48D540A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11399.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5D830BB5B4F6FB6B88B5E7E45DCBD9C72423BA27
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11400.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Ashampoo Music Studio 12.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11401.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Fast Video Cutter Joiner 6.8.5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11402.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Fake GPS v5.6.2 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11403.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:398205F5C2A69779BFD36028AAA1E2B89C3823CF
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11404.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Ventusky: Прогноз погоды v46.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11405.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.19.7 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11406.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows Server [10.0.25398.1732], version 23H2 (Updated July 2025) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11407.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Windows 11 [10.0.22631.5624], Version 23H2 (Updated July 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11408.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ AnyBurn 6.5 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11409.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:923D4A9C465A7726156773161076EE5B72B88385
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11410.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ GPU Shark II 2.9.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11411.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Blackmore's Night - Compilation (1997-2025) [MP3|320 Kbps] <Folk rock, Medieval 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11412.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:AA11AA0131A89F43B3B879796BE5B6DCA07D2D6C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11413.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ dBpoweramp Music Converter 2025.07.14 Reference (x64) Portable by FC Portable [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11414.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:F58C1B21776961E3344273C5503A61880B1B1769
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11415.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:58ECEC4B7EB96A8F1CAFC027425FC1ABF5D9B8F2
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11416.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Icecream Video Converter Pro 1.47 RePack (& Portable) by elchupacabra Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11417.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Telegram Desktop 5.16.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11418.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:38EE424D35A00DC195A32389B143E8529023FE5E
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11419.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7606.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mp3tag 3.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7713.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7308 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7731.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1A430E0B0C0E8FB5662406B815D1DA68FC5A149B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7733.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIMP 5.40 Build 2691 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7737.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Fan Control V231 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7744.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MassTube Ultra 20.1.7.142 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7746.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VirtualBox 7.2.0 Build 170228 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7752.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MassTube Ultra 20.1.7.142 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7767.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Topaz Photo AI Pro 4.0.3 Portable by 7997 + Models [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7779.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Windows 7 SP1 7601.27872 x64 3in1 by OneSmiLe [15.08.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7798.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Adobe Photoshop Lightroom Classic 2024 14.5.0.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7806.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ iDownerGo Video Downloader 10.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7897.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AIMP 5.40.2691 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7903.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ RAM Saver Professional 25.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7920.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Adobe Acrobat Pro 2025.001.20623 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7923.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Adobe Media Encoder 2025 25.4.0.90 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7929.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:FC05C565F94B381633CA4A6756AE1AE5E71CB8D8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7937.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Adobe Premiere Pro 2025 25.4.0.99 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7938.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Adobe Acrobat Pro 2025.001.20623 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7944.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:90EB9C4DD5020F8EB1C24BBBB274312B2DB6FDCB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7959.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:7321D4ADC4B20F54B5E6967EA3F50A5CF40D432D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7968.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Adobe After Effects 2025 25.4.0.86 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7969.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:CC44DF5FB942F80582061CDA8E908A14460D66B3
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7970.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:BBFD35B7DAE6FA783B96B8ECD4C41111D24592EB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7971.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ YT Downloader 9.15.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8097.jpg" />
 </div>
 
 

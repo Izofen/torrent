@@ -1,3 +1,76 @@
+###  Публикация: 1698395   (118508) от 09.02.2024
+
+Самозванка / Some Other Woman (2023) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ева и Питер переезжают на тропический остров, чтобы Питер мог строить там карьеру. Ради мужа Ева вынуждена отказаться от своих профессиональных амбиций, что мешает ей искренне радоваться его успехам. После очередного выкидыша Ева и вовсе впадает в депрессию.Производство: США / Balcony 9 Productions, Productivity MediaЖанр: ТриллерРежиссер: Джоэль МурАктеры: Эшли Грин, Том Фелтон, Аманда Крю, Рик Фокс, Брук Лайонс, Саманта Бэнтон, Эмбер Эшли Смит, Каролина Рейно, Джим Ригли, Jeton BennettПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: Русские (отдельно)Продолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1FE3BFC7F0887FA7EE5CF78B1EDBAED38F895F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698500   (118509) от 09.02.2024
+
+Хоккей. НХЛ 2023-2024. Вашингтон Кэпиталз - Флорида Пантерз (08.02.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118509.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 февраля 2024, пятница. 03:00 МСК. Стадион: Амерант Банк Арена (Санрайз, США), 17 645 зрителей (91% при вместимости 19 434)
+Главный судья: Майкл Маркович (Скарборо, Канада); Главный судья: Франсис Шаррон (Оттава, Канада)Телекомпания: BSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8122D91209F290B7A8F87715E61038E0D1C9DB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698355   (118510) от 09.02.2024
+
+Шум моря / Son de Mar (2001) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118510.jpg" />
+</div>
+
+
+###  Подробнее
+
+В маленьком прибрежном городке появляется Улисес - бродяга и фантазер, а по совместительству преподаватель литературы. Однажды в кафе он встречает очаровательную Мартину, которая моментально в него влюбляется, пленившись его внешностью, обаянием и умением рассказывать красивые истории из Гомера и Вергилия...Производство: ИспанияЖанр: драма, мелодрама, эротикаРежиссер: Бигас ЛунаАктеры: Хорди Молья, Леонор Уотлинг, Эдуард Фернандес, Карла Коллар, Хавьер Коромина, Алехандро Тоус, Хуан Муньос, Хулио Канто, Пеп Кортес, Рикардо Лопес, Пабло Риверо, Серхио КабальероПеревод: Двухголосый профессиональныйЯзык озвучки: Русский, ИспанскийСубтитры: русские, испанские, английскиеПродолжительность: 01:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EFB7EF016659F7AA321E23E83D2013EAC13221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696031   (118511) от 09.02.2024
 
 OsmAnd+ — Карты & GPS Офлайн v4.7.1 Mod by Balatan [Ru/Multi]
@@ -6,7 +79,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118511.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:C044B80D8ADAEE3AE6E5C1B1A26DE1FA22162554
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118512.jpg" />
 </div>
 
 
@@ -58,7 +131,7 @@ magnet:?xt=urn:btih:EE5BF7AA38500570945AE6AF4EB706FB5C27D010
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118513.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118514.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ magnet:?xt=urn:btih:2607A6DEA1DB6AEDFC3FD8E89AE4D02FAA7CC0E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118515.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ magnet:?xt=urn:btih:432CB832913D1F23E2C4E6ED66EA17F1A2A89FFE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118516.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:F4E0523C912ACC897E46800392BCAA41FF1CA6C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118517.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:92EA25E58E83397C652866F89F434C7E5FB9E924
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118518.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:79DB644C6BC359CF65B8D736827275079BF1E93A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118519.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ magnet:?xt=urn:btih:0B5D8335B5C8ADBCB618F6830FB7CD5A6938A268
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118520.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:0C66DDC5B0828F9DA7BABD3BFA6D81EAA47D4D75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118521.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ Samsung и SanDisk завалили рынок флешками отвратит
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118522.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ Samsung и SanDisk завалили рынок флешками отвратит
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118523.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ magnet:?xt=urn:btih:3132B1CD2780EAB184AE89DAC42EA39CD27B8543
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118524.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ magnet:?xt=urn:btih:606BFCF11AA22FAB4B23758977E7193C43BED4AC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118525.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ magnet:?xt=urn:btih:123E03FE56A9708E7AF2C3A5BC47CB2D7E07A11B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118526.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ magnet:?xt=urn:btih:8AE6415883E1388539AF03B5322DDF39F2DB9AAB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118527.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118528.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ magnet:?xt=urn:btih:5DBBC317FD3E3F6518D18C2886BE8F8C99520FF1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118529.jpg" />
 </div>
 
 
@@ -467,7 +540,7 @@ magnet:?xt=urn:btih:B66A4C596EF5B8E03D3CD802366FF763BE0D081C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118530.jpg" />
 </div>
 
 
@@ -491,7 +564,7 @@ magnet:?xt=urn:btih:8AA2291348BFC620A51EDE242D6902E2E71AE3B6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118531.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ magnet:?xt=urn:btih:2A7B886502CD91044884C4E020C8EC048BE9CB2C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118532.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ magnet:?xt=urn:btih:E2E483C390F822C34577AE4F61B7EA6D60C3E36D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118533.jpg" />
 </div>
 
 
@@ -552,80 +625,6 @@ magnet:?xt=urn:btih:E2E483C390F822C34577AE4F61B7EA6D60C3E36D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1F9B1509515BE3CD6DF804F84380DEC2962A20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698408   (118534) от 09.02.2024
-
-Повышение / Upgraded (2024) WEB-DL [H.264/1080p] [EN / RU, UKR, EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна стремится начать свою карьеру в искусстве и изо всех сил старается произвести впечатление на свою требовательную начальницу Клэр Дюпри. Но когда Анну приглашают на аукцион, который пройдет в Лондоне, молодая героиня неожиданно оказывается в салоне первого класса по пути в аэропорт, где встречает красавца Вилли. В результате, чтобы оправдать свою поездку в первом (   Читать дальше...   )Производство: США / FAE Film and Television, Gulfstream PicturesЖанр: мелодрама, комедияРежиссер: Карлсон ЯнгАктеры: Камила Мендес, Арчи Рено, Мариса Томей, Лена Олин, Энтони Хэд, Томас Кречман, Грегори Монтель, Рэйчел Мэттьюз, Фола Эванс-Акингбола, Эйми КаррероПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Украинские, Английские (Full, SDH) и другиеПродолжительность: 01:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BDF0070CF8752BD8341DAA260E48B4CED8E566C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400126   (118535) от 09.02.2024
-
-Виталий Бианки | Рассказы и сказки (2005) [MP3, Сергей Кирсанов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Хрестоматия школьной литературы.
-Виталий Валентинович Бианки (1894-1959) – известный писатель, классик советской детской литературы. На его книгах выросло не одно поколение детей в нашей стране. За свою жизнь он написал более 300 рассказов, сказок, повестей.
-Книги Виталия Бианки, раскрывающие мир природы и помогающие постигать ее тайны, и по сей день (   Читать дальше...   )Жанр: Русская литература для детей,рассказ, сказкаИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 12:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6A4C194CDBDD8FA56590661023854896B07F2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698394   (118536) от 09.02.2024
-
-Самозванка / Some Other Woman (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ева и Питер переезжают на тропический остров, чтобы Питер мог строить там карьеру. Ради мужа Ева вынуждена отказаться от своих профессиональных амбиций, что мешает ей искренне радоваться его успехам. После очередного выкидыша Ева и вовсе впадает в депрессию.Производство: США / Balcony 9 Productions, Productivity MediaЖанр: ТриллерРежиссер: Джоэль МурАктеры: Эшли Грин, Том Фелтон, Аманда Крю, Рик Фокс, Брук Лайонс, Саманта Бэнтон, Эмбер Эшли Смит, Каролина Рейно, Джим Ригли, Jeton BennettПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642CC2FEFFD2FD399BCC43B16C1C34F9AD7352B2
 ```
 
 

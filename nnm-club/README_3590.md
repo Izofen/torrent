@@ -1,3 +1,75 @@
+###  Публикация: 1708598   (113022) от 21.03.2024
+
+Елена Дорош | Французское наследство (2024) [MP3, Людмила Пахмутова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пообещав другу помочь с ремонтом, Савва Бехтерев даже предположить не мог, что из-за совершенно незнакомой девицы окажется втянутым в очень неприятную историю. А началось все с убийства старушки, в доме которой преступник искал, но не нашел нечто столь ценное. Всё происходящее не имело к Бехтереву никакого отношения, но именно Савве пришлось подставить плечо юной (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 07:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDD79A69D1B4EAA46056834C332CB90CCBD6F2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708631   (113023) от 21.03.2024
+
+Марина Серова | Частный детектив Татьяна Иванова. С легким паром! (2022) [MP3, Оксана Тимошкова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как все было замечательно – сходила женщина в баньку, расслабилась! Вернулась домой в расчудесном настроении. А в кухне на полу лежит труп… Первая ее реакция – мужа убили! Но, слава богу, это оказался не муж. Так кто же он, этот задушенный мужчина с изуродованным кислотой лицом? Хорошо, что у женщины соседка была не кто-нибудь, а частный детектив Татьяна Иванова, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 06:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D6018266A739AD92F4EA79DE2E2FE8E84E8243
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708645   (113024) от 21.03.2024
+
+Марина Болдова | Кольцо блаженной Августины (2022) [MP3, Алла Галицкая]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое кольцо, артефакт созданного в давние времена сообщества ювелиров, в наши дни неожиданно становится предметом охоты многих, на первый взгляд, чужих друг другу людей. Что за тайну скрывает оно, если в один день убиты молодой мужчина и его жена? А наследница кольца даже не подозревает, чем так ценно это на вид недорогое изделие, которое до недавнего времени (   Читать дальше...   )Жанр: детектив, триллерИздательство: Аудиокнига (АСТ)Продолжительность: 09:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9ED4BFA37253198F684F748B3B362E7D01287A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708710   (113025) от 21.03.2024
 
 Neon Rider - Destination Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +78,7 @@ Neon Rider - Destination Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113025.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ T Bear - The Way Of The World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113026.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ Gary Clark Jr. - JPEG Raw (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113027.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ Trust X - Перевёрнутые Сны (2017) [FLAC|Lossless|image + .cue] <H
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113028.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ Hammer King - König und Kaiser (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113029.jpg" />
 </div>
 
 
@@ -141,7 +213,7 @@ Jimmy Synthetic - Heat Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <synthwave, n
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113030.jpg" />
 </div>
 
 
@@ -168,7 +240,7 @@ Digimortal - Белое знамя (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113031.jpg" />
 </div>
 
 
@@ -195,7 +267,7 @@ Neon Rider - Destination Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113032.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:024E21309820B3642F80161D72541640D3A9409C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113033.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Data Creator 1.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113034.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:B313AFCA1D0F026D42FA5589FED505F284EE6235
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113035.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:60F04F1C9F80926C892D3FA2414898D6C37FE65A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113036.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:F21C56A4A72EC1B5AADA254EB3C8B0E96DC794DC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113037.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ The Aquarius - Страшные сказки (2017) [FLAC|Lossless|image + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113038.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:6B912602F97155E486B41FA6C97A828D7368426E
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113039.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ magnet:?xt=urn:btih:70C54891CA0528849B978567A67506064E58A5F3
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113040.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:8BD5D7DFF58B8A1CBA7E0E3F1C7705CE35BF4E2D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113041.jpg" />
 </div>
 
 
@@ -455,7 +527,7 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symph
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113042.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ magnet:?xt=urn:btih:5F2174683070E078BC0B63F2DAC34555BC99884A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113043.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ Orion & J.Shore - Brotherhood (2011) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113044.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Mp3tag 1.8.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113045.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ Ron D Bowes - Paws for Thought (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113046.jpg" />
 </div>
 
 
@@ -584,7 +656,7 @@ Hurricane on Saturn - Killing Field (2020) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113047.jpg" />
 </div>
 
 
@@ -598,87 +670,6 @@ Hurricane on Saturn - Killing Field (2020) [FLAC|Lossless|WEB-DL|tracks] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDBED5FD4920635EAC248AD622A163C366B499D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708292   (113048) от 20.03.2024
-
-Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fly [5:55]
-02. Blues on Down [6:05]
-03. Five Spot After Dark [3:23]
-04. My Funny Valentine [4:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BF397850909A299A15ABE086BF27777808C7C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708100   (113049) от 20.03.2024
-
-Rated Blue - Cranked Remastered (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Months on Tuesday - 2024 Remaster (4:48)
-02. In Dogs We Trust - 2024 Remaster (3:55)
-03. Three Walls Down - 2024 Remaster (3:35)
-04. Understanding (Just a Little) - 2024 Remaster (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF051021833ED5DB207C01A161C311391B4A3FDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708290   (113050) от 20.03.2024
-
-The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the City [7:55]
-02. From Dream to Dream [6:48]
-03. Write Soon [9:44]
-04. Vas Simeon [7:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8CD8557A420B6673B1704D0603AD9FDC1D4FAE
 ```
 
 

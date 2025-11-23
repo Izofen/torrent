@@ -6,7 +6,7 @@ Science Of Disorder - Apoptose (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104261.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Flotsam and Jetsam - I Am the Weapon (2024) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104277.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alicate - Heaven Tonight (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104278.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Prayer - Wrong Address (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104279.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Judas Priest - Rocka Rolla (1974) Reissue, 2024, MNRK Music [MP3|320 Kbps] <Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104289.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hideous Pit - A Mental Note Of All Exits (2024) [MP3|320 Kbps] <Thrash Metal, Cr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104296.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Roulette - From Now Until Today (2024) EP [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104297.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ In Chaos - Hope Wears Black (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104300.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ V.A. - Soft Rock for Relaxing (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104306.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Motorpsycho - Neigh!! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104317.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Rogga Johansson - Otherworld (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104321.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Horcas - El Diablo (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104322.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Deceased - Children of the Morgue (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104323.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Oceano - Living Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104324.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Agrypnie - Erg (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104325.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Victory - Circle of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104328.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Busted - Greatest Hits 2.0 (Another Present For Everyone) (2024) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104335.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Neil Young - Global Citizen Festival (2012) Live, 2024, Unicorn [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104336.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A2E48B9E74830677762AC9636B375E43616F7D60
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104337.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Gibbons - Into The Storm (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104348.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Simon & Garfunkel - Manchester, England, May '67 (2024) [MP3|320 Kbps] <Soft Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104350.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Alan Parsons Project - The Turn of a Friendly Card (1980) Sessions, 2024, Le
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104351.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Breeze - Echoes from a Distant Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104361.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ AFI - Silver Bleeds the Black Sun... (2025) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104497.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Red Jumpsuit Apparatus - X’s For Eyes (2025) [MP3|320 Kbps] <Alt. Rock, Ma
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104511.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Solitude Aeturnus - Through The Darkest Hour, Downfall (1994-1996) Compilation, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104520.jpg" />
 </div>
 
 

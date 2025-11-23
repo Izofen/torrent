@@ -6,7 +6,7 @@ Alien Ant Farm - ANThology (2001) CD, Album [FLAC|Lossless|tracks + .cue] <Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66289.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ardbeggar - Dark Horses and Underdogs (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66292.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66295.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Big Head Todd And The Monsters - Midnight Radio (1990) CD, Album, Reissue 1994 [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66296.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ IQ - Dominion (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66308.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Dead Daisies - Lookin' For Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66310.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Neurotech - Exo Escapism (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66315.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:663DCE18239B94A8E6D5D46DA6E5156E4367F0A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66332.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:47FDEA2DB25684F1BCCAA686D88269F7406F1151
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66334.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Clockwise - Healthy Manipulation (2002) CD, Album [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66336.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ All Against - Straight Down To Hell (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66346.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ God Dethroned - The Judas Paradox (2024) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66349.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Estrotomy - Carcinogenic Humanity (2025) [FLAC|Lossless|WEB-DL|tracks] <Slam/Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66354.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66362.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Brother Firetribe - Number One (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66364.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Inborn Suffering - Pale Grey Monochrome (2025) [FLAC|Lossless|image + .cue] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66392.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Barmy Rote - Injustice For All (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66456.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Shadow Host - Chaos Unleashed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66461.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Phantom Elite - MANTIS (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66465.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ophthalamia - II Elishia II (2019) 2 x CD, Compilation [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66474.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Chantal - Rainbow Warrior (2025) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66489.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Oresund Space Collective - Alotta Hella Down in Estrela (2025) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66493.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66498.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66502.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ The Ossuary - Requiem for the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66504.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Necrochakal - Golgothian Orgies of Bestial Lust (2025) [MP3|320 Kbps] <Black, Th
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66505.jpg" />
 </div>
 
 

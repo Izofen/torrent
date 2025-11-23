@@ -1,3 +1,82 @@
+###  Публикация: 1707660   (113256) от 17.03.2024
+
+M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113256.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Land Of The Free
+A2 Devolution
+A3 Repent
+A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707671   (113257) от 17.03.2024
+
+Early Moods - Early Moods (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Return to Salem's Gate (00:05:08)
+02 - Live to Suffer (00:04:24)
+03 - Early Moods (00:04:37)
+04 - Defy Thy Name (00:04:38)(   Читать дальше...   )Жанр: Heavy, Doom Metal, Hard RockПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411CF1B9E26F27B326F94074AD06F0B655E2987A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707723   (113258) от 17.03.2024
+
+CudaText 1.211.0.0 Portable + addons [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113258.jpg" />
+</div>
+
+
+###  Подробнее
+
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F50F20AE6CD27557F3661DD53523F87C1B1DB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707588   (113259) от 17.03.2024
 
 Product Manager 2 v.2.6.3 [En]
@@ -6,7 +85,7 @@ Product Manager 2 v.2.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113259.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ Jethro Tull - The Chateau D’Herouville Sessions 1972 (2024) 2CD, Rhino [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113260.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:1FD8E7B969A28B9F89028763F586698832F794E4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113261.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ VA - Exx Muzik Miami 2024 (2024) [MP3|320 Kbps] <Melodic House & Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113262.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ magnet:?xt=urn:btih:8BE2ACD674B987FE575A02391A5BCF05D9207BB3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113263.jpg" />
 </div>
 
 
@@ -133,7 +212,7 @@ magnet:?xt=urn:btih:0185DEF18D7624E7C3E0D33927D9F12E7FF0E224
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113264.jpg" />
 </div>
 
 
@@ -157,7 +236,7 @@ WatsGo for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113265.jpg" />
 </div>
 
 
@@ -182,7 +261,7 @@ magnet:?xt=urn:btih:33174EEA415E85D21F545219859946F27B9A7804
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113266.jpg" />
 </div>
 
 
@@ -206,7 +285,7 @@ Big Fat Lizard - Big Fat Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113267.jpg" />
 </div>
 
 
@@ -233,7 +312,7 @@ magnet:?xt=urn:btih:83879C7E6FC62FE9246488FC8FAD3FCC9F5C62A8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113268.jpg" />
 </div>
 
 
@@ -259,7 +338,7 @@ magnet:?xt=urn:btih:01DA40152C46D6F1514D41447C81DF49F4426451
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113269.jpg" />
 </div>
 
 
@@ -285,7 +364,7 @@ magnet:?xt=urn:btih:898F435E40BD862655A14169457CDBC7767DFD9D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113270.jpg" />
 </div>
 
 
@@ -309,7 +388,7 @@ magnet:?xt=urn:btih:6E81501B7CBCD9D48FFCB1B70A0A554BD92AA63E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113271.jpg" />
 </div>
 
 
@@ -334,7 +413,7 @@ Gene Austin - Collection (1920s-1950s) (2011-2014) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113272.jpg" />
 </div>
 
 
@@ -361,7 +440,7 @@ Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113273.jpg" />
 </div>
 
 
@@ -388,7 +467,7 @@ Lord Goblin - Lord Goblin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113274.jpg" />
 </div>
 
 
@@ -415,7 +494,7 @@ magnet:?xt=urn:btih:16312CB7ABA2451CEA82642D02B3758AE8ADD1E2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113275.jpg" />
 </div>
 
 
@@ -441,7 +520,7 @@ Atrophy - Asylum (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113276.jpg" />
 </div>
 
 
@@ -470,7 +549,7 @@ Crystal Darkness - A Far Cry Paradise (2022) EP, Remastered, 2022, Red Snow [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113277.jpg" />
 </div>
 
 
@@ -497,7 +576,7 @@ magnet:?xt=urn:btih:3634DB2BB1672433E8FA1FFFFE4FF981317F0849
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113278.jpg" />
 </div>
 
 
@@ -521,7 +600,7 @@ magnet:?xt=urn:btih:4C1E69EA1023C9FDF5693D19E5A73857C824B068
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113279.jpg" />
 </div>
 
 
@@ -545,7 +624,7 @@ AIDA64 2.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113280.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ magnet:?xt=urn:btih:2D926531A2F77EB1B247C68C9CFC6B39BB236B17
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113281.jpg" />
 </div>
 
 
@@ -582,79 +661,6 @@ magnet:?xt=urn:btih:2D926531A2F77EB1B247C68C9CFC6B39BB236B17
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BCC174EF8B39E6F3561B7CA7001BC7399E22C8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707709   (113282) от 17.03.2024
-
-Мартин Лейвиц | НЛП в бизнесе (2016) [MP3, Алексей Мужицкий]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая эффективная методика достижения успеха, опробованная миллионами людей!
-НЛП в бизнесе – это универсальное средство, которое можно использовать для решения всех возникающих деловых вопросов. Наладить работу коллектива, провести результативные переговоры, добиться повышения бизнес-показателей – все это по силам тому, кто владеет технологиями НЛП. Можно сказать, (   Читать дальше...   )Жанр: Зарубежная психология, НЛПИздательство: AB PublishingПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809AD754E0E9722418B1294FBE0E09EF862D7CD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707614   (113283) от 17.03.2024
-
-Газета | Азбука вязания №2 (февраль 2024) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство “Газетный мир” представляет вашему вниманию журнал “Азбука вязания”. Если ваше хобби - рукоделие или вы всегда мечтали научиться вязать, то в этом журнале вы найдете множество полезных советов и техник. В каждом номере разбирается отдельная тема, и освещается вязание как на спицах, так и крючком.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA39B7B28A331D3293D79D36F2899016B31D8ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707751   (113284) от 17.03.2024
-
-Я – капитан / Io capitano (2023) WEBRip [H.264] [UKR звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два подростка из Сенегала решают сбежать из дома и отправиться в Европу за лучшей жизнью. Однако путь к мечте лежит через суровую пустыню и недружелюбное море, где им придется столкнуться не только с полицией, но и с охотниками за рабами. Им может помочь только чудо.Производство: Италия, Бельгия, Франция / Archimede, Rai Cinema, TarantulaЖанр: драмаРежиссер: Маттео ГарронеАктеры: Сейду Сарр, Мустафа Фолл, Исака Савадого, Ишем Якуби, Дуду Санья, Ндейе Кади Си, Венус Гуай, Умар Диау, Джо Лассана, Мамаду СаниПеревод: Профессиональный многоголосый (укр. звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 02:01:30Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
 ```
 
 

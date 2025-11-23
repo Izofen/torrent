@@ -1,3 +1,99 @@
+###  Публикация: 1667617   (175764) от 09.10.2023
+
+Icecream Screen Recorder PRO 7.30 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805DA26C6D3B2C1F355427C5850D8BA38CF8ACF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429779   (175768) от 07.12.2020
+
+GOM Player Plus 2.3.59.5323 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_175768.jpg" />
+</div>
+
+
+###  Подробнее
+
+GOM Player Plus - мультимедийный плеер со множеством функций, обеспечивающих высокий уровень воспроизведения. С GOM Player Вы сможете воспроизводить даже повреждённые или не до конца загруженные / переписанные файлы. GOM Player поддерживает все современные видео и аудио форматы, включая видео мобильных устройств и цифровых камер, а также воспроизведение интернет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6568D6AADA1A39141F7DAA027D86D76B882858C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667743   (175774) от 09.10.2023
+
+Topaz Photo AI 2.0.5 (x64) Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E86FCC6240A9457E6A3C1938F7584A39AA47BA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667849   (175782) от 09.10.2023
+
+Wondershare UniConverter 15.0.2.12 (х64) Repack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1210FE3BFB5AD1862626BF0689D08B3FB5E9F190
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429876   (175784) от 07.12.2020
 
 doPDF 10.9.133 Free [Multi/Ru]
@@ -6,7 +102,7 @@ doPDF 10.9.133 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175784.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175784.jpg" />
 </div>
 
 
@@ -31,7 +127,7 @@ DNS Changer 2.1.9 Pre-Release + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175798.jpg" />
 </div>
 
 
@@ -55,7 +151,7 @@ Whale Browser (NAVER Whale) 3.22.205.18 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175800.jpg" />
 </div>
 
 
@@ -79,7 +175,7 @@ Kaspersky Virus Removal Tool 15.0.24.0 (06.12.2020) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175801.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175801.jpg" />
 </div>
 
 
@@ -103,7 +199,7 @@ PDF-XChange PRO 9.5.365.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175802.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175802.jpg" />
 </div>
 
 
@@ -127,7 +223,7 @@ PhotoLine 22.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175808.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175808.jpg" />
 </div>
 
 
@@ -152,7 +248,7 @@ Mozilla Thunderbird 115.3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175813.jpg" />
 </div>
 
 
@@ -176,7 +272,7 @@ Insofta Cover Commander 7.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175822.jpg" />
 </div>
 
 
@@ -200,7 +296,7 @@ Advanced SystemCare Pro 16.1.0.106 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175840.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175840.jpg" />
 </div>
 
 
@@ -224,7 +320,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175857.jpg" />
 </div>
 
 
@@ -248,7 +344,7 @@ RadioMaximus 2.32.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175860.jpg" />
 </div>
 
 
@@ -272,7 +368,7 @@ Glary Utilities Pro 5.156.0.182 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175861.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175861.jpg" />
 </div>
 
 
@@ -296,7 +392,7 @@ FontLab 7 v7.2.0.7644 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175864.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175864.jpg" />
 </div>
 
 
@@ -322,7 +418,7 @@ System Ninja Pro 4.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175865.jpg" />
 </div>
 
 
@@ -346,7 +442,7 @@ magnet:?xt=urn:btih:0BFC32CE2FD3680DEAD5473FE21E487448355D4F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175873.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175873.jpg" />
 </div>
 
 
@@ -370,7 +466,7 @@ Revo Uninstaller Pro 5.2.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175874.jpg" />
 </div>
 
 
@@ -394,7 +490,7 @@ Revo Uninstaller Pro 5.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175877.jpg" />
 </div>
 
 
@@ -418,7 +514,7 @@ Light Image Resizer 6.1.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175884.jpg" />
 </div>
 
 
@@ -442,7 +538,7 @@ Dashcam Viewer 3.6.1 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175890.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175890.jpg" />
 </div>
 
 
@@ -467,7 +563,7 @@ VLC for Android 3.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175893.jpg" />
 </div>
 
 
@@ -492,7 +588,7 @@ Extreme Picture Finder 3.65.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175897.jpg" />
 </div>
 
 
@@ -516,7 +612,7 @@ Ungoogled Chromium 117.0.5938.150-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175900.jpg" />
 </div>
 
 
@@ -527,104 +623,6 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E4CED4EB7928B2839F13B8D3EEA1439C63809FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667816   (175906) от 09.10.2023
-
-HDCleaner 2.059 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175906.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows. Данный набор эффективных средств для очистки ПК и создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой программы. Очищаете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5865EAB3BDDCC494072C732507B7DBC78B9504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667797   (175910) от 09.10.2023
-
-HomeBank 5.7.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175910.jpg" />
-</div>
-
-
-###  Подробнее
-
-HomeBank - это инструмент, который был разработан с целью помочь управлять домашним бюджетом, чтобы быть в курсе ваших месячных и годовых расходов.
-Пользуясь различными, очень простыми функциями, вы можете вносить все свои доходы и расходы, которые вы можете представить в виде различных графиков.
-HomeBank можно настраивать полностью под себя, чтобы отслеживать приход (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D39A21787AB83EBC805556E4E289960E6FB5EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667850   (175928) от 09.10.2023
-
-Polarr v6.8.10 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя миллионы фильтров Polarr, созданных создателями Polarr по всему миру, или создавайте собственные фильтры и делитесь ими с друзьями. Фильтры Polarr — это гораздо больше, чем ваши обычные фильтры. В дополнение к редактированию цветов вы можете включать свои собственные наложения, корректировать лица или изменять определенные объекты с помощью ИИ в (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 08.10.2023Разработчик: PolarrПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C129EFF6CE729A500CC031D83F00398F691EC3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595119   (175941) от 04.12.2022
-
-CPUID HWMonitor Pro 1.49 (x64) Portable by zeka.k [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175941.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPUID HWMonitor - утилита предназначена для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. показателей накопителей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69D383DC6DF79B011729D1BC80EE54882F2872A
 ```
 
 

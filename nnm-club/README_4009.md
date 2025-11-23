@@ -1,3 +1,78 @@
+###  Публикация: 1690561   (123916) от 07.01.2024
+
+Ги де Мопассан | Парижское приключение (2017) [MP3, Александр Бордуков, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена (Французская литература).
+Классическая художественная литература Франции богата и красочна. Она широко охватывает французскую социальную жизнь, историю, быт, нравы и психологию человека различных общественных слоев, придвигая к нашему взору бедность и богатство, роскошь и убожество, город и деревню. Она с любовью рисует лик всего (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказ, новеллаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 07:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC499A8077A0902841AD188FBA01570DAE3D7151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690482   (123917) от 07.01.2024
+
+Ги де Мопассан | Милый друг (2003) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века.
+«Милый друг» – роман-памфлет, показывающий неприглядную кухню политики и журналистики в Третьей Республике. И это роман об «антилюбви», ибо его герой Жорж Дюруа, наглый и ловкий делец, строит свою карьеру почти исключительно на расчетливых (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 14:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F91D864525DF78322E5F6B7658156511798B53F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690557   (123918) от 07.01.2024
+
+Чадра (1927) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123918.jpg" />
+</div>
+
+
+###  Подробнее
+
+О раскрепощении узбекской женщины. Фильм призывает мусульманок сбрасывать паранджу, учиться в школе и приносить пользу обществу.Производство: СССР, УзбекгоскиноЖанр: социальная драма, история, немое киноРежиссер: Михаил АвербахАктеры: Сафият Аскарова, Саиб Ходжаев, Григол Чечелашвили, Е. Павлова, Макангали Абдуллаев, Рахим ПирмухамедовСубтитры: русские (интертитры)Продолжительность: 01:12:31 (00:55:10)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0883F7020EA883ECDDD84443B1CC1F63093698B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690433   (123919) от 07.01.2024
 
 Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
@@ -6,7 +81,7 @@ Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123919.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123920.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:D1DB98018F23107A1F92685D41B955AF599C758D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123921.jpg" />
 </div>
 
 
@@ -86,7 +161,7 @@ magnet:?xt=urn:btih:EB76D2691A0B3518AFF6AF1E44A29583B23BA7F8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123922.jpg" />
 </div>
 
 
@@ -112,7 +187,7 @@ Orphaned Land - A Heaven You May Create (30th Anniversary / Live In Tel-Aviv) (2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123923.jpg" />
 </div>
 
 
@@ -139,7 +214,7 @@ Numenor - Sword and Sorcery (2015) Ressued-2016 [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123924.jpg" />
 </div>
 
 
@@ -166,7 +241,7 @@ magnet:?xt=urn:btih:04ECA740019E0B4D1A2F43CE1492337AF4A70EAA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123925.jpg" />
 </div>
 
 
@@ -190,7 +265,7 @@ magnet:?xt=urn:btih:9D23348D5A6186D1F3328A93BE3B1BEC9EEB2746
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123926.jpg" />
 </div>
 
 
@@ -214,7 +289,7 @@ MasterPeace - The Dylan Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123927.jpg" />
 </div>
 
 
@@ -241,7 +316,7 @@ magnet:?xt=urn:btih:7F51C4A4A0160053FA62386409EF24DD45733C55
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123928.jpg" />
 </div>
 
 
@@ -265,7 +340,7 @@ magnet:?xt=urn:btih:6A35C3058DC39B5AE731EB40A72BCB7CD52BFE61
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123929.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ magnet:?xt=urn:btih:ABE3FFB4961BF82FDF842A94360D1B4D0A6E9AE8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123930.jpg" />
 </div>
 
 
@@ -316,7 +391,7 @@ magnet:?xt=urn:btih:F37400AB3EC10B511B7D78407298BAA363B5CBCA
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123931.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ Subtitle Edit 4.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123932.jpg" />
 </div>
 
 
@@ -364,7 +439,7 @@ Opera One 106.0.4998.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123933.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ Cabballero - The Elements (1995) [FLAC|Lossless|image + .cue] <Trance, Eurodance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123934.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ magnet:?xt=urn:btih:BB82E9C94C3891DF98F287C69F224FD590995107
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123935.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ Telegram Desktop 4.14.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123936.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ magnet:?xt=urn:btih:6C7F461C242607B74B34FD52590A6FBACD068DCD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123937.jpg" />
 </div>
 
 
@@ -489,7 +564,7 @@ Unsolved Case 5: Killer Popularity (2024) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123938.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123939.jpg" />
 </div>
 
 
@@ -537,7 +612,7 @@ magnet:?xt=urn:btih:B27BEE6C4C83607339C41F17E8F746434941E1EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123940.jpg" />
 </div>
 
 
@@ -561,7 +636,7 @@ Opera One 106.0.4998.28 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123941.jpg" />
 </div>
 
 
@@ -572,81 +647,6 @@ Opera One 106.0.4998.28 Portable by Cento8 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:157AE628A7C74E8A0503CB2A7035606D482D00F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690370   (123942) от 07.01.2024
-
-Atomic Freak - Nuclear Meltdown (2024) [MP3|320 Kbps] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shakin'_Shaken [00:03:20]
-02 - Light the Fuse [00:03:27]
-03 - Atomic [00:03:27]
-04 - When It All Goes Down [00:03:23](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8D10B67151EA424CA417A2A7BCB6D422AC1653
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690441   (123943) от 07.01.2024
-
-Журнал | Юный ученый №1 (75) (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Юный ученый" публикует научные статьи, написанные школьниками под руководством учителей. Тематический рубрикатор журнала построен на основе новых федеральных стандартов и включает в себя все обязательные предметные области и учебные предметы, в рамках которых школьники занимаются научной деятельностью.Жанр: Международный научный журналИздательство: ООО «Издательство Молодой ученый»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EBE86B2A4B9EB30718A15D232C3B05B16FE0A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690469   (123944) от 07.01.2024
-
-Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Фауст борется с монстрами вот уже 400 лет. Но он стар и немощен. Он посвящает свою магию мальчику по имени Акума-кун. Акума-кун вызывает волшебника Мефиста для истребления монстров.Производство: Студия Toei Animation / 東映アニメーションЖанр: приключения, фэнтезиРежиссер: Сато ДзюнъитиПеревод: hokuto_sanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7577AE1BB262C84C61676598EAF7C36267D1F014
 ```
 
 

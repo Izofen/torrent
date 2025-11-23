@@ -1,3 +1,78 @@
+###  Публикация: 1691469   (123266) от 12.01.2024
+
+Филип Дик | Человек (2023) [MP3, Олег Булдаков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лестер Херрик отправился на древнюю планету Рексор-4, чтобы сделать фотографии местности, и когда он вернулся домой через несколько недель, он уже не был тем человеком, который улетел....Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F644E84BF61DB0357D57098CB52A60F269A6E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691534   (123267) от 12.01.2024
+
+ExamDiff Pro Master Edition 14.0.1.20 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123267.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CAE57496659A76E1C9033579445C6F8D88EBB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691465   (123268) от 12.01.2024
+
+VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SpaceSynth.Ru - Intro (1:20)
+02. Metatron & TDHDriver - Call of Destiny (5:44)
+03. Laserlight - On The Waves Of Memory (6:24)
+04. Cosmic Roulette - Drone Invasion (5:15)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0629E01E61F7AF1C0A9D71CF9288E77ADD3C08AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691501   (123269) от 12.01.2024
 
 Opera Crypto Browser 106.0.4998.41 + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ Opera Crypto Browser 106.0.4998.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123269.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Opera GX 106.0.4998.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123270.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Stone System - The old man within (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123271.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:D13FBCB191A173480ACE9F2AD7DB4392AE9BAB0C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123272.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Fort Firewall 3.10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123273.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Vivaldi 6.5.3206.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123274.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ Chromium 120.0.6099.217 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123275.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ Schwarz & Funk - Diamonds of Lounge, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123276.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ HWiNFO 7.69 Build 5330 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123277.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ Graveworm - Studio Albums (10 releases) (1997-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123278.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy 560 (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123279.jpg" />
 </div>
 
 
@@ -284,7 +359,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123280.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ Blank & Jones - #WhatWeDoAtNight 4 EP 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123281.jpg" />
 </div>
 
 
@@ -337,7 +412,7 @@ Icecream Slideshow Maker PRO 5.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123282.jpg" />
 </div>
 
 
@@ -361,7 +436,7 @@ magnet:?xt=urn:btih:0BC6CFCC784EBD87BC78D8E3D15CDFEB8D332946
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123283.jpg" />
 </div>
 
 
@@ -386,7 +461,7 @@ magnet:?xt=urn:btih:6E6B069314DD949E2A422093CDA1639B8F50BBDD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123284.jpg" />
 </div>
 
 
@@ -410,7 +485,7 @@ magnet:?xt=urn:btih:AD09B9F08C4A4E0D71B92E98762A6327409D4FE8
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123285.jpg" />
 </div>
 
 
@@ -435,7 +510,7 @@ magnet:?xt=urn:btih:659E2EE534A36B1AB1691856D0E89B2766C585A5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123286.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ IceCream Ebook Reader Pro 6.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123287.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ magnet:?xt=urn:btih:8CEFAD59D5236F2ADD6852C0C115FFD5BB27646F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123288.jpg" />
 </div>
 
 
@@ -509,7 +584,7 @@ Opera One 106.0.4998.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123289.jpg" />
 </div>
 
 
@@ -533,7 +608,7 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123290.jpg" />
 </div>
 
 
@@ -557,7 +632,7 @@ Icecream Photo Editor Pro 1.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123291.jpg" />
 </div>
 
 
@@ -568,84 +643,6 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F525F6D39169CC4B9F12CBE562420D7458920638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690823   (123292) от 12.01.2024
-
-Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123292.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. An Ordinary Dream (Enla Momento)
-B1. To Love, A Tyrant
-B2. Her Halo
-C1. Out Of Subconscious(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B48CB57E962B8C02D52953822EB377A5348279
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691459   (123293) от 12.01.2024
-
-VA - Music News vol.330 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harlow - Fame (02:38)
- 002. 71 Digits - Down Under (02:30)
- 003. 613 feat. Даарика - Chapman c Вишней (02:50)
- 004. AgroPlay feat. Ana Castela - Vida Loka (Ao Vivo) (02:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5F6C768DC47F2CAAD69F7D4F1C3D79F233497E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691402   (123294) от 12.01.2024
-
-Тени забытых предков / Тіні забутих предків (1964) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам одноимённой повести Михаила Коцюбинского... Десятки лет враждовали два гуцульских рода Палийчуки и Гутенюки. Но случилось так, что Иван Палийчук полюбил красавицу из вражеского рода Маричку, дочь убийцы своего отца, которой суждено было прожить короткую, но счастливую жизнь. Не мог без неё быть счастливым Иванко. Но жил дальше. Женился. Был любимым. (   Читать дальше...   )Производство: СССР / Киностудия им. А. ДовженкоЖанр: драма, мелодрамаРежиссер: Сергей ПараджановПеревод: профессиональный двухголосыйЯзык озвучки: русский, украинскийСубтитры: русские (SDH-colored (1 канал), RUSCICO), украинские, английскиеПродолжительность: 01:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC15D02715FF2A162D6FF1712755F447999A4995
 ```
 
 

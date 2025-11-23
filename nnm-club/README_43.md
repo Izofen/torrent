@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1155.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B8A946D532B5252D9D292E8C233520B5DC65E869
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1156.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0BFD31E18FEB1E5F0ED34E84104082733F6A6B59
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1157.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Material Pods: батарея AirPods v6.68 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1158.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:632EA445FA729B6C930CEE2E9BF05E9FE94D2D9F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1159.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:59646534F7A2FCFE0F2D8D700AA243B71E297102
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1160.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Native Instruments - Kontakt 8.7.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1161.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Reveal Sound - Spire 1.5.19 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1162.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1163.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D8D34D6CCBACC5131F4A8C9ACC52A91CAF2E4EDB
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1164.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:52C2ABB3EE2599077B2FDEB67B4873AFE31C645D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1165.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Imagine 2.2.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1166.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Chromium 140.0.7339.208 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1167.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:5B654C656266AB3DA455F7212FC5E6694D32B2EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1168.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:17ADC0286CFCEAA338550DDA02B952D3B74470E8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1169.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Elect
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1170.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1171.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Vivaldi 7.6.3797.56 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1172.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ My TTS: Text-to-Speech v1.5.4 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1173.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:5E43B420D86F8292936882EBC351AFD2BD18897D
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1174.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:82B4B5FDB30C6DAEAA18B1CA4127C41A78DF9D1B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1175.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:D4FEB9F7B9FFB3DA57506AA138DE77525AF03A72
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1176.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Serif Affinity Designer 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1177.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:5CAA9A12075C94645CE5ADA24DC1DDA4FDAB2CE0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1178.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Serif Affinity Photo 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1179.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:EFFB264273ECB5C1751EC38E45E2A1825149EB53
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1180.jpg" />
 </div>
 
 

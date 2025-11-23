@@ -1,3 +1,174 @@
+###  Публикация: 1601240   (152664) от 30.12.2022
+
+Aiseesoft Mac Video Converter Ultimate 10.3.38 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06704832ECE215103D455046FDE9022BC5F1A85F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086321   (152666) от 24.12.2016
+
+Chris Isaak - Christmas (2004) Target Exclusive Limited Edition [FLAC|Lossless|tracks + .cue] <Christmas, Pop Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rudolph The Red-Nosed Reindeer (2:12)
+02. Have Yourself A Merry Little Christmas (3:10)
+03. Santa Claus Is Coming To Town (feat. Stevie Nicks) (2:30)
+04. Washington Square (3:22)(   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock, Blues Rock, Rock & Roll, Rockabilly, College Rock, Ballad, Holiday, ChristmasПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8299BFD59823390A300A2892C1CDEFA9341F8552
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347024   (152668) от 22.12.2019
+
+Ведьмак / The Witcher (2019) WEBRip [H.265/1080p-LQ] [HDR, 10-bit] (сезон 1, серии 1-8 из 8) Пифагор
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведьмак Геральт, мутант и убийца чудовищ, изо всех сил старается найти свое место в мире, где люди часто оказываются намного хуже монстров.Производство: Польша, США, NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: фэнтези, боевик, драма, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Аллан, Джои Бэти, МайАнна Бёринг, Том Кэнтон, Аня Чалотра, Имон Фэррен, Бьерн Хлинур Харальдссон, Адам Леви, Джоди Мэй и др.Перевод: Дублированный (Пифагор)Субтитры: Русские (форс., полные), английские (SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760985FE14533A110D03F4C2D19ECFD6D2355FC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518582   (152669) от 21.12.2021
+
+Дети с Таймс-сквер / The Children of Times Square (1986) WEB-DLRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбежав из дома от своего чёрствого и равнодушного отчима, тинейджер Эрик оказывается на манхэттенской площади Таймс-сквер. Здесь он встречает наркоторговца, и тот сводит его с шайкой малолетних правонарушителей, лидер которых начинает обещать Эрику беззаботную жизнь.Производство: США,Fries Entertainment, Gross-Weston ProductionsЖанр: драма, криминалРежиссер: Кёртис ХэнсонАктеры: Ховард Э. Роллинз мл., Джоанна Кэссиди, Дэвид Экройд, Лэрри Б. Скотт, Джейсон Бернард, Дэнни Нуччи, Сильвана Галлардо, Брэндон Дуглас, Гриффин О’Нил, Деворо УайтПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F6B57855DA9CDB4DCC21E02AA0DA7BAD8EB805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194405   (152670) от 26.12.2017
+
+Marlin | Laravel как инструмент:  на примере создания блога (2017) PCRec [H.264/720p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существуют десятки однотипных курсов как создать простой блог на Laravel, или на любом другом фреймворке. Но автор данного курса обещает показать вам не просто разработку самого блога, а общие подходы, которые нужно учесть перед началом разработки любых других проектов, в реальных ситуациях, на должности разработчика. Этот опыт планирования, решения возможных будущих (   Читать дальше...   )Жанр: Программирование, PHP, LaravelПродолжительность: 06:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A83022087FE39347C82C97EBC9ADF9B4B71E8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434106   (152671) от 23.12.2020
+
+Windows Repair Toolbox 3.0.2.6 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита может провести диагностику и решить сразу несколько проблем Windows. Для обслуживания операционной системы, авторы данного программного обеспечения сделали возможным использование приложений от сторонних разработчиков подобного ПО. Все средства, предлагаемые в данной утилите значительно упростят работу при диагностике, создании резервных копий, управления (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD4F35F5055E4977E1A44629FF7E5A3F1287139
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677228   (152672) от 16.11.2023
+
+Nitro Pro 14.17.2.29 Enterprise RePack by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nitro Pro – программа, которая является альтернативой Adobe Acrobat. При помощи этого решения можно создавать файлы PDF, преобразовывать PDF в файлы Word и RTF, редактировать содержимое документов. Nitro Pro предлагает средства для добавления комментариев, которые могут просматривать в том числе и пользователи Adobe Acrobat и Reader. Программа также содержит средства (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF2D4B029AE5D38C57777C687262CA688581510
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271190   (152673) от 22.12.2018
 
 Marion Montgomery & Mart Rodger Manchester Jazz - Makin' Whoopee (1993) Bowstone Records [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
@@ -6,7 +177,7 @@ Marion Montgomery & Mart Rodger Manchester Jazz - Makin' Whoopee (1993) Bowstone
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152673.jpg" />
 </div>
 
 
@@ -33,7 +204,7 @@ NetWorker Pro 8.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152676.jpg" />
 </div>
 
 
@@ -57,7 +228,7 @@ Winter Wallpapers (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152677.jpg" />
 </div>
 
 
@@ -81,7 +252,7 @@ Linux Mint 19.3 Tricia (XFCE, Mate, Cinnamon) [32bit, 64bit] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152679.jpg" />
 </div>
 
 
@@ -105,7 +276,7 @@ CoolUtils Total Audio Converter 6.1.0.257 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152680.jpg" />
 </div>
 
 
@@ -129,7 +300,7 @@ magnet:?xt=urn:btih:EDB87915BE8CBAF2F0CA301C07B4D84F695D1293
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152681.jpg" />
 </div>
 
 
@@ -153,7 +324,7 @@ magnet:?xt=urn:btih:D644D055718BA099418828B5FDA6093526A1FEED
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152682.jpg" />
 </div>
 
 
@@ -178,7 +349,7 @@ Intel® Processor Identification Utility 5.40 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152683.jpg" />
 </div>
 
 
@@ -203,7 +374,7 @@ magnet:?xt=urn:btih:94FF96C18F9C69CCE1A2FDC689335C4AF1BB6153
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152684.jpg" />
 </div>
 
 
@@ -227,7 +398,7 @@ Windows Firewall Control 6.9.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152685.jpg" />
 </div>
 
 
@@ -251,7 +422,7 @@ magnet:?xt=urn:btih:5BA05BF5BFDE12942B926454FC3AA5FE0583E2D3
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152686.jpg" />
 </div>
 
 
@@ -275,7 +446,7 @@ Halloween Stories 7: Written in Blood / Хеллоуинские истории 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152687.jpg" />
 </div>
 
 
@@ -299,7 +470,7 @@ VA - RTL Weihnachten (2014) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152689.jpg" />
 </div>
 
 
@@ -326,7 +497,7 @@ Life Is Strange: Complete Season (2015) [Ru/Multi] (1.0.0.397609) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152690.jpg" />
 </div>
 
 
@@ -350,7 +521,7 @@ magnet:?xt=urn:btih:B94773A71926215CFA6ED1A47E6AF5D3A88E0665
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152693.jpg" />
 </div>
 
 
@@ -374,7 +545,7 @@ magnet:?xt=urn:btih:98B835B51D7628E6F8715CD4D24314E803A73AEC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152695.jpg" />
 </div>
 
 
@@ -400,7 +571,7 @@ magnet:?xt=urn:btih:7E3F2DF8F11A49B4ED0961387A118E3628E83645
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152696.jpg" />
 </div>
 
 
@@ -424,7 +595,7 @@ magnet:?xt=urn:btih:596186A32EBA38DCA4CDD122B8AC195C92427371
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152697.jpg" />
 </div>
 
 
@@ -448,7 +619,7 @@ magnet:?xt=urn:btih:66D07CDB94D2A1CD9DA1D5098F9849CE261B2B78
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152699.jpg" />
 </div>
 
 
@@ -459,186 +630,6 @@ magnet:?xt=urn:btih:66D07CDB94D2A1CD9DA1D5098F9849CE261B2B78
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E478443BE006E0069C0A74827AADB430C0458C3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194592   (152700) от 26.12.2017
-
-Варкрафт / Warcraft (2016) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веками магия и неприступные стены защищали людей от любых напастей. Но древнее зло, побежденное и забытое тысячелетия назад, пробудилось.
-В самом сердце королевства открылся темный портал, и раса невиданных существ наводнила земли Азерота. Так начались события, призванные навсегда изменить судьбу этого мира.Производство: США, Китай, Канада, Япония / Atlas Entertainment, Universal Pictures, Legendary PicturesЖанр: фэнтези, боевик, приключенияРежиссер: Дункан ДжонсАктеры: Трэвис Фиммел, Пола Пэттон, Бен Фостер, Доминик Купер, Тоби Кеббелл, Бен Шнетцер, Роберт Казински, Клэнси Браун, Дэниэл Ву, Рут НеггаПеревод: Дублированный, Профессиональный (многоголосый, закадровый) (Focus Studio), Авторский (одноголосый, закадровый) (А.Гаврилов, Ю.Живов, А.Дасевич tnx Neo_S, Д.Есарев)Субтитры: Английские, Русские (Full-length: BD EUR, Focus Studio, MBB, Nunegsdli; Forced), Украинские (Full-length, Forced)Продолжительность: 02:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4415ADFA93D365A1E21E05987188B3FAD1105050
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968642   (152701) от 24.12.2015
-
-Проекты - Pond5 - Christmas Greetings Template - 58120352 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания новогоднего превью к Вашему фильму.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF90DB52ED05118B5A8EB7E35F612CA35FE96DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601136   (152703) от 30.12.2022
-
-System Toolkit 5.9.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152703.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80592CEDA10FAE567C2A5DF1C7ED92E70D09B2FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589344   (152704) от 14.12.2012
-
-А.П.И. Тупые Предметы - 2 альбома + 1 EP (2010-2012) [MP3|320 kbps] <Punk / Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Punk / Funk |Продолжительность: 00:51:08
-
-01 | Новой Музыки | 03:35
-02 | Ксюшин Дневник | 03:33
-03 | Мы | 04:04
-04 | Меня Здесь Нет | 03:54
-05 | Воздушным Змеем | 03:49
-06 | Sex,Drugs & Rock`n`Roll | 03:24
-07 | Алкоголь | 03:51
-08 | Как Медленно | 04:59(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C70C457566F511A957C4AD12060B8501C50FAF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276677   (152705) от 22.12.2019
-
-Подшивка журналов | Экспресс-информация по зарубежной электронной технике (2019) [PDF]
-
->>След.
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152705.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Экспресс-информация по зарубежной электронной технике» - журнал содержит оперативную информацию о последних достижениях и новых направлениях развития электроники за рубежом, а также характеристики новейших изделий электронной техники с указанием цен на них и фирм-изготовителей. Рассматриваются экономические аспекты разработки и производства изделий электронной техники, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A561CEF83124E2908BF57DDCD31A5D47DF3C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677016   (152706) от 16.11.2023
-
-ASCOMP Synchredible Pro 8.105 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Synchredible - синхронизирует, копирует и сохраняет для вас отдельный файл или целый диск.
-Синхронизируйте ваши папки и диски в быстрый и простой способ. Мастер программного обеспечения поможет вам определить задания, которые запланированы заранее или выполняются через USB-соединение. Таким образом, вы можете синхронизировать свои файлы - автоматически!Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC62166059305F69CA4D98C1276F7556117E4FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130823   (152708) от 26.12.2017
-
-Подшивка журналов | Радиоконструктор (2017) [PDF,DJVU]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для радиолюбителей и профессионалов, рассматривающий вопросы радиолюбительского конструирования и ремонта электронной техники.Основные направления публикаций: аудио, видео, радиоприем, радиосвязь, измерения, охранные устройства, бытовая электроника, ремонт, автомобильная электроника, зарубежная электроника, справочники.Жанр: ЭлектроникаФормат: PDF,DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97470448F700F330F523FAD6FBAF7C2C05429599
 ```
 
 

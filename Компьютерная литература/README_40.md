@@ -1,3 +1,126 @@
+###  Публикация: 1630349   (237082) от 30.04.2023
+
+Шигео Хиросэ | Бионические роботы: змееподобные мобильные роботы и манипуляторы (2019) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живые организмы часто демонстрируют удивительные способности, которые вдохновляют людей на поиск новых инженерных решений старых проблем. Книга известного профессора Шигео Хиросэ из Токийского технологического института стала классической в области робототехники, но при этом не потеряла своей актуальности и значимости. В ней представлены исследования, посвященные (   Читать дальше...   )Жанр: РобототехникаПеревод: Ю.В. КолесниченкоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08945F73C5C4164B783340CDCE168B6877DAD809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548941   (237538) от 04.05.2022
+
+Мод Лемер | Масштабируемый рефакторинг. Возвращаем контроль над кодом (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поддерживать большие приложения сложно, а поддержка больших «неорганизованных» приложений превращается в непосильную задачу. Пришло время сделать паузу и задуматься о рефакторинге! Внесение значительных изменений в крупную и сложную кодовую базу — нетривиальная задача, которую практически невозможно успешно выполнить без рабочей команды, инструментов и планирования. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F396D1832B28BABBAE067B708A285250CB034BB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548693   (237666) от 03.05.2022
+
+Алан Купер и др.  | Интерфейс. Основы проектирования взаимодействия, 4-е издание (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проектирование взаимодействия - это ориентированный на человека подход проектирования интерактивных цифровых продуктов, сред, систем и сервисов. Много внимания уделено проектированию поведения - аспекту, которым традиционные дисциплины проектирования нередко пренебрегают.
+
+В этой книге во главу угла ставится целеориентированный подход, при котором основное внимание (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8783645C4370D70142F9CBE602B7548E554D9767
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548473   (237970) от 02.05.2022
+
+Р. Монарх | Машинное обучение с участием человека (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения машинного обучения демонстрируют лучшую эффективность при наличии обратной связи с человеком. Привлечение к работе подходящих сотрудников повышает точность моделей, уменьшает количество ошибок в данных, сокращает расходы и помогает ускорить выпуск моделей.
+В книге изложены методики эффективной совместной работы людей и машин. Здесь вы найдете лучшие практики (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6267A9BD4D395F408DF7E367D8CACA9F7F40F4B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547430   (238646) от 28.04.2022
+
+Анатолий Постолит | Разработка кроссплатформенных мобильных и настольных приложений на Python (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена вопросам использования интерпретатора Python, фрейморка Kivy и библиотеки KivyMD для создания приложений, которые способны работать на любом устройстве (настольный компьютер, планшет, смартфон, мини-компьютер) и в любой операционной системе (Windows, Linux, MacOS, Android, iOS). Эти приложения адаптированы к работе на устройствах с сенсорным экраном, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16509B67949A1903B0F13B3ABC3697979C444FF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572546   (238869) от 27.08.2022
 
 Роберт Зубек | Элементы гейм-дизайна. Как создавать игры, от которых невозможно оторваться (2022) [FB2]
@@ -6,7 +129,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238869.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238869.jpg" />
 </div>
 
 
@@ -30,7 +153,7 @@ magnet:?xt=urn:btih:A551A65EF98EBDBDC0590EFA87CA2BB39D0F0088
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239502.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239502.jpg" />
 </div>
 
 
@@ -57,7 +180,7 @@ magnet:?xt=urn:btih:6922A7855ED0396B5C80A961120C7C5B04E9D039
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239516.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239516.jpg" />
 </div>
 
 
@@ -82,7 +205,7 @@ Mark J. Price | Apps and Services with .NET 7: Build practical projects with Bla
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239568.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239568.jpg" />
 </div>
 
 
@@ -106,7 +229,7 @@ Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240016.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240016.jpg" />
 </div>
 
 
@@ -130,7 +253,7 @@ magnet:?xt=urn:btih:C593E2EFE2F46B1DB9FD5CFEE5EB1B8AF19D21AC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240364.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240364.jpg" />
 </div>
 
 
@@ -156,7 +279,7 @@ magnet:?xt=urn:btih:8DFB056ECE9FA6AE748F58A52BF89F9726AB69B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240457.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240457.jpg" />
 </div>
 
 
@@ -182,7 +305,7 @@ magnet:?xt=urn:btih:98B749BC7AA592EF639502570E63C262D8B8104E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240800.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240800.jpg" />
 </div>
 
 
@@ -206,7 +329,7 @@ magnet:?xt=urn:btih:D20633EAB9C7216EC8FBEAE7BFCA3C317F224617
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240909.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240909.jpg" />
 </div>
 
 
@@ -231,7 +354,7 @@ magnet:?xt=urn:btih:E650D22971D86FC33B620D6B9573C2999BF3DDF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241590.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241590.jpg" />
 </div>
 
 
@@ -255,7 +378,7 @@ Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Sc
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241850.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241850.jpg" />
 </div>
 
 
@@ -279,7 +402,7 @@ Venkata Keerti Kotaru | Building Offline Applications with Angular (2022) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241958.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241958.jpg" />
 </div>
 
 
@@ -303,7 +426,7 @@ magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241969.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241969.jpg" />
 </div>
 
 
@@ -327,7 +450,7 @@ magnet:?xt=urn:btih:0941186CED970CD685676DC10488DEC84C4F7863
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242053.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242053.jpg" />
 </div>
 
 
@@ -351,7 +474,7 @@ magnet:?xt=urn:btih:351C8B41929C0CC3014ED929597F34114340FF8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242830.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242830.jpg" />
 </div>
 
 
@@ -376,7 +499,7 @@ Nabendu Biswas | Beginning React and Firebase (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242909.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242909.jpg" />
 </div>
 
 
@@ -400,7 +523,7 @@ magnet:?xt=urn:btih:313B09DC5D2CB7282307E1B0BC340FE96658B6DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243463.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243463.jpg" />
 </div>
 
 
@@ -424,7 +547,7 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243681.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243681.jpg" />
 </div>
 
 
@@ -448,7 +571,7 @@ Manfred Moser | Trino: The Definitive Guide. 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_243683.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_243683.jpg" />
 </div>
 
 
@@ -472,7 +595,7 @@ magnet:?xt=urn:btih:A6E968376933A3026C823A8ECE64589D13B19CDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243918.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243918.jpg" />
 </div>
 
 
@@ -496,7 +619,7 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244242.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244242.jpg" />
 </div>
 
 
@@ -507,128 +630,6 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:674CF7DFEAD1515B3CA0254C798806D590B16E83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621506   (244574) от 25.03.2023
-
-Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Volume 2: Rendering [2] (2016, 2019) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244574.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первом томе «Основ разработки игровых движков» обсуждается математика, необходимая инженерам, работающим над играми или другими типами виртуальных симуляций. Книга начинается с традиционных трактовок таких тем, как линейная алгебра, преобразования и геометрия. Затем он вводит алгебру Грассмана и геометрическую алгебру, чтобы обеспечить гораздо более глубокое понимание (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C461C10D1B5F5CC225D39289ACA30C7E3B6C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621261   (244862) от 24.03.2023
-
-Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свою собственную криптовалюту, реализовав технологию блокчейн с помощью Java. Это пошаговое руководство научит вас, как создать пользовательский интерфейс с помощью Java FX и реализовать SQLite DB с помощью JDBC Driver для блокчейна.
-
-Эта книга включает многочисленные упражнения и тестовые вопросы, которые помогут вам закрепить полученные знания по мере (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F1DCF16EBC7850FC5FAB7CFEA25B2A7364FC15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621549   (245052) от 25.03.2023
-
-В.П. Дьяконов | Mathematica 5.1/5.2/6 в математических и научно-технических расчетах (2017) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245052.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии впервые описано применение трех последних версий системы Mathematica 5.1, 5.2 и 6.0 — мирового лидера среди универсальных систем компьютерной математики. Особое внимание уделено описанию возможностей новейшей системы Mathematica 6.0, в ядро которой добавлено около тысячи новых функций. Впервые описаны средства динамической оценки переменных, расширенной (   Читать дальше...   )Жанр: Компьютерная литература, математикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFFF6BC49BF431E46003BE155707DB3152CAA9F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540360   (245303) от 30.03.2022
-
-21 Draw | Illustrator's Guidebook - Volume 2 (2021) [PDF] [EN]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша ПОСЛЕДНЯЯ учебная книга по рисованию проведет вас от новичка до профессионала с НОВЫМ потрясающим набором тем, включая дизайн персонажей, анатомию и многое другое! С уроками легенд индустрии, которые работали в Disney, Marvel, DC, Dreamworks, Pixar и многих других. Эта книга является продолжением нашего чрезвычайно успешного руководства иллюстратора, которое (   Читать дальше...   )Жанр: РисованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386B9DBE6722DBFBCB8E5A863E443B759A4A86B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621296   (245405) от 24.03.2023
-
-Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Game Coding Complete, Fourth Edition, новейшее издание важного практического руководства по разработке игр коммерческого качества. В книге, написанной двумя опытными программистами игр, рассматривается весь процесс разработки игры и все уникальные проблемы, связанные с ее созданием. В этом превосходном введении в игровую архитектуру вы изучите (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
 ```
 
 

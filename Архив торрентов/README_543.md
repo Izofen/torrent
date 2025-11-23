@@ -6,7 +6,7 @@ Chromium 121.0.6167.161 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118453.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PicPick Free+Pro 7.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118455.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Brave Browser 1.62.162 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118457.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Calibre 7.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118458.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AutoPowerOptionsOK 5.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118465.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TikTok 33.3.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.27 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118466.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 11 Manager 1.4.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118480.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ProfiCAD 12.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118490.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Icecream PDF Editor Pro 3.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118495.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AIDA64 Extreme Edition 7.00.6742 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118500.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118511.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:C044B80D8ADAEE3AE6E5C1B1A26DE1FA22162554
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118530.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Doppler for Mac 2.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118538.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Text Workflow 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118541.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118542.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Multitouch 1.27.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118543.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ FSNotes 6.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118544.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ JetBrains RubyMine for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118548.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Syncovery for Mac 10.11.3 Intel [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118553.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dato 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118555.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ uDock 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118557.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ DxO ViewPoint 4 for Mac v.4.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118558.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Syncovery for Mac 10.11.3 ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118559.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Smart Converter Pro 3 v.3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118561.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Notebooks – Write and Organize 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118563.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Blocs 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118564.jpg" />
 </div>
 
 

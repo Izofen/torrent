@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41357.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:04AA573AA113604353E7B25B2C15827D5E45E40D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41358.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:0FF53CF02F73A46405E25CC9BF9A9EB56050D8FC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41359.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Polarr v6.9.12 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41360.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EE4E530F064B97B8EC5DC31EBB5FEC203FA77D60
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41361.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:77A571B4F802E5219D1E346C1A502AF29C2910A4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41362.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:87C9236D4EDA8157918DD1C6000F058B46254A96
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41363.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:21282D0D99F022F2661F7AC3309CB0B4299EFBC2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41364.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:F4F2C9CFDFAD7FABD018406A9136311922F1BADB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41365.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4DA211F0CCE24992A6918342090BED657D8C0FC4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41366.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F9B2375F3353EEABBEB3BA20EF6E5139726A35CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41367.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Coldplay - Moon Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41368.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Three Body Tech - SpecCraft 1.0.0 VST, VST 3, AAX (x64) RePack by SEnki  [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41369.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:574516D878224989EE0920BFB133604A12C5ED32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41370.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Coldplay - Moon Music (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41371.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:8B93F7798D2C3D1702F13DFDE49664E12C5221A9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41372.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:14E5DD38F17427BE39576A7125D70B171A5478B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41373.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:14E5DD38F17427BE39576A7125D70B171A5478B0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41374.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Space Prison (2024) [Ru/Multi] (1.0.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41375.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:82E6B48DB36B3B250EC6F32343B0E87E6F18890E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41376.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:B03021E4D5533E36AC993D0173A0988B0E91903D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41377.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41378.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:4300340189E2C6177977DDB0FBFCBBAE81569864
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41379.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:7158B6B3FA1A95806E706386DA026310E885E5A4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41380.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:67C5D980171ABA9EB7BFF0F1F0B96F961CE72146
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41381.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:BBFBCC63CA82CAB78827AB15FAA78D544529B6EF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41382.jpg" />
 </div>
 
 

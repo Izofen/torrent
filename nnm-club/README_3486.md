@@ -1,3 +1,78 @@
+###  Публикация: 1720309   (110318) от 03.05.2024
+
+Icecream Video Converter Pro 1.43 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный, но простой в использовании медиа конвертер, который поддерживает все самые распространенные аудио и видео форматы, включая AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и многие другие, а также позволяет конвертировать медиа файлы для мобильных устройств.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78010006AC37A4D0FE37E580B13ED712643EBA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720433   (110319) от 03.05.2024
+
+Журнал | Homebuilding & Renovating №6 (2024) [PDF][EN]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A332C7A10EC6308AE6937661B4701ABF7BB1FCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720496   (110320) от 03.05.2024
+
+Михаил Шуфутинский – Тихий Дон (1993) [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тихий Дон
+02. Москвичка
+03. Кто был ничем, тот стал никем
+04. Эх, ты жизнь...(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C002AA9C1C30D9BFB2617D0D9475BADD762C4414
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720334   (110321) от 03.05.2024
 
 Сергей Соловьёв | История России с древнейших времен (Том 17, 18) (2014) [MP3, Юрий Заборовский]
@@ -6,7 +81,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110321.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ VA - Trance In Motion Vol.375 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110322.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ The Future Sound Of London - ISDN (30th Anniversary Edition) (2024) [FLAC 16/44.
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110323.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ Icecream PDF Editor Pro 3.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110324.jpg" />
 </div>
 
 
@@ -109,7 +184,7 @@ VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110325.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ VA - Trance In Motion Vol.374 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110326.jpg" />
 </div>
 
 
@@ -163,7 +238,7 @@ InnoExtractor Ultra 7.3.2.535 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110327.jpg" />
 </div>
 
 
@@ -188,7 +263,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (2023) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110328.jpg" />
 </div>
 
 
@@ -212,7 +287,7 @@ LibreWolf 125.0.3-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110329.jpg" />
 </div>
 
 
@@ -238,7 +313,7 @@ Telegram Desktop 5.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110330.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ Icecream Slideshow Maker PRO 5.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110331.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ magnet:?xt=urn:btih:3D50E3394AEDA8D21CD6E832123A9E922C209D75
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110332.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ Icecream PDF Editor Pro 3.23 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110333.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ Italove - I Finally Realized (2024) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110334.jpg" />
 </div>
 
 
@@ -363,7 +438,7 @@ magnet:?xt=urn:btih:FF20CB2D81A4C0CC75A9B72A471CD8C359E1C750
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110335.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ magnet:?xt=urn:btih:CFCEE4EFC549D08CD8D49DD8E454AB32062CE4B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110336.jpg" />
 </div>
 
 
@@ -411,7 +486,7 @@ Steinberg Nuendo 13.0.30.226 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110337.jpg" />
 </div>
 
 
@@ -435,7 +510,7 @@ CyberLink PhotoDirector Ultra 15.3.1528.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110338.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ FocusWriter 1.8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110339.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ magnet:?xt=urn:btih:DFE51DF4E3C1C7CC7863676FC9C6B1BA00DE5996
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110340.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ MAGIX Samplitude Music Studio X8 19.1.3.23431 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110341.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ MediaHuman YouTube Downloader 3.9.9.91 (0503) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110342.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ Icecream PDF Editor PRO 3.23 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110343.jpg" />
 </div>
 
 
@@ -566,78 +641,6 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D859467F5FEA6DA1999EC757C5C75D5E5334B20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720382   (110344) от 03.05.2024
-
-Журнал | Знание-сила №5 (1163) (май 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA56B7651D64DA3B43F7D46657973A11D2E636C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720470   (110345) от 03.05.2024
-
-Chromium 124.0.6367.119 + Portable (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23CBC8DD4764781D591F31C024E3C5F7822932C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720323   (110346) от 03.05.2024
-
-Serif Affinity Publisher 2.4.2.2371 (x64) Portable by 7997 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Publisher - программное обеспечение нового поколения для профессиональных редакционно-издательских работ. Это невероятно плавное, интуитивно понятное приложение позволяет комбинировать изображения, графику и текст для создания прекрасных, готовых к публикации макетов для журналов, книг, брошюр, плакатов, отчетов, бланков и других документов.Язык интерфейса: Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D9B2830541F6657647CA5D0C92943ABC1F4833
 ```
 
 

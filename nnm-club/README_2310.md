@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60425.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8AF918FC2693723BC53B7E044546E6F6F2ED1F82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60426.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C22F72599F14EB3142B92829CC47BC6FB9F15015
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60427.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Scene Tenoke [Vanguard Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60428.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CF4EF9287F6EEEF61815589F08B1DAFF8B957F71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60429.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:848DF0F408944B51F948153F074F6884693C5B93
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60430.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F1074A0C7DD60392DEC1948F559B0A45B82D9092
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60431.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F35BC60E3F09C3B34D26C1B9E62E7E6E42E05048
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60432.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:099363E67D661D2566AE925F86466C92EB3E6430
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60433.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Timeworks (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60434.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ FurMark 2.2.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60435.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:E809EEF32624EB9E4168F9BFA8E259B63E070E93
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60436.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:4AA003FED0E6A04190D7DC88F601F21D880FAC18
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60437.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C3CF6D1A55FFC91697C66FE7BEB7F9338C4B1061
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60438.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:7B07E56985AB25B1AD19A700B72BF8BE8DAB0A15
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60439.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9F214C3146AD3E3C60F601F11D4CA345B9A33F92
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60440.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:FA082022CBF9FDD6FC15FBD2BEC6A1DE02B69BAA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60441.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:9414FE1A6BF1EA213ADF462EFB16039086019296
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60442.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:D4B63EE6C729BBA8E45E631DA504EC7AFBF453EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60443.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:65F11E915060A8A68BEAD1F2870D8CA5C259C807
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60444.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Handball 17 (2016) [Multi] (1464816) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60445.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Visual Studio Code 1.88.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60446.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Mega Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60447.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60448.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:B82BDBD4C59AE20567CA534FFE810623FE6EFD57
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60449.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60450.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Reg Organizer 9.50 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39535.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3AD7ECF228896884312DCA54910CF0B90BC7B76D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39536.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5ABA3F3150492AB71898820CF38E259A308E9EEB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39537.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5ABA3F3150492AB71898820CF38E259A308E9EEB
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39538.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D3C9070E2B3234DD0163A074202E64535F0112A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39539.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Graphisoft Archicad 28.0.0 build 3001 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39540.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Revo Uninstaller Pro 5.3.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39541.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B2462456224A9C203BBEF51532AB2E0914A2C355
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39542.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8C3574F86697C507C53CEFA06F5F766DE772B7C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39543.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E7C8ABB8E8DDB07FE0A174BE420563D9B9E2C5D8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39544.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:7F1F46FC1378ADBFAA26199E4A87D93580CFC9BF
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39545.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:6C69E06B5A75A7184D6A2A5DFDF4E4CF014DB68B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39546.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Catfish - London (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39547.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F8E461236AC46FA016DD7FBD24A2DC6846A60C94
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39548.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Augie Meyers - Chicken Fried Bacon Grease (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39549.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ John Haydock - Haunted Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39550.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ New Horizon - Studio Albums (2 releases) (2022-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39551.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:51C915C75D0FC779CD03F0099B02BC444C228336
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39552.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Harry Connick, Jr. - 20 (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39553.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ The Trevor B. Power Band - Are We Ever Free (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39554.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Mark Hummel - True Believer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmoni
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39555.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ric Harris and the Heat Merchants - Along the Avenue (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39556.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Jovin Webb - Drifter (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39557.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Martin Harley - Morning Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39558.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Benny Turner - BT (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39559.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Gary Burton & Paul Bley - Right Time Right Place (1991) GNP Crescendo [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39560.jpg" />
 </div>
 
 

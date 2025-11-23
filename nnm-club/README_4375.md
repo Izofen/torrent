@@ -1,3 +1,87 @@
+###  Публикация: 593637   (134851) от 24.12.2012
+
+Winter Wallpapers (22.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43ED80142151B427D79871C18213C90AB40E942
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679702   (134852) от 27.11.2023
+
+Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic Hip-Hop, Dubstep, Trap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King (feat. Busta Rhymes) [00:02:47]
+02. Catch Me [00:04:03]
+03. Devil May Cry [00:04:11]
+04. Human [00:04:00](   Читать дальше...   )Жанр: Alternative, Simphonic Hip-Hop, Dubstep, TrapПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F4CB9AA89146D4A284E0266200889B7584E28C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592721   (134853) от 24.12.2012
+
+VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Since Yesterday
+02. Lazy Hammock - Was I Anyone to You
+03. Lemongrass - Ton Parfum
+04. Michiko - Fly Away With You
+05. Viv de la Rosa - Andalucia - Sunny Del Mar Mix
+06. Albert St.Barth - Cafe Au Lait - Gigolo Edition
+07. Claude Chagall - Balearic Waves - Christmas Attack
+08. Martinique le Souffleur - ST.Tropez - 100% Deluxe Edit
+09. Marga Sol - Tocca Me
+10. DJ MNX - Chill Out Rock N Rolla(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679625   (134854) от 27.11.2023
 
 Уильям Бернстайн | Манифест инвестора (2017) [MP3, Андрей Барабанщиков]
@@ -6,7 +90,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134854.jpg" />
 </div>
 
 
@@ -30,7 +114,7 @@ magnet:?xt=urn:btih:C451CCB36538AEB4EE4D6A9050FDCCB7126A3A89
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134855.jpg" />
 </div>
 
 
@@ -54,7 +138,7 @@ magnet:?xt=urn:btih:D07F6C277E46112EEFF3171197F211F37FB350CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134856.jpg" />
 </div>
 
 
@@ -78,7 +162,7 @@ Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134857.jpg" />
 </div>
 
 
@@ -111,7 +195,7 @@ Computer Desktop Wallpapers Collection (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134858.jpg" />
 </div>
 
 
@@ -135,7 +219,7 @@ Best HD Wallpapers Pack (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134861.jpg" />
 </div>
 
 
@@ -159,7 +243,7 @@ Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134862.jpg" />
 </div>
 
 
@@ -187,7 +271,7 @@ magnet:?xt=urn:btih:A5FECB5D06A42F0486BD83DFA636E7EC2C3C7598
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134863.jpg" />
 </div>
 
 
@@ -211,7 +295,7 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134864.jpg" />
 </div>
 
 
@@ -244,7 +328,7 @@ Tears For Fears - Songs From The Big Chair (1985) Super Deluxe, 2014, UMC (Unive
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134865.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134867.jpg" />
 </div>
 
 
@@ -298,7 +382,7 @@ magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134869.jpg" />
 </div>
 
 
@@ -322,7 +406,7 @@ Duolingo: изучай языки 5.129.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134871.jpg" />
 </div>
 
 
@@ -346,7 +430,7 @@ New year wallpapers 2013 (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134872.jpg" />
 </div>
 
 
@@ -370,7 +454,7 @@ FX Player Pro 3.7.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134873.jpg" />
 </div>
 
 
@@ -394,7 +478,7 @@ Waterfalls Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134874.jpg" />
 </div>
 
 
@@ -418,7 +502,7 @@ Square Home Launcher 3.0.5 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134875.jpg" />
 </div>
 
 
@@ -442,7 +526,7 @@ magnet:?xt=urn:btih:A94571C5A4B705E54DECD21AD0C03856E41FC8E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134876.jpg" />
 </div>
 
 
@@ -466,7 +550,7 @@ VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134877.jpg" />
 </div>
 
 
@@ -493,7 +577,7 @@ Sunrises and sunsets Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134878.jpg" />
 </div>
 
 
@@ -517,7 +601,7 @@ Readiris Pro 17.1.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134879.jpg" />
 </div>
 
 
@@ -542,7 +626,7 @@ VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134880.jpg" />
 </div>
 
 
@@ -575,7 +659,7 @@ Chicago - Chicago at Carnegie Hall - Complete (2021) Live [FLAC 24/192|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134881.jpg" />
 </div>
 
 
@@ -589,81 +673,6 @@ Chicago - Chicago at Carnegie Hall - Complete (2021) Live [FLAC 24/192|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35965F821F49827389FA58D24C801500A6D66C08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679812   (134883) от 27.11.2023
-
-WPS Office + PDF 18.4.1 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134883.jpg" />
-</div>
-
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.11.2023Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1962715EDCD298ADE94AF00D2BD3A1036B24DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680053   (134885) от 27.11.2023
-
-Smart Launcher 6.3 build 036 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Launcher - лаунчер являющийся одним из самых лучших в своём сегменте за счёт качеств, возможностей и функционала, и как следствие, очень популярным у пользователей мобильных устройств, что предпочитают искать и находить альтернативы стандартному и далеко не идеальному варианту. Людям предлагается максимальное удобство управления, что выливается в возможность (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.11.2023Разработчик: Smart Launcher TeamПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED7CDA126095F56C5B6050CD56AB96538984F9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679195   (134886) от 27.11.2023
-
-VA - Dance Hits Winter Selection (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepsan - Beating Heart [03:09]
-02. Anup4m - Heaven [02:42]
-03. Kvant - Late Night [05:44]
-04. Anka - The Ocean [02:33](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E384A53172EE96697334CC7AE70C4075C5F726
 ```
 
 

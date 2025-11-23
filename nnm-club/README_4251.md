@@ -1,3 +1,75 @@
+###  Публикация: 437001   (130637) от 09.12.2023
+
+Приключения домовенка Кузи (1984-1987) DVB [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130637.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 серийный мультфильм о забавном непоседливом домовёнке по имени Кузя.Производство: СССР, ТО "Экран"Жанр: детский, кукольныйРежиссер: Аида ЗябликоваАктеры: Светлана Травкина, Георгий Вицин, Григорий Большаков, Анатолий Кузнецов и др.Субтитры: ОтсутствуютПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16AABE58EF644BE2D8E0FC4C3BFCA091D2E52F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760809   (130639) от 09.12.2023
+
+Фантастические летающие книги Мистера Морриса Лессмора / The Fantastic Flying Books of Mr. Morris Lessmore (2011) WEB-DL [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм рассказывает об удивительной стране, которую населяют живые книги. Маленькие и большие, молодые и старенькие, весёлые и печальные — все они хотят, чтобы кто-нибудь о них заботился. И, разумеется, чтобы кто-нибудь их читал.Производство: США / Moonbot StudiosЖанр: Мультфильм, короткометражный, драма, приключения, семейныйРежиссер: Уильям Джойс, Брэндон ОлденбургПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE45FC16E5D698148B414AB854084818000A291B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679112   (130640) от 09.12.2023
+
+Балабол (2023) WEBRip [H.264/1080p] (сезон 7, серии 1-24 из 24)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саня Балабин уверен, что всё может и умеет сам, но зачастую попадает в безвыходные ситуации, когда спасти его могут только друзья. В отделе появляется новичок — лейтенант Чекашин — Саня найдёт себе новый объект для шуток и подколов. Сам же очутится внутри неожиданного любовного треугольника: в город вернутся Анжелика и Марьям, а вместе с ними и новые приключения. (   Читать дальше...   )Производство: Россия | «TM Production»Жанр: Детектив, комедияРежиссер: Михаил ГалинАктеры: Константин Юшкевич, Вадим Андреев, Инга Оболдина, Илья Шляга, Мария Пирогова, Ирина Низина, Ольга Плешкова, Григорий Сиятвинда, Юлия Такшина, Гоша КуценкоПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EED13C87CAEECD2FDA76E884D5837B8B008C188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682932   (130641) от 09.12.2023
 
 Конь в пальто! Или недалекие родственники... (2023) WEBRip [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130641.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:F6D7808E0142B43EEB3303B631964D7A255E6AA3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130642.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:98A15503C28DF556BE249FFE5D245401173C39AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130643.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:29329A138123A2DBA13626CF7A7A85C542ACA48B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130644.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:D7F3DA75B080833258A8515527E115853A36E168
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130645.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:3365CE797C43047C47CC24C72C3D1891733B6DE1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130646.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130648.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:D57B508E4043AAF8F81F7D3C147C1201E28EC1D6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130649.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:7F5FB947B19D4738405E90C7BA32F59F4A2C0399
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130650.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.3 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130652.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ magnet:?xt=urn:btih:3EFF138F121E21FE002426F8C87438FCADF1F3D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130653.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130654.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:3012942D184CC5E2FF5A743A487C6F9BA5B9FCB3
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130655.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ magnet:?xt=urn:btih:1C505AF35B3D48CB079250EA94F3DA4BE324E17D
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130658.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ Gran Turismo 7 (2022) [PS4] [USA] 9.00 (backport 5.05/6.72/7.xx/8.xx) [License] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130660.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating Jeep Gladiator Rubicon from A to Z (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130662.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ magnet:?xt=urn:btih:21B7DF5400CA21C07F85BD4712A161508C7A8507
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130664.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ magnet:?xt=urn:btih:0362F8994C2E611DE7812BCCF5464920FBA198CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130665.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ magnet:?xt=urn:btih:6F2BF084A17BF193068DE9C748F9CBF8670021BB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130668.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ Mylene Farmer - Monkey Me (2012) [LPCM 2.0 96/24|Audio-DVD (Blu-ray Audio) <Inte
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130669.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:9D4B9F88A9775504FD5B9E35DBAE139FF492BC47
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130671.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ magnet:?xt=urn:btih:3D0C96ED987BF41A3604FF0925D5D495BDDB70E5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130672.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130673.jpg" />
 </div>
 
 
@@ -562,78 +634,6 @@ VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C289663F773B60BB3FA1861C216071286E709000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682796   (130675) от 09.12.2023
-
-Звук свободы / Sound of Freedom (2023) WEB-DL [H.265/2160p] [4K SDR 8-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма основан на реальной истории Тима Балларда. Оперативник Министерства внутренней безопасности Тим Баллард разочаровался в системе — много лет он выслеживал и ловил педофилов, но не вызволил из лап работорговцев ни одного ребёнка. Тим втирается в доверие к недавно пойманному распространителю детского порно, убеждает его, что он «свой», и вот уже из Мексики (   Читать дальше...   )Производство: США, Мексика / Metanoia, Santa Fe FilmsЖанр: Биография, триллер, криминал, драмаРежиссер: Алехандро Гомес МонтевердеАктеры: Джеймс Кэвизел, Билл Кэмп, Хавьер Годино, Ессика Боррото Перримен, Эдуардо Верастеги, Лукас Авила, Кристал Апарисио, Кристофер Аведисьян, Густаво Санчес Парра, Мира СорвиноПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1266FA31495AA3D2B2339302D21AC326BCA4591F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595754   (130676) от 31.12.2012
-
-Отражение (12 серий из 12) (2011) DVB
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская тюрьма. Круглова Елизавета уже восьмой год отбывает наказание. В прошлом - майор милиции - она в первые годы перестройки организовала банду из сотрудников органов внутренних дел. Пять лет "оборотни в погонах" держали в страхе Приморский край и прилегающие к нему районы. Потом их взяли, "мамка" Елизавета Круглова, получила 15 лет. Ее трехлетняя дочь Полина оказалась в детдоме. Свою мать девочка почти не помнит.… За примерное поведение начальник тюрьмы подает документы Елизаветы на УДО. За несколько месяцев до выхода на свободу Елизавета падает в обморок. Диагноз тюремного доктора не оставляет сомнения: у нее рак головного мозга. Женщина понимает - ей осталось жить всего несколько месяцев. В это время на зону поступает осужденная Дарья Ерёмина, следователь по особо важным делам. Три года она пыталась поймать серийного убийцу. В итоге - сама оказалась за решеткой за превышение служебных полномочий. Лизе приходит в голову дерзкий план…Жанр: Детектив, МелодрамаРежиссер: Александр Щурихин, Сергей Быстрицкий, Сергей ДанелянАктеры: Ольга Погодина, Поля Полякова, Андрей Биланов, Елена Котельникова, Прохор Зикора, Юрий Назаров, Евгений Коряковский, Юрий Чернов, Надежда Бахтина, Евгений Воловенко, Оксана Дорохина, Владимир Горюшин, Елена Ковальчук, Ирина Аверина, Валерий Лисин, Сережа Панин, Мириам Комиссарова, Ольга КузьминаФормат: MPEG-PSПродолжительность: серия ~ 00:48
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582817   (130677) от 09.12.2023
-
-Fan Ren Xiu Xian Chuan | Путешествие к бессмертию [2022, Web, 71-79 из >79 эп.] WEB-DL 1080p rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о Хань Ли, юноше родившемся в бедной семье в богом забытой деревушке, который по воле случая стал учеником одной из сект в Цзян Ху. Его путь будет наполнен опасностями, могущественными врагами и задачами, которые могут показаться неразрешимыми, но несмотря на все это, он полон решимости преодолеть все преграды и найти свой собственный путь к бессмертию.Производство: Китай, Original ForceЖанр: Дунхуа, фэнтези, приключения, мультсериалРежиссер: Юрен Ван, Ван ЮОзвучка: Профессиональная (многоголосая закадровая), студия РуАниме - deepЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: серия ~ 20 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A058EECE6DED20972462D491B11EE3E5ED73554F
 ```
 
 

@@ -6,7 +6,7 @@ Pretenders - Pretenders II (1981) SACD, Reissue 2010, Mobile Fidelity Sound Lab 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143582.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Megadeth - Endgame (2009) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143608.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Megadeth - Th1rt3en (2011) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143628.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Great Affairs - Sleepwalker (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143700.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Greatest Ever! Rock Ballads (2017) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143741.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Agonizer - Birth The End (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143754.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Everfrost - Blue Eyed Emotion (2015) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143760.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Child - Child (1969) [MP3|320 кб/с] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143765.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:92B7F8C97A92D1A0CF85AB8E649D6BA362B2E0B4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143782.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Eyes Of Gaia - The Power Of Existence (2015) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143825.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Polydeluxe - Behind The Backdoor (2015) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143843.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Warnerbeast - Rewrite History (2015) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143851.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jasanel - The Universe Can Sing (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143853.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:52F7C49E69372A40D6E36ACEE05D9F586A8BF7B8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143901.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:166621B7FD1CB8DC0FACE46B9C05B056741F5C2F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143943.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Ohmwork - In Hindsight (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal, Stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143971.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Aurora View - SHMR (2022) Deluxe, 2023, Aurora View [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143984.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ KYPCK - Ниже (2011) [FLAC|Lossless|tracks + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143997.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Nostalgica - Nostalgica (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144006.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Mammoth WVH - Mammoth II (2023) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144008.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Bullet-Proof - Cell Xix (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144031.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Powder Burns - ... На Горячей Земле (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144043.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ RSO - Rise (2017) EP, Orianthi feat. Richie Sambora [MP3|320 Kbps] <Pop Rock, Gu
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144054.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Dogma (CL) - Superfix (Live) (2000) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144091.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Sutratma - Realms of Eternal Immolation (2023) [FLAC|Lossless|WEB-DL|tracks] <Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144095.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Walk The Moon - The Liftaway (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144103.jpg" />
 </div>
 
 

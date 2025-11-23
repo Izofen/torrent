@@ -1,3 +1,327 @@
+###  Публикация: 1588624   (191392) от 05.11.2022
+
+Blue System - Seeds Of Heaven (1991) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Serenata (Overture)
+02. Lucifer
+03. Testemente D'Amelia
+04. Is She Really Going Out With Him(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD8BDDA6F9B6E5F0DBDEE3D6B6B946CDED002BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588468   (191394) от 05.11.2022
+
+Blue System - 21st Century (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The 21st Century
+02. 6 Years - 6 Nights
+03. Venice In The Rain
+04. If I Will Rule The World(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18078C874ADD0C7ED91093F93DF01A2562ED5417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588612   (191409) от 05.11.2022
+
+Blue System - Hello America (1992) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romeo & Juliet
+02. Crossing The River
+03. I Will Survive
+04. I Like Your Sexy Body(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4697F0C9B0B68821306171D22BE5E75DA7B059D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588526   (191410) от 05.11.2022
+
+Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. History
+02. Operator
+03. Backstreet Heaven
+04. You Are An Angel(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FF47974EC6587E0C71875DD9BAFBEE545CA1DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658285   (191492) от 07.09.2023
+
+Supermax - 5 Albums (1982 - 1992) Remastered, 2007, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So I
+02. Honkey Curt
+03. Smoke Is Up
+04. Reggaesizer(   Читать дальше...   )Жанр: Electronic, Pop, Soul, FunkПродолжительность: 05:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A92956086154F37A158B596B0D06BE7DDC380A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658323   (191534) от 07.09.2023
+
+VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Katy Perry - California Gurls (03:55)
+002. Avicii - Wake Me Up (Radio Edit) (04:06)
+003. PAENDA - Second Summer (02:46)
+004. Luis Fonsi - Despacito (Remix) (03:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD69C97CE2A5D56E3E4DC3C870808B5122FA8A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658023   (191599) от 07.09.2023
+
+Jamiroquai - Party Songs (2005) [MP3|320 Kbps] <Acid-Jazz, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Virtual Insanity (Remastered) [00:03:49]
+02 - Cosmic Girl (Remastered) [00:03:47]
+03 - Little L (Remastered) [00:03:59]
+04 - Alright (Remastered) [00:03:42](   Читать дальше...   )Жанр: Acid-Jazz, FunkПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3D786DC6D40E09802EB6056C0154E2DCD121A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588383   (191643) от 04.11.2022
+
+Blue System - Forever Blue (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laila
+02. I Wanna Smile
+03. Baby Jealousy
+04. Taxi Girl(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDF11845316BA09C1EB12289EFCC67BE042C227
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588411   (191644) от 04.11.2022
+
+Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Mabuse
+02. If There Is A God In Heaven
+03. How Will I Know
+04. Goodnight Marielin(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0504CB6AABC0C3E6DDC292053F8FEC38CA974190
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588173   (191795) от 03.11.2022
+
+Маленький Принц - Мы Встретимся Снова (1994) Reissue, 2022, Maschina Records [OGG Vorbis|480 Kbps] <Disco, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я не знаю, зачем мне ты
+02. Голос в ночи
+03. Прощай
+04. Не знаю я тебя(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA26DE828DD95EB03482E2415B54A2F26922EF6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588268   (191809) от 03.11.2022
+
+Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body To Body (Radio Version)
+02. Only With You (Radio Version)
+03. For The Children
+04. It's For You(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5E3EB3180E1E2E63708624D9D789F985801400
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588217   (191816) от 03.11.2022
+
+Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Drive Me Crazy
+02. Anything
+03. I Miss You
+04. I Love The Way You Are(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587803   (192022) от 02.11.2022
 
 VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
@@ -6,7 +330,7 @@ VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192022.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192022.jpg" />
 </div>
 
 
@@ -33,7 +357,7 @@ VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192125.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192125.jpg" />
 </div>
 
 
@@ -60,7 +384,7 @@ Debbie Gibson - Body Mind Soul (1993) Deluxe Edition, 2023, Warner Music Group -
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192247.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192247.jpg" />
 </div>
 
 
@@ -87,7 +411,7 @@ VA - Sex Music (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192307.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192307.jpg" />
 </div>
 
 
@@ -114,7 +438,7 @@ VA - Generation Rave Vol. 4 - 90s Dance Classics Only (2022) 2CD, Compilation [M
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192312.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192312.jpg" />
 </div>
 
 
@@ -141,7 +465,7 @@ VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 K
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192326.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192326.jpg" />
 </div>
 
 
@@ -168,7 +492,7 @@ VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192333.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192333.jpg" />
 </div>
 
 
@@ -195,7 +519,7 @@ VA - Covermania - Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Electropop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192375.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192375.jpg" />
 </div>
 
 
@@ -222,7 +546,7 @@ Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192618.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192618.jpg" />
 </div>
 
 
@@ -249,7 +573,7 @@ Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192741.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192741.jpg" />
 </div>
 
 
@@ -276,7 +600,7 @@ VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192861.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192861.jpg" />
 </div>
 
 
@@ -303,7 +627,7 @@ VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192920.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192920.jpg" />
 </div>
 
 
@@ -330,7 +654,7 @@ VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192929.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192929.jpg" />
 </div>
 
 
@@ -357,7 +681,7 @@ magnet:?xt=urn:btih:C73DF3A1A39E89CDECB48888A251E344E5B8D2A8
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192935.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192935.jpg" />
 </div>
 
 
@@ -371,330 +695,6 @@ magnet:?xt=urn:btih:C73DF3A1A39E89CDECB48888A251E344E5B8D2A8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587424   (192942) от 30.10.2022
-
-Renee - 4 Albums (1978-1983) LP [MP3|320 Kbps] <Electronic, Rock & Roll, Synth-pop, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландская поп-группа Renée из Ден Хаага, вокалисткой которой является Аня Ноделийк. Примерно с 1982 года она начала выступать и записываться как сольная исполнительница под именем Рене.Список альбомов:
-1978 - Renee
-1980 - Reaching For The Sky
-1982 - The Future None Can See(   Читать дальше...   )Жанр: Electronic, Rock & Roll, Synth-pop, Pop Rock, DiscoПродолжительность: 02:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59069D7CDB2A4AE783B1F1E9A5C1280180B1250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657038   (192988) от 02.09.2023
-
-Icona Pop - Club Romantech (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall In Love [00:02:23]
-02. Desire [00:02:39]
-03. Shit We Do For Love [00:02:47]
-04. Stick Your Tongue Out [00:02:47](   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE80EB0EDC7C83821E0EE6A73A9A4D8F117D719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657251   (193026) от 02.09.2023
-
-Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood
-02. Hotline
-03. Raindance
-04. In The Middle Of The Night(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587126   (193221) от 29.10.2022
-
-PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Per Gessle Talks P-UD! - Album title (1:01)
-02. Per Gessle Talks P-UD! - Background #1 (0:50)
-03. Per Gessle Talks P-UD! - Background #2 (0:46)
-04. Per Gessle Talks P-UD! - Background #3 (0:44)(   Читать дальше...   )Жанр: Pop, Pop-Rock |Продолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E1DCEEFDB8D173D0B15E057FB45C1550707E71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586799   (193256) от 29.10.2022
-
-Ярослав Евдокимов - Лучшие песни (2001) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фантазер
-02. Колодец
-03. За Дунаем
-04. Вишневый сад(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA4279C2061ED48E2BB04226EA1073E641D674B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827686   (193383) от 22.10.2025
-
-Patrick Cowley - Hard Ware (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellfire
-02. Tech-No
-03. Spellbinding Lover (feat. Jeanie Tracy)
-04. Pajama Party Massacre(   Читать дальше...   )Жанр: Disco, Hi NRGПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75AED752DB25C0C701142C44F62A02BDFA9F6A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445578   (193898) от 22.08.2023
-
-Toto Cutugno - 3 Albums (1990 - 2005) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Cielo E' Sempre Un Po' Piu' Blu 3:38
-02. Come Noi Nessuno Al Mondo 4:57
-03. Cantando ( En Chantant ) 4:37
-04. L'italiano 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C98830F0DD57C18B9B7E28C45E77BBDA4A0A175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649952   (195034) от 30.07.2023
-
-Modern Talking - Original 80's (2014) 3CD [MP3|320 Kbps] <Eurodisco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - Original 80's
-CD-02 - Original 80's
-CD-03 - Original 80'sЖанр: EurodiscoПродолжительность: 3 CD, 03:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9652888BDE0B24C18122672DC645E8C2E24A202B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225313   (195086) от 27.07.2023
-
-ВИА Поющие Гитары - Синий иней (2002) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Синий иней (Н.Фидака - А.Азизов)
-02.Толстый карлсон (группа "Кристи" - И.Резник)
-03.Суббота ("Поющие гитары")
-04.Цыганочка (обработка "Поющих гитар")(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255088C39D267366904CB76C6B195D512C7C8580
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225312   (195108) от 27.07.2023
-
-ВИА Поющие Гитары - Люди встречаются (2002) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Люди встречаются
-02.Песенка велосепидистов
-03.Воскресенье
-04.Аппачи(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482DF48239DD4D7C1EB5F92DFA82A5152C56D150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 271755   (195143) от 26.07.2023
-
-Евгений Осин - Golden Hits (2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птицы-миражи    03:30
-02. Мечта    05:28
-03. Не верю    03:49
-04. Иволга    04:36(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED78C8D34012DF635AFE564676FB16EDCB23965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251258   (195145) от 26.07.2023
-
-Валерий Ободзинский - Дни Бегут... (1995) [FLAC|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аравийская Песня 06:18
-02. Среди Миров 04:30
-03. Мадам, Уже Падают Листья 05:10
-04. Последнее Письмо 04:36(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE98CEB5E0FEB01DE0A3A65ABD2CB341079C12EE
 ```
 
 

@@ -6,7 +6,7 @@ VA - Black Hole House Music 07-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65375.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Black Hole Trance Music 07-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65380.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Ciné Saigon, Vietnam) (2025-07-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65384.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Steve Angello - Live @ Ibiza Global Festival, Spain (2025-07-05) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65386.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Oliver Heldens - Live  @ Marquee Skydeck, The Edge NYC, United States (2025-06-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65387.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Ori Uplift - Uplifting Only Episode 648 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65393.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Armin van Buuren - A State Of Trance 1233 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65402.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Trance Fusion, Vol. 11 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65403.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Nothing But... Trancetopia, Vol. 27 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65487.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Ori Uplift - Uplifting Only Episode 647 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65488.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Third Party - Live @ Party People (The Dome at Grand Central Hall Liverpool) (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65528.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Keef Baker - K (2024) [FLAC|Lossless|Web-DL|tracks] <IDM, Synthwave, Techno>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65559.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65560.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Metropolit - 3 Albums (2024-2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Post-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65606.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Ablazing Summer Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65720.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Unterschicht - Golem Akt 1 - Die Erweckung (2025) [MP3|320 Kbps] <Dark Electro>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65723.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - La Hora Azul, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65738.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Uplifting Only Top 15: June 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65741.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Trancendence, Vol. 02 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65742.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Der Bote - Abbitte (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, NDH>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65750.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ GOODBOYS - Live From RADi Club @ INS Land, Shanghai, China (2025-04-30) [MP3|320
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65768.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ John Summit - Live @ Club Space Miami, United States (2025-05-03) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65810.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Ibiza Summer 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65816.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Markus Schulz - Global DJ Broadcast: Sunrise Set (2025-06-19) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65820.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Winter Anthems 2016 (2016) CD, Compilation, Mixed [FLAC|Lossless|tracks + .
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65827.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ DJ Tomcraft - Silence (2000) [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65828.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 448805   (74806) от 08.02.2012
+
+The Fray - Scars & Stories (2012) [FLAC|Lossless]<Alternative, Rock, Piano Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heartbeat (3:40)
+2. The Fighter (4:20)
+3. Turn Me On (3:02)
+4. Run For Your Life (3:58)(   Читать дальше...   )Жанр: Alternative, Rock, Piano RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448181   (74816) от 08.02.2012
+
+Подшивка журналов | 64-Шахматное обозрение [1968] [DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74816.jpg" />
+</div>
+
+
+###  Подробнее
+
+64 - Шахматы и шашки в рабочем клубе (1925, 1928)
+Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
+Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60A22DE7497AD1294253C5F0B1F61323FBE580E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448175   (74821) от 08.02.2012
+
+Подшивка журналов | 64-Шахматное обозрение [1928] [DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74821.jpg" />
+</div>
+
+
+###  Подробнее
+
+64 - Шахматы и шашки в рабочем клубе (1925, 1928)
+Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
+Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758D108946FA112CCA50D8AD204D68411424076C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 448410   (74824) от 08.02.2012
 
 В поисках Бога (Искать и находить. Веровать и разуметь) (2008) DVDRip
@@ -6,7 +85,7 @@
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74824.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ magnet:?xt=urn:btih:95E29F9664CABA5B5C7E34719DD9AAB11187F03D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74832.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ magnet:?xt=urn:btih:B26B83DAE2534B8C41FA1E04F7DDE9E8188BA18A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74842.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ VA - Beatport TOP 100 Download February (02.2012) [MP3|320 kbps]<House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74845.jpg" />
 </div>
 
 
@@ -118,7 +197,7 @@ magnet:?xt=urn:btih:476EAE8EB0F482AB132118AD79C7A3A649EADE35
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74864.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ magnet:?xt=urn:btih:DA6BA4126B216021BF402B655CFCF678478A4F19
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74873.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ magnet:?xt=urn:btih:E5D6F7D9F5E1E051156D65669AC202795D751AF9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74874.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ magnet:?xt=urn:btih:E5D6F7D9F5E1E051156D65669AC202795D751AF9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74875.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ magnet:?xt=urn:btih:6316ACFA13824F3638FF564A67E20A824121F201
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74877.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ magnet:?xt=urn:btih:9C0236703BFA9B5713816A0AB116308C49A58AE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74882.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ magnet:?xt=urn:btih:12FECBA71D8E30BF7D7EC5F5E875C2108A41FF08
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74883.jpg" />
 </div>
 
 
@@ -291,7 +370,7 @@ magnet:?xt=urn:btih:B672627DE1E6E6C51E47B04373A2B0FD05864584
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74887.jpg" />
 </div>
 
 
@@ -315,7 +394,7 @@ magnet:?xt=urn:btih:049C1B465B6A2C5A9568A7A5BC455D110208C881
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74891.jpg" />
 </div>
 
 
@@ -341,7 +420,7 @@ magnet:?xt=urn:btih:9043B9C444735D13CD598AAB939AB8CC37486324
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74892.jpg" />
 </div>
 
 
@@ -366,7 +445,7 @@ System of a Down - Mezmerize (2005) [FLAC|Lossless]<Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74893.jpg" />
 </div>
 
 
@@ -393,7 +472,7 @@ magnet:?xt=urn:btih:DABB90327B13AB76D8F3BBFFE39731FC077BDB5E
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74902.jpg" />
 </div>
 
 
@@ -417,7 +496,7 @@ magnet:?xt=urn:btih:CD4FB77FA2F70A4E783D1876C7A18F759697C186
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74903.jpg" />
 </div>
 
 
@@ -441,7 +520,7 @@ magnet:?xt=urn:btih:CD4FB77FA2F70A4E783D1876C7A18F759697C186
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74914.jpg" />
 </div>
 
 
@@ -466,7 +545,7 @@ magnet:?xt=urn:btih:CD4FB77FA2F70A4E783D1876C7A18F759697C186
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74921.jpg" />
 </div>
 
 
@@ -491,7 +570,7 @@ magnet:?xt=urn:btih:A795A22D95A862728206662754A355A3784B1271
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74924.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ magnet:?xt=urn:btih:57EC7319FE71EE584F21AD3C6C2734D48ACCEC43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74929.jpg" />
 </div>
 
 
@@ -539,7 +618,7 @@ magnet:?xt=urn:btih:57EC7319FE71EE584F21AD3C6C2734D48ACCEC43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74930.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ magnet:?xt=urn:btih:5B001EAE14A045674A91721641541C93FD91EDA7
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74942.jpg" />
 </div>
 
 
@@ -575,78 +654,6 @@ magnet:?xt=urn:btih:5B001EAE14A045674A91721641541C93FD91EDA7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3FF58C9456D1C985EB70BA44D20244FC82BF909
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449189   (74950) от 08.02.2012
-
-Ромовый дневник / The Rum Diary (2011) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74950.jpg" />
-</div>
-
-
-###  Подробнее
-
-1960-й год. Талантливый журналист Пол Кэмп, которого достала лживая глянцевая жизнь Нью-Йорка, бросает работу в престижном издании и уезжает в Пуэрто-Рико, где ром льется рекой, где дешево все — машины, яхты, девушки, здесь саму жизнь продают за копейки…Производство: США, Dark & Stormy, FilmEngine, GK Films, Infinitum Nihil ProductionЖанр: Драма, Комедия, ПриключенияРежиссер: Брюс РобинсонАктеры: Джонни Депп, Джованни Рибизи, Аарон Экхарт, Майкл Рисполи, Эмбер Хёрд, Ричард Дженкинс, Амори Ноласко, Маршалл Белл, Энди Умбергер, Билл СмитровичПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскиеПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448760   (74951) от 08.02.2012
-
-Рамки - Рамки для фото [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая подборка рамок для Photoshop разных видов.Разрешение файлов: от 3000х4500 до 3543х4724
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF07E13A58ED68BB8467421C8B5CFEEBACE066B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448785   (74955) от 08.02.2012
-
-Ромовый дневник / The Rum Diary (2011) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм "Ромовый дневник", снятый на основе дебютного романа Хантера С. Томпсона, рассказывает невероятно беспокойную историю кочующего журналиста Пола Кемпа (Джонни Депп). Утомлённый шумом и безумием Нью-Йорка, а также душной атмосферой последних лет правления Эйзенхауэра, Кемп переезжает на просторы невинного острова Пуэрто Рико, чтобы работать на местную газету "Звезда Сан-Жуана" под редакторством придавленного жизнью мистера Лоттермана (Ричард Дженкинс). Приспосабливаясь к жизни островитян, насквозь пропитанной ромом, Пол страстно влюбляется в Шено (Эмбер Херд), неимоверно привлекательную уроженку Коннектикута и по совместительству невесту мистера Сандерсона (Аарон Экхарт). Сандерсон - местный бизнесмен, занимающийся нечистыми сделками с недвижимостью и мечтающий превратить Пуэрто Рико в капиталистический рай на службу богачам. Когда Сандерсон нанимает Кемпа, чтобы тот написал хвалебный опус его последней, непритязательной махинации, журналист встаёт перед выбором: использовать своё перо (   Читать дальше...   )Жанр: Драма, Комедия, ПриключенияРежиссер: Брюс РобинсонАктеры: Джонни Депп, Майкл Рисполи, Аарон Экхарт, Эмбер Хёрд, Джованни Рибизи, Ричард Дженкинс, Амори Ноласко, Маршалл Белл, Энди Умбергер, Билл СмитровичПеревод: ДублированныйЯзык субтитров: Русский (voronine), Английский, Английский (SDH)Продолжительность: 01:59:58
-
-## Скачать торент
-```bash
-нет
 ```
 
 

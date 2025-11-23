@@ -1,3 +1,124 @@
+###  Публикация: 1555269   (231390) от 03.06.2022
+
+С. Пентак, Д. Лауэр | Основы дизайна (2022) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_231390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неоднократно переиздававшийся классический учебник по основам дизайна, один из самых популярных в мире. Теория дизайна, масса практических примеров и вся необходимая информация для начинающих дизайнеров и профессионалов, желающих совершенствовать свое мастерство.Жанр: ДизайнПеревод: Н. РимицанФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5DA6DB0D20074D094020F65A6EC72B57643412
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555293   (231466) от 03.06.2022
+
+Книжная серия | Самое необходимое [22 книги + CD] (2007-2021) [PDF, DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_231466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги представляют собой практические руководства для тех, кто начинает работать с Microsoft Excel 2010, Microsoft Office Word 2007, рассмотрены инструменты программы Adobe Photoshop CC и основные приемы работы с ними, описан базовый синтаксис языка Python, рассказывается о работе в операционной системе Windows.Жанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2450FDAF9BAE221A07633629630C2FC8D59C469
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580889   (231536) от 03.10.2022
+
+Максим Оберман | SEO-оптимизация текста: 7 шагов для трафика сайта (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_231536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для тех, кто пишет статьи на сайт, в блог, Дзен и соцсети.
+SEO-оптимизация текста для поисковых систем: анализ сайтов-конкурентов, составление SEO-заголовков и заполнение мета-тегов. Как писать SEO-тексты и подобрать ключевые запросы? Эта книга поможет редакторам, копирайтерам, контент-маркетологам, SEO-специалистам и веб-мастерам разобраться, зачем нужна SEO-оптимизация (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A396E06CD5A50A9982BA212BD71F0FBDF2CEF88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554962   (231669) от 01.06.2022
+
+Н.А. Прохоренок | Bootstrap и CSS-препроцессор Sass. Самое необходимое (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_231669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрена разработка адаптивных веб-сайтов, одинаково хорошо отображающихся на всех типах устройств, с использованием библиотеки Bootstrap и CSS-препроцессора Sass. Описана система сеток на основе flex-контейнера, позволяющая задавать ширину колонок, их количество и порядок следования. Рассмотрено стилевое оформление стандартных элементов и большое количество готовых (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB24D15657FF045A1EA321C7D80296988931A9D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636308   (231773) от 29.05.2023
+
+Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL Shaders (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_231773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поймите, что такое шейдеры и для чего они нужны: Шейдеры часто считаются мистическими и сложными для разработки, даже для опытных программистов, художников и разработчиков из других дисциплин игрового дизайна. Эта книга развеивает это представление, поэтапно наращивая ваши знания о шейдерах, начиная с фундаментальной математики шейдеров и того, чем разработка шейдеров (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC71EEC1FE390A8E229D2EB5062A7A9B902EC35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635535   (232243) от 26.05.2023
 
 Донелла Медоуз, Дженнифер Робинсон | Электронный оракул. Компьютерные модели и решение социальных проблем (2013) [PDF]
@@ -6,7 +127,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232243.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232243.jpg" />
 </div>
 
 
@@ -31,7 +152,7 @@ magnet:?xt=urn:btih:B9B2CF42EC403D14B3FE33070214FDF91D48DE24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232395.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232395.jpg" />
 </div>
 
 
@@ -55,7 +176,7 @@ magnet:?xt=urn:btih:0784DD59504019D357BF1E7DEB903B4EE054824A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232427.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232427.jpg" />
 </div>
 
 
@@ -80,7 +201,7 @@ magnet:?xt=urn:btih:08EB2A1C4CA7088DEF40DC408CD0554E99818CDF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232807.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232807.jpg" />
 </div>
 
 
@@ -105,7 +226,7 @@ Joe Harrison | Learn CSS By Use Cases v2 with All Code (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232992.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232992.jpg" />
 </div>
 
 
@@ -132,7 +253,7 @@ Nagender Kumar Suryadevara | Beginning Machine Learning in the Browser (2021) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233979.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233979.jpg" />
 </div>
 
 
@@ -156,7 +277,7 @@ magnet:?xt=urn:btih:C3A767D2E4CF5F51DB55587E438F0734D4F438C9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234354.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234354.jpg" />
 </div>
 
 
@@ -180,7 +301,7 @@ magnet:?xt=urn:btih:9F546E88D27303430DFCC94D742E9C9E825DC693
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234422.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234422.jpg" />
 </div>
 
 
@@ -204,7 +325,7 @@ Darren James Harkness | Apache Essentials: Install, Configure, Maintain, 2nd Edi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234530.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234530.jpg" />
 </div>
 
 
@@ -230,7 +351,7 @@ magnet:?xt=urn:btih:A1139BABD5727848AEC9E6D86820A05FFC9271A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234555.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234555.jpg" />
 </div>
 
 
@@ -254,7 +375,7 @@ magnet:?xt=urn:btih:4EB68FB021C52D603DBD2054526D5F9C2CA784E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234611.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234611.jpg" />
 </div>
 
 
@@ -278,7 +399,7 @@ magnet:?xt=urn:btih:D0DBE670AE856DADE83BA09C3161D2E64DA3950E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234655.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234655.jpg" />
 </div>
 
 
@@ -302,7 +423,7 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234984.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234984.jpg" />
 </div>
 
 
@@ -328,7 +449,7 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235175.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235175.jpg" />
 </div>
 
 
@@ -355,7 +476,7 @@ magnet:?xt=urn:btih:9F150FB67A90F5A08B6E3EFFA5FC805BD3703491
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235516.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235516.jpg" />
 </div>
 
 
@@ -379,7 +500,7 @@ Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235620.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235620.jpg" />
 </div>
 
 
@@ -403,7 +524,7 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235891.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235891.jpg" />
 </div>
 
 
@@ -429,7 +550,7 @@ Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235988.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235988.jpg" />
 </div>
 
 
@@ -453,7 +574,7 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236271.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_236271.jpg" />
 </div>
 
 
@@ -477,7 +598,7 @@ Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236277.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236277.jpg" />
 </div>
 
 
@@ -501,7 +622,7 @@ magnet:?xt=urn:btih:81F08F677C1AFA7F351461AAE7E9C33122021234
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236292.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236292.jpg" />
 </div>
 
 
@@ -512,129 +633,6 @@ magnet:?xt=urn:btih:81F08F677C1AFA7F351461AAE7E9C33122021234
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F06EFFEAE67B5741569F0E62D115C4B5B107E8A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630349   (237082) от 30.04.2023
-
-Шигео Хиросэ | Бионические роботы: змееподобные мобильные роботы и манипуляторы (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живые организмы часто демонстрируют удивительные способности, которые вдохновляют людей на поиск новых инженерных решений старых проблем. Книга известного профессора Шигео Хиросэ из Токийского технологического института стала классической в области робототехники, но при этом не потеряла своей актуальности и значимости. В ней представлены исследования, посвященные (   Читать дальше...   )Жанр: РобототехникаПеревод: Ю.В. КолесниченкоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08945F73C5C4164B783340CDCE168B6877DAD809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548941   (237538) от 04.05.2022
-
-Мод Лемер | Масштабируемый рефакторинг. Возвращаем контроль над кодом (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поддерживать большие приложения сложно, а поддержка больших «неорганизованных» приложений превращается в непосильную задачу. Пришло время сделать паузу и задуматься о рефакторинге! Внесение значительных изменений в крупную и сложную кодовую базу — нетривиальная задача, которую практически невозможно успешно выполнить без рабочей команды, инструментов и планирования. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F396D1832B28BABBAE067B708A285250CB034BB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548693   (237666) от 03.05.2022
-
-Алан Купер и др.  | Интерфейс. Основы проектирования взаимодействия, 4-е издание (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проектирование взаимодействия - это ориентированный на человека подход проектирования интерактивных цифровых продуктов, сред, систем и сервисов. Много внимания уделено проектированию поведения - аспекту, которым традиционные дисциплины проектирования нередко пренебрегают.
-
-В этой книге во главу угла ставится целеориентированный подход, при котором основное внимание (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8783645C4370D70142F9CBE602B7548E554D9767
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548473   (237970) от 02.05.2022
-
-Р. Монарх | Машинное обучение с участием человека (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения машинного обучения демонстрируют лучшую эффективность при наличии обратной связи с человеком. Привлечение к работе подходящих сотрудников повышает точность моделей, уменьшает количество ошибок в данных, сокращает расходы и помогает ускорить выпуск моделей.
-В книге изложены методики эффективной совместной работы людей и машин. Здесь вы найдете лучшие практики (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6267A9BD4D395F408DF7E367D8CACA9F7F40F4B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547430   (238646) от 28.04.2022
-
-Анатолий Постолит | Разработка кроссплатформенных мобильных и настольных приложений на Python (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена вопросам использования интерпретатора Python, фрейморка Kivy и библиотеки KivyMD для создания приложений, которые способны работать на любом устройстве (настольный компьютер, планшет, смартфон, мини-компьютер) и в любой операционной системе (Windows, Linux, MacOS, Android, iOS). Эти приложения адаптированы к работе на устройствах с сенсорным экраном, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16509B67949A1903B0F13B3ABC3697979C444FF3
 ```
 
 

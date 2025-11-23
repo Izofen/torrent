@@ -1,3 +1,174 @@
+###  Публикация: 1479137   (159710) от 23.12.2022
+
+Преступление века / The Crime of the Century (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-2 из 2 )
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект выводит на чистую воду фармацевтические компании и бьет по политикам и нормативным актам, допустившим распространение синтетических опиатов. В фильме расскажут про истоки этого пагубного явления и о том, как оно влияет на систему здравоохранения. Тему раскроют медицинские работники, инсайдеры и пострадавшие от опиоидной зависимости.Производство: США, HBO Documentary Films, Jigsaw Productions, Storied Media GroupЖанр: Документальный, криминалРежиссер: Алекс ГибниПеревод: Двуголосый профессиональный (HDrezka Studio)Субтитры: Русские (hardsub на надписи)Продолжительность: 2x ~01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA53C15BA89C7FD8082147560BA2F18CCAEFCF39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599326   (159711) от 23.12.2022
+
+Нитрам / Nitram (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина 90-х. Изолированный от общества и обиженный на мир Нитрам живет с родителями в маленьком городке на острове Тасмания. После трагической разлуки с единственным другом, одиночество и гнев Нитрама нарастают, что приводит к самой масштабной серии убийств за историю Австралии.Производство: Австралия / GoodThing Productions, Melbourne International Film FestivalЖанр: Триллер, драмаРежиссер: Джастин КурзельАктеры: Калеб Лэндри Джонс, Джуди Дэвис, Энтони ЛаПалья, Фиби Тейлор, Шон Кинэн, Конрад Брандт, Джесси Уорд, Зайди Уорд, Этан Кук, Каян Хью Мана Уолтерс, Эсси Дэвис, Лукас Френд, Шарлотта Фрилс, Аннабель Маршалл-Рот, Ник Батзиас, Люси-Роуз ЛеонардПеревод: Дублированный (Back Board Cinema), Авторский (А. Важенин)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C857A2DBA4B501FDE4417680D936AB6AD2A204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599371   (159712) от 23.12.2022
+
+Yoga VPN - безопасный прокси 7.0.530 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный VPN, неограниченная пропускная способность, разблокировать APP, прокси-сервер безопасности, супер-быстрый, самый стабильный, простой - Yoga VPN - лучшее VPN-приложение на рынке!Тип издания: VIPРелиз состоялся: 19 дек. 2022 г.Разработчик: Sarah HawkenПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086BF6D2DD864A9DCD964597E4D17ABB9727232D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599450   (159713) от 23.12.2022
+
+Жестокая ночь / Violent Night (2022) WEB-DL [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества преступники берут в заложники состоятельную семью, чтобы получить их деньги. Незадолго до этого захваченные родители подарили дочери рацию, по которой можно связаться с Сантой. Девочка вызывает подкрепление в его лице, чтобы проучить захватчиков.Производство: США, Канада / 87North, Québec Production Services Tax CreditЖанр: фэнтези, боевик, триллер, комедия, криминалРежиссер: Томми ВирколаАктеры: Дэвид Харбор, Джон Легуизамо, Беверли Д’Анджело, Алекс Хэсселл, Кэм Жиганде, Алексис Лодер, Эди Паттерсон, Леа Брэйди, Брендан Флетчер, Майк ДопудПеревод: профессиональный многоголосый (Jaskier, TVShows), авторский (М.Яроцкий)Субтитры: английские (Full, SDH)Продолжительность: 01:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53F6F76084A74BA57ACA973615CABF8511F902E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599516   (159714) от 23.12.2022
+
+Abelssoft SSD Fresh Plus 2022 11.12.43614 Portable by zeka.k [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abelssoft SSD Fresh - если вы счастливый обладатель SSD накопителя и задумывались над тем как такой диск оптимизировать, продлить срок службы, то эта утилита всё сделает быстро и за пару кликов. Abelssoft SSD Fresh настроит вашу систему Windows на оптимальную работу с SSD накопителем, отключит доступ к записи, увеличит производительность, снизит количество операций (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FC75F135713F0D521E90690C0829A06CD70EA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599152   (159715) от 23.12.2022
+
+Iggy Pop - Apres (2012) 10th Anniversary Edition, 2022, GM Records [FLAC|Lossless|WEB-DL|tracks] <Alternative, Jazz- Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Et Si Tu n'existais Pas [00:03:33]
+02. La Javanaise [00:02:30]
+03. Everybody's Talkin' [00:02:48]
+04. I'm Going Away Smiling [00:02:38](   Читать дальше...   )Жанр: Alternative, Jazz- Rock, PopПродолжительность: 00:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB71238ACDA2F3BB1A60B0AE94181F2D2A7C3331
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274484   (159716) от 23.12.2022
+
+Анна Каренина / Anna Karenina (2012) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречая приехавшую из Петербурга мать, молодой блистательный офицер граф Вронский знакомится с женой влиятельного петербургского чиновника Анной Карениной. Огонь страсти вспыхивает мгновенно, но их любовь шокирует высшее общество. В мире, где правят предрассудки и стереотипы, ей придётся сделать поистине непростой выбор между семьёй и всепоглощающей страстью…Производство: Великобритания / Working Title FilmsЖанр: Драма, МелодрамаРежиссер: Джо РайтАктеры: Кира Найтли, Джуд Лоу, Аарон Тейлор-Джонсон, Келли Макдоналд, Мэтью Макфейден, Домналл Глисон, Рут Уилсон, Алисия Викандер, Оливия Уильямс, Эмили УотсонПеревод: Дублированный (Blu-Ray CEE)Субтитры: русские (форсированные, полные), английские (полные, для слабослышащих)Продолжительность: 02:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13924D23955D79699B08DCAA544E6C9C5564A612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599426   (159717) от 23.12.2022
 
 Жестокая ночь / Violent Night (2022) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [МVO]
@@ -6,7 +177,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159717.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ magnet:?xt=urn:btih:B17F4FA13004B91AAD5FC5E3815FAFC69366436A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159718.jpg" />
 </div>
 
 
@@ -54,7 +225,7 @@ magnet:?xt=urn:btih:288A2F6D0CD74FFD6D4700F1FAE012A8811AEC0C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159719.jpg" />
 </div>
 
 
@@ -78,7 +249,7 @@ magnet:?xt=urn:btih:1214B45249EC3222FBF1053140570F6FED861EB6
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159720.jpg" />
 </div>
 
 
@@ -103,7 +274,7 @@ FastStone Capture 9.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159721.jpg" />
 </div>
 
 
@@ -127,7 +298,7 @@ magnet:?xt=urn:btih:203CDD1B82E77ACCA66C580A4BC8483AF8EE2A72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159722.jpg" />
 </div>
 
 
@@ -151,7 +322,7 @@ GPU-Z 2.52.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159723.jpg" />
 </div>
 
 
@@ -175,7 +346,7 @@ magnet:?xt=urn:btih:446C4A690E5856065BD69091B5D8C6FA1A702980
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159724.jpg" />
 </div>
 
 
@@ -199,7 +370,7 @@ magnet:?xt=urn:btih:EA9600B028D7C0498F6E8099C643596030E39DEA
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159725.jpg" />
 </div>
 
 
@@ -223,7 +394,7 @@ LDPlayer 9.0.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159726.jpg" />
 </div>
 
 
@@ -248,7 +419,7 @@ Windows 11 Manager 1.1.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159727.jpg" />
 </div>
 
 
@@ -272,7 +443,7 @@ magnet:?xt=urn:btih:E35E7590E83605230B0463746246B42A5157AF65
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159728.jpg" />
 </div>
 
 
@@ -296,7 +467,7 @@ FastStone Capture 9.8 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159729.jpg" />
 </div>
 
 
@@ -320,7 +491,7 @@ magnet:?xt=urn:btih:587B202A1527602AE70FF3292CDD49E7D04B57EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159730.jpg" />
 </div>
 
 
@@ -344,7 +515,7 @@ MiniTool Power Data Recovery 11.4 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159731.jpg" />
 </div>
 
 
@@ -368,7 +539,7 @@ magnet:?xt=urn:btih:B1E62C0578D362C9827D77A253CA20B4A6BC291D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159732.jpg" />
 </div>
 
 
@@ -392,7 +563,7 @@ magnet:?xt=urn:btih:C150765213B699EC3E1205817F949AEE0F89ABD4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159733.jpg" />
 </div>
 
 
@@ -416,7 +587,7 @@ magnet:?xt=urn:btih:8C0061533BB8CEB534D38E5D9A827308185BFF5A
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159734.jpg" />
 </div>
 
 
@@ -440,7 +611,7 @@ Christmas Fables: Holiday Guardians / Рождественские Притчи:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159735.jpg" />
 </div>
 
 
@@ -451,180 +622,6 @@ Christmas Fables: Holiday Guardians / Рождественские Притчи:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA92C8D016277FC4521D1521DBEFB78622510022
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599386   (159736) от 23.12.2022
-
-3D print - Geralt of Rivia [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геральт из Ривии, прозванный Белым Волком и Мясником из Блавикена (ориг. Geralt z Rivii) — главный герой литературной саги и протагонист последующих игр, ведьмак из Школы Волка, профессиональный охотник на монстров, один из лучших фехтовальщиков Севера.
-
-Модель предоставлена в разобранном виде.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45072E657245FD9F708013D5AF3E4C047293F6D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599428   (159737) от 23.12.2022
-
-MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159737.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8789117E7CE5E9B1EA64A1B217008A1D556F5101
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599433   (159738) от 23.12.2022
-
-MyLanViewer 6.0.3 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159738.jpg" />
-</div>
-
-
-###  Подробнее
-
-MyLanViewer — программа для сканирования и мониторинга компьютеров в сети с возможностью поиска общедоступных файлов. Она показывает компьютеры в удобном для просмотра виде, который содержит имя компьютера, IP адрес, MAC адрес, общие ресурсы и другие детали для каждого компьютера. С помощью её вы можете следить за компьютерами в сети и получать оповещение, когда (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EFF8FEDFF63114AF955D73B8FFD2B1B39AD26C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599355   (159739) от 23.12.2022
-
-Ария - Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мечты
-2. Без тебя
-3. Всё, что было
-4. Ангельская пыль(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C992AE91D6BCFDC06E22C5B702F6366994C23B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599338   (159740) от 23.12.2022
-
-Яндекс.Браузер 22.11.5.709 (x32) / 22.11.5.715 (x64) Portable by Cento8 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E324137FE7B8E8FDF48B6E52A7E7D2D4585DE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599296   (159741) от 23.12.2022
-
-Хайдарали Усманов | Изменяющий (Книга 4). Нежданная семья (2022) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие верят во второй шанс. Вот только кто его тебе даст? Кто-то свыше? Или надо самому что-то для этого сделать? Вопрос сложный. Кому-то приходится ради этого всю свою жизнь бороться.
-А кому-то такой шанс может просто свалиться на голову. И что такой счастливчик будет делать, попав в подобную ситуацию? А если ты ещё при этом попадёшь в другой мир, и другое окружение? (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыПродолжительность: 10:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AB2CEFFD7247EC3843FE1A59ADD855D87A8DFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599461   (159742) от 23.12.2022
-
-Master PDF Editor 5.9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EE48EFC9139AFA44B82E958DFADAB5F757CA4B
 ```
 
 

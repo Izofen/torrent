@@ -6,7 +6,7 @@ Botanicula 1.0.274 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40004.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.5 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40085.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ ActionDirector - Видеоредактор v7.12.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40089.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ IPTV Pro v8.2.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40110.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PhotoRoom v5.4.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40162.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Folder Player Pro v5.28 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40182.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ PictureThis - Plant Identification v4.4.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40188.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ WPS Office + PDF v18.13.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40207.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Magic Eraser / Магический ластик v2.10.11 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40393.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ SnapEdit - AI photo editor v7.0.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40451.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bria Mobile: VoIP Softphone v6.17.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40454.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ SnapEdit - AI photo editor v7.0.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40462.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Citrus AI - HD Photo Enhancer v3.0 Mod by TRUMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40479.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AirBrush: ИИ Фоторедактор v7.4.0 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40485.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Picsart AI Photo Editor, Video v25.9.6 Final Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40489.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:2296F260574AA75BD8FD26AD7E71A0D26CFC593D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40502.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ ViewBox v1.8.13 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40528.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Picture Mushroom - Mushroom ID v2.9.25 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40578.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ ES File Explorer File Manager v4.4.2.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40585.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ MiHome v9.8.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40615.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ IPTV Pro v8.2.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40690.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8D43B9E45DCAED5879EDCBE81BC16066015BA276
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40881.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:325EB6DC1C835F2CBA6A78BCEDB88BAD1AD44591
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40903.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ WPS Office + PDF v18.13.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40905.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PhotoRoom v5.3.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41068.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VRadio - Online Radio App v2.7.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41080.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Vov Sticky Notes 9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44212.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wise Disk Cleaner 11.1.5.831 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44214.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Audified - MixChecker Ultra 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44219.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fort Firewall 3.13.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44221.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Atlantis Word Processor 4.4.1.1 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44222.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ StartAllBack 3.8.7 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44224.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wise Care 365 Pro 7.0.3.683 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44229.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ KiCad 8.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44231.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.96 (0609) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44251.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0609) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44272.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Office Tool Plus 10.14.21.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44277.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0609) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44282.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alfa eBooks Manager 8.6.37.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44287.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Serif Affinity Designer 2.5.5.2636 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44293.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Serif Affinity Publisher 2.5.5.2636 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44297.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Photo Supreme 2024.2.2.6640 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44298.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ R-Wipe & Clean 20.0.2473 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44300.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Wise Care 365 Pro 7.0.3.683 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44302.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Digital Clock 5.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44305.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Serif Affinity Photo 2.5.5.2636 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44312.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Q-Dir 11.77 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44319.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ MKVToolNix 87.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44320.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:A0DF17A6B2A8F1D1DDCB97B2DFDBE88B6EAE4397
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44323.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.1 Build 6 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44350.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ CorelDRAW Technical Suite 2024 25.2.0.301 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44351.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.7 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44360.jpg" />
 </div>
 
 

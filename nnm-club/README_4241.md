@@ -1,3 +1,78 @@
+###  Публикация: 1524944   (130288) от 18.01.2022
+
+Library Monkey Pro 3.2.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Library Monkey Pro предоставляет полный набор звуковых инструментов для современных, быстро меняющихся производственных сред. Управляйте бесчисленными активами с помощью расширенного менеджера библиотек, создавая наборы и смарт-наборы, вызывайте недавние поисковые запросы, создавайте несколько подборок и многое другое. Скопируйте свои библиотеки компакт-дисков с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.01.2022Разработчик: © 2022 Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974CDBFBBA07F9A0A7BBD1489C59F76AF2D600EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524982   (130290) от 18.01.2022
+
+MacClean360 5.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130290.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacClean360 - удобный и безопасный уборщик вашего Макинтоша. Приложение все-в-одном для чистки вашего Мака. Он автоматически сканирует каждый уголок вашего Maка, находит все нежелательные файлы и удаляет их в 1 клик. Все данные визуально сортируются по различным категориям, что дает возможность наглядно оценить, где можно выиграть сотню-другую мегабайт произведя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 DoYourDataПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096ECA82F61E1ABF39E1C6AD52502E333141DB7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524775   (130292) от 18.01.2022
+
+VA - Peace Garden (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francois Maugame - Ocean (6:04)
+02. Yu Namikoshi - Sencitive (2:36)
+03. Ann Grace - From The Deep (5:41)
+04. Mark Dwane - Codex (8:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDA4439A5916D4AE7C4C2C04570EED934C35450
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491003   (130293) от 02.05.2012
 
 VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
@@ -6,7 +81,7 @@ VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130293.jpg" />
 </div>
 
 
@@ -39,7 +114,7 @@ SideNotes 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130294.jpg" />
 </div>
 
 
@@ -63,7 +138,7 @@ Decoy - 2 Альбома (2006-2007) [FLAC|Lossless]<Psychedelic / Progressive, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130295.jpg" />
 </div>
 
 
@@ -95,7 +170,7 @@ SnapMotion Unlimited 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130296.jpg" />
 </div>
 
 
@@ -122,7 +197,7 @@ Michael Simon - Salama (2022) [AAC|~311 Kbps] <Deep House, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130298.jpg" />
 </div>
 
 
@@ -149,7 +224,7 @@ Music Tag Editor Pro 5.10.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130300.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ Askold Buk - Askold Buk (1999) [FLAC|Lossless]<Fusion, Crossover Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130301.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130302.jpg" />
 </div>
 
 
@@ -235,7 +310,7 @@ magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130303.jpg" />
 </div>
 
 
@@ -262,7 +337,7 @@ Transfer 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130304.jpg" />
 </div>
 
 
@@ -286,7 +361,7 @@ ProFind 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130306.jpg" />
 </div>
 
 
@@ -310,7 +385,7 @@ VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130308.jpg" />
 </div>
 
 
@@ -337,7 +412,7 @@ magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130309.jpg" />
 </div>
 
 
@@ -365,7 +440,7 @@ VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130310.jpg" />
 </div>
 
 
@@ -392,7 +467,7 @@ VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130312.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130313.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130314.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130315.jpg" />
 </div>
 
 
@@ -503,7 +578,7 @@ magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130317.jpg" />
 </div>
 
 
@@ -527,7 +602,7 @@ PDF Reader Pro Edition 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130318.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130319.jpg" />
 </div>
 
 
@@ -578,7 +653,7 @@ magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130320.jpg" />
 </div>
 
 
@@ -602,7 +677,7 @@ magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130321.jpg" />
 </div>
 
 
@@ -613,84 +688,6 @@ magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9496138982305628F5D84BD9EEA024DE61E495F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490701   (130322) от 02.05.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (01.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2479
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524743   (130323) от 18.01.2022
-
-VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Yeah Uhhh Oui (3:00)
-02. Weber & Weber - Speaking Without Words (4:49)
-03. Svendaq - Blue Bossa (6:01)
-04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525024   (130324) от 18.01.2022
-
-VideoSolo Screen Recorder For Mac 2.0.50 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того, какие виды экранных действий на вашем компьютере, например, онлайн-видео игры, скайп-чат, демонстрации, вы можете использовать VideoSolo Screen Record для записи их на видео.
-• Захват экрана на вашем компьютере в HD-видео
-• Запишите звук с компьютерной системы и микрофона одновременно
-• Сделайте снимок определенных областей экранаТип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C1F18271E2226F6EC869ACEA8BC9D586C47853
 ```
 
 

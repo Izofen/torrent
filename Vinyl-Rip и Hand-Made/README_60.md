@@ -1,3 +1,112 @@
+###  Публикация: 1630201   (237599) от 30.04.2023
+
+Красные Маки - Если Не Расстанемся... (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237599.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Встречай Меня
+А2 Если Не Расстанемся
+А3 Скажет Девчонка
+А4 Давай Попробуем Вернуть(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630078   (237690) от 29.04.2023
+
+Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Speed/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Holy Moses — немецкая трэш-метал-группа, одна из первых групп на немецкой трэш-метал-сцене.
+Лидер группы — вокалистка Сабина Классен.1986 - Queen Of Siam - Walpurgisnight Demo
+1987 - Finished With The Dogs
+1989 - The New Machine Of Liechtenstein
+1990 - World ChaosЖанр: Speed/Thrash MetalПродолжительность: 13:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:541FD872CC3ABEE3863ADF7EE3741935A22B6904
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548519   (237707) от 03.05.2022
+
+Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative/Soft/Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poets of the Fall (с англ. — «Поэты Осени») — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Образовалась в Хельсинки 25 апреля 2003 года из дуэта старых друзей: вокалиста Марко Сааресто и гитариста Олли Тукиайнена, а также клавишника и продюсера Маркуса "Капитана" Каарлонена. Концертный состав «Poets of the Fall» включает (   Читать дальше...   )2005 - Signs of Life
+2006 - Carnival of Rust
+2008 - Revolution Roulette
+2010 - Twilight Theater(   Читать дальше...   )Жанр: Alternative/Soft/Indie RockПродолжительность: 10:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171308   (237749) от 03.05.2022
+
+VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Eurobeat>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Modern Talking - Win The Race
+02. Modjo - Chillin'
+03. Billy More - Come On And Do It(   Читать дальше...   )Жанр: Electronic, EurobeatПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166051   (237777) от 03.05.2022
 
 VA - Убойная Сила. Любимые песни из телесериалов (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, Chanson, Soundtrack>
@@ -6,7 +115,7 @@ VA - Убойная Сила. Любимые песни из телесериа�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237777.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237777.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237801.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237801.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237820.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237820.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Bea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237874.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237874.jpg" />
 </div>
 
 
@@ -114,7 +223,7 @@ Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237909.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237909.jpg" />
 </div>
 
 
@@ -141,7 +250,7 @@ magnet:?xt=urn:btih:DC32DDC07E889DCB56331AA7C26854BCF9BDA82E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237946.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237946.jpg" />
 </div>
 
 
@@ -168,7 +277,7 @@ Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238010.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238010.jpg" />
 </div>
 
 
@@ -195,7 +304,7 @@ Carl Perkins/Карл Перкинс - Лучшее из репертуара К
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238121.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238121.jpg" />
 </div>
 
 
@@ -222,7 +331,7 @@ VA - Мелодии экрана, 7 серия (1961) [FLAC 1.0|96/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238151.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238151.jpg" />
 </div>
 
 
@@ -249,7 +358,7 @@ VA - В Помощь Любителям Грамзаписи. Для Прове�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238228.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238228.jpg" />
 </div>
 
 
@@ -277,7 +386,7 @@ Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238237.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238237.jpg" />
 </div>
 
 
@@ -301,7 +410,7 @@ Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238268.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238268.jpg" />
 </div>
 
 
@@ -328,7 +437,7 @@ magnet:?xt=urn:btih:9B6717AE599D59EB30E48D921F7C4A010F96DFB1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238299.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_238299.jpg" />
 </div>
 
 
@@ -355,7 +464,7 @@ VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238348.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238348.jpg" />
 </div>
 
 
@@ -382,7 +491,7 @@ David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238355.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238355.jpg" />
 </div>
 
 
@@ -409,7 +518,7 @@ Visage - The Anvil (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238357.jpg" />
 </div>
 
 
@@ -436,7 +545,7 @@ Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238371.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238371.jpg" />
 </div>
 
 
@@ -463,7 +572,7 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238389.jpg" />
 </div>
 
 
@@ -490,7 +599,7 @@ Elton John - The New Collection vol. I - vol. II (1983) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238397.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238397.jpg" />
 </div>
 
 
@@ -517,7 +626,7 @@ VA - RETROспектива часть XXI. Зарубежные исполнит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238403.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238403.jpg" />
 </div>
 
 
@@ -544,7 +653,7 @@ magnet:?xt=urn:btih:02AF04C9BF7A7499A0397B6A9426AA131106CF9D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238422.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238422.jpg" />
 </div>
 
 
@@ -571,7 +680,7 @@ VA (Юрий Антонов, Александр Серов, Александр �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238423.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238423.jpg" />
 </div>
 
 
@@ -585,114 +694,6 @@ B  Александр Градский - Памяти Джордано Брун�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87FB0F582AB4026A874A9029F2DF0EF5D2CE59C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639148   (238458) от 12.06.2023
-
-Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shakra — швейцарская рок-группа, основанная в конце 1990-х годов.1998 - Shakra
-1999 - Moving Force
-2001 - Power Ride
-2003 - RisingЖанр: Hard RockПродолжительность: 11:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817EAB28176C895D92D157F58724122BEE6215DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628701   (238489) от 24.04.2023
-
-Amon Amarth - Studio Albums (13 releases) (1996-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amon Amarth — шведская метал-группа, играющая в жанре мелодичный дэт-метал. Название группы значит «Роковая гора» на синдарине, эльфийском языке, и отсылает к горе Ородруин из романа Дж. Р. Р. Толкина «Властелина Колец». Основной тематикой группы является германо-скандинавская мифология. Музыку Amon Amarth составляет сочетание гроулинга с «тяжелыми» мелодиями и эпическими (   Читать дальше...   )1996 - Sorrow Throughout The Nine Worlds
-1998 - Once Sent From The Golden Hall
-1999 - The Avenger
-2001 - The CrusherЖанр: Melodic Death MetalПродолжительность: 10:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5951C6CF42EB48D5DADE0E5EF44A5514BEAC3E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628957   (238506) от 25.04.2023
-
-Duran Duran - Notorious (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238506.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Notorious
-A2 American Science
-A3 Skin Trade
-A4 A Matter Of Feeling(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18B0B3CA005E4E029B8627AEA5DB9DBB3F4830C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636742   (238726) от 01.06.2023
-
-Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Royal Hunt — англоязычная рок-группа из Дании, основанная в 1989 году.1992 - Land Of Broken Hearts
-1994 - Clown In The Mirror
-1995 - Moving Target
-1997 - ParadoxЖанр: Melodic Progressive MetalПродолжительность: 15:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
 ```
 
 

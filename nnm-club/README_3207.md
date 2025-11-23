@@ -1,3 +1,84 @@
+###  Публикация: 1761273   (103063) от 19.11.2024
+
+Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Forget to Live 5:40
+02. Feel Invincible 4:08
+03. Stay Away... Last Warning 4:34
+04. Pyramids and Mystery 7:39(   Читать дальше...   )Жанр: Heavy-MetalПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5EF0181B55CBE777D55186EFE992B9559038FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761362   (103064) от 19.11.2024
+
+Dreamscapes - Lost and Found (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Time for Forgiveness (3:04)
+02. Shattered Vows (3:29)
+03. Lost in This Sadness (2:12)
+04. Emotions on Hold (2:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E7335EE00861C2F5D6FE701CF53E493CE89CA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761297   (103065) от 19.11.2024
+
+Kreator - Live in Chile (April 2023) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergio Corbucci is Dead (Live) (1:00)
+02. Hate Über Alles (Live) (4:03)
+03. People of the Lie (Live) (5:44)
+04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D48B918FAD7B4EE9C974F90FD5AC81272D9A5C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761365   (103066) от 19.11.2024
 
 Ernesto J. Ponce - In-Between Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +87,7 @@ Ernesto J. Ponce - In-Between Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103066.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103067.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Marian McPartland Trio - Live At Shanghai Jazz (2002) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103068.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:1DE94B832CF9015BB09C7FDFD9F4025A4E75C62F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103069.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ magnet:?xt=urn:btih:9AA452B5D65094A4D5B415E3BB2A74655F4B3DDA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103070.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ magnet:?xt=urn:btih:CBFCE5A9E00359F49DDE11A8B506DFC6160DC459
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103071.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103072.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ magnet:?xt=urn:btih:BE00D68222B07DCF3986E42FD8B84AAF61436C26
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103073.jpg" />
 </div>
 
 
@@ -213,7 +294,7 @@ Mark Farner - Closer To My Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Clas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103074.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ Divisive Echoes - Twilight Of The Round Table (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103075.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ Singing River - Talkin' Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103076.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ Enforced - A Leap Into the Dark (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103077.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ Wabi King - Turn over the Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103078.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ Lonerider - Down in the Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melod
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103079.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ Distant Past - Solaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103080.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ Desert Song - Desert Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103081.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ magnet:?xt=urn:btih:EF27B746683BF78AE5852FB376C75F07DCA559F9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103082.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ Auburn Sounds - Panagement 2 2.6.0 (FULL) VST, VST 3, AAX (x86/x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103083.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ Newfangled Audio - Recirculate 1.1.9 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103084.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ magnet:?xt=urn:btih:786927821CE35E015A23A25ED34AC2B92C09378B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103085.jpg" />
 </div>
 
 
@@ -527,7 +608,7 @@ Eventide - Blackhole Immersive 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103086.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ magnet:?xt=urn:btih:E2280F9FAE4C516A121E8D413D03EA26C0E3ACCE
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103087.jpg" />
 </div>
 
 
@@ -575,7 +656,7 @@ magnet:?xt=urn:btih:2AFDAEFEB9A66CD5ADCC1F64950238C65E5FCB94
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103088.jpg" />
 </div>
 
 
@@ -586,81 +667,6 @@ magnet:?xt=urn:btih:2AFDAEFEB9A66CD5ADCC1F64950238C65E5FCB94
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F18DE3C487F2136AFD0E771D0FA5D8859E38051
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761148   (103089) от 18.11.2024
-
-Newfangled Audio - Generate 1.6.9 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите хаос на новый уровень с помощью Generate. Разработанный компанией Newfangled Audio, Generate представляет собой полисинтезатор marquee, сочетающий в себе пять революционных хаотических генераторов со всеми функциями, которые вы ожидаете от первоклассного синтезатора. Создавайте красивые сложные пэды, теплые скользящие клавишные, нервные секвенированные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFE7C228DEC4D7B321D380098663980177639E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761226   (103090) от 18.11.2024
-
-Конвертер Валют Плюс / Currency Converter Plus 2.13.1 Mod by CMAPTOC [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертер Валют Плюс - максимально простой, а значит и очень удобный, конвертер валют. Что предоставляет пользователям точные данные сразу по нескольким позициям. Достаточно просто задать базовую валюту, а так же желаемые варианты. Программа обновляется через Европейский центральный банк, что обеспечивает использование только актуальных данных. При этом есть поддержка (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.10.2024Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F672EE1FA953937089462839793355AA87FADB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760851   (103091) от 18.11.2024
-
-Оленев Илья - 2 Albums, 1 Single (2019-2024) [FLAC|Lossless|WEB-DL|tracks] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:01:24]
-02. Молоко [00:03:54]
-03. Не печалься, отец [00:02:11]
-04. Отцу [00:03:26](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 3 CD, 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CFCD0798F4D662B14AFC4388859D379DAEA6B0
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1425149   (222251) от 20.11.2020
+
+Ильин - Еще ложь (2020) [MP3|320]
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ст. 1. Обязательство соблюдать права человека
+02. Ст. 3. Запрещение пыток
+03. Ст. 5. Право на свободу и личную неприкосновенность
+04. Ст. 8. Право на уважение частной и семейной жизни(   Читать дальше...   )Жанр: Neoclassical, contemporary, pianoПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57BB72114C95C2653A726FD6A911C769AB0E0FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425079   (222436) от 20.11.2020
+
+Joep Beving - Henosis (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Neo-Classical, Modern>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unus mundus (4:18)
+02. Into The Dark Blue (3:38)
+03. Whales (2:11)
+04. Sirius (1:35)(   Читать дальше...   )Жанр: Contemporary, Neo-Classical, ModernПродолжительность: 02:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30C369E1632BAD15C344F5AE7685891554CA1D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651137   (222976) от 05.08.2023
 
 Le Concert Des Nations, La Capella Nacional De Catalunya, Jordi Savall - Beethoven - Révolution Symphonies 6 à 9 (2021) 3 x CD [FLAC|Lossless|image + .cue] <Classical>
@@ -6,7 +60,7 @@ Le Concert Des Nations, La Capella Nacional De Catalunya, Jordi Savall - Beethov
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222976.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_222976.jpg" />
 </div>
 
 
@@ -31,7 +85,7 @@ Heinali - Sway, sway (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Modern Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225025.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225025.jpg" />
 </div>
 
 
@@ -56,7 +110,7 @@ Rick Wakeman - Christmas Portraits (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]<Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225207.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225207.jpg" />
 </div>
 
 
@@ -83,7 +137,7 @@ Rick Wakeman - Christmas Portraits (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225346.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225346.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Andrea Bocelli - Si (2018) Terget Deluxe Edition [FLAC|Lossless|image + .cue] <C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226164.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226164.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ Seattle Opera - Der Ring des Nibelungen (2014) [FLAC|24/96|tracks|WEB-DL] <Class
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227533.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227533.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229104.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229104.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ Johann Strauss-Best of Strauss: Berliner Philharmoniker & Herbert von Karajan 19
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229158.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229158.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Fran
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232842.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232842.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ Pekka Kuusisto, Joonas Ahonen - Symmetria Pario: Creation (2023) [FLAC|Lossless|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233035.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_233035.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classi
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234559.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234559.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ VA - Gymnopedie Chilled Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235947.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235947.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ Eydis Evensen - The Light (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239189.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239189.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ VA - Vocal Miracles (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239670.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239670.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ VA - The Best of Classical Music - The Greatest Piano Sonatas (2023) [FLAC|Lossl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239973.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239973.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ Sufjan Stevens • Timo Andres • Conor Hanick - Reflections (2023) [FLAC 24/96
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240097.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240097.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ Olafsson - From Afar (Reworks) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Class
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_241267.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_241267.jpg" />
 </div>
 
 
@@ -467,7 +521,7 @@ VA - The Best 50 of Romantic Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241503.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241503.jpg" />
 </div>
 
 
@@ -494,7 +548,7 @@ Maya Beiser - Infinite Bach (album) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_241711.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_241711.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ VA - Relaxing Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241831.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241831.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ Dejan Lazic - Istrian Rhapsody (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Class
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242141.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242141.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ Steven Ang, Tatiana Konovalova, Francesca Lee - Highlights from Verdi's Macbeth 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242682.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242682.jpg" />
 </div>
 
 
@@ -602,7 +656,7 @@ Autumn Tears - Guardian Of The Pale (2023) [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242727.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242727.jpg" />
 </div>
 
 
@@ -629,7 +683,7 @@ VA - The Best 50 of Beautiful Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242777.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242777.jpg" />
 </div>
 
 
@@ -643,60 +697,6 @@ VA - The Best 50 of Beautiful Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:427F42B2A12035E8A71306C9E36BD9578C0FACE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622963   (244009) от 30.03.2023
-
-Rudolf Buchbinder, Strauss, Schubert, Schumann, Beethoven, Chopin - Soirèe De Vienne (2022) [FLAC|Lossless|image + .cue] <Classical, piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Johann Strauss / Alfred Grünfeld
-[1] Soirée de Vienne, Op.56
-Johann Strauss / Otto Schulhof
-[2] Pizzicato-Polka, Op.9/2(   Читать дальше...   )Жанр: Classical, pianoПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3807B63FA63B67C2449A128D1180EE5E52659E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540491   (245218) от 30.03.2022
-
-Johann Sebastian Bach, Bernard Foccroulle - Toccaten & Passacaglia (2008) Reissue, 2020, Ricercar [FLAC|Lossless|image + .cue] <Classical, Organ Solo>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Toccata Und Fuge In D Minor, Bwv 565 8:55
-2. Toccata, Adagio Und Fuge In C, Bwv 564 15:23
-3. Fantasia Und Fuge In G Minor, Bwv 542 11:59
-4. Toccata Und Fuge In F Major, Bwv 540 14:22(   Читать дальше...   )Жанр: Classical, Organ SoloПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65088B1F1A337460445734F6BF09955F586B2456
 ```
 
 

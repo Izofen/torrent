@@ -6,7 +6,7 @@ VA - Eighties Extreme 3 (The Best Disco Pop Mixes) (2022) [FLAC|Lossless|WEB-DL|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110122.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Italove - I Finally Realized (2024) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110334.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110582.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stephen Sanchez - Angel Face (2024) Club Deluxe [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110649.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Marina Kaye - Heavenbound (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110655.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:2EBBBB5F789A2608025BBB01DCBF04E04FEC01D5
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110768.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ MONOKINI - Дотянуться до солнца (2001) Deluxe Edition, 2024, M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110771.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Она (2024) сборник в поддержку благотворите
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110772.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DJ Rosell and Angel Garcia DJ - Be My Lover (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110778.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hypaton x David Guetta Feat. La Bouche - Be My Lover (2023 Mix) (2023) [FLAC|Los
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110804.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kasper Bjorke - Puzzles (2024) [FLAC|Lossless|WEB-DL|tracks] <new disco, Alterna
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110838.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Emel - Mra (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110846.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3FF0709EA58802DB40852C10F64BBA20D9235AB5
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110883.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Breeze - It's Only A Matter Of Time (1977) LP [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111160.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Linda Ronstadt - Live in Los Angeles 1980 (2024) [MP3|320 Kbps] <Country Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111300.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Giuseppe Alicata - Take Me To Your Heart (2019) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111325.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ E-Bomber - Your Tee Is Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Dan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111494.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Trax - Watch Out! + Dancing In The Street (1977-1978) Compilation, Reissue, Rema
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111678.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ MaWhoo - The Sound Of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111746.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ koshi - Экспериментальная генетика высшей нер�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111814.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Missy Higgins - The Sound of White (2004) 20 Year Anniversary Edition, 2024, Ele
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111889.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Apollo 100 (Featuring Tom Parker) - Joy (1972) LP [MP3|320 Kbps] <Pop, Neo-Class
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111915.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111979.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111985.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ The Veronicas - Gothic Summer (2024) [MP3|320 Kbps] <pop-rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112043.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112285.jpg" />
 </div>
 
 

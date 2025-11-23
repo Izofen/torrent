@@ -1,3 +1,75 @@
+###  Публикация: 1764424   (101554) от 07.12.2024
+
+Photo Lab PRO v3.13.39 Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 05.12.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1413BBC885EEB507D3D99BA591C7EB3E58E0E876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764389   (101555) от 07.12.2024
+
+B.o.B feat. Hayley Williams of Paramore - Airplanes (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101555.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Airplanes» — второй сингл рэпера B.o.B из его дебютного студийного альбома B.o.B Presents: The Adventures of Bobby Ray, исполненный в дуэте с вокалисткой группы Paramore Хэйли Уильямс. Премьера видео состоялась 15 июня 2010 года. Режиссёром клипа стал Хиро Мураи.Жанр: альтернативный хип-хопПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C31B9C4BF69BCE0C12F9DFD2A9009A7D3256C83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764499   (101556) от 07.12.2024
+
+Призрак дома на холме / The Haunting (1963) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по мотивам романа Ширли Джексон 1959 года «Призрак дома на холме»... Доктор Джон Марквей, исследователь паранормальных явлений, приглашает нескольких человек с экстрасенсорными способностями провести несколько дней в огромном и зловещем доме на холме, где, по слухам, обитают призраки. Его предложение принимают две девушки — Элеонор Лэнс и Теодора, а также Люк (   Читать дальше...   )Производство: Великобритания, США / Argyle EnterprisesЖанр: ужасы, триллерРежиссер: Роберт УайзАктеры: Джули Харрис, Клер Блум, Ричард Джонсон, Расс Тэмблин, Фэй Комптон, Розали Кратчли, Лоис Максвелл, Валентайн Дайалл, Дайан Клер, Рональд Адам, Памела Бакли, Эми Далби, Клод Джонс, Фреда Кнорр, Ховард ЛэнгПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD50B73F5E8882128B4BB91132113B6CF89F561E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764562   (101557) от 07.12.2024
 
 Sexual Music Collection, Soft Jazz Mood - Endless Amour: Twilight Glow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +78,7 @@ Sexual Music Collection, Soft Jazz Mood - Endless Amour: Twilight Glow (2024) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101557.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Tarja - Rocking Heels: Live at Hellfest (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101558.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ Above & Beyond - Tranquility Base Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101559.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ Above & Beyond - Tranquility Base Vol. 2 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101560.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ The Rolling Stones - Welcome To Shepherds Bush (Live) (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101561.jpg" />
 </div>
 
 
@@ -141,7 +213,7 @@ Skunk Anansie - Post Orgasmic Chill (25th Anniversary Expanded Edition) (1999) R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101562.jpg" />
 </div>
 
 
@@ -168,7 +240,7 @@ PowerDirector – Video Editor v14.6.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101563.jpg" />
 </div>
 
 
@@ -192,7 +264,7 @@ VA - Deep Focus (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101564.jpg" />
 </div>
 
 
@@ -219,7 +291,7 @@ magnet:?xt=urn:btih:D792A0A051DE7A4B1B4D7D0500E23F5D5B9C2763
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101565.jpg" />
 </div>
 
 
@@ -243,7 +315,7 @@ Cat-X - Trapped State (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101566.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Impellitteri - War Machine (2024) 2 x CD, Japanese Edition, Deluxe Edition, Limi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101567.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ Sexual Music Collection - Sedutopia: Love-Making Jazz, Intimate Vibes (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101568.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Meta* сделает ваши чаты с ИИ-ботом достоянием �
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101569.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101569.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ Meta* сделает ваши чаты с ИИ-ботом достоянием �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101570.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101570.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ Meta* сделает ваши чаты с ИИ-ботом достоянием �
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101571.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Dance Gavin Dance - Pantheon (2025) [FLAC|Lossless|tracks + .cue] <Post-Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101572.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ magnet:?xt=urn:btih:83C60055A471D09BFCCB9D234E3FF0DBD816FD50
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101573.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:511AF1B25367C9593E2C6DD4EC499D2156EFDC1F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101574.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ Radio Wolf and Parallels - Proximity (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101575.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ magnet:?xt=urn:btih:3387063CCDB14FC04E17AEA03A27A3126FA20315
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101576.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ magnet:?xt=urn:btih:657CE2530916AC51DFC1E5AF9BC8D21D1037A50A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101577.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ magnet:?xt=urn:btih:9AE353A6FCC492EEFFFE82A0188FEE3E76B56B1A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101578.jpg" />
 </div>
 
 
@@ -579,7 +651,7 @@ magnet:?xt=urn:btih:F1A82595286931BDC3E3FBBA8C5006F59551939C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101579.jpg" />
 </div>
 
 
@@ -590,81 +662,6 @@ magnet:?xt=urn:btih:F1A82595286931BDC3E3FBBA8C5006F59551939C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4547C63F09EF8C33D3A1A415957ABAD0FA80B94F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822780   (101580) от 08.10.2025
-
-Журнал | Тайны ХХ века №38 (1184) (сентябрь 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101580.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40612FF8E3D30E0DAFA319A95DF064F6C683045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822782   (101581) от 08.10.2025
-
-Журнал | Тайны ХХ века №39 (1185) (сентябрь 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101581.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE33D6C4295F56BF4D5E6B78BE3D69456A43CB93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822787   (101582) от 08.10.2025
-
-VA - Compilation Part 195 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Broken Promises
-02 - Riltim - Stay
-03 - Azimov - Cold Wind
-04 - Dova Music - Tears of Love(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C611CF79FC5FF8EACF176762B51D5B5A6D8AFCDF
 ```
 
 

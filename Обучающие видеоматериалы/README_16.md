@@ -6,7 +6,7 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco ACI. Базовый �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28310.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Skillbox, Дмитрий Шадрин, Арсений Павлов | Специ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28435.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Product University, Анна Филина, Дмитрий Жечков, Алек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28441.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28441.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A27C2855509247CFB7D7DFFE8147B041313F1894
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28473.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28473.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Systems.Education | Конференция по проектированию п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28492.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Master-Skills & Андрей Скидан | Программирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28507.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Merion Academy, Никита Буцев | Онлайн-курс по сетев�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28521.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:D7C3D680D638D5F76A0D097879F01D3C67F3AA17
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28654.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28654.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:07FF5BD9FAACD69AFA128D533292F15EDF828A92
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28658.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28658.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Infostart, Артур Аюханов, Александр Кунташов, Ва�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28720.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Crypto Robotics | Криптовалюты - инструкция по прим�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28723.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:6B56C1125551F28EC57C7132F96B5D181556DF1F
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28772.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:E32A6A319E6CC3712829A97F09403A863B74F047
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28823.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ OK English School, Елена Вогнистая | Видеокурс по уч�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28835.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28835.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:DBA1525D1B14BFD225E27261A5044B79EBA01541
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28849.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ OK English School, Елена Вогнистая | Видеокурс Начин
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28934.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28934.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:7B6D7088F2C9A89BB7ACC9F3D03E85A2DC1828AF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28963.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28963.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:20B3409A2FEA5CDE71A6F4EAA18DA472CD4B79BC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29054.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Skillbox, А. Гончаренко, А. Слуцкер, Н. Смерницкий
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29058.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Deworker Pro, Дмитрий Елисеев | Стрим про безопасн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29069.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29102.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Andrew Burgess | Building a Web App From Scratch With AngularJS (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29217.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Digium | Обучение основам Asterisk / Asterisk Essentials Training
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29344.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:4AF09B27377F944BAC113A06C0F4399A089BE031
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29453.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ JUG Ru Group | HolyJS 2024 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29526.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29526.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ CyberYozh Academy, Евгений Ивченков, Алексей Гришин 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29555.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29555.jpg" />
 </div>
 
 

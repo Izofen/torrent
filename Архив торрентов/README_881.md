@@ -1,3 +1,104 @@
+###  Публикация: 1668769   (173381) от 13.10.2023
+
+Perfectly Clear WorkBench 4.6.0.2607 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9004A9E1E857DC0EBB0DDDACB1CB5C35A687D13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668580   (173384) от 13.10.2023
+
+Monkey's Audio 10.25 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monkey's Audio — данная утилита предназначена для преобразования (сжатия) уже цифровых данных в собственный формат без потерь (lossless) APE.
+Главная особенность программы состоит в том, что Monkey's Audio, в отличие от большинства традиционных методов оцифровки звука (MP3, OGG и т.п.) полностью сохраняет качество звука, а сжатие производит по собственному алгоритму (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EBBA502BA62A32F4DC41A07D2E0D54EEEE7C24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668622   (173388) от 13.10.2023
+
+SwitchResX 4.13.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173388.jpg" />
+</div>
+
+
+###  Подробнее
+
+SwitchResX 4 — настройка монитора и изображения для Mac OS X
+SwitchResX для Mac OS X является аналогом утилит ATI и Nvidia настроек монитора и изображения.
+Программа позволяет управлять разрешением как экрана ноутбука, внешнего монитора и airplay устройств в одно касание.
+Широкий и гибкий инструмент настроек различных типов разрешений под свои нужды. В отличие от (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10.10.2023Разработчик: © 1997 - 2021 Stéphane MadrauПоддерживаемая ОС: MacOS X 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2A61722E4DE5149FD25EE61AE41CF256C0D23C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668739   (173457) от 13.10.2023
+
+Skype 8.106.0.210 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375A6E7A9F17A26C3E80D8EAB199E8B6620F5802
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668697   (173470) от 13.10.2023
 
 Downie 4 v.4.6.31 [Multi/Ru]
@@ -6,7 +107,7 @@ Downie 4 v.4.6.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173470.jpg" />
 </div>
 
 
@@ -32,7 +133,7 @@ Dash 7.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173482.jpg" />
 </div>
 
 
@@ -56,7 +157,7 @@ DockView 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173486.jpg" />
 </div>
 
 
@@ -80,7 +181,7 @@ Native SQLite Manager 1.26.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173493.jpg" />
 </div>
 
 
@@ -104,7 +205,7 @@ A Better Finder Rename 12.01 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173494.jpg" />
 </div>
 
 
@@ -129,7 +230,7 @@ Dropshare 5 v.5.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173496.jpg" />
 </div>
 
 
@@ -154,7 +255,7 @@ DirEqual 5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173498.jpg" />
 </div>
 
 
@@ -179,7 +280,7 @@ Permute 3 v.3.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173502.jpg" />
 </div>
 
 
@@ -203,7 +304,7 @@ Dropzone 4 Pro 4.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173503.jpg" />
 </div>
 
 
@@ -228,7 +329,7 @@ Marked 2 - Markdown Preview 2.6.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173504.jpg" />
 </div>
 
 
@@ -253,7 +354,7 @@ EtreCheck Pro 6.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173506.jpg" />
 </div>
 
 
@@ -278,7 +379,7 @@ WinRAR 6.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173534.jpg" />
 </div>
 
 
@@ -302,7 +403,7 @@ magnet:?xt=urn:btih:2523567F5D18956D82DC70ACC1FBC3FBEDC8DCC0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173592.jpg" />
 </div>
 
 
@@ -326,7 +427,7 @@ USB Safely Remove 6.4.3.1312 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173608.jpg" />
 </div>
 
 
@@ -350,7 +451,7 @@ USB Safely Remove 6.4.3.1312 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173610.jpg" />
 </div>
 
 
@@ -374,7 +475,7 @@ Spotify Web-Portable by DVLZ 2.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173611.jpg" />
 </div>
 
 
@@ -398,7 +499,7 @@ R-Studio Technician 9.3 Build 191248 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173613.jpg" />
 </div>
 
 
@@ -422,7 +523,7 @@ Paint.NET 5.0.11 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173615.jpg" />
 </div>
 
 
@@ -446,7 +547,7 @@ ASUS GPU Tweak III 1.6.9.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173618.jpg" />
 </div>
 
 
@@ -471,7 +572,7 @@ Auslogics BoostSpeed 13.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173619.jpg" />
 </div>
 
 
@@ -495,7 +596,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173624.jpg" />
 </div>
 
 
@@ -519,7 +620,7 @@ Total Commander 11.02 RC2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173625.jpg" />
 </div>
 
 
@@ -530,104 +631,6 @@ Total Commander является самым мощным и стабильным
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6AEEEB064F549181C084BA236CC5A438BC049AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595977   (173635) от 08.12.2022
-
-Google Chrome 108.0.5359.99 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673020D1D26B60D730E0AEB5E6F24C6FD7FB1883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668523   (173636) от 12.10.2023
-
-Topaz Video AI 3.5.3 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173636.jpg" />
-</div>
-
-
-###  Подробнее
-
-До сих пор не было возможности идеально воссоздать видео высокого разрешения из видеоряда низкого разрешения. Video AI превратит ваши видео в чистые увеличенные видео с разрешением до 8K, от старых домашних фильмов до низкокачественных SD и DVD. Video AI - это идеальный способ снять хорошие кадры и сделать их великолепными. Вы когда-нибудь хотели, чтобы ваши кадры (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504EE822B8852978C5FFF5A6C50F084E74B97E1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596125   (173638) от 08.12.2022
-
-BitComet 1.98 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173638.jpg" />
-</div>
-
-
-###  Подробнее
-
-BitComet - это функциональный, быстрый и простой в освоении клиент, который позволяет работать со ссылками формата Bittorrent. Он поддерживает одновременное скачивание нескольких файлов с возможностью установления приоритета загрузки, может создавать очередность загрузки, имеет возможность быстрой остановки/возобновления закачки файлов. Работает с прокси-сервером, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2B9D8BDB4DE9E5D24D612B74AFEAC76AF61CEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668466   (173643) от 12.10.2023
-
-simplewall 3.7.3 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой в использовании и нетребовательный к ресурсам компьютера фаервол, имеющий все необходимые опции для блокировки входящего и исходящего трафика приложений.
-Поддерживаются два режима работы: фильтрация по белому или черному списку.
-Работа simplewall реализована через возможности WFP (Windows Filtering Platform).Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081B80EA2A0D91FBB4365F3C9E0A4A6CB51F2803
 ```
 
 

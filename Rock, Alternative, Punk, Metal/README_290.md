@@ -6,7 +6,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172447.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Amorphis - Queen Of Time - Live At Tavastia (2023) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172487.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Psychework - The Dragon's Year (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172500.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Crypta - Shades of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172504.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Somnus Aeternus - A Nightmare Lit by a Dying Star (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172507.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Psygnosis - Mercury (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172516.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Psychework - Karelian Hills (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172522.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dominance - Slaughter of Human Offerings in the New Age Of Pan (2023) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172642.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ronnie Atkins - Trinity (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172643.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D54B61640ED213AB2E4FD53369104590C7FD11D0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172653.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - All Out Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172655.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Antagonist - Damned And Cursed…To Life On Earth (Compilation) (2016) Compilati
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172658.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Theocracy - Ghost Ship (2016) [FLAC|Lossless|image + .cue] <Progressive Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172669.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Decembre Noir - Your Sunset | My Sunrise (2023) [MP3|320 Kbps] <Melodic Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172672.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Crocodile - The Tale of Otter, Thorn Eater, And the Colored Coyotes of Hidden Ci
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172674.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Highway - Viral (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172678.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nox Sinister - Knight Terrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172679.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Birth Asphyxia - Human Obelisk (2012) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172680.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Permutation - Transience (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172685.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Profanatica - Crux Simplex (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172686.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:6F67A43933790B74F0CA062C4D7CB03521F6D10C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172833.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:C6BAE301F09D057F4D54790E7BA8C16C07FA414B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172843.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Evanescence - Going Under (2003) Single, Remastered, 2023, Craft Recordings [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172849.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:297BBC6540F904CCC26C9F6987514FA5B5F5CE02
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172861.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:4EAC91981D7823B8B965B8917CC5F3A8EC059628
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172863.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Corey Taylor - CMF2 (2023) [FLAC|Lossless|tracks + .cue] <Alt.Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172868.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2C2801AF13643CC97917F4F0F73785025A866A76
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48586.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:77BBBEBA19C0E2921FFFD181BF9963AE1983E55C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48587.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0BE177F49FD3DA56D21363E8C6399640E4066C72
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48588.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F90FCA2996EB0DFBAF1CF076A5A747F692FFC547
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48589.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D43378BE9B9A00FBE1CF4818FF3237932DF13154
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48590.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7FE5D8C46BD62F73AB5D3F9E9F28DB1955AB1BC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48591.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:7FE5D8C46BD62F73AB5D3F9E9F28DB1955AB1BC6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48592.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Mailbird Premium 3.0.17 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48593.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:6908C3AE0E232781838645B81190CF2F1A721CD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48594.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:E4CAFA93A8E1AB65DFB2A1B090ED050A9D45A77E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48595.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:6FBBC11DB327A31C005A427918601B1FBC901CA3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48596.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:6B50A764D2F017462E546D3F957294E917B0A82F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48597.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:E72F8C4259B1EA5373533FA448D599B1A12908DC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48598.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48599.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Capture One 23 Enterprise 16.4.4.2244 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48600.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2A5CCAD245FA87962324EDCD362CEC66B34F6593
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48601.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:58CFD060A09FEAD1290973E538E3F23F93403794
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48602.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:9CA633744574DB651377BC5929BC3AC44A886EAD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48603.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ eM Client Pro 10.0.3351.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48604.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_03) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48605.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ No Man's Sky (2016) [Ru/Multi] (5.00.1/dlc) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48606.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Gestalt: Steam & Cinder (2024) [Multi] (1.0.6) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48607.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:5CBC197EF9EE321CF6789B34640F8309F1017DE4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48608.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:343E94BBF00CBDE2EB2F832A1778365C60A51B9C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48609.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:343E94BBF00CBDE2EB2F832A1778365C60A51B9C
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48610.jpg" />
 </div>
 
 

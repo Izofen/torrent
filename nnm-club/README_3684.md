@@ -1,3 +1,81 @@
+###  Публикация: 1702832   (115466) от 26.02.2024
+
+Белое золото (1929) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый полнометражный туркменский фильм. Бывший батрак Курбан, окончив в городе курсы трактористов, организовал в родном ауле колхоз. Вот они какие, трактористы!Производство: СССР, ТуркменгоскиноЖанр: драма, история, немое киноРежиссер: Александр ВладычукАктеры: Б. Ораз-оглы, Б. Куль-Мурадов, Ай-Джаман, Х. Нур-байСубтитры: русские (интертитры)Продолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00632BCD040F84A88B7EF700604F0EE61DFFB5DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702712   (115467) от 26.02.2024
+
+Oathbringer - Tales Of Valor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgoth (05:44)
+02. Hall Of The Slain (04:45)
+03. Arakis (04:40)
+04. Holy War (04:04)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E80F975365616252E6B2E6DDD9F83D2200FC2C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702656   (115468) от 26.02.2024
+
+Dissolving Of Prodigy & Bigotry - Lamentations of Innocents & Step to the Grave (2017) Split [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dissolving Of Prodigy:
+01. Affliction (07:39)
+02. The Torment In Blind Eyes (08:19)
+03. Damocles Gladius (07:04)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F7CC2540DAA3C69A5697D410DCC9E4D7E5DD5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702663   (115469) от 26.02.2024
 
 Joe Lamont - Secrets You Keep (1985) Reissue, Sony Music, 2010 [FLAC|Lossless|WEB-DL|tracks] <AOR>
@@ -6,7 +84,7 @@ Joe Lamont - Secrets You Keep (1985) Reissue, Sony Music, 2010 [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115469.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Pascal Geiser - You Can Change Your Hat (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115470.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Sons of Liberty - The Detail Is In The Devil (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115471.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:337DE6084B62420A5EE1623370C9D1E22779DD9D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115472.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Funeral Winds - Nexion Xul - The Cursed Bloodline (2007) [APE|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115473.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Bessemer Saints - This Is BS Too (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115474.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Eternal Storm - A Giant Bound to Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115475.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ magnet:?xt=urn:btih:29466FB84AC36469C7B74C47B3848A2ED4540171
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115476.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Oroborus - Family Friendly Wall Of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115477.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ James Mastro - Dawn of a New Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115478.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Dissolving of Prodigy - Gallileous & Wijlen Wij & Dissolving of Prodigy & Panthe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115479.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Funeral Winds - Sinister Creed (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115480.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ Dreamstreet - Dreamstreet 2.0 (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115481.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ Blue Mitchell - Graffiti Blues (1973) 1993, Mainstream Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115482.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ magnet:?xt=urn:btih:4ADC9EA68B1DAB6BB8FA2786A45C27F2A2B4E1C3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115483.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi | My Tiny Senpai | Маленька�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115484.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Tablacus Explorer 24.2.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115485.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ magnet:?xt=urn:btih:3FC5E02F9B1FBE2EDBFF6F1A6A4A4E797FBF9711
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115486.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Edomae Elf | Otaku Elf | Эльф Эдомаэ [2023, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115487.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ magnet:?xt=urn:btih:35C7A3CAF4DCCFFFD081725454B197EA1A9D2EB2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115488.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ magnet:?xt=urn:btih:AEE47564D3A52FD7ADE0A36B0D44852ADC15BA80
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115489.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ magnet:?xt=urn:btih:A7C54D17390262957E8C13AEAC3E13BC7E102C92
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115490.jpg" />
 </div>
 
 
@@ -572,7 +650,7 @@ FM-84 - Maverick (Atlas B-sides) (2020) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115491.jpg" />
 </div>
 
 
@@ -586,80 +664,6 @@ FM-84 - Maverick (Atlas B-sides) (2020) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4475FFECFB6851451D13D5CE41D5AA837264955E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702843   (115492) от 26.02.2024
-
-Джек Финней | Лицо на фотографии (2022) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115492.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Инспектор Айрин приглашает к себе в отделение профессора физики, чтобы тот помог ему разобраться с загадочными исчезновениями нескольких преступников. Люди не исчезают просто так, и после долгих розысков, инспектор нашел следы... в прошлом." (с)Жанр: Фантастика, ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28307B90A83699CF59CD29E830E53921BAEB1099
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702827   (115493) от 26.02.2024
-
-Николло Макиавелли | Мандрагора (1991) [MP3, Юрий Яковлев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая гуманистическая комедия нравов итальянского Ренессанса. Действие происходит в современной автору Флоренции (1520-й год), созданы реальные, жизненные характеры и ситуации.Жанр: Комедия, РадиоспектакльИздательство: ГостелерадиофондПродолжительность: 01:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFA4FDC4369C6CEA21A552158702E521351977E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702796   (115494) от 26.02.2024
-
-Фёдор Достоевский | Бедные люди (2007) [MP3, Юрий Лазарев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная библиотека.
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-Написанный Ф.М. Достоевским роман «Бедные люди» в 1845 году, стал первым произведением писателя, принесшим ему широкую (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: АудиокнигаПродолжительность: 05:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700844FACFE8C7502DF7B7FD7F9756B5259E66E2
 ```
 
 

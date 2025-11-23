@@ -1,3 +1,177 @@
+###  Публикация: 1519103   (150470) от 22.12.2021
+
+Джонатан Б. Лосос | Удивительная эволюция. Биологическая история Земли в невероятных превращениях и мутациях организмов (2020) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга изменит ваш образ мыслей и представления об эволюции и естественном отборе. Вы удивитесь тому, как знания об эволюционных изменениях могут помочь защитить экосистему, обеспечить наши запасы продовольствия и бороться с вредными вирусами и бактериями. Автор познакомит вас с мировыми исследованиями, которые проливают свет на самые тайные загадки жизни на Земле. (   Читать дальше...   )Жанр: Научно-популярная литература, Общая биологияПеревод: Т. Л. ПлатоноваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63ED219018347875BB87C9D58367A65E56AB147F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738746   (150471) от 26.12.2013
+
+Газета | Сад, огород - кормилец и лекарь. Спецвыпуск №1 (73) (2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150471.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5611A7B915312E1F21EBDD070337B55206F99B81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677654   (150472) от 18.11.2023
+
+Topaz Photo AI 2.1.3 (x64) Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1741E5335924318ADC64221DD4C07DF021077C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434299   (150473) от 24.12.2020
+
+СG-SСНOОL.оrg, Андрей Заморский  | 3ds max — vfx (2013) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150473.jpg" />
+</div>
+
+
+###  Подробнее
+
+работать с флюидами, водой, разрушениями, огнем, дымом, частицами. Создавать хвосты от ракет, самолетов, трейлы и тп.
+работать с такими плагинами для симуляции и рендеринга динамики: rayfire, fumefx, thinking particles, real flow, naiad, krakatoa.
+создавать визуальные эффекты для кино, клипов, рекламы - разрушения, взрывы, огонь, пыль, дым.
+загружать в 3ds max данные (   Читать дальше...   )Производство: СG-SСНOОL.оrgЖанр: Создание видеоПродолжительность: 17:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865278E7812BADDFF2B1B284951F07768E5ABB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589168   (150474) от 14.12.2012
+
+Full Uninstall 2.12 Final [Русский / Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_150474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Full Uninstall - утилита для полного удаления программ из системы. Имеет мощную функциональность, позволяющую полностью удалить приложение из системы. При этом обладает дружественным и простым интерфейсом. Программа предназначена для решения этой проблемы: она позволит полностью удалить ненужное приложение из вашей системы. Основной возможностью программы является полное удаление программ из системы. Для этого Full Uninstall отслеживает все изменения, происходящие в системе во время установки интересующего приложения. Вы можете узнать, какие файлы и записи реестра были изменены. Используя эти данные, Full Uninstall полностью удалит приложение из системы при необходимости.Название программы: Full UninstallЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518939   (150475) от 22.12.2021
+
+Разлучённые души / Разлука / Separation (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама маленькой Дженни требует развод и единоличную опеку над ребёнком — муж Джефф, в прошлом автор популярного комикса, уже давно сидит без идей и работы, а она сама вынуждена до ночи пропадать в офисе. Когда женщина внезапно гибнет под колёсами автомобиля, Дженни начинает странно себя вести, а Джефф подозревает, что в их доме активизировалось нечто потустороннее.Производство: США / Yale Productions, Post Film, RainMaker FilmsЖанр: Ужасы, драмаРежиссер: Уильям Брент БеллАктеры: Руперт Френд, Виолет Макгроу, Мадлен Брюэр, Мэми Гаммер, Брайан Кокс, Эрик Миллер, Саймон Куотерман, Мэнни Перес, Лорри Одом, Лайла ШривПеревод: Профессиональный (дублированный) (Кинопоиск HD)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C939113D0CFA918DC20B9262531F7D37A0D845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677526   (150476) от 18.11.2023
+
+VA - Hotel, Bar & Restaurant Romantic Background Music (2023) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tea At Seven - Natural Surroundings (4:33)
+02. Gazdabolt - Free Range (4:29)
+03. Vis Et Spes - Peak Night (4:30)
+04. Exquisite Frame - Situational Experiences (4:29)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811EA6316FCE9F43BC67403593F039A0185C7BEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968879   (150477) от 25.12.2015
 
 Ричард Брэнсон | Мои правила. Слушай, учись, смейся и будь лидером (2015) [RTF]
@@ -6,7 +180,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150477.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ The Christmas Spirit 4: Journey Before Christmas / Дух Рождества 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150478.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:FF0A15323D582500499C809AC24B277109DA88BD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150479.jpg" />
 </div>
 
 
@@ -80,7 +254,7 @@ magnet:?xt=urn:btih:553CF5D711F7E40E448993D11AF8D9C8D476674B
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150480.jpg" />
 </div>
 
 
@@ -106,7 +280,7 @@ TweakNow WinSecret Plus! 4.9.16 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150482.jpg" />
 </div>
 
 
@@ -131,7 +305,7 @@ magnet:?xt=urn:btih:547F2DE026464403F793AC3572C9B04A471EC602
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150483.jpg" />
 </div>
 
 
@@ -155,7 +329,7 @@ magnet:?xt=urn:btih:63861D6B263C1159EEF7277A3D256F3955A30DA9
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150484.jpg" />
 </div>
 
 
@@ -181,7 +355,7 @@ magnet:?xt=urn:btih:E2FC16AE75324F01C6801E1702D2306A2B04DB49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150485.jpg" />
 </div>
 
 
@@ -205,7 +379,7 @@ magnet:?xt=urn:btih:E6C9BE15582B6C7A77284B21847DEC01E7A9409E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150486.jpg" />
 </div>
 
 
@@ -229,7 +403,7 @@ magnet:?xt=urn:btih:844554DC2A921AE286FCC002CB5D9E70D0378612
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150488.jpg" />
 </div>
 
 
@@ -255,7 +429,7 @@ magnet:?xt=urn:btih:51441D11CD1BECDD52075A7ED9B1D855F7BF37CA
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150489.jpg" />
 </div>
 
 
@@ -280,7 +454,7 @@ magnet:?xt=urn:btih:3BF9CF41AFBEADEA209F56C5E1C58338CF780C5D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150490.jpg" />
 </div>
 
 
@@ -304,7 +478,7 @@ magnet:?xt=urn:btih:4A1CF6527B1685C373392AD1BDF5076585DA280E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150491.jpg" />
 </div>
 
 
@@ -328,7 +502,7 @@ magnet:?xt=urn:btih:9E4373832BD538472BA227F7F3866DDDC4BD35C4
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150492.jpg" />
 </div>
 
 
@@ -352,7 +526,7 @@ magnet:?xt=urn:btih:2B2894579FF5C325C04EAF68475A9AB30E7BD826
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150493.jpg" />
 </div>
 
 
@@ -378,7 +552,7 @@ magnet:?xt=urn:btih:FE4B5F998F7AC051C5750CB5DF04F9419F1BC918
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_150494.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_150494.jpg" />
 </div>
 
 
@@ -402,7 +576,7 @@ NVIDIA GeForce Experience 2.8.1.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150495.jpg" />
 </div>
 
 
@@ -426,7 +600,7 @@ AAF DCH Optimus Sound 6.0.9075.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150496.jpg" />
 </div>
 
 
@@ -450,7 +624,7 @@ magnet:?xt=urn:btih:E2A123FC431866EEC4A2B57CF2C6A24B297A8EB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150497.jpg" />
 </div>
 
 
@@ -461,189 +635,6 @@ magnet:?xt=urn:btih:E2A123FC431866EEC4A2B57CF2C6A24B297A8EB5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA75A71E0A03A3A72B130631CBB6F3359003EE06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677621   (150498) от 18.11.2023
-
-С.А. Бахвалова, В.А. Романюк | Основы моделирования и проектирования радиотехнических устройств в Microwave Office (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены начальные сведения о работе с программой Microwave Office. Описана методика моделирования и проектирования электрических схем СВЧ. Приведены примеры составления схем, их оптимизации, расчета характеристик и определения параметров. Рассмотрен порядок моделирования различных линейных устройств: фильтров, резонансных цепей, усилителей. Представлены методики (   Читать дальше...   )Жанр: Компьютерная литература, радиотехникаИздательство: Солон-ПрессФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF578B983B2998EAE02286DB7D1441054A367C15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677694   (150499) от 18.11.2023
-
-Mike Zito & Albert Castiglia - Blood Brothers:  Live in Canada (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Sweet Mama
-02. Tooth And Nail
-03. In My Soul
-04. Fool Never Learns(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C65418BE6E2C18369B61656B62AB09AED81CC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677527   (150500) от 18.11.2023
-
-VA - Mandarin Chill Out, Vol. 1 (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lo Tide - Roll (2:22)
-02. Steen Thottrup - Diversities (4:11)
-03. Two In Florence - Morning Time (Chill Out Mix) (3:17)
-04. Michael E & Tim Gelo - Ship To America (9:20)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C77C6C8F03D6D9E73840AA09D5C55B827A5275
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677528   (150501) от 18.11.2023
-
-VA - Mandarin Chill Out, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Diventa Project - Where You Goin (Lazy Hammock Mix) (4:09)
-02. Eskadet - Jardin Secret (6:46)
-03. Steen Thottrup - Compassion (Remastered) (3:51)
-04. Van - Love (2:57)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 02:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BEB45B98575B26F74E428BF2BDAAB6CD21257D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677518   (150502) от 18.11.2023
-
-VA - Disco House Sounds 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Get That Phunk Phenomana (Original Mix) (4:23)
-02. Supercircus - I Can't Get Enough (Nu Disco Mix) (4:29)
-03. The Disco Boys - Funk Decision (2:51)
-04. Dominica - I Gotta Let U Go (Youngr Bootleg) (4:39)(   Читать дальше...   )Жанр: Club House, DiscoПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75BE21EF97FFFE71A669160F0CC258B745B91A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677532   (150503) от 18.11.2023
-
-VA - The Gate Of Oblivion (2023) [MP3|320 Kbps] <Metal, Hard-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Whirlwind - Cannons Of Infuriation
-002. Attest - Reign Of Nil
-003. Ticinum - Il Muto Dall'accia Al Collo
-004. Aphyxion, Immerse - Heavy Shadows(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 09:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691276103A63D83D47D221034C29D49C627CAFA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677568   (150504) от 18.11.2023
-
-Plus Messenger (Telegram+) v10.2.9.0 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: Extra Mod + CloneРелиз состоялся: 17.11.2023Разработчик: rafalenseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A235A7B45DBEF5C39B187ABCD82F7150F78EF6
 ```
 
 

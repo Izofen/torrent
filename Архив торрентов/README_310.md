@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75268.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Nazareth - The NazBox, 4 CD Box Set (2011) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75286.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ uTorrent-Portable 3.1.2.26729 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75308.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ uTorrent-Portable 3.1.2.26729 [Русский]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75319.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Dr.Web Security Space  7.0.1.2061 Final Ml/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75344.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75356.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75362.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75365.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:172AE99B6D79E03814156BDB612EABB1C919CFCC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75413.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:A0977948B486851AB29736B96E90DFACCF54A72F
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75430.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:F137C70178D2D3845CFD1D80D61539F89CFAC468
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75439.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:49EF0FC4330C452CB35F9A46A0B3E359F90EB868
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75447.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:49EF0FC4330C452CB35F9A46A0B3E359F90EB868
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75455.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:97A97A0E385B20DCA5FFA7A86EB23BCC5AE68BB9
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75470.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:97A97A0E385B20DCA5FFA7A86EB23BCC5AE68BB9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75498.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Spyware Terminator Premium 2012 v3.0.0.54  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75499.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75502.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75507.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Spyware Terminator - программа для защиты компьютера
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75514.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ DivX Plus Pro v8.2.2 Build 10.3.2 (1.8.5.28)  Eng/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75522.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ DivX Plus Pro — это совершенно новый пакет кодеко
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75527.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ DivX Plus Pro — это совершенно новый пакет кодеко
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75568.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:CD7B48B540249D117586BAD3CEC83B9C1840005B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75569.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:CD7B48B540249D117586BAD3CEC83B9C1840005B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75574.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:CD7B48B540249D117586BAD3CEC83B9C1840005B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75575.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:CD7B48B540249D117586BAD3CEC83B9C1840005B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75641.jpg" />
 </div>
 
 

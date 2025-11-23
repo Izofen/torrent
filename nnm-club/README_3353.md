@@ -1,3 +1,79 @@
+###  Публикация: 1735677   (106860) от 09.07.2024
+
+Байкеры / The Bikeriders (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106860.jpg" />
+</div>
+
+
+###  Подробнее
+
+1960-е. Мотоклуб, в котором собираются местные аутсайдеры, постепенно превращается в сборище бандитов.Производство: США / 20th Century Studios, Regency Enterprises, Regency TelevisionЖанр: драма, криминалРежиссер: Джефф НиколсАктеры: Джоди Комер, Остин Батлер, Том Харди, Майкл Шеннон, Майк Фейст, Бойд Холбрук, Норман Ридус, Дэймон Херриман, Бо Напп, Эмори КоэнПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:57:14Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735713   (106861) от 09.07.2024
+
+VA - Chillout & Lounge Music Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossing Colors - Animated Expressions (4:20)
+02. Bio Logical Theory - Sunny Groove (4:25)
+03. Klasse XXI - Shared Aspirations (4:20)
+04. Vostok Divers - Apparent Nonchalance (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A0B314F8969E5CA061FB27DFBF60F5FB59250B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735750   (106862) от 09.07.2024
+
+Николай Чуковский | Хочу всё знать! (Выпуск № 7). Великие мореплаватели. Крузенштерн и Лисянский (2007) [MP3, Денис Некрасов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Корнеевич Чуковский (1904–1965) – русский писатель, переводчик прозы и поэзии, сын писателя Корнея Чуковского.
+Отважные русские капитаны сделали немало замечательных открытий. Они исследовали не только Северные моря и Аляску – они обошли вокруг света, и в их экспедициях было множество захватывающих приключений. Книга Николая Корнеевича Чуковского рассказывает (   Читать дальше...   )Жанр: Историческая литература, биографияИздательство: Элитайл, СиДиКомПродолжительность: 05:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C046E143A25B34B65788F673A22E0DDAF86ECA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735680   (106863) от 09.07.2024
 
 Байкеры / The Bikeriders (2023) WEB-DLRip [звук с TS] [AD]
@@ -6,7 +82,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106863.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106864.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ TeknoVore - Caerdroia (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Hard T
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106865.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ magnet:?xt=urn:btih:F06E5AB30E863CA78B028F86CB9392BCB9831901
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106866.jpg" />
 </div>
 
 
@@ -111,7 +187,7 @@ magnet:?xt=urn:btih:86FD6DDD2C3EB661D78A1785A101F82082C0EA12
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106867.jpg" />
 </div>
 
 
@@ -135,7 +211,7 @@ Simone Kopmajer - Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106868.jpg" />
 </div>
 
 
@@ -162,7 +238,7 @@ magnet:?xt=urn:btih:33D2F260D71A38361AB0D89B9B868090F424E465
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106869.jpg" />
 </div>
 
 
@@ -186,7 +262,7 @@ magnet:?xt=urn:btih:44F44DB6E4F272286CDF0FCBAEE97C77DFA67AAA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106870.jpg" />
 </div>
 
 
@@ -210,7 +286,7 @@ OCCT 13.1.0 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106871.jpg" />
 </div>
 
 
@@ -234,7 +310,7 @@ Glary Utilities Pro 6.12.0.16 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106872.jpg" />
 </div>
 
 
@@ -258,7 +334,7 @@ magnet:?xt=urn:btih:B3E78F611F4F39A49FD3235FFE82D03B41BBE7B5
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106873.jpg" />
 </div>
 
 
@@ -282,7 +358,7 @@ MetaX 2.88 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106874.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ magnet:?xt=urn:btih:2DC61A5B47F4AD5029B50103ECE06AF7A4DC74C7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106875.jpg" />
 </div>
 
 
@@ -333,7 +409,7 @@ BurnAware Professional 17.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106876.jpg" />
 </div>
 
 
@@ -357,7 +433,7 @@ Wondershare PDFelement 10.4.6.2776 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106877.jpg" />
 </div>
 
 
@@ -381,7 +457,7 @@ magnet:?xt=urn:btih:B91A6CBAB27E003D2C5085A249199F1FA5D4289D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106878.jpg" />
 </div>
 
 
@@ -407,7 +483,7 @@ Glary Tracks Eraser 6.0.1.10 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106879.jpg" />
 </div>
 
 
@@ -431,7 +507,7 @@ Image Uploader 1.4.1 Build 5176 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106880.jpg" />
 </div>
 
 
@@ -455,7 +531,7 @@ magnet:?xt=urn:btih:41A250396D943CDA5D6DF46CF4CC9A91AE91BFB8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106881.jpg" />
 </div>
 
 
@@ -482,7 +558,7 @@ Quinn Sullivan - Salvation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106882.jpg" />
 </div>
 
 
@@ -509,7 +585,7 @@ Aiseesoft Video Converter Ultimate 10.8.50 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106883.jpg" />
 </div>
 
 
@@ -533,7 +609,7 @@ Draw.io 24.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106884.jpg" />
 </div>
 
 
@@ -557,7 +633,7 @@ Lag - Asleep Behind the Wheel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106885.jpg" />
 </div>
 
 
@@ -571,87 +647,6 @@ Lag - Asleep Behind the Wheel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:270B248A386141629B5902215D483F6FEDDA49BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735483   (106886) от 08.07.2024
-
-Sabïre - Jätt (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doorway (Entry)
-02. Pure Fucking Hell
-03. Ice Cold Lust
-04. I'm A Rock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04052FD4CFEACFEFB43B45FD462E30AF34A46F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735476   (106887) от 08.07.2024
-
-Sear Bliss - Heavenly Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106887.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Infinite Grey
-2. Watershed
-3. The Upper World
-4. Heavenly Down(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADB00ACA8428F3D02DB14A02AE5866ED22C4AFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735424   (106888) от 08.07.2024
-
-Sunbomb - Light Up The Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbreakable (3:56)
-02. Steel Hearts (3:38)
-03. In Grace We'll Find Our Name (6:00)
-04. Light Up The Skies (4:54)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D87193E2F404F7043F96F4C407FB0A94C8FDF9
 ```
 
 

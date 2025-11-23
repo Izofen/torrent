@@ -6,7 +6,7 @@ Diablo + Hellfire (1996) [Ru/Multi] (1.5.4) Mod [DevilutionX]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28220.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ House Of Lords - 16 альбомов (1988 - 2024) 17 CD [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28221.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28222.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0E3FD21A2DD8004FB489ECA85B608DEF388EA49F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28223.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:202D9A526B67A14D95A06772FDDEDD06AEAB7080
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28224.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28224.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:58547A8FDF30A5C3C63173804ED1C5B905AD45BA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28225.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28225.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:58547A8FDF30A5C3C63173804ED1C5B905AD45BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28226.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C004DB3309F7490F313A919454709AFDFA5984F3
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28227.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C2884C509A028E8D66980955147D4BF7ADC1A307
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28228.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28228.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:754CF7A7205F9D6DF8AFE511541B69D14AA6939F
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28229.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E2C60FFC952A3AEC49DE5816741FCCD523617CFD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28230.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28230.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ LazyMedia Deluxe v3.356 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28231.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28231.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28232.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28232.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ dBpoweramp Music Converter 2025.02.07 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28233.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28233.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:3148D179DC38B61A2A31AD052B435D1F500A608C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28234.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28234.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:5C53C26250B33199BEC8FE0CC413254A6D1DDD57
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28235.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28235.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ SoundSwitch 6.12.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28236.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28236.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:2097D85CBCB36F007C2B2F485C25A338BF1FEF6A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28237.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28237.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28238.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28238.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:961659ED1CF4B10BAF04C7AE215F9043047C6C57
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28239.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28239.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:B1BAF6CF12D82AD775C2537D8658F3ED0A39BEDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28240.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28240.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:3172133407BA5397385EFC132BA3A48D2201C999
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28241.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28241.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:8415B73D83F292D09FC6E4825DAB228ECE7BA82A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28242.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28242.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ TikTok Private Plus (PayBack Edition) v38.5.5 Mod by TikTok Updates + Plugin Upd
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28243.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:3E99F501485245746B09EFC6EFC2FA525B69F982
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28244.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28244.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Flud v1.11.6.5 Mod by derrin [Ru/En/Ua]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28245.jpg" />
 </div>
 
 

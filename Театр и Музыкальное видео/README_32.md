@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127241.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A8286F25C8DCAF6570FAB5FACFCA43BB6210CECE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127252.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:260DD9F8032C25C10B85131F1DC8369A75CE7449
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128396.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129926.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130190.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080i]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130735.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130751.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:CE2E707027A7DB6CE50CE7AF91A9647B31D9C710
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130820.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:CE2E707027A7DB6CE50CE7AF91A9647B31D9C710
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130840.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Progressive Rock - Rock Legends (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130968.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131325.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:38D485740F7C6A1CEEF927366546A232E3B9A4F8
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131338.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:AD663638B7E5286DBAA54038955601493229C04A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131364.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:FAB8189F0FF5A481FC2C6217A3D2F3980E6DFD4C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131426.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:E094082CE2723DDCED30BC9853DCAACDA220B108
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131619.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:8EE26398734D99803C2CFE33665146B06C8A63E5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131847.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:8EE26398734D99803C2CFE33665146B06C8A63E5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131902.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:83FC3FF135101B8EC5C79E84F7561AE6276C8BAE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132063.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:2766137BFE4AB58A15823C56BD5F066770F0F464
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132076.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:F26C98FE704FE20F0759C02C476462528E1CB689
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132338.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:FBC30CD4BC90B7E1F0C9727102AD8180CB157D96
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132550.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:683DEDFDC852C72CBC0C35E234557138A8E749BC
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133649.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133674.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:29B5F7EB010B8399804D080DFE7FB9BD316FB18D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133898.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:DD0A71F99EA04F2A2333B98636F129CF1356C6E0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133983.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Mylene Farmer - Live A Bercy (1997) DVDRip [H.264/1080p] [Handmade Upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134035.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1703085   (115362) от 27.02.2024
+
+WinScan2PDF 8.71 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115362.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinScan2PDF - позволяет сканировать документы и сохранять их на своем компьютере в формате PDF с помощью любого установленного сканера, настольного приложения Windows для частного, офисного и коммерческого использования.
+Почему WinScan2PDF? Вы один из тех, кому только изредка приходится отправлять подписанный документ кому-либо по электронной почте? Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCCDB2F96E771F428B83827D2CFA52AA72B85B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703069   (115363) от 27.02.2024
+
+Районы / Rayony / Districts (2016) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алма-Ата, 1987 год. Главный герой фильма - 16-летний Арсен, который из пригорода переезжает в центр города и идет в новую школу. В новой школе он заводит дружбу с одноклассниками, активными участниками так называемых «Районовских движений». Вместе с этим, Арсен сталкивается с уличной, подростковой иерархией и насилием. И перед ним встает выбор, стать как все или (   Читать дальше...   )Производство: Казахстан / Astana Film Fund, SataifilmЖанр: драма, криминалРежиссер: Акан СатаевАктеры: Шарип Серик, Асель Сагатова, Жандос Айбасов, Данияр Алшинов, Эльтерес Нуржанов, Марьям Сатаева, Сануржан Сулейменов, Жан Оспанов, Владимир Логинов, Илья ЛошицкийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612DD7A77477660785AB953C746D59FA5DA4297A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703104   (115364) от 27.02.2024
+
+По законам искусства / Mea Culpa (2024) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда адвокат берется за дело обвиняемого в убийстве художника, она встает перед выбором: семья, долг или личные желания, влекущие за собой опасные последствия?Производство: США / Tyler Perry StudiosЖанр: триллер, драма, криминалРежиссер: Дэн ЛевиАктеры: Келли Роулэнд, Треванте Роудс, Керри О’Мэлли, РонРико Ли, Шон Сагар, Шеннон Торнтон, Ник Сагар, КейтЛинн Ньюберри, Арт Ньюкирк, Калли ДжонсонПеревод: Дублированный (укр. Так Треба Продакшн / Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 02:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406CAD267A03D3F05A6A2B68D6A9BD2EC932D1DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703029   (115365) от 27.02.2024
 
 Мэнди и силы зла / Mandy und die Machte des Bosen (2023-2024) WEB-DLRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +79,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115365.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:E6F02F96C88F79A4F46E102D3D14B21495438037
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115366.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ NetLimiter 5.3.8.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115367.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ TrustViewer 2.11.1.5105 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115368.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:521E3BA9E30F9759A0813498FCA647A8C1BD39ED
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115369.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ PrivaZer Pro 4.0.83 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115370.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:30567BA9089445DE534122591A73BC65574275C3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115371.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ XtraTools Professional 24.2.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115372.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ Pale Moon 33.0.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115373.jpg" />
 </div>
 
 
@@ -222,7 +295,7 @@ magnet:?xt=urn:btih:F6FF6B86EF56A84F65523061F840FDDB25F7A4B7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115374.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:A193DC833015CD80089A07E7C5FAFAFF5B377843
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115375.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:98504CADFD384BFD4F72345D8FCA374FF9302775
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115376.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ magnet:?xt=urn:btih:98504CADFD384BFD4F72345D8FCA374FF9302775
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115377.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ magnet:?xt=urn:btih:5724B530AC00491B1489606EAA83DF2B9C29BC03
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115378.jpg" />
 </div>
 
 
@@ -344,7 +417,7 @@ magnet:?xt=urn:btih:BAAD25ECEFB1B157D3A03C5ADC94E31C537B8379
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115379.jpg" />
 </div>
 
 
@@ -368,7 +441,7 @@ magnet:?xt=urn:btih:9324E3B076D61B0DBD055F52217B23D8F7D59EAB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115380.jpg" />
 </div>
 
 
@@ -392,7 +465,7 @@ Infostart, Римма Фролова | Сложный учет НДС в 1С - E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115381.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ RadioBOSS Advanced 7.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115382.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ VA - 100% Rock - Rock Hits - From Classic Rock To Metal (2024) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115383.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ magnet:?xt=urn:btih:620BC7D5B54F8852E08F6472D311F3D6DB68ABD3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115384.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ magnet:?xt=urn:btih:FE491576984018A19879DF37BAEEDBED03C6B72E
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115385.jpg" />
 </div>
 
 
@@ -519,7 +592,7 @@ Total Commander 11.03 (26.02.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115386.jpg" />
 </div>
 
 
@@ -543,7 +616,7 @@ magnet:?xt=urn:btih:207C9BF44EB0DE187B2B0817531887B13A44FDE7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115387.jpg" />
 </div>
 
 
@@ -554,78 +627,6 @@ magnet:?xt=urn:btih:207C9BF44EB0DE187B2B0817531887B13A44FDE7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2621024AC97F8FFA20B810D3A2823C9316C74F3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703053   (115388) от 27.02.2024
-
-Захват (2021) HDTVRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спецназовец в отставке Платонов работает спортивным тренером в пансионате и изо всех сил старается привыкнуть к тихой жизни без войны. Но многолетняя служба в горячих точках так просто его не отпускает: каждую ночь ему снится Ближний Восток и полные ужаса глаза девушки, которую когда-то ему не удалось спасти. Встретить Новый год и от души повеселиться в пансионат (   Читать дальше...   )Производство: Россия, ВодолейЖанр: боевикРежиссер: Александра БутькоАктеры: Павел Трубинер, Игорь Лифанов, Андрей Носков, Юлия Галкина, Вера НеустроеваПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974C6DEA69ADE2D5286FDCD182696EB95D43793C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702913   (115389) от 27.02.2024
-
-FastCopy Pro 5.7.1 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115389.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E64FBAD69EC8CE1A129D7369BA9D28D0250695
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702914   (115390) от 27.02.2024
-
-П.М. Бородин, Е.Н. Воронина (ред) | Естественно-научные предметы. Практическая молекулярная генетика для начинающих (2023) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генетика - одно из приоритетных направлений современной биологии. Цель книги "Практическая молекулярная генетика для начинающих" - познакомить школьников с этой наукой, её достижениями и применением этих достижений в повседневной жизни, с профессиями, связанными с генетикой. Особенность этого курса - большое количество практических заданий и ролевых игр, (   Читать дальше...   )Жанр: БиологияИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5A66F46090755F23BE7F0E9E50213D4656527F
 ```
 
 
